@@ -1,0 +1,1 @@
+# Qırımtatar tili
