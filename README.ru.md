@@ -32,7 +32,6 @@
   - [Яндекс.Переводчик](https://translate.yandex.ru) — поддерживает 51 язык
   - [Microsoft Translator](http://www.bing.com/translator/) — поддерживает 47 языков
   - [ПЕРЕКЛАДАЧ online.ua](http://pereklad.online.ua/ukr/yazyki/) — поддерживает 51 язык
-  - [ABBYY Lingvo Словарь](http://www.lingvo-online.com) — поддерживает 20 языков
   - [ПРОМТ Переводчик](http://www.translate.ru) — поддерживает 16 языков
 
 Они доступны и бесплатны для всех. Их можно использовать как в компьютере, так и в современном телефоне.
