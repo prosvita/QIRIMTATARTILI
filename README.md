@@ -1,58 +1,59 @@
-# Къырымтатар тилине терджиме этюв программасы
+# Qırımtatar tiline tercimye etüv programması
+[[На русском](README.ru.md)]
 
-## Макъсадымыз
+## Maqsadımız
 
-Дюньяда ким олса олсун метинни истеген тильден къырымтатарджагъа ве аксине терджиме япа билир.
+Dünyada kim ölsa ölsun myetinni istegen tilden qırımtatarcağa ve aksine tercimye yapa bilir.
 
-## Къырымтатарларгъа о неге керек
+## Qırımtatarlarğa o nege kerek
 
-* Материаллар ве китапларнынъ терджимеси тезлешир ве услюбий тюзетмелер дереджесинедже саделешир. Къырымтатар тилинде земаневий китап ве дерсликлер микъдары артаджакъ. Дигер тарафтан, къырымтатар халкъы озюни башкъа тиллерге терджиме этильген эсерлер ярдымынен танытыр.
-* Тильни огренмеге къолайджа олур. Компьютерде я да телефонда олгъан терджиме этюв программа унутылгъан ибарени, онынъ догъру язылышыны хатырламагъа ярдым этер. Оджаларгъа башкъа тиль огретме курсларыны алып бармасы къолайлашыр.
-* Къырымтатар муштерилерини козьде туткъан мал-махсулат чыкъаргъан истисалджылар, озь муштерилерининъ даа да чокъ мерагъыны джельп эттирмек ичюн, этикетка ве инструкцияларны къырымтатар тилине терджиме япып олурлар.
-* Терджиме этюв программа интернетте къырымтатар тилинде къонушувда васта олур. Тиль бильгисинде шубеленгенлер, терджиман ярдымынен, джумлелерни догъру къурып олурлар.
+* Materiallar ve kitaplarnıñ tercimyesi tezleşir ve üslübiy tüzetmyeler derecesinece sadeleşir. Qırımtatar tilinde zemaneviy kitap ve derslikler miqdarı artacaq. Diger taraftan, qırımtatar halqı özüni başqa tillerge tercimye etilgen esyerler yardımınen tanıtır.
+* Tilni ögrenmyege qolayca ölur. Kompyuterde ya da telefonda olğan tercimye etüv programma ünutılğan ibareni, önıñ doğru yazılışını hatırlamağa yardım eter. Öcalarğa başqa til ögretmye kurslarını alıp barması qolaylaşır.
+* Qırımtatar müşterilerini közde tutqan mal-mahsulat çıqarğan istisalcılar, öz müşterileriniñ daa da çoq myerağını celp ettirmyek içün, etiketka ve instruktsiyalarnı qırımtatar tiline tercimye yapıp ölurlar.
+* Tercimye etüv programma internette qırımtatar tilinde qonuşuvda vasta ölur. Til bilgisinde şubelengenler, terciman yardımınen, cümlelerni doğru qurıp ölurlar.
 
-Булар эписи къырымтатар халкъынынъ медениетини сакъламагъа ярдым этер, янъы халкъара севиеде оны танныттырмагъа васта олур.
+Bular episi qırımtatar halqınıñ myedeniyetini saqlamağa yardım eter, yañı halqara syeviyede önı tannıttırmağa vasta ölur.
 
-## Невбеттеки адымлар
+## Nevbetteki adımlar
 
-Терджиме этюв программа янъы имкянлар яратыр:
+Tercimye etüv programma yañı imkânlar yaratır:
 
-* четэль мешур алий окъув юртларында къырымтатар тилининъ огренмек
-* офис ичюн ве бизнес ичюн махсус алет-программа ишлетип, весикъалар къырымтатар тилинде юрюшмесини тешкиль этмек
-* метинлернинъ сеслендирмеси мустакъил тарзда тильни огренгенлер ичюн теляффузыны да огренмеге бир васта оладжакъ
-* къырымтатар тилиндеки метинлерде хаталарны автоматик тарзда тюзетмек
-* Интернетте сайтларны автоматик тарзда къырымтатар тилинден я да аксине терджиме этмек
-* метинлерни я да оларнынъ терджимелерини телефондаки фотокамера ярдымынен бельгилемек
+* çetel myeşur aliy oquv yürtlarında qırımtatar tiliniñ ögrenmyek
+* ofis içün ve biznes içün mahsus alet-programma işletip, vesiqalar qırımtatar tilinde yürüşmyesini teşkil etmyek
+* myetinlerniñ syeslendirmyesi müstaqil tarzda tilni ögrengenler içün telâffuzını da ögrenmyege bir vasta ölacaq
+* qırımtatar tilindeki myetinlerde hatalarnı avtomatik tarzda tüzetmyek
+* İnternette saytlarnı avtomatik tarzda qırımtatar tilinden ya da aksine tercimye etmyek
+* myetinlerni ya da ölarnıñ tercimyelerini telefondaki fotokamyera yardımınen belgilemyek
 
-## Бу насыл чалыша
+## Bu nasıl çalışa
 
-Интернетте online тарзында чалышкъан терджиман программалар къолай ишлетиле. Оларнынъ ярдымынен истенильген тильден башкъасына терджиме япмагъа мумкюн. Дюньяда ве бизлерде энъ чокъ файдалангъан терджиман программалары:
+İnternette online tarzında çalışqan terciman programmalar qolay işletile. Ölarnıñ yardımınen istenilgen tilden başqasına tercimye yapmağa mümkün. Dünyada ve bizlerde eñ çoq faydalanğan terciman programmaları:
 
-  - [Google Переводчик](https://translate.google.com) — онынъ 90 тиль теркибине кире
-  - [Яндекс.Переводчик](https://translate.yandex.ru) — онынъ 51 тиль теркибине кире
-  - [Microsoft Translator](http://www.bing.com/translator/) — онынъ 47 тиль теркибине кире
-  - [ПЕРЕКЛАДАЧ online.ua](http://pereklad.online.ua/ukr/yazyki/) — онынъ 51 тиль теркибине кире
-  - [ПРОМТ Переводчик](http://www.translate.ru) — онынъ теркибине 16 тиль кире
+  - [Google Translator](https://translate.google.com) — önıñ 103 til terkibine kire
+  - [Yandex.Translator](https://translate.yandex.com) — önıñ 88 til terkibine kire
+  - [Microsoft Translator](http://www.bing.com/translator/) — önıñ 50 til terkibine kire
+  - [online.ua Translator](http://pereklad.online.ua/ukr/yazyki/) — önıñ 53 til terkibine kire
+  - [PROMT Online-Translator](http://www.online-translator.com/Default.aspx?prmtlang=en) — önıñ terkibine 15 til kire
 
-Бу терджиме ичюн программаларны эр кес бедава файдалана биле. Оларны эм компьютерде, эм де земаневий телефонда ишлетмек мумкюн.
+Bu tercimye içün programmalarnı er kes bedava faydalana bile. Ölarnı em kompyuterde, em de zemaneviy telefonda işletmyek mümkün.
 
-Биринджи учь дане программалар машина терджимеси технологиясыны къуллана. Бойле терджиме тиль къаиделерине дегиль де (система бойле къаиделерни атта танымай), статистикагъа эсаслана. Тильни огренмек ичюн, система юзер бинъ микъдарында башкъа-башкъа тиллерде берильген бир малюматны бильдирген, анълаткъан параллель метинлерни къыяслай. Бизим вазифемиз, машина терджимеси технологияны ишлетип, компьютерни къырымтатар тилине огретмек ичюн, материаллар топламакътыр.
+Birinci üç dane programmalar maşina tercimyesi tehnologiyasını qullana. Boyle tercimye til qaidelerine degil de (sistema boyle qaidelerni atta tanımay), statistikağa esaslana. Tilni ögrenmyek içün, sistema yüzer biñ miqdarında başqa-başqa tillerde berilgen bir malümatnı bildirgen, añlatqan parallel myetinlerni qıyaslay. Bizim vazifemiz, maşina tercimyesi tehnologiyanı işletip, kompyuterni qırımtatar tiline ögretmyek içün, materiallar toplamaqtır.
 
-## Нелер керек
+## Neler kerek
 
-### Биринджи этап
+### Birinci etap
 
-1. Башкъа тиллерге терджиме этильген къырымтатар тилли китапларны электрон шекильге чевирмеге керек. И. Гаспринский адына китапхане 330-гъа якъын бойле китапкъа маликтир. Электрон шекильген китаплар кечирильген сонъ, оларны окъуп, олгъан хаталарны тюзетмеге керек.
-2. Интернетте къырымтатар ве башкъа тильде олгъан яифт макъалелерни сайлап тапмагъа керек.
-3. Къырымтатар тилини файдалангъан я да къырымтатар тилинде материалларгъа хас эписи сайтларны топламагъа керек.
-4. Топлангъан эписи материалларны къырымтатар тилини къошмакъ макъсадынен терджиман-программаларнен огърашкъан компанияларгъа теслим этмеге, тильни умумий теркипке кирсетмеге.
+1. Başqa tillerge tercimye etilgen qırımtatar tilli kitaplarnı elektron şekilge çevirmyege kerek. İ. Gasprinskiy adına kitaphane 330-ğa yaqın boyle kitapqa maliktir. Elektron şekilgen kitaplar keçirilgen soñ, ölarnı oqup, olğan hatalarnı tüzetmyege kerek.
+2. İnternette qırımtatar ve başqa tilde olğan yaift maqalelerni saylap tapmağa kerek.
+3. Qırımtatar tilini faydalanğan ya da qırımtatar tilinde materiallarğa has episi saytlarnı toplamağa kerek.
+4. Toplanğan episi materiallarnı qırımtatar tilini qoşmaq maqsadınen terciman-programmalarnen oğraşqan kompaniyalarğa teslim etmyege, tilni ümumiy terkipke kirsyetmyege.
 
-### Экинджи этап
+### Ekinci etap
 
-Терджиманлыкъ севиеси адым-адым эйилишир. Терджиманлыкъ программасынен файдалангъанлар микъдары арткъанынен, бойле севие эп оседжек, Интернетте къырымтатар тилини къуллангъан саифелер эп артаджакъ. Бу арекетни тезлештирмек ичюн гонъюлли волонтёрлар ве алий окъув юртларнынъ терджимелерде тюзетме ишинде, къырымтатар тилини файдалангъан сайтлар устюнде чалышкъанлар ичюн консультациялар кечирмекте ярдымлары керек оладжакъ.
+Tercimanlıq syeviyesi adım-adım eyilişir. Tercimanlıq programmasınen faydalanğanlar miqdarı artqanınen, boyle syeviye ep ösyecek, İnternette qırımtatar tilini qullanğan saifeler ep artacaq. Bu areketni tezleştirmyek içün göñülli volontörlar ve aliy oquv yürtlarnıñ tercimyelerde tüzetmye işinde, qırımtatar tilini faydalanğan saytlar üstünde çalışqanlar içün konsultatsiyalar keçirmyekte yardımları kerek ölacaq.
 
-### Насыл ярдымгъа мухтаджмыз
+### Nasıl yardımğa mühtacmız
 
-Ишимизнинъ эр бир болюгинде, материалларны топламакъ ве ишлетмек ичюн, гонъюллилернинъ ярдымы, къырымтатар тилининъ гъайрыдан джанланувы ве инкишафынынъ меселелеринен мешгъуль олгъан китапханелер, нешриятлар ве гуманитар институтларнынъ иштирагы зарур. Озь шахсий вакътыны миллий медениетининъ илерилемеси ичюн феда этеджек инсанлар керек.
+İşimizniñ er bir bolüginde, materiallarnı toplamaq ve işletmyek içün, göñüllilerniñ yardımı, qırımtatar tiliniñ ğayrıdan canlanuvı ve inkişafınıñ myesyelelerinen myeşğul olğan kitaphaneler, neşriyatlar ve gumanitar institutlarnıñ iştiragı zarur. Öz şahsiy vaqtını milliy myedeniyetiniñ ilerilemyesi içün feda etecek insanlar kerek.
 
-Ярдым этмеге азыр олсанъыз, [талиматкъа](CONTRIBUTING.md) кечинъиз.
+Yardım etmyege azır ölsañız, [talimatqa](CONTRIBUTING.md) keçiñiz.
