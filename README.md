@@ -3,7 +3,7 @@
 
 ## Maqsadımız
 
-Dünyada kim ölsa ölsun myetinni istegen tilden qırımtatarcağa ve aksine tercimye yapa bilir.
+Dünyada kim olsa olsun metinni istegen tilden qırımtatarcağa ve aksine tercime ete bilir.
 
 ## Qırımtatarlarğa o nege kerek
 
