@@ -28,11 +28,11 @@
 
 В интернете доступны online-переводчики, которые позволяют перевести текст с любого языка на любой другой язык. Наиболее популярные переводчики в мире и у нас:
 
-  - [Google Переводчик](https://translate.google.com) — поддерживает 90 языков
-  - [Яндекс.Переводчик](https://translate.yandex.ru) — поддерживает 51 язык
-  - [Microsoft Translator](http://www.bing.com/translator/) — поддерживает 47 языков
-  - [ПЕРЕКЛАДАЧ online.ua](http://pereklad.online.ua/ukr/yazyki/) — поддерживает 51 язык
-  - [ПРОМТ Переводчик](http://www.translate.ru) — поддерживает 16 языков
+  - [Google Переводчик](https://translate.google.com) — поддерживает 103 языка
+  - [Яндекс.Переводчик](https://translate.yandex.ru) — поддерживает 88 языков
+  - [Microsoft Translator](http://www.bing.com/translator/) — поддерживает 50 языков
+  - [ПЕРЕКЛАДАЧ online.ua](http://pereklad.online.ua/ukr/yazyki/) — поддерживает 53 языка
+  - [ПРОМТ Переводчик](http://www.translate.ru) — поддерживает 15 языков
 
 Они доступны и бесплатны для всех. Их можно использовать как в компьютере, так и в современном телефоне.
 
