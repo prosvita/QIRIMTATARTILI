@@ -1,0 +1,7 @@
+node_modules/
+*.sublime-*
+*.log
+*~
+
+# test
+yaspeller_report*.html

@@ -1,0 +1,6 @@
+{
+  "excludeFiles": [
+    ".git",
+    "node_modules"
+  ]
+}

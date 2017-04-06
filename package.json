@@ -1,0 +1,26 @@
+{
+  "name": "qyrymtatar-tili",
+  "version": "1.0.0",
+  "description": "Qırımtatar tiline tercime etüv programması",
+  "scripts": {
+    "test": "npm run yaspeller-ru && npm run yaspeller-uk",
+    "yaspeller-lang": "r=0; if [[ \"x${TRAVIS}\" == \"x\" || \"x${CHECK_FILES}\" != \"x\" ]]; then $(npm bin)/yaspeller -l ${LANG} -e .${LANG}.md --dictionary .slang.${LANG}.json --report html ${CHECK_FILES:-.}; r=$?; else echo \"There is nothing to check\"; fi; mv -f yaspeller_report.html yaspeller_report.${LANG}.html; exit ${r}",
+    "yaspeller-ru": "LANG=ru npm run yaspeller-lang",
+    "yaspeller-uk": "LANG=uk npm run yaspeller-lang"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/prosvita/QIRIMTATARTILI.git"
+  },
+  "author": "Pavlo Bashynskyi",
+  "license": "MIT",
+  "bugs": {
+    "url": "https://github.com/prosvita/QIRIMTATARTILI/issues"
+  },
+  "homepage": "https://github.com/prosvita/QIRIMTATARTILI#readme",
+  "private": true,
+  "devDependencies": {
+    "transliteration.crh": "^0.2.1",
+    "yaspeller": "levonet/yaspeller#d0906ed"
+  }
+}
