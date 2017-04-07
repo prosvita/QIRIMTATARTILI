@@ -4,7 +4,7 @@
   "description": "Qırımtatar tiline tercime etüv programması",
   "scripts": {
     "test": "npm run yaspeller-ru && npm run yaspeller-uk",
-    "yaspeller-selective": "if [[ \"${TRAVIS}\" == \"true\" && \"${TRAVIS_PULL_REQUEST}\" != \"false\" ]]; then CHECK_FILES=$(echo \"${CHANGED_FILES}\" | egrep \"\\.${LANG}\\.md$\"); if [ \"x${CHECK_FILES}\" == \"x\" ]; then echo \"There is nothing to check\"; exit 0; fi; fi; CHECK_FILES=${CHECK_FILES} npm run yaspeller-lang",
+    "yaspeller-selective": "if [ \"${TRAVIS}\" = \"true\" -a \"${TRAVIS_PULL_REQUEST}\" != \"false\" ]; then CHECK_FILES=$(echo \"${CHANGED_FILES}\" | egrep \"\\.${LANG}\\.md$\"); if [ \"x${CHECK_FILES}\" = \"x\" ]; then echo \"There is nothing to check\"; exit 0; fi; fi; CHECK_FILES=${CHECK_FILES} npm run yaspeller-lang",
     "yaspeller-lang": "r=0; $(npm bin)/yaspeller -l ${LANG} -e .${LANG}.md --dictionary .slang.${LANG}.json --report console,html ${CHECK_FILES:-.}; r=$?; mv -f yaspeller_report.html yaspeller_report.${LANG}.html; exit ${r}",
     "yaspeller-ru": "LANG=ru npm run yaspeller-selective",
     "yaspeller-uk": "LANG=uk npm run yaspeller-selective"
