@@ -1,5 +1,7 @@
 # Крымскотатарский переводчик
 
+[![Build Status](https://travis-ci.org/prosvita/QIRIMTATARTILI.svg?branch=master)](https://travis-ci.org/prosvita/QIRIMTATARTILI)
+
 ## Наша цель
 
 Кто угодно в мире может перевести текст с любого языка на крымскотатарский или наоборот.
