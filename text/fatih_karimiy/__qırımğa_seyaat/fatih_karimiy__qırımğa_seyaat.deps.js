@@ -1,0 +1,35 @@
+({
+    shouldDeps: [
+        {mods: {chapter: [
+            'orenburgdan_bagçasaraya_sefer_ve_maqsat',
+            'orenburgdan_ketüv',
+            'orenburg',
+            'buzuluq_vonzolındo_20_daqqa',
+            'samara',
+            'samaradan_ketüv',
+            'bir_rus_qızı_ile_qonuşuv',
+            'rijskiy_vokzalında_bir_saat',
+            'kursk_vokzalında_üç_saat',
+            'qırım',
+            'qırımnıñ_ealisi',
+            'qırımda_maarif',
+            'qırım_halqınıñ_turmuşı',
+            'qırımnıñ_evelki_alına_bir_nazar',
+            'qırımtatarlarnıñ_dinleri',
+            'aqmescitte_bir_kün',
+            'bağçada_qırım_mırzası_ile_körüşüv',
+            'bağçasarayda',
+            'bağçasarayda_han_sarayı',
+            'ismail_bey_gasprinskiy_terciman_gazetası_ve_onıñ_20_senelik_dua_meclisi',
+            'dua_meclisi',
+            'aqyarda_eni_kün',
+            'aqyardan_yaltağa_ketüv',
+            'yaltağa_ketüv',
+            'yalta',
+            'dereköy',
+            'livadiya',
+            'yaltadan_ketüv',
+            'vologda_tsaritsinden_samarağa_ketüv'
+        ]}}
+    ]
+})
