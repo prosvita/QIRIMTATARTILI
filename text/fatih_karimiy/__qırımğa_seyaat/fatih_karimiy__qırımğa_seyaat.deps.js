@@ -1,10 +1,10 @@
 ({
     shouldDeps: [
         {mods: {chapter: [
-            'orenburgdan_bagçasaraya_sefer_ve_maqsat',
+            'orenburgdan_bağçasaraya_sefer_ve_maqsat',
             'orenburgdan_ketüv',
             'orenburg',
-            'buzuluq_vonzolındo_20_daqqa',
+            'buzuluq_vokzalında_20_daqqa',
             'samara',
             'samaradan_ketüv',
             'bir_rus_qızı_ile_qonuşuv',
@@ -24,12 +24,12 @@
             'dua_meclisi',
             'aqyarda_eni_kün',
             'aqyardan_yaltağa_ketüv',
-            'yaltağa_ketüv',
+            'yaltağa_kelüv',
             'yalta',
             'dereköy',
             'livadiya',
             'yaltadan_ketüv',
-            'vologda_tsaritsinden_samarağa_ketüv'
+            'volgada_tsaritsınden_samarağa_ketüv'
         ]}}
     ]
 })
