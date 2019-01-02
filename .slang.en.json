@@ -1,0 +1,52 @@
+[
+    "neighbourliness",
+    "showholiday", //?
+    "[Ss]tatelessness",
+
+    /* Топоніми */
+    "Andigan",
+    "Djankoy",
+    "Feodosia",
+    "Junkoi",
+    "Khazahstan",
+    "Kyrgyz",
+    "Lobanovo",
+
+    /* Призвища */
+    "Ablyalimov",
+    "Ablyalimovitch",
+    "Arkasha",
+    "Avtondy",
+    "Bahman",
+    "Bogemka",
+    "Evelin",
+    "Evelin’s",
+    "Galina",
+    "Gayane",
+    "Katya",
+    "Lera",
+    "Ljuba",
+    "Luis",
+    "Maye",
+    "Ol'shanskiy",
+    "Osmanova",
+    "Pavel",
+    "Pavlovna",
+    "Rudenko",
+    "Tsvetaeva",
+    "Vlad",
+    "Yulia",
+    "Yura",
+    "Zarinka",
+
+    /* Назви */
+    "bayram",
+    "Dvor",
+    "Gospodskiy",
+    "Kurban",
+    "Pravda",
+
+    /* Скорочення */
+    "DRC",
+    "UNHCR"
+]
