@@ -1,4 +1,4 @@
-Slavânsktan yollanılğan SMS
+
  
 Tüş körem... Çöl papadiyege tolu.
 Olarnıñ içinde sen de –  bir çeçektir.
