@@ -123,4 +123,3 @@ Jak szatany siedzące w dywanie Eblisa
 Pod namiotem ciemności; niekiedy z ich szczytu 
 Budzi się błyskawica i pędem Farysa 
 Przelatuje milczące pustynie błękitu.
-
