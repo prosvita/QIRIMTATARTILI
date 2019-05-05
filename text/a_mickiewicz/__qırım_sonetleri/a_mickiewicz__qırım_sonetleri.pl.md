@@ -123,3 +123,91 @@ Jak szatany siedzące w dywanie Eblisa
 Pod namiotem ciemności; niekiedy z ich szczytu 
 Budzi się błyskawica i pędem Farysa 
 Przelatuje milczące pustynie błękitu.
+
+## GRÓB POTOCKIEJ
+
+W kraju wiosny, pomiędzy rozkosznymi sady, 
+Uwiędłaś, młoda różo! bo przeszłości chwile, 
+Ulatując od ciebie jak złote motyle,
+Rzuciły w głębi serca pamiątek owady.
+Tam na północ ku Polsce świecą gwiazd gromady, 
+Dlaczegóż na tej drodze błyszczy się ich tyle?
+Czy wzrok twój ognia pełen, nim zgasnął w mogile, 
+Tam wiecznie lecąc jasne powypałał ślady?
+Polko! — I ja dni skończę w samotnej żałobie;
+Tu niech mi garstkę ziemi dłoń przyjazna rzuci. 
+Podróżni często przy twym rozmawiają grobie,
+I mnie wtenczas dźwięk mowy rodzinnej ocuci;
+I wieszcz, samotną piosnkę dumając o tobie,
+Ujrzy bliską mogiłę i dla mnie zanuci.
+
+## MOGIŁY HAREMU 
+
+MIRZA DO PIELGRZYMA
+Tu z winnicy miłości niedojrzałe grona 
+Wzięto na stół Allacha; tu perełki Wschodu,
+Z morza uciech i szczęścia, porwała za młodu 
+Truna, koncha wieczności, do mrocznego łona.
+Skryła je niepamięci j czasu zasłona,
+Nad nimi turban zimny błyszczy źród ogrodu 
+Jak buńczuk wojska cieniów, i ledwie u spodu 
+Zostały dłonią giaura wyryte imiona.
+O wy, róże edeńskie! u szystości stoku 
+Odkwitnęły dni wasze pod wstydu liściami,
+Na wieki zatajone niewiernemu oku.
+Teraz grób wasz spojrzenie cudzoziemca plami, 
+Pozwalam mu — darujesz, o wielki Proroku!
+On jeden z cudzoziemców poglądał ze łzami.
+
+## BAJDARY
+
+Wypuszczam na wiatr konia i nie szczędzę razów; 
+Lasy, doliny, głazy, w kolei, w natłoku 
+U nóg mych płyną, giną jak fale potoku;
+Chcę odurzyć się, upić tym wirem pbrazów.
+A gdy spieniony rumak nie słucha rozkazów.
+Gdy świat kolory traci pod całunem mroku,
+Jak w rozbitym źwierciedle, tak w mym spiekłym oku 
+Snują się mary lasów i dolin, i głazów.
+Ziemia śpi, mnie snu nie ma; skaczę w morskie łona, 
+Czarny, wydęty bałwan z hukiem na brzeg dąży. 
+Schylam ku niemu czoło, wyciągam ramiona,
+Pęka nad głową fala, chaos mię okrąży;
+Czekam, aż myśl, jak łódka wirami kręcona,
+Zbłąka się i na chwilę w niepamięć pogrąży.
+
+## AŁUSZTA W DZIEŃ 
+
+Już góra z piersi mgliste otrząsa chylaty,
+Rannym szumi namazem niwa złotokłosa,
+Kłania się las i sypie z majowego włosa,
+Jak z różańca kalifów, rubin i granaty.
+Łąką w kwiatach, nad łąką latające kwiaty,
+Motyle róźnofarbne, niby tęczy kosa,
+Baldakimem z brylantów okryły niebiosa;
+Dalej sararicza ciągnie swój całun skrzydlaty.
+A kędy w wodach skała przegląda się łysa,
+Wre morze i odparte z nowym szturmem pędzi;
+W jego szumach gra światło jak w oczach tygrysa,
+Sroższą zwiastując burzę dla ziemskiej krawędzi;
+A na głębini fala lekko się kołysa 
+I kąpią się w niej floty i stada łabędzi.
+
+## AŁUSZTA W NOCY 
+
+Rzeźwią się wiatry, dzienna wolnieje posucha,
+Na barki Czatyrdahu spada lampa światów,
+Rozbija się, rozlewa strumienie szkarłatów 
+I gaśnie. Błędny pielgrzym ogląda się, słucha:
+Już góry poczerniały, w dolinach noc głucha, 
+Źródła szemrzą jak przez sen na łożu z bławatów; 
+Powietrze tchnące wonią, tą muzyką kwiatów, 
+Mówi do serca głosem tajemnym dla ucha.
+Usypiam pod skrzydłami ciszy i ciemnoty;
+Wtem budzą mię rażące meteoru błyski,
+Niebo, ziemię i góry oblał potop złoty!
+Nocy wschodnia! ty na kształt wschodniej odaliski 
+Pieszczotami usypiasz, a kiedym snu bliski,
+Ty iskrą oka znowu budzisz do pieszczoty.
+
+## 
