@@ -315,3 +315,20 @@ Lecz gdy podniesiesz bardon, ona bez twej szkody
 Ucieka w zapomnienia pogrążyć się toni 
 I nieśmiertelne pieśni za sobą uroni,
 Z których wieki uplotą ozdobę twych skroni.
+
+## OBJAŚNIENIA
+
+## STEPY AKERMAŃSKIE
+
+Omijam koralowe ostrowy burzanu... Na Ukrainie i Pobereżu nazywają burzana¬mi wielkie krzaki ziela, które w czasie lata kwiatem okryte nadają przyjemną rozmaitość płaszczyznom.
+
+## WIDOK GÓR ZE STEPÓW KOZŁOWA
+
+Czy Diwy z ćwierci lądu dźwignęli te mury... Diwy, podług starożytnej mitologii Persów, złośliwe geniusze, które niegdyś panowały na ziemi, potem wygnane przez aniołów, mieszkają teraz na końcu świata, za górą Kaf.
+Na szczycie jaka luna' pożar Carogrodu!.. Wierzchołki Czatyrdahu po zachodzie słońca, skutkiem odbijających się promieni, przez czas jakiś zdają się być w ogniu.
+To Czaty rdah! Najwyższa w paśmie gór Krymskich na brzegu południowym, daje się widzieć z daleka, niemal na 200 werst, z różnych stron, w postaci olbrzymiej chmury sinawego kolom.
+
+## BAKCZYSARAJ
+
+W dolinie, otoczonej ze wszech stron górami, leży miasto Bakczysaraj, niegdyś stolica Girajów, chanów krymskich
+Ipisze Balsazara głoskami «Ruina» «Tejże godziny wyszły palce ręki człowieczej, które pisały przeciwko świecznikowi na ścierne pałacu królewskiego, a król (Balsazar) widział część ręki, która pisała». (Proroctwo Danielowe, V, 5, 25, 26, 27, 28.)
