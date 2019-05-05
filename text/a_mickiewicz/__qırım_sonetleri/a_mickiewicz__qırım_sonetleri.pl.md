@@ -332,3 +332,48 @@ To Czaty rdah! Najwyższa w paśmie gór Krymskich na brzegu południowym, daje 
 
 W dolinie, otoczonej ze wszech stron górami, leży miasto Bakczysaraj, niegdyś stolica Girajów, chanów krymskich
 Ipisze Balsazara głoskami «Ruina» «Tejże godziny wyszły palce ręki człowieczej, które pisały przeciwko świecznikowi na ścierne pałacu królewskiego, a król (Balsazar) widział część ręki, która pisała». (Proroctwo Danielowe, V, 5, 25, 26, 27, 28.)
+
+## BAKCZYSARAJ W NOCY
+
+...Rozchodzą się z dżamidów pobożni mieszkance... Mesdżid lub dżiami, są to zwyczajne meczety. Zewnątrz po rogach świątyni, wznoszą się cienkie, wystrzelone w niebo wieżyczki, które minaretami, menarę, zowią; są one w połowie swej wysokości otoczone galerią, szur/ę. z której miuezzinowie. czyli oznajmicielc, zwołują lud na mod¬litwę. To zwoływanie, wyśpiewane z galerii, zowie się izanem. Pięć razy na dzień, w oznaczonych godzinach, daje się słyszeć izan ze wszystkich minaretów, a czysty i donośny głos miuezzinów przyjemnie rozlega się w powietrzokręgu miast muzułmańs¬kich, w których z powodu nieużywania kołowych pojazdów szczególniejsza cichość panuje. (Sękowski. Collectanea. Т. I, k. 66.)
+...Jak szatany siedzące >v dywanie Eblisa... Eblis, albo Iblis, lub Garazel, jest to Lucyper u mahometanów.
+...Budzi się błuskaw'ica i pędem Farysa... Farys, rycerz u Arabów-Beduinów.
+
+## GRÓB POTOCKIEJ
+
+Niedaleko pałacu chanów wznosi się mogiła w guście wschodnim zbudowana z ok¬rągłą kopułą. Jest powieść między pospólstwem w Krymie, że ten pomnik wystawiony był przez Kerim Giraja dla niewolnicy, którą nadzwyczajnie kochał. Niewolnica miała być Polka, z domu Potockich. Autor uczenie i pięknie napisanej Podróży po Krymie, Murawiew-Apostoł, utrzymuje, że powieść ta jest bez zasady i że grobowiec kryje zwło¬ki jakiejś Gruzinki. Nie wiemy, na czym opiera swoje mniemanie: bo zarzut, iż Tataro wie w połowie ośmnastego wieku tak łatwo niewolnic z domu Potockich uprowadzać nie mogli, nie jest dostateczny. Wiadome są ostatnie zaburzenia kozackie na Ukrainie, skąd niemało ludu uprowadzono i przedano sąsiednim Tatarom. W Polszczę liczne są familije szlacheckie imienia Potockich, i wspomniona branka niekoniecznie mogła na¬leżeć do znakomitego domu dziedziców Humania, który najazdom tatarskim lub rozruc¬hom kozackim mniej był dostępnym. Z powieści gminnej o grobowcu bakczysarajskim poeta rosyjski, Aleksander Puszkin, z właściwym mu talentem napisał powieść Fontanna Bakczysarąjska.
+
+## MOGIŁY HAREMU
+
+W rozkosznym ogrodzie, wśród wysmukłych topoli i drzew morwowych stoją grobowce z białego marmuru chanów i sułtanów, ich żon i krewnych; w pobliskich dwóch budowach leżą truny zwalone bez ładu: były one niegdyś bogato wybite, dziś sterczą nagie deski i szmaty całunu.
+...Nad nimi turban zimny błyszczy śród ogrodu... Musułmanie nad grobami mężczyzn i niewiast stawią kamienne zawojc innego dla obu płci kształtu.
+...Zostały dłonią giaura wyryte imiona... Giaur znaczy «niewierny». Tak muzułma¬nie nazywają chrześcijan.
+
+## BAJDARY
+
+Piękna dolina, przez którą zwykle wjeżdża się na brzeg południowy Krymu.
+
+## ALUSZTA W DZIEŃ
+
+Jedno z miejsc najrozkoszniejszych Krymu; tam jut wiatry północne nigdy nie dochodzą i podróżny w listopadzie szuka częstokroć chłodu pod cieniem ogromnych orzechów włoskich, jeszcze zielonych.
+...Rannym szumi namazem niwa złotokłosa... Namaz, modlitwa muzułmańska, którą odprawiają, siedząc i bijąc pokłony.
+...Jak z różańca kalifów, rubin i granaty... Muzułmanie używają w czasie modłów różańca, który u znakomitych osób z kosztownych bywa kamieni. Granatowe i morwo¬we drzewa, czerwieniejące się rozkosznym owocem, są pospolite na całym brzegu południowym Krymu.
+
+## CZATYRDAH
+
+...O minarecie świata! o gór padyszachu! Padyszach, tytuł sułtana tureckiego.
+...Gabtyjel, pilnujący edeńskiego gmachu... Zostawiam imię Gabryjela jako pow¬szechniej znajome; ale właściwym strażnikiem niebios podług mitologii wschodniej jest Ramek (konstelacja Arcturus), jedna z dwóch wielkich gwiazd zwanych As semekein.
+
+## DROGA NAD PRZEPAŚCIĄ W CZUFUT-KALE
+
+Miasteczko na wyniosłej skale; domy na brzegu stojące mają podobieństwo do gni¬azd jaskółczych; ścieżka wiodąca na górę jest przykra i nad przepaścią wisząca. W samym mieście ściany domów łączą się prawie ze zrębem skały; spojrzawszy przez okno, wzrok gubi się w głębi nieźmiemej.
+...Tu jeździec końskim nogom swój rozum powierza... Koń krymski w trudnych i niebezpiecznych przeprawach zdaje się posiadać szczególniejszy instynkt ostrożności i pewności. Nim krok postawi, trzymając na powietrzu nogę szuka kamienia i próbuje, czy bezpiecznie stąpić i ostać się może.
+
+## GORA KIKINEIS
+
+...To jest morze; - śród fali zda sif, te ptak-góra... Ptakgóra. znajomy i Tysiąca Noty Jest to sławny w mitologii perskiej, po wielekroć od poetów wschodnich opisywany ptak Simurg. «Wielki on (powiada Firdusst w Szah-Name) jak góra, a mocny jak twierdza, słonia unosi w szponach swoich», i dalej: «ujrzawszy rycerzy (Simurg) zerwał się jak chmura ze skały, na której mieszka, i ciągnął przez powietrze jak huragan, rzu¬cając cień na wojska jeźdźców». 
+... Ta wyspa teglujqca w otchłani - to chmura.'.. Z wierzchołka gór wzniesionych nad krainę obłoków, jeżeli spójrzymy na chmury płynące ponad morzem, zdaje się, źe lezą na wodzie w kształcie wielkich wysp białych. Ciekawy ten fenomen oglądałem z Czatyrdahu.
+
+## RUINY ZAMKU W BALAKŁAWIE
+
+Nad zatoką tego imienia stoją gruzy zamku, zbudowanego niegdyś przez Greków, przychodniów z Miletu. Później Genueńczycy wznieśli na tym miejscu twierdzę Cembalo
