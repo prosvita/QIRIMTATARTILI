@@ -210,4 +210,108 @@ Nocy wschodnia! ty na kształt wschodniej odaliski
 Pieszczotami usypiasz, a kiedym snu bliski,
 Ty iskrą oka znowu budzisz do pieszczoty.
 
-## 
+## CZATYRDAH
+
+Drżąc muślimin całuje stopy twej opoki.
+Maszcie krymskiego statku, wielki Czatyrdahu!
+O minarecie świata! o gór padyszachu!
+Ty, nad skały poziomu uciekłszy w obłoki,
+Siedzisz sobie pod bramą niebios, jak wysoki 
+Gabryjel pilnujący ederiskiego gmachu.
+Ciemny las twoim płaszczem, a janczary strachu 
+Twój turban z chmur haftują błyskawic potoki.
+Nam czy słońce dopieka, czyli mgła ocienia,
+Czy sarańcza plon zetnie, czy giaur pali domy — 
+Czatyrdahu, ty zawsze głuchy, nieruchomy,
+Między światem i niebem jak drogman stworzenia, 
+Podesławszy pod nogi ziemie, ludzi, gromy, 
+Słuchasz tylko, co mówi Bóg do przyrodzenia.
+
+## PIELGRZYM
+
+U stóp moich kraina dostatków i krasy,
+Nad głową niebo jasne, obok piękne lice;
+Dlaczegóż stąd ucieka serce w okolice 
+Dalekie, i niestety! jeszcze dalsze czasy?
+Litwo! piały mi wdzięczniej twe szumiące lasy 
+Niż słowiki Bajdaru, Salhiry dziewice;
+I weselszy deptałem twoje trzęsawice 
+Niż rubinowe morwy, złote ananasy.
+Tak daleki! tak różna wabi mię ponęta;
+Dlaczegóż roztargniony wzdycham bez ustanku 
+Do tej, którą kochałem w dni moich poranku?
+Ona w lubej dziedzinie, która mi odjęta,
+Gdzie jej wszystko o wiernym powiada kochanku —
+Depcąc świeże me ślady czyż o mnie pamięta?
+
+## DROGA NAD PRZEPAŚCIĄ W CZUFUT-KALE 
+
+MIRZA I PIELGRZYM
+Mirza
+Zmów pacierz, opuść wodze, odwróć na bok lica,
+Tu jeździec końskim nogom swój rozum powierza; 
+Dzielny koń! patrz, jak staje, głąb okiem rozmierza, 
+Uklęka, brzeg wiszaru kopytem pochwycą,
+I zawisnął.— Tam nie patrz, tam spadła źrenica,
+Jak w studni Al-Kahiru, o dno nie uderza.
+I ręką tam nie wskazuj, nie masz u rąk pierza;
+I myśli tam nie puszczaj, bo myśl jak kotwica
+Z łodzi drobnej ciśniona w nieźmiemość głębiny, 
+Piorunem spadnie, morza do dna nie przewierci,
+I łódź z sobą przechyli w otchłanie chaosu.
+Pielgrzym
+Mirzo, a ja spojrzałem! Przez świata szczeliny 
+Tam widziałem — com widział, opowiem — po śmierci, 
+Bo w żyjących języku nie ma na to głosu.
+
+## GÓRA KIKINEIS
+
+M i rza
+Spojrzyj w przepaść — niebiosa leżące na dole,
+To jest morze; — śród fali zda się, że ptak-góra, 
+Piorunem zastrzelony, swe masztowe pióra 
+Roztoczył kręgiem szerszym niż tęczy półkole
+I wyspą śniegu nakrył błękitne wód pole.
+Ta wyspa żeglująca w otchłani — to chmura!
+Z jej piersi na pół świata spada noc ponura;
+Czy widzisz płomienistą wstążkę na jej czole?
+To jest piorun! — Lecz stójmy, otchłanie pod nogą, 
+Musim wąwóz przesadzić w całym konia pędzie;
+Ja skaczę, ty z gotowym biczem i ostrogą,
+Gdy zniknę z oczu, patrzaj w owe skał krawędzie: 
+Jeśli tam pióro błyśnie, to mój kołpak będzie; 
+Jeżeli nie, już ludziom nie jechać tą drogą.
+
+## RUINY ZAMKU W BAŁAKŁAWIE 
+
+Te zamki, połamane zwaliska bez ładu.
+Zdobiły cię i strzegły, o niewdzięczny Krymie! 
+Dzisiaj sterczą na górach jak czaszki olbrzymie,
+W nich gad mieszka lub człowiek podlejszy od gadu.
+Szczeblujmy na wieżyce, szukam herbów śladu;
+Jest i napis, tu może bohatera imię,
+Co było wojsk postrachem, w zapomnieniu drzymie, 
+Obwinione jak robak liściem winogradu.
+Tu Grek dłutował w murach ateńskie ozdoby,
+Stąd Italczyk Mongołom narzucał żelaza 
+I mekkański przybylec nucił pieśń namaza.
+Dziś sępy czarnym skrzydłem oblatują groby,
+Jak w mieście, które całkiem wybije zaraza, 
+Wiecznie z baszt powiewają chorągwie żałoby.
+
+## AJUDAH
+
+Lubię poglądać wsparty na Judahu skale,
+Jak spienione bałwany to w czarne szeregi 
+Ścisnąwszy się buchają, to jak srebrne śniegi 
+W milijonowych tęczach kołują wspaniale.
+Trącą się o mieliznę, rozbiją na fale,
+Jak wojsko wielorybów zalegając brzegi,
+Zdobędą ląd w tryumfie i na powrót zbiegi,
+Miecą za sobą muszle, perły i korale.
+Podobnie na twe serce, o poeto młody! 
+Namiętność często groźne wzburza niepogody, 
+Lecz gdy podniesiesz bardon, ona bez twej szkody
+Ucieka w zapomnienia pogrążyć się toni 
+I nieśmiertelne pieśni za sobą uroni,
+Z których wieki uplotą ozdobę twych skroni.
