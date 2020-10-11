@@ -16,7 +16,7 @@
 Къырым, Украина 
 
 E-mail:
-ibt_inform@ibt.org.ru terciman@Crimea .com
+ibt_inform@ibt.org.ru terciman@Crimea.com
 
 ISBN 978-5-93943-125-5
 
