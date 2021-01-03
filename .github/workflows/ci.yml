@@ -15,9 +15,10 @@ jobs:
       uses: actions/setup-node@v1
       with:
         node-version: 12.x
-    - run: |
-        env
-        if [ "$TRAVIS_PULL_REQUEST" != "false" ]; then
+    - name: test
+      run: |
+        npm install
+        if [ "$GITHUB_EVENT_NAME" = "pull_request" ]; then
             true && export CHANGED_FILES=$(git diff --name-only --diff-filter=ACMRT remotes/origin/master HEAD)
         fi
-        # npm test
+        npm test
