@@ -1,0 +1,25 @@
+name: CI
+
+on:
+  push:
+    branches: [ master ]
+  pull_request:
+    branches: [ master ]
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@v2
+    - name: Use Node.js
+      uses: actions/setup-node@v1
+      with:
+        node-version: 12.x
+    - name: test
+      run: |
+        npm install
+        if [ "$GITHUB_EVENT_NAME" = "pull_request" ]; then
+            git fetch origin master
+            export CHANGED_FILES=$(git diff --name-only --diff-filter=ACMRT remotes/origin/master HEAD)
+        fi
+        npm test

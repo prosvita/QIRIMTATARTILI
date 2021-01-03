@@ -1,8 +1,6 @@
 # Qırımtatar tiline tercime etüv programması
 [[На русском](README.ru.md)]
 
-[![Build Status](https://travis-ci.org/prosvita/QIRIMTATARTILI.svg?branch=master)](https://travis-ci.org/prosvita/QIRIMTATARTILI)
-
 ## Maqsadımız
 
 Dünyada kim olsa olsun metinni istegen tilden qırımtatarcağa ve aksine tercime yapa bilir.
