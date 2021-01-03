@@ -8,5 +8,5 @@ branches:
 before_script:
   - |
         if [ "$TRAVIS_PULL_REQUEST" != "false" ]; then
-            true && export CHANGED_FILES=$(git diff --name-only --diff-filter=ACMRT origin/HEAD)
+            true && export CHANGED_FILES=$(git diff --name-only --diff-filter=ACMRT remotes/origin/master HEAD)
         fi
