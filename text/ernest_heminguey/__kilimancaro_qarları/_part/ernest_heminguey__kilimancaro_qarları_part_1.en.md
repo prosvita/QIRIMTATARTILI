@@ -7,7 +7,7 @@ No one has explained what the leopard was seeking at that altitude.
 
 THE MARVELLOUS THING IS THAT IT’S painless," he said.
 
-"That's how you know when it starts."
+"That's how you see when it starts."
 
 "Is it really?"
 
