@@ -13,11 +13,12 @@ THE MARVELLOUS THING IS THAT IT’S painless," he said.
 
 "Absolutely.
 
-I'm awfully sorry about the odor though.
+But, I'm awfully sorry about the odor though.
 
 That must bother you."
 
 "Don't!
+
 Please don't."
 
 "Look at them," he said.
