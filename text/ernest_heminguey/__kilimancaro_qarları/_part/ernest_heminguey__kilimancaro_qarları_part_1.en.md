@@ -1,4 +1,6 @@
 Kilimanjaro is a snow-covered mountain 19,710 feet high, and is said to be the highest mountain in Africa.
+
+
 Its western summit is called the Masai "Ngaje Ngai," the House of God.
 Close to the western summit there is the dried and frozen carcass of a leopard.
 No one has explained what the leopard was seeking at that altitude.
