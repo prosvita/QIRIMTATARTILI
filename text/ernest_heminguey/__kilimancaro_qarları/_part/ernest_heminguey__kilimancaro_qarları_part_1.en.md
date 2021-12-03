@@ -120,11 +120,16 @@ You never notice them.
 You can't die if you don't give up."
 
 "Where did you read that?
+
+
+
 You're such a bloody fool."
 
 "You might think about some one else."
 
 "For Christ's sake," he said, "that's been my trade."
+
+
 
 He lay then and was quiet for a while and looked across the heat shimmer of the plain to the edge of the bush.
 
@@ -170,9 +175,7 @@ You shouldn't drink."
 
 "That's what I mean by giving up.
 
-It says it's
-
-bad for you.
+It says it's bad for you.
 
 I know it's bad for you."
 
@@ -182,25 +185,17 @@ I know it's bad for you."
 
 So now it was all over, he thought.
 
-So now he would never have a chance
-
-to finish it.
+So now he would never have a chance to finish it.
 
 So this was the way it ended, in a bickering over a drink.
 
-Since
-
-the gangrene started in his right leg he had no pain and with the pain the
-
-horror had gone and all he felt now was a great tiredness and anger that this was the end of it.
+Since the gangrene started in his right leg he had no pain and with the pain the horror had gone and all he felt now was a great tiredness and anger that this was the end of it.
 
 For this, that now was coming, he had very little curiosity.
 
 For years it had obsessed him; but now it meant nothing in itself.
 
-It was
-
-strange how easy being tired enough made it.
+It was strange how easy being tired enough made it.
 
 Now he would never write the things that he had saved to write until he knew enough to write them well.
 
