@@ -257,13 +257,17 @@ He looked at her,
 
 "I don't mean that."
 
-"If you hadn't left your own people, your goddamned Old Westbury Saratoga, Palm Beach people to take me on " Why, I loved you.
+"If you hadn't left your own people, your goddamned Old Westbury Saratoga, Palm Beach people to take me on "
+
+Why, I loved you.
 
 That's not fair.
 
 I love you now.
 
 I'll always love you Don't you love me?"
+
+
 
 "No," said the man.
 
@@ -272,6 +276,7 @@ I'll always love you Don't you love me?"
 I never have."
 
 "Harry, what are you saying?
+
 You're out of your head."
 
 "No.
@@ -290,12 +295,10 @@ We have to do everything we can."
 
 Now in his mind he saw a railway station at Karagatch and he was standing with his pack and that was the headlight of the Simplon-Offent cutting the dark now and he was leaving Thrace then after the retreat.
 
-That was one of the things he had saved to write, with, in the morning at breakfast, looking out the window and seeing snow on the mountains in Bulgaffa and Nansen's Secretary asking the old man if it were snow and the old man looking at it and saying, No, that's not snow.
+That was one of the things he had saved to write, with, in the morning at breakfast, looking out the window and seeing snow on the mountains in Bulgaffa and Nansen's Secretary asking the old man if it were snow and the old man looking at it and saying,
+No, that's not snow. It's too early for snow.
 
-It's too early for snow.
-
-And the Secretary repeating to the other girls, No, you see.
-
+And the Secretary repeating to the other girls, No, you see. 
 It's not snow and them all saying, It's not snow we were mistaken.
 
 But it was the snow all right and he sent them on into it when he evolved exchange of populations.
@@ -316,7 +319,11 @@ Finally he lost it all.
 
 Everything, the Skischule money and all the season's profit and then his capital.
 
+
+
 He could see him with his long nose, picking up the cards and then opening, "Sans Voir." There was always gambling then.
+
+They always played that times.
 
 When there was no snow you gambled and when there was too much you gambled.
 
@@ -337,10 +344,7 @@ Hans, that he skied with all that year, had been in the Kaiser Jagers and when t
 Nor of Monte Corona, nor the Sette Communi, nor of Arsiero.
 
 How many winters had he lived in the Vorarlberg and the Arlberg?
-It was four and then he remembered the man who had the fox to sell when they had walked into Bludenz, that time to buy presents, and the cherry-pit taste of good kirsch, the fast-slipping rush of running powder-snow on crust, singing ''Hi!
-Ho!
-said Rolly!' ' as you ran down the last stretch to the steep drop, taking it straight, then running the orchard in three turns and out across the ditch and onto the icy road behind the inn.
-
+It was four and then he remembered the man who had the fox to sell when they had walked into Bludenz, that time to buy presents, and the cherry-pit taste of good kirsch, the fast-slipping rush of running powder-snow on crust, singing ''Hi! Ho! said Rolly!' ' as you ran down the last stretch to the steep drop, taking it straight, then running the orchard in three turns and out across the ditch and onto the icy road behind the inn.
 Knocking your bindings loose, kicking the skis free and leaning them up against the wooden wall of the inn, the lamplight coming from the window, where inside, in the smoky, new-wine smelling warmth, they were playing the accordion.
 
 "Where did we stay in Paris?" he asked the woman who was sitting by him in a canvas chair, now, in Africa.
@@ -357,9 +361,7 @@ You know that."
 
 Not always."
 
-"There and at the Pavillion Henri-Quatre in St.
-
-Germain.
+"There and at the Pavillion Henri-Quatre in St.Germain.
 
 You said you loved it there."
 
