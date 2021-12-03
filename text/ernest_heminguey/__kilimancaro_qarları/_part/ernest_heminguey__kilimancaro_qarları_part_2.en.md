@@ -261,10 +261,7 @@ Molo, letti dui whiskey-soda!" she called.
 
 "You'd better put on your mosquito boots," he told her.
 
-"I'll wait till I bathe .
-
-.
-."
+"I'll wait till I bathe..."
 
 While it grew dark they drank and just before it was dark and there was no longer enough light to shoot, a hyena crossed the open on his way around the hill.
 
@@ -300,9 +297,7 @@ To windward."
 
 "Did Molo change the dressing?"
 
-"Yes.
-
-I'm just using the boric now."
+"Yes. I'm just using the boric now."
 
 "How do you feel?"
 
