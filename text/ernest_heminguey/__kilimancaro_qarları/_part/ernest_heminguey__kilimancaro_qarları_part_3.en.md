@@ -112,27 +112,27 @@ The rest was plaster walls and the windows of the neighbors.
 
 The neighbors who, at night, when some one lay drunk in the street, moaning and groaning in that typical French ivresse that you were propaganded to believe did not exist, would open their windows and then the murmur of talk.
 
-''Where is the policeman?
+"Where is the policeman?
 When you don't want him the bugger is always there.
 
 He's sleeping with some concierge.
 
 Get the Agent.
 
-" Till some one threw a bucket of water from a window and the moaning stopped.
+Till some one threw a bucket of water from a window and the moaning stopped.
 
-''What's that?
+— What's that?
 Water.
+Ah, that's intelligent."
+And the windows shutting.
 
-Ah, that's intelligent." And the windows shutting.
-
-Marie, his femme de menage, protesting against the eight-hour day saying, ''If a husband works until six he gets only a riffle drunk on the way home and does not waste too much.
+Marie, his femme de menage, protesting against the eight-hour day saying,
+''If a husband works until six he gets only a riffle drunk on the way home and does not waste too much.
 
 If he works only until five he is drunk every night and one has no money.
 
 It is the wife of the working man who suffers from this shortening of hours.
 
-'
 "Wouldn't you like some more broth?" the woman asked him now.
 
 "No, thank you very much.
