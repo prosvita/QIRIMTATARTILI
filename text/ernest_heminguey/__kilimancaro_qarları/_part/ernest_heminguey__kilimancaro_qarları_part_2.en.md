@@ -139,6 +139,7 @@ She thought he did exactly what he wanted to.
 The steps by which she had acquired him and the way in which she had finally fallen in love with him were all part of a regular progression in which she had built herself a new life and he had traded away what remained of his old life.
 
 He had traded it for security, for comfort too, there was no denying that, and for what else?
+
 He did not know.
 
 She would have bought him anything he wanted.
@@ -149,9 +150,7 @@ She was a damned nice woman too.
 
 He would as soon be in bed with her as any one; rather with her, because she was richer, because she was very pleasant and appreciative and because she never made scenes.
 
-And now this life that she had built again was coming to a term because he had not used iodine two weeks ago when a thorn had scratched his knee as they moved forward trying to photograph a herd of waterbuck standing, their heads up, peering while their nostrils searched the air, their ears spread wide to hear the first noise that would send them rushing into the bush.
-
-They had bolted, too, before he got the picture.
+And now this life that she had built again was coming to a term because he had not used iodine two weeks ago when a thorn had scratched his knee as they moved forward trying to photograph a herd of waterbuck standing, their heads up, peering while their nostrils searched the air, their ears spread wide to hear the first noise that would send them rushing into the bush. They had bolted, too, before he got the picture.
 
 Here she came now.
 
@@ -210,7 +209,6 @@ Promise me?"
 "I don't remember what I said."
 
 "You don't have to destroy me.
-
 Do you?
 I'm only a middle-aged woman who loves you and wants to do what you want to do.
 
