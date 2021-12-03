@@ -257,9 +257,7 @@ He was a fat man, very brave, and a good officer, although addicted to fantastic
 
 But that night he was caught in the wire, with a flare lighting him up and his bowels spilled out into the wire, so when they brought him in, alive, they had to cut him loose.
 
-Shoot me, Harry.
-
-For Christ sake shoot me.
+Shoot me, Harry. For Christ sake shoot me.
 
 They had had an argument one time about our Lord never sending you anything you could not bear and some one's theory had been that meant that at a certain time the pain passed you out automatically.
 
