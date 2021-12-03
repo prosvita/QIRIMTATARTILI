@@ -1,7 +1,5 @@
 She looked at him with her well-known, well-loved face from Spur and Town & Country, only a little the worse for drink, only a little the worse for bed, but Town & Country never showed those good breasts and those useful thighs and those lightly small-of-back-caressing hands, and as he looked and saw her well-known pleasant smile, he felt death come again.
 
-in.
-
 This time there was no rush.
 
 It was a puff, as of a wind that makes a candle flicker and the flame go tall.
