@@ -383,7 +383,9 @@ She had come out from the tent now after her bath.
 
 "All right."
 
-"Could you eat now?" He saw Molo behind her with the folding table and the other boy with the dishes.
+"Could you eat now?"
+
+He saw Molo behind her with the folding table and the other boy with the dishes.
 
 "I want to write," he said.
 
@@ -396,6 +398,7 @@ She had come out from the tent now after her bath.
 "Don't be melodramatic, Harry, please," she said.
 
 "Why don't you use your nose?
+
 I'm rotted half way up my thigh now.
 
 What the hell should I fool with broth for?
