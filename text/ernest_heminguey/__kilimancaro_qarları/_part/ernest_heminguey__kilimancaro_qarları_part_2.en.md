@@ -318,11 +318,9 @@ He had loved too much, demanded too much, and he wore it all out.
 He thought about alone in Constantinople that time, having quarrelled in Paris before he had gone out.
 
 He had whored the whole time and then, when that was over, and he had failed to kill his loneliness, but only made it worse, he had written her, the first one, the one who left him, a letter telling her how he had never been able to kill it ...
-
 How when he thought he saw her outside the Regence one time it made him go all faint and sick inside, and that he would follow a woman who looked like her in some way, along the Boulevard, afraid to see it was not she, afraid to lose the feeling it gave him.
 
 How every one he had slept with had only made him miss her more.
-
 How what she had done could never matter since he knew he could not cure himself of loving her.
 
 He wrote this letter at the Club, cold sober, and mailed it to New York asking her to write him at the of fice in Paris.
@@ -343,11 +341,11 @@ The gunner hit him in the body, then beside his eye.
 
 He swung with his left again and landed and the gunner fell on him and grabbed his coat and tore the sleeve off and he clubbed him twice behind the ear and then smashed him with his right as he pushed him away.
 
-When the gunner went down his head hit first and he ran with the girl because they heard the M.P.
+When the gunner went down his head hit first and he ran with the girl because they heard the M.P. 's coming.
 
-'s coming.
-
-They got into a taxi and drove out to Rimmily Hissa along the Bosphorus, and around, and back in the cool night and went to bed and she felt as over-ripe as she looked but smooth, rose-petal, syrupy, smooth-bellied, big-breasted and needed no pillow under her buttocks, and he left her before she was awake looking blousy enough in the first daylight and turned up at the Pera Palace with a black eye, carrying his coat because one sleeve was missing.
+They got into a taxi and drove out to Rimmily Hissa along the Bosphorus, and around, and back in the cool night and went to bed and she felt as over-ripe as she looked but smooth, rose-petal, syrupy, smooth-bellied, big-breasted and needed no pillow under her buttocks.
+He left her before she was awake looking blousy enough in the first daylight.
+He turned up at the Pera Palace with a black eye, carrying his coat because one sleeve was missing.
 
 That same night he left for Anatolia and he remembered, later on that trip, riding all day through fields of the poppies that they raised for opium and how strange it made you feel, finally, and all the distances seemed wrong, to where they had made the attack with the newly arrived Constantine officers, that did not know a god-damned thing, and the artillery had fired into the troops and the British observer had cried like a child.
 
