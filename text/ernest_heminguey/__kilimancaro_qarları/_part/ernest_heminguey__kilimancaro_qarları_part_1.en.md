@@ -33,11 +33,9 @@ The cot the man lay on was in the wide shade of a mimosa tree and as he looked o
 
 I watched the way they sailed very carefully at first in case I ever wanted to use them in a story.
 
-That's funny now.""I wish you wouldn't," she said.
+That's funny now.
 
-
-
-
+""I wish you wouldn't," she said.
 
 "I'm only talking," he said.
 
