@@ -271,7 +271,7 @@ Except that he would rather be in better company.
 
 He thought a little about the company that he would like to have.
 
-No, he thought, when everything you do, you do too long, and do too late, you can't expect to find the people still there.
+"No", he thought, when everything you do, you do too long, and do too late, you can't expect to find the people still there.
 
 The people all are gone.
 
