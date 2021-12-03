@@ -119,15 +119,13 @@ You can't die if you don't give up."
 
 "Where did you read that?
 
-
-
 You're such a bloody fool."
 
 "You might think about some one else."
 
-"For Christ's sake," he said, "that's been my trade."
+"For Christ's sake," he said.
 
-
+"That's been my trade."
 
 He lay then and was quiet for a while and looked across the heat shimmer of the plain to the edge of the bush.
 
@@ -225,7 +223,7 @@ If you wanted to shoot we could have gone shooting in Hungary and been comfortab
 
 "It was always yours as much as mine.
 
-I left everything and I went wherever you wanted to go and I've done what you wanted to do But I wish we'd never come here."
+I left everything and I went wherever you wanted to go and I've done what you wanted to do.
 
 
 
@@ -263,9 +261,9 @@ That's not fair.
 
 I love you now.
 
-I'll always love you Don't you love me?"
+I'll always love you.
 
-
+Don't you love me?"
 
 "No," said the man.
 
@@ -316,8 +314,6 @@ They were snow-bound a week in the Madlenerhaus that time in the blizzard playin
 Finally he lost it all.
 
 Everything, the Skischule money and all the season's profit and then his capital.
-
-
 
 He could see him with his long nose, picking up the cards and then opening, "Sans Voir." There was always gambling then.
 
