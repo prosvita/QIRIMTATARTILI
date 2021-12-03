@@ -16,7 +16,7 @@ His personal boy was sitting by the bed.
 
 "Does Bwana want?"
 
-"Nothing."
+ — "Nothing."
 
 She had gone to kill a piece of meat and, knowing how he liked to watch the game, she had gone well away so she would not disturb this little pocket of the plain that he could see.
 
