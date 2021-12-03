@@ -229,6 +229,8 @@ If you wanted to shoot we could have gone shooting in Hungary and been comfortab
 
 I left everything and I went wherever you wanted to go and I've done what you wanted to do But I wish we'd never come here."
 
+
+
 "You said you loved it."
 
 "I did when you were all right.
@@ -243,7 +245,11 @@ What have we done to have that happen to us?"
 
 Then I didn't pay any attention to it because I never infect.
 
-Then, later, when it got bad, it was probably using that weak carbolic solution when the other antiseptics ran out that paralyzed the minute blood vessels and started the gangrene." He looked at her, "What else'"
+Then, later, when it got bad, it was probably using that weak carbolic solution when the other antiseptics ran out that paralyzed the minute blood vessels and started the gangrene."
+
+He looked at her,
+
+"What else'"
 
 "I don't mean that."
 
