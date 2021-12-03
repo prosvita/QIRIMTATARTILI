@@ -373,7 +373,6 @@ He had never written any of that because, at first, he never wanted to hurt any 
 But he had always thought that he would write it finally.
 
 There was so much to write.
-
 He had seen the world change; not just the events; although he had seen many of them and had watched the people, but he had seen the subtler change and he could remember how the people were at different times.
 
 He had been in it and he had watched it and it was his duty to write of it; but now he never would.
