@@ -78,6 +78,7 @@ Why should he blame this woman because she kept him well?
 He had destroyed his talent by not using it, by betrayals of himself and what he believed in, by drinking so much that he blunted the edge of his perceptions, by laziness, by sloth, and by snobbery, by pride and by prejudice, by hook and by crook.
 
 What was this?
+
 A catalogue of old books?
 What was his talent anyway?
 It was a talent all right but instead of using it, he had traded on it.
