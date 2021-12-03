@@ -208,8 +208,8 @@ Promise me?"
 
 "I don't remember what I said."
 
-"You don't have to destroy me.
-Do you?
+"You don't have to destroy me. Do you?
+
 I'm only a middle-aged woman who loves you and wants to do what you want to do.
 
 I've been destroyed two or three times already.
