@@ -35,6 +35,10 @@ I watched the way they sailed very carefully at first in case I ever wanted to u
 
 That's funny now.""I wish you wouldn't," she said.
 
+
+
+
+
 "I'm only talking," he said.
 
 "It's much easier if I talk.
@@ -69,7 +73,9 @@ Couldn't I read to you?"
 
 "Anything in the book that we haven't read."
 
-"I can't listen to it," he said." Talking is the easiest.
+"I can't listen to it," he said."
+
+Talking is the easiest.
 
 We quarrel and that makes the time pass."
 
@@ -89,9 +95,10 @@ Maybe the plane will come."
 
 "There is no sense in moving now except to make it easier for you."
 
-"That's cowardly."
 
+"That's cowardly."
 "Can't you let a man die as comfortably as he can without calling him names?
+
 What's the use of clanging me?"
 
 "You're not going to die."
@@ -100,7 +107,9 @@ What's the use of clanging me?"
 
 I'm dying now.
 
-Ask those bastards." He looked over to where the huge, filthy birds sat, their naked heads sunk in the hunched feathers.
+Ask those bastards."
+
+He looked over to where the huge, filthy birds sat, their naked heads sunk in the hunched feathers.
 
 A fourth planed down, to run quick-legged and then waddle slowly toward the others.
 
