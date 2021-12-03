@@ -36,7 +36,6 @@ He had had his life and it was over and then he went on living it again with dif
 You kept from thinking and it was all marvellous.
 
 You were equipped with good insides so that you did not go to pieces that way, the way most of them had, and you made an attitude that you cared nothing for the work you used to do, now that you could no longer do it.
-
 But, in yourself, you said that you would write about these people; about the very rich; that you were really not of them but a spy in their country; that you would leave it and write of it and for once it would be written by some one who knew what he was writing of.
 
 But he would never do it, because each day of not writing, of comfort, of being that which he despised, dulled his ability and softened his will to work so that, finally, he did no work at all.
