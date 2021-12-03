@@ -93,8 +93,8 @@ Maybe the plane will come."
 
 "There is no sense in moving now except to make it easier for you."
 
-
 "That's cowardly."
+
 "Can't you let a man die as comfortably as he can without calling him names?
 
 What's the use of clanging me?"
