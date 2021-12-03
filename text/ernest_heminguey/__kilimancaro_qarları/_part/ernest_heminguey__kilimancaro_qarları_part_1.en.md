@@ -376,7 +376,6 @@ Do you have to kill your horse, and your wife and burn your saddle and your armo
 "Yes," he said.
 
 "Your damned money was my armour.
-
 My Sword and my Armour."
 
 "Don't."
@@ -389,8 +388,7 @@ I don't want to hurt you.'
 
 "It's a little bit late now."
 
-"All right then.
-
+"All right then. 
 I'll go on hurting you.
 
 It's more amusing.
@@ -440,9 +438,7 @@ Rot and poetry.
 
 Rotten poetry."
 
-"Stop it.
-
-Harry, why do you have to turn into a devil now?"
+"Stop it. Harry, why do you have to turn into a devil now?"
 
 "I don't like to leave anything," the man said.
 
