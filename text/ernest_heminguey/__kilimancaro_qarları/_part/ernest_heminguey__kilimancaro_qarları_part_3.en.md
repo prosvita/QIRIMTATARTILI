@@ -346,7 +346,9 @@ It did not go away but moved a little closer.
 
 "You stinking bastard."
 
-It moved up closer to him still and now he could not speak to it, and when it saw he could not speak it came a little closer, and now he tried to send it away without speaking, but it moved in on him so its weight was all upon his chest, and while it crouched there and he could not move or speak, he heard the woman say, "Bwana is asleep now.
+It moved up closer to him still and now he could not speak to it, and when it saw he could not speak it came a little closer, and now he tried to send it away without speaking, but it moved in on him so its weight was all upon his chest, and while it crouched there and he could not move or speak, he heard the woman say,
+
+"Bwana is asleep now.
 
 Take the cot up very gently and carry it into the tent."
 
@@ -400,7 +402,9 @@ Compton started the motor and got in.
 
 He waved to Helen and to the boys and, as the clatter moved into the old familiar roar, they swung around with Compie watching for warthog holes and roared, bumping, along the stretch between the fires and with the last bump rose and he saw them all standing below, waving, and the camp beside the hill, flattening now, and the plain spreading, clumps of trees, and the bush flattening, while the game trails ran now smoothly to the dry waterholes, and there was a new water that he had never known of.
 
-The zebra, small rounded backs now, and the wildebeeste, big-headed dots seeming to climb as they moved in long fingers across the plain, now scattering as the shadow came toward them, they were tiny now, and the movement had no gallop, and the plain as far as you could see, gray-yellow now and ahead old Compie's tweed back and the brown felt hat.
+The zebra, small rounded backs now, and the wildebeeste, big-headed dots seeming to climb as they moved in long fingers across the plain.
+
+Now scattering as the shadow came toward them, they were tiny now, and the movement had no gallop, and the plain as far as you could see, gray-yellow now and ahead old Compie's tweed back and the brown felt hat.
 
 Then they were over the first hills and the wildebeeste were trailing up them, and then they were over mountains with sudden depths of green-rising forest and the solid bamboo slopes, and then the heavy forest again, sculptured into peaks and hollows until they crossed, and hills sloped down and then another plain, hot now, and purple brown, bumpy with heat and Compie looking back to see how he was riding.
 
@@ -430,12 +434,10 @@ She could see his bulk under the mosquito bar but somehow he had gotten his leg 
 
 The dressings had all come down and she could not look at it.
 
-"Molo," she called, "Molo!
-Molo!"
+"Molo," she called, "Molo! Molo!"
 
 Then she said, "Harry, Harry!" Then her voice rising, "Harry!
-Please.
-Oh Harry!"
+Please. Oh Harry!"
 
 There was no answer and she could not hear him breathing.
 
