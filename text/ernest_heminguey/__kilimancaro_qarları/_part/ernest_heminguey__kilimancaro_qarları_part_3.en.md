@@ -229,7 +229,9 @@ The rich were dull and they drank too much, or they played too much backgammon.
 
 They were dull and they were repetitious.
 
-He remembered poor Julian and his romantic awe of them and how he had started a story once that began, "The very rich are different from you and me." And how some one had said to Julian, Yes, they have more money.
+He remembered poor Julian and his romantic awe of them and how he had started a story once that began, "The very rich are different from you and me."
+
+And how some one had said to Julian, Yes, they have more money.
 
 But that was not humorous to Julian.
 
