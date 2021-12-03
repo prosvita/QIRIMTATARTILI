@@ -225,7 +225,7 @@ If you wanted to shoot we could have gone shooting in Hungary and been comfortab
 
 I left everything and I went wherever you wanted to go and I've done what you wanted to do.
 
-
+We should never come here.
 
 "You said you loved it."
 
