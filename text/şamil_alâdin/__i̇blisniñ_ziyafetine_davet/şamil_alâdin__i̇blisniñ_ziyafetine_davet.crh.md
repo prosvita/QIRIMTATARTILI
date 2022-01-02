@@ -1,1 +1,1 @@
-# blank
+# İBLİSNİÑ ZİYAFETİNE DAVET
