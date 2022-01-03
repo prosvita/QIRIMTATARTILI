@@ -1,0 +1,40 @@
+({
+    shouldDeps: [
+        {mods: {chapter: [
+            'muqaddeme',
+            'birinci_bab',
+            'ekinci_bab',
+            'üçünci_bab',
+            'dördünci_bab',
+            'beşinci_bab',
+            'altıncı_bab',
+            'yedinci_bab',
+            'sekizinci_bab',
+            'doquzıncı_bab',
+            'onıncı_bab',
+            'on_birinci_bab',
+            'on_ekinci_bab',
+            'on_üçünci_bab',
+            'on_dördünci_bab',
+            'on_beşinci_bab',
+            'on_altıncı_bab',
+            'on_yedinci_bab',
+            'on_sekizinci_bab',
+            'on_doquzıncı_bab',
+            'yigirminci_bab',
+            'yigirmi_birinci_bab',
+            'yigirmi_ekinci_bab',
+            'yigirmi_üçünci_bab',
+            'yigirmi_dördünci_bab',
+            'yigirmi_beşinci_bab',
+            'yigirmi_altıncı_bab',
+            'yigirmi_yedinci_bab',
+            'yigirmi_sekizinci_bab',
+            'yigirmi_doquzıncı_bab',
+            'otuzınci_bab',
+            'otuz_birinci_bab',
+            'otuz_ekinci_bab',
+            'hati̇me'
+        ]}}
+    ]
+})
