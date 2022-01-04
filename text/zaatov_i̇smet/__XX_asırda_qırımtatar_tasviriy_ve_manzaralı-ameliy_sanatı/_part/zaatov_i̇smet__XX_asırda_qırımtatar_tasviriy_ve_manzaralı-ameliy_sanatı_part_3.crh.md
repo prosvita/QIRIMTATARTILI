@@ -4,9 +4,7 @@
 
 XX asırnın başlarına kelip, qırımtatarlarnın manzaralı-ameliy sanatı inqirazğa oğrasa da, umumen alğanda özünin yüksek prossional seviyesini ve asriy an anelerini saqlap qalğan edi.
 İşte, XIX asımın sonlarında qırımtatar ustalarının yasamaları diqqatlı tedqiqat obyektine çevirilip, antiqa sevdalarının, kollektsioner ve qırımşınas alimlernin merağını celp etip başlağanı tesadüf değildir.
-Aveskâr kollektsiyalar ve toplamlar arasında belli qırımşınas A.
-A. Bertye-Delagardnın (Yalta) ve Aqmescitteki Tavriya ilmiy arhiv komissiyasınıh kollektsiyaları, Svişçevnin hususiy gimnaziyasında saqlanılğan numüneler ğayet mot edi; Oırımdan tışta bulunğan kollektsiyalar cümlesine ise Peterburgdaki Rus muzeyinih (Millernin kollektsiyası) ve Moskvadaki sabıq Rumyantsev — şimdiki Halqşınaslıq muzeyinin (Yanjulnın kollektsiyası) etnografiya bölüklerinde saqlanılğan toplamlar kireler (196.
-103-nci sahife).
+Aveskâr kollektsiyalar ve toplamlar arasında belli qırımşınas A. A. Bertye-Delagardnın (Yalta) ve Aqmescitteki Tavriya ilmiy arhiv komissiyasınıh kollektsiyaları, Svişçevnin hususiy gimnaziyasında saqlanılğan numüneler ğayet mot edi; Oırımdan tışta bulunğan kollektsiyalar cümlesine ise Peterburgdaki Rus muzeyinih (Millernin kollektsiyası) ve Moskvadaki sabıq Rumyantsev — şimdiki Halqşınaslıq muzeyinin (Yanjulnın kollektsiyası) etnografiya bölüklerinde saqlanılğan toplamlar kireler (196. 103-nci sahife).
 Bu kollektsiyalarnın negizini işleme ve toqumalar, bediiy işlenilgen maden, quyumcıiıq eşyaları teşkil eteler; kiramet ve taş hem de ağaç oymacılığına ait numüneler ise ğayet zayıf taqdim etilgen.
 Bunı anlatmaq qıyın değil — toplanılğan eksponatlar XIX asımın sonlarında — XX asırnın başlarında esnafçılıqta meydanğa kelgen real vaziyetni aks ettireler.
 
