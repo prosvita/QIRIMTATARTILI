@@ -14,7 +14,7 @@ async function run() {
     for (const dir in tasks) {
         for (const name in tasks[dir]) {
             await createIssue(dir, name, tasks[dir][name])
-            await new Promise(resolve => setTimeout(resolve, 32 * 1000))
+            await new Promise(resolve => setTimeout(resolve, 16 * 1000))
         }
     }
 }
