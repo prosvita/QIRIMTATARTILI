@@ -1,25 +1,18 @@
 # Magical pages
 
 ## Native Language
-Oh, beloved native language,
-Oh, enchanting mother tongue!
-You enabled my search for knowledge 
-Of the world, since I was young.
 
-As a child, when I was sleepless 
-Mother sung me lullabies 
-And my grandma told me stories 
-Through the night, to shut my eyes.
+Oh, beloved native language, Oh, enchanting mother tongue!
+You enabled my search for knowledge Of the world, since I was young.
 
-Oh, my tongue! You have been always 
-My support in grief and joy,
-Understood and cherished fondly 
-Since I was a little boy.
+As a child, when I was sleepless Mother sung me lullabies
+And my grandma told me stories Through the night, to shut my eyes.
 
-In my tongue, I learned with patience 
-To express my faith and say:
-«Oh, Creator! Bless my parents,
-Take, Allah, my sins away!»
+Oh, my tongue! You have been always My support in grief and joy,
+Understood and cherished fondly Since I was a little boy.
+
+In my tongue, I learned with patience To express my faith and say:
+«Oh, Creator! Bless my parents, Take, Allah, my sins away!»
 
 ## Work done, have your fun
 
@@ -54,7 +47,7 @@ The Sun then granted him his brightest smile;
 The Apple-Tree gave him her nicest apple!
 
 The Nightingale then sang his fairest song to him; 
-The trees bowed their heads in front of him.
+The trees bowed their heads in front of him.
 
 ## Child and Butterfly
 
@@ -96,7 +89,7 @@ I only want to roll on grass, have fun and play.
 — You silly puppy! Learn, while you're still small,
 It gets so harder, as the years roll.
 
-Ali and the Goat
+## Ali and the Goat
 
 The Goat’s, to Gali, a dear friend;
 Into the window pane she sticks her head. 
