@@ -49,27 +49,57 @@ The Apple-Tree gave him her nicest apple!
 The Nightingale then sang his fairest song to him; 
 The trees bowed their heads in front of him.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 ## Child and Butterfly
 
 Child:
 Tiny little Butterfly,
-Will you ever tell me, why, 
-Flying since the crack of dawn, 
-You are not fatigued or worn? 
-Is your living sour or sweet? 
-How do you make ends meet? 
-Tell me, where, if you would, 
+Will you ever tell me, why,
+Flying since the crack of dawn,
+You are not fatigued or worn?
+
+Is your living sour or sweet?
+How do you make ends meet?
+Tell me, where, if you would,
 Are you finding ail your food?
 
 Вutterfly:
-In the woodlands, in the fields 
-In the meadows are my yields- 
-Here's where I fly and play 
-On a brilliant summer's day. 
-Loved and cherished by sunligh 
+In the woodlands, in the fields
+In the meadows are my yields-
+Here's where I fly and play
+On a brilliant summer's day.
+
+Loved and cherished by sunligh
 I keep flowers in my sight:
-Their blossoms, when in bloom, 
-Nourish me with sweet perfume 
+Their blossoms, when in bloom,
+Nourish me with sweet perfume
+
 Yet, my life is short, I say,
 It but lasts a single day,
 Be a good and gentle boy,
@@ -107,7 +137,8 @@ The cat meanwhile is staring at the bobbin:
 «Will it now move — will it at last start rolling?» 
 And then she'll bounce and grab it, as a ball, 
 And she will chase it 'round, just let it roll!
-She has no other worry but to play: 
+
+She has no other worry but to play:
 Mischievous, drolly cat! She'd play all day!
 
 ## Lazy puppy 
@@ -178,18 +209,18 @@ Praising the Sun's entrance, the world must be aware.
 
 The Wind serves as a herald whose duty is to say: 
 «The Sun's already up, greet another day!»
-
-And when the Sun is out, performing his daily race, 
+And when the Sun is out, performing his daily race,
 Crescent, his young brother, takes the cradle's space.
 
 Never left alone, he's surrounded by the stars, 
 Like the tiniest of torches, they shine from afar.
-
-Crescent in the cradle sleeps for the entire night, 
+Crescent in the cradle sleeps for the entire night,
 Till the Sun awakens Him with early morning light.
 
-Day comes after night, brother comes after brother, 
+Day comes after night, brother comes after brother,
 While one of them rests, he can count on the other.
+
+
 
 ## The Rain and the Sun
 
