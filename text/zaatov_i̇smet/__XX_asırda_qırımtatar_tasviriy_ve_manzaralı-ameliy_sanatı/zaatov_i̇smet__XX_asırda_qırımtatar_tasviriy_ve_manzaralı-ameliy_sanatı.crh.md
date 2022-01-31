@@ -1,5 +1,5 @@
 # QIRIMTATAR MANZARALI-AMELÎY VE TASVÎRİY SANATI
-%
+%ХХ ASIRDA QIRIMTATAR TASVIRIY VE MANZARALI-AMELIY SANATI: meydanğa kelüvi, inkişafı, evrimi, zemaneviy alı
 ## Kiriş
 Oırımtatarlarnın yigirminci asırğa ait tasviriy ve manzaralı-ameliy sanatı asılında tedqiq etilmegen mevzu olıp, o mahsus ögrenilüvge muhtacdır.
 Bumn sebeplerini zemaneviy qırımtatar tarihında yüz bergen facialı vaqialarnen anlatmaq mümkün.
