@@ -18,10 +18,8 @@ Oırımtatar halqınıh manzaralı-ameliy ve tasviriy sanatı yarımada territor
 En evelki basqıçta bular esasen türkiy olmağan, şimaliy ve şarqiy Irandan kelgen, sonundan ise kelip çıquvı tek türklerden olğan köçebe qabileler ediler.
 Oırımtatarlarnıfi etnogenezinde olar, çeşit devirlerde olsa da, tolu kölemde iştirak ettiler.Öz nevbetinde, qadimiy yunan, Vizantiya, Altin Ordu, türk, İslâm medeniyetlerinin büyükten-büyük tesiri altında bulunğan, qadimiy, erte orta asır ve orta asırlardaki Oırımnın medeniy an'anelerini miras etip alğan zemaneviy qırımtatar sanatı bugünde-bugün regionda mahiyeti cehetinden türk-islâm, şekili cehetinden ise avropalı olğan, çeşit tarihiy sebeplerden ötrü slavyan-hristian medeniyetlerinin sarımında qalğan bir medeniyet sıfatında yer tuta.
 Şubhesiz, qırımtatar manzaralı-ameliy sanatı halqmh etnik tarihi, onın medeniy inkişafının çoq asırlıq an'aneleri hesapqa alınğanı halda öğrenilmek borçlu.
-Oırımtatarlarnın zemaneviy tasviriy sanatı bayağı keç peyda olğanına, Garp ve Rusiyedeki medeniy an'anelemin tesirinde bulunğanına baqmadan, her halda, onın öz tarihi ve basqıçları mevcut,оlar da tantimli ögrenilüvge muhtaçlar. 
-
-
-Ûırımtatar tasviriy ve manzaralı-ameliy sanatlarını ilmiy cehetten ögrenüvnin aktualligi şundan kelip çıqa ki, qırımtatar halqı onlarnen yıllar devamında öz medeniyetini ve halq sanatı an'anelerini öğrenmek imkânından mahrum edi.
+Oırımtatarlarnın zemaneviy tasviriy sanatı bayağı keç peyda olğanına, Garp ve Rusiyedeki medeniy an'anelemin tesirinde bulunğanına baqmadan, her halda, onın öz tarihi ve basqıçları mevcut,оlar da tantimli ögrenilüvge muhtaçlar.
+Kırımtatar tasviriy ve manzaralı-ameliy sanatlarını ilmiy cehetten ögrenüvnin aktualligi şundan kelip çıqa ki, qırımtatar halqı onlarnen yıllar devamında öz medeniyetini ve halq sanatı an'anelerini öğrenmek imkânından mahrum edi.
 Hal-azırda tuvğan topraqqa qaytmaq imkânı doğmasınen medeniy asabalıqnı ğayrıdan canlandıruv meselesi de ayrıca emiyetke malik ola, çünki bu şey halqnın zemaneviy dünyada kendine özdeş tapuv probleminen bağlıdır.
 
 XX asır devamıda qırımtatarlarnın ömürinde olıp keçken bediiy ceryannı idrak etüv, om talil etüv ise halqqa öz toprağında pekinmege, Vatan duyğusını qaviyleştirmege yardım etmek borçlular.
