@@ -26,12 +26,11 @@ Olar da tantimli ögrenilüvge muhtaçlar.
 
 Ûırımtatar tasviriy ve manzaralı-ameliy sanatlarını ilmiy cehetten ögrenüvnin aktualligi şundan kelip çıqa ki, qırımtatar halqı onlarnen yıllar devamında öz medeniyetini ve halq sanatı an'anelerini öğrenmek imkânından mahrum edi.
 Hal-azırda tuvğan topraqqa qaytmaq imkânı doğmasınen medeniy asabalıqnı ğayrıdan canlandıruv meselesi de ayrıca emiyetke malik ola, çünki bu şey halqnın zemaneviy dünyada kendine özdeş tapuv probleminen bağlıdır.
+
 XX asır devamıda qırımtatarlarnın ömürinde olıp keçken bediiy ceryannı idrak etüv, om talil etüv ise halqqa öz toprağında pekinmege, Vatan duyğusını qaviyleştirmege yardım etmek borçlular.
 Mezkûr mevzum ögrenüvnin aktualligi daha şunınnen anlatıla ki, qırımtatarlarnın XX asırğa ait tasviriy ve manzaralı-ameliy sanatının inkişafına bağışlanğan tolu kolemli, kompleksli tedqiqatlar ale bu küngece yapılmadı.
-
 XX asırnın 20-nci senelerinde qırımtatar halq sanatı, qısqa müddet olsa da, gür süratlarnen öğrenildi.
-O yıllarda qırımtatar alimi U.
-Bodaninskiynin qırımtatar esnafçılığı, Qırım mimarcılığı, arheologiyası ve etnografiyası boyunca eserleri dünya yüzü kördiler.
+O yıllarda qırımtatar alimi U.Bodaninskiynin qırımtatar esnafçılığı, Qırım mimarcılığı, arheologiyası ve etnografiyası boyunca eserleri dünya yüzü kördiler.
 Qırım hanlığı daha yoq etilmegen devirlerde ve Oırımnı Rusiye zapt etken sofi mında sefer yapqan alman, fransız, arap, türk, leh, rus, litov, holland ve İtalyan müelliflerinin qırımtatar medeniyeti boyunca epizodik taariflemeleri dere olunıp turdı.
 Bu eserler esasen manzaralı sanatnın ayrı çeşitlerine bağışlanğan olıp, olarnı diplomatlar, seyahatçılar, tarihçılar ve coğrafiyacılar yazğan ediler.
 Çeşit devirlerde qırımtatar sanatı haqqında sovet ve rus alimlerinden B. Kuftin, I. Borozdin, E. Spasskaya, P. Çepurina, M. Ginzburg, P. Nikolskiy, L. Roslavtseva, E. Torçinskaya, S. izidinova, A.
