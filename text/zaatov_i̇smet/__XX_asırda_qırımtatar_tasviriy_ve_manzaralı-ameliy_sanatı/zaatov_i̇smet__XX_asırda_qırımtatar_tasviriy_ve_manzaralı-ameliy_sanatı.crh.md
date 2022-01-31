@@ -1,5 +1,5 @@
 # QIRIMTATAR MANZARALI-AMELÎY VE TASVÎRİY SANATI
-
+%
 ## Kiriş
 Oırımtatarlarnın yigirminci asırğa ait tasviriy ve manzaralı-ameliy sanatı asılında tedqiq etilmegen mevzu olıp, o mahsus ögrenilüvge muhtacdır.
 Bumn sebeplerini zemaneviy qırımtatar tarihında yüz bergen facialı vaqialarnen anlatmaq mümkün.
