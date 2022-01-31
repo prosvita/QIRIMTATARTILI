@@ -27,16 +27,10 @@ XX asırnın 20-nci senelerinde qırımtatar halq sanatı, qısqa müddet olsa d
 O yıllarda qırımtatar alimi U.Bodaninskiynin qırımtatar esnafçılığı, Qırım mimarcılığı, arheologiyası ve etnografiyası boyunca eserleri dünya yüzü kördiler.
 Qırım hanlığı daha yoq etilmegen devirlerde ve Oırımnı Rusiye zapt etken sofi mında sefer yapqan alman, fransız, arap, türk, leh, rus, litov, holland ve İtalyan müelliflerinin qırımtatar medeniyeti boyunca epizodik taariflemeleri dere olunıp turdı.
 Bu eserler esasen manzaralı sanatnın ayrı çeşitlerine bağışlanğan olıp, olarnı diplomatlar, seyahatçılar, tarihçılar ve coğrafiyacılar yazğan ediler.
-Çeşit devirlerde qırımtatar sanatı haqqında sovet ve rus alimlerinden B. Kuftin, I. Borozdin, E. Spasskaya, P. Çepurina, M. Ginzburg, P. Nikolskiy, L. Roslavtseva, E. Torçinskaya, S. izidinova, A.
-Polkanova ve diğerlerinin eserleri basıldı.
-Lâkin bu eserlernin hepisi tasviriy yahut manzaralı-ameliy sanatnın bir
-de-bir çeşiti haqqında ediler.
-1944 senesinden son qırımtatarlar haqqında bir söz bile ayttırılmağan devamlı devir baştana.
-Bu devirde qırımtatarlar haqqında tek publikatsiyalar değil, hatta olarnın sanatını öğrenmek kesenkes yasaq etile edi.
-1995 senesi S.
-M. Çervonnayanın «Tatar ûırımının sanatı» adlı iri kolemli ilk tedqiqiy eseri dere olundı.
-Bu kitap Oırımtatar halqı Meclisinin teşebbüsi ve qoltutuvı sayesinde peyda oldı.
-Kitapta Qırım yarımadasının sanatı iptidaiy devirlerden başlap, keniş tarihiy fonda közetile, qırımtatar sanatı inkişafının ta XX asır sonuna qadar olğan esas basqıçları aydınlatıla.
+Çeşit devirlerde qırımtatar sanatı haqqında sovet ve rus alimlerinden B. Kuftin, I. Borozdin, E. Spasskaya, P. Çepurina, M. Ginzburg, P. Nikolskiy, L. Roslavtseva, E. Torçinskaya, S. izidinova, A.Polkanova ve diğerlerinin eserleri basıldı, lâkin bu eserlernin hepisi tasviriy yahut manzaralı-ameliy sanatnın bir de-bir çeşiti haqqında ediler.
+1944 senesinden son qırımtatarlar haqqında bir söz bile ayttırılmağan devamlı devir baştana, bu devirde qırımtatarlar haqqında tek publikatsiyalar değil, hatta olarnın sanatını öğrenmek kesenkes yasaq etile edi.
+1995 senesi S.M. Çervonnayanın «Tatar ûırımının sanatı» adlı iri kolemli ilk tedqiqiy eseri dere olundı.
+Bu kitap Oırımtatar halqı Meclisinin teşebbüsi ve qoltutuvı sayesinde peyda oldı. Kitapta Qırım yarımadasının sanatı iptidaiy devirlerden başlap, keniş tarihiy fonda közetile, qırımtatar sanatı inkişafının ta XX asır sonuna qadar olğan esas basqıçları aydınlatıla.
 Lâkin, müellif bayağı keniş deviriy diapazonğa toqunğanı sebebinden, XX asırğa ait qırımtatar sanatının talili konspektiv surette, qısqadan berilgen, icatçılarnın biografiyaları hem de tasviriy ve manzaralı-ameliy sanatta olıp keçken ceryanlar tafsilâtlı talil etilmegen.
 
 Sonki yıllarda deviriy matbuatta zemaneviy qırımtatar sanatı problemleri haqqında maqaleler yazğan bir sıra sanatşınaslar, jurnalistler peyda oldılar.
