@@ -13,7 +13,6 @@ Mevzudan biraz çetleşerek, şunı faraz etmek mümkün ki, yuqarıda kösteril
 Çünki XVIII asımın sonuna kelip, olarnin tilleri bir (türkiy til), maddiy ve maneviy medeniyetleri (dinden ğayrı) bir edi.
 Böyleliknen, Oırımnıh bu etnografik gruppaları arasındaki yekâne farqnı yalınız din — olarnin kütken İslâm, yehudiy, karaim yahut hristian dinleri teşkil etecek edi.
 Bu esnada zemaneviy bulğar milletine mensüp etnokonfessional gruppalarnı misal olaraq ketirmek mümkün: bular — hristian bulğarlar, pomaqlar — musülman bulğarlar, gagauzlar — türkiy tilli hristian slavyanlardır.
-Bular — hristian bulğarlar, pomaqlar — musülman bulğarlar, gagauzlar — türkiy tilli hristian slavyanlardır.
 Ebet, Oırım etnoslarının yekâne bir halqqa birleşmesi tek bir şartnen — qırımtatarlarnın devletçiliğini temsil etken Öırım hanlığının 1774 senesi Küçük Oaynarcı uzlaşuvı mucibi elde etken mustaqilligi eh azınen 2-3 asırğa sağlanıp qalğanı halda mümkün ola bilecek edi.
 
 Oırımtatar halqınıh manzaralı-ameliy ve tasviriy sanatı yarımada territoriyasında şekillenip, inkişaf etkendir ki, mında Aq deniz — Qara deniz, Balkan, Şarqiy Avropa ve Kavkaz areallarındaki yurtlaşqan halqlarnıfl medeniyetleri çeşit köçebe halqlarnın medeniyetlerinen çatışqandır.
