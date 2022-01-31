@@ -37,11 +37,8 @@ Sonki yıllarda deviriy matbuatta zemaneviy qırımtatar sanatı problemleri haq
 Bular — L. Milina, M. Mecitova, G. Useinova, G. Abiyeva, S. Ziyadinova, Z. Nimetullayeva ve diğerleridir.
 Öz maqalelerinen tedqiqatımız içün meraq doğurğan professional sanatşınaslar cümlesine N.
 Ostrovskiy adına Taşkent teatr-ressamlıq institutının mezunları A. Asanov, L. Tairova, E. Çerkezova kireler.
-
 Bugünde-bugün qırımtatar halqınıh tarihında yanı basqıç başlanğanı, yani o özünin tarihiy Vatanına qaytayatqanı munasebetinen qırımtatar tasviriy sanatının peyda oluv ve inkişaf etüv ceryanını aks ettirmek hem de qırımtatar manzaralı-ameliy sanatının an'anelerini bayağı terence öğrenmek, evel belli olmağan abidelerniri keniş dairesini ilmiy qullanuvğa kirsetmek, halq icadının esas çeşitlerini (maden, ağaç ve taşnı bediiy işlev; kiramet; ufaq plastika; küçük şekilli halq mimarcılığı; altın yiplernen ve örnekli işleme; bezekli örüv; gön ve kiyiz üstüne applikatsiya çeküv; bediiy toqumacılıq; gobelenler, havlı ve havsız kilim, kiyizler toquv; inkrustatsiya) açıp köstermek zaruriyeti doğdı.
-
 Mezkûr qullanmada dere olunğan tedqiqatlarmn maqsadı — zemaneviy qırımtatar tasviriy sanatının peyda oluv ve ayaqqa turuv ceryanlarını, XX asırğa ait olıp, evelki zamanlar an'anelerini miras etip alğan halq manzaralı-ameliy sanatının ğayrıdan tiklenüv ve inkişaf etüv problemlerini közetmek, qırımtatar sanatının bediiy hususiyetlerini ve inkişafındaki esas tendentsiyalarnı belgilemektir.
-
 Zanımızca, zemaneviy qırımtatar tasviriy ve manzaralı-ameliy sanatını tedqiq etüv ve ögrenüv sahasındaki esas ve birinci nevbette turğan vazifelerni belgilemek içün aşağıdakilerni yapmaq zarur:
 - qırımtatarlarnıh XX asır başlanmasına qadar olğan sanatının qısqa harakteristikasını bertmek;
 - Avropa tesiri neticesinde Ûırımda yanı, an'aneviy olmağan sanat çeşitlerinin — ressamlıq, grafika, heykelciliknın peyda oluv ceryanını açıp köstermek;
@@ -52,18 +49,13 @@ Zanımızca, zemaneviy qırımtatar tasviriy ve manzaralı-ameliy sanatını ted
 - qırımtatar ustalarının an'aneviy iş usullarını harakterizlemek;
 - qırımtatarlarmn halq manzaralı-ameliy sanatının hem de tasviriy sanatının esas stilistik hususiyetlerini belgilemek;
 - qırımtatar tasviriy hem de manzaralı-ameliy sanatlarının halqtaki diğer maddiy ve maneviy medeniyet körünişlerinen bağını açıp köstermek, qırımtatarlamın halq ameliy-manzaralı hem de tasviriy sanatlarınen diğer halqlarnın sanatları arasındaki umumiy hususiyetlerni ve farqlarnı belgilemek.
-
-Mezkûr qullanmada beyan etilgen tedqiqatlarnıh metodologik negizini qırımtatar halq manzaralı-ameliy ve tasviriy sanatlarına ait eserlerni ögrenüv, olarnın bediiy cehetten talili ve sanatşınaslıq cehetinden telqini teşkil eteler.
-Zaten, manzaralı-ameliy ve tasviriy sanatlarğa milliy medeniyetnin bir qısımı sıfatında, halqnın tarihi, etnogenezi, dünyabaqışı, emek ve turmuş şaraitleri, an'aneleri, urf-adetleri, folklorı ve halq icadiyatının diğer çeşitlerinen bağlı halda qıymet kesmek lâzim.
-
+%Mezkûr qullanmada beyan etilgen tedqiqatlarnıh metodologik negizini qırımtatar halq manzaralı-ameliy ve tasviriy sanatlarına ait eserlerni ögrenüv, olarnın bediiy cehetten talili ve sanatşınaslıq cehetinden telqini teşkil eteler,zaten, manzaralı-ameliy ve tasviriy sanatlarğa milliy medeniyetnin bir qısımı sıfatında, halqnın tarihi, etnogenezi, dünyabaqışı, emek ve turmuş şaraitleri, an'aneleri, urf-adetleri, folklorı ve halq icadiyatının diğer çeşitlerinen bağlı halda qıymet kesmek lâzim.
 Bu tedqiqatnıh ilmiy cehetten yanılığı şundan ibaret ki, qırımtatar tasviriy ve manzaralı-ameliy sanatının inkişafı ilmiy ameliyatta ilk kere kompleksli tarzda talil etile, qırımtatar manzaralı-ameliy ve tasviriy sanatlarının esas çeşitlerini ve inkişaflarındaki basqıçlarnı harakterizlegen abidelernin keniş dairesi idrak etilip, olar tarihiy sanatşınaslıq cehetinden talil olunalar.
 Bir sıra memleketlerde yaşağan qırımtatar diasporasının sanatı boyunca büyük, daha hiç bir tarzda ögrenilmegen faktologik material ilk kere ilmiy qullanuvğa kirsetile.
 An'aneviy halq bediiy esnafçılığı tarqalğan areallar, olarnın merkezleri belgilenip, yetekçi ustalar ve icatçılar haqqında malûmat toplandı, esas esnafçılıq-bediiy usulları taariflendi, qırımtatar halq bediiy icadiyatının terkibi belgilendi, onın esas çeşitlerinin klassifikatsiyası yapıldı.
-Müellif, qısmet olsa, ileride Qırımnın ve oha sınırdaş territoriyalarnın manzaralı-ameliy ve tasviriy sanatlarını qiyaslama tarzda talil etmekni, neticelerini ayrı monografiya şekilinde dere ettirmekni qararlaştıra.
-Bu ise qırımtatar bediiy an anelerinin özgünligini tarihiy inkişaf noqtaiy-nazarından belgilemek imkânını berir.
+%Müellif, qısmet olsa, ileride Qırımnın ve oha sınırdaş territoriyalarnın manzaralı-ameliy ve tasviriy sanatlarını qiyaslama tarzda talil etmekni, neticelerini ayrı monografiya şekilinde dere ettirmekni qararlaştıra, bu ise qırımtatar bediiy an anelerinin özgünligini tarihiy inkişaf noqtaiy-nazarından belgilemek imkânını berir.
 Qırım sanatşınaslıq iliminde ilk kere manzaralı sanat numünelerini an'anelernen, urf-adetlernen, halq icadiyatının diğer çeşitlerinen qıyaslav esasında talil etüv usulı qullanılacaq.
-
-Oullanamada ketirilgen tedqiqatlarnın ameliy qıymeti — olardan qırımtatarlarnın professional sanatını ve halq esnafçılığını ğayrıdan tiklev, inkişaf ettirüv ve teşviq etüvde keniş faydalanmaq mümkün olacağından ibarettir; toplanılğan ve talil etilgen material XX asırğa ait qırımtatar sanatı inkişafının bütünlikli bir manzarasını aks ettirmek imkânını bere.
+Qullanamada ketirilgen tedqiqatlarnın ameliy qıymeti — olardan qırımtatarlarnın professional sanatını ve halq esnafçılığını ğayrıdan tiklev, inkişaf ettirüv ve teşviq etüvde keniş faydalanmaq mümkün olacağından ibarettir; toplanılğan ve talil etilgen material XX asırğa ait qırımtatar sanatı inkişafının bütünlikli bir manzarasını aks ettirmek imkânını bere.
 Aynı vaqıtta, tedqiqatlarnın materiallarından ileride zemaneviy qırımtatar sanatını ögrenüv işinde hem de bediiy oquv yurtları içün lektsiya materialları sıfatında faydalanır^ mümkün.
 
 Oırımtatar halq manzaralı-ameliy ve tasviriy sanatını sanatşınaslıq cehetinden ilk kere kompleksli, bütünlikli bir körüniş sıfatında öğrenmek zaruriyeti meselege monografik yanaşuvnı ve onın esas çeşitlerini ardı-sıra talil etüvni közde tuta edi.
