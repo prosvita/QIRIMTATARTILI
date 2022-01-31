@@ -21,7 +21,6 @@ Oırımtatarlarnıfi etnogenezinde olar, çeşit devirlerde olsa da, tolu kölem
 Oırımtatarlarnın zemaneviy tasviriy sanatı bayağı keç peyda olğanına, Garp ve Rusiyedeki medeniy an'anelemin tesirinde bulunğanına baqmadan, her halda, onın öz tarihi ve basqıçları mevcut,оlar da tantimli ögrenilüvge muhtaçlar.
 Kırımtatar tasviriy ve manzaralı-ameliy sanatlarını ilmiy cehetten ögrenüvnin aktualligi şundan kelip çıqa ki, qırımtatar halqı onlarnen yıllar devamında öz medeniyetini ve halq sanatı an'anelerini öğrenmek imkânından mahrum edi.
 Hal-azırda tuvğan topraqqa qaytmaq imkânı doğmasınen medeniy asabalıqnı ğayrıdan canlandıruv meselesi de ayrıca emiyetke malik ola, çünki bu şey halqnın zemaneviy dünyada kendine özdeş tapuv probleminen bağlıdır.
-
 XX asır devamıda qırımtatarlarnın ömürinde olıp keçken bediiy ceryannı idrak etüv, om talil etüv ise halqqa öz toprağında pekinmege, Vatan duyğusını qaviyleştirmege yardım etmek borçlular.
 Mezkûr mevzum ögrenüvnin aktualligi daha şunınnen anlatıla ki, qırımtatarlarnın XX asırğa ait tasviriy ve manzaralı-ameliy sanatının inkişafına bağışlanğan tolu kolemli, kompleksli tedqiqatlar ale bu küngece yapılmadı.
 XX asırnın 20-nci senelerinde qırımtatar halq sanatı, qısqa müddet olsa da, gür süratlarnen öğrenildi.
