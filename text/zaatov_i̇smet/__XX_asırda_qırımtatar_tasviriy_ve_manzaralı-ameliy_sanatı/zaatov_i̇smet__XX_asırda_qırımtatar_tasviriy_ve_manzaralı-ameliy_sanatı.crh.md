@@ -6,11 +6,9 @@ Bumn sebeplerini zemaneviy qırımtatar tarihında yüz bergen facialı vaqialar
 1918-1921 senelerinin qızıl ve aq terrorı, 19211922 seneleri aselet teşkilâtlandırılan kütleviy açlıq, halqnın intellektual elitası yoq etilgen 1928, 1937-1938 senelerinin repressiyaları, qırımtatarlar öz Vatanından sürgün etilip, çeşit ülkelerge dağıtılğan 1944 senesinin zorbalıqlı deportatsiyası, halqnın çoq yıllar devamında diskriminatsiyağa oğratılması, onın medeniy yenişleri devlet tarafından inkâr etilip, yoqqa çıqarılması milliy medeniyet ve sanat içün facialı ve ödetmez ğayıplarğa alıp keldi.
 Sonki onyıllıqnın vaqiaları, yani qırımtatar halqının öz tuvğan toprağına qaytıp başlaması, medeniy an'anelernin ğayrıdan tiklenilmesi, Çırımdaki zemaneviy bediiy yaratıcılıqnm faalleşmesi mezkûr mevzunın aktualligini arttıralar, om öğrenmek imkânını bereler.
 Qırım yarımadasının territoriyasında binlernen yıllar zuur etken devamlı etnik ceryan yigirminci asımın başlarında üç Qırım etnosının şekillenmesinen yekünlendi.
-Zemaneviy qırımtatar milleti meydanğa keldi ki, o burjua milletinin inkişafı içün zarur olğan bütün içtimaiy cehetlerge, medeniy ve maneviy alâmetlerge artıq malik edi.
-Bundan tek yaqın tarihiy keçmişte ğayıp etilgen milliy devletçilik istisna edi.
+Zemaneviy qırımtatar milleti meydanğa keldi ki, o burjua milletinin inkişafı içün zarur olğan bütün içtimaiy cehetlerge, medeniy ve maneviy alâmetlerge artıq malik edi, bundan tek yaqın tarihiy keçmişte ğayıp etilgen milliy devletçilik istisna edi.
 Oararnen şu devirde Qırım karaimleri (türk-karaitler) ve qırımçaqları (yehudiy türkler) da şekillenip yetiştiler.
 Qırım urumları — qırımtatar tilinde laqırdı etken pravoslav (ortodoksa!) dindeki hristianlar — Ekaterina saniy II hükümeti tarafından 1778 senesi Qırımdan bütünley sürgün etilmegen olsalar, Oırımnıh zemaneviy dörtünci etnosı ola bilecek ediler.
-
 Mevzudan biraz çetleşerek, şunı faraz etmek mümkün ki, yuqarıda kösterilgen etnoslarnıh yekâne topraqta, yekâne devlet sınırları içinde tabiiy surette inkişaf etüv ceryanı ertemi-keçmi yekâne Qırım halqının meydanğa kelmesinen, yani şu etnoslarnıh bir etnosqa çevirilmesinen yekünlenmek kerek edi.
 Çünki XVIII asımın sonuna kelip, olarnin tilleri bir (türkiy til), maddiy ve maneviy medeniyetleri (dinden ğayrı) bir edi.
 Böyleliknen, Oırımnıh bu etnografik gruppaları arasındaki yekâne farqnı yalınız din — olarnin kütken İslâm, yehudiy, karaim yahut hristian dinleri teşkil etecek edi.
