@@ -33,7 +33,6 @@ Bu eserler esasen manzaralı sanatnın ayrı çeşitlerine bağışlanğan olıp
 Bu kitap Qırımtatar halqı Meclisinin teşebbüsi ve qoltutuvı sayesinde peyda oldı.
 Kitapta Qırım yarımadasının sanatı iptidaiy devirlerden başlap, keniş tarihiy fonda közetile, qırımtatar sanatı inkişafının ta XX asır sonuna qadar olğan esas basqıçları aydınlatıla.
 Lâkin, müellif bayağı keniş deviriy diapazonğa toqunğanı sebebinden, XX asırğa ait qırımtatar sanatının talili konspektiv surette, qısqadan berilgen, icatçılarnın biografiyaları hem de tasviriy ve manzaralı-ameliy sanatta olıp keçken ceryanlar tafsilâtlı talil etilmegen.
-
 Sonki yıllarda deviriy matbuatta zemaneviy qırımtatar sanatı problemleri haqqında maqaleler yazğan bir sıra sanatşınaslar, jurnalistler peyda oldılar.
 Bular — L. Milina, M. Mecitova, G. Useinova, G. Abiyeva, S. Ziyadinova, Z. Nimetullayeva ve diğerleridir.
 Öz maqalelerinen tedqiqatımız içün meraq doğurğan professional sanatşınaslar cümlesine N.
