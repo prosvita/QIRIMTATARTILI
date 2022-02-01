@@ -128,7 +128,7 @@ Re simde biz aq saqailı, maniayım teren bürüşikler örtken, çatışıq qa�
 Şusı meraqlı ki, qırımlı ressamlar portret janrında çalışaqoymay ediler.(151.19-nci sahife).
 Demek, bundan ötrü Ustayevnın mezkûr eseri daha qıymetlice ola.
 Cenkten evel yaratılğan «Küneş nurlarındaki emen» adlı etüdni usta N.S. Samokişke hediye etken edi.
-Ressamnın 1950-nci senelernin sonlarında yaratılğan akvarel resimleri endi Özbekistan ve Oazahistan devirlerine aittir.
+Ressamnın 1950-nci senelernin sonlarında yaratılğan akvarel resimleri endi Özbekistan ve Qazahistan devirlerine aittir.
 «Sabah», «Tandaki şeher», «Pialadaki nar» kibi eserler şimdi Aqmescitteki qırımtatar sanatı muzeyinde saqlanalar.(248.187-nci sahife).
 Daha yaqında belli olğanına köre, Amet Ustayevnin bir qaç eseri, cümleden, «Dağ özeni», «Oırım peyzajı», «Dağdaki yol» (1940) adlı resimler Aqmescit bediiy muzeyinin fondlarında çoq yıllar devamında saqlı turğan eken.
 Amet Ustayev 1990 senesi Qazahistannıri Çimkent şeherinde vefat etti.
@@ -137,13 +137,10 @@ A. Polkanov oha Qırımnın ilk milliy ressamı, değen edi.
 Bilgenimizge köre, Yarmuhamedov tam manada professional tahsil almağan.
 1917 senesi o, Harkovdaki operetta taqımında dekoremin yardımcısı olıp, sonra Kavkazda ve Oırımda teatr dekorcısı olıp çalışqan.
 Belli bir vaqıt devamında Moskvada VHUTEMASta oquğan, sonra maddiy vaziyeti osal olğanı sebebinden kene Kezlevge qaytıp kelip, anda bezetici olıp çalışqan.(248.226-ncı sahife).
-Sevastopoldeki resimler galereyasında Yarmuhamedovnın eki resimi nasıldır bir mucize qabilinde saqlanıp qalğan.
-Bes-belli, olar anda 1930 senesi ötkerilgen «Sovet Oırımnın 10 yıllığı» adlı sergide nümayiş etilip, serginin mükâfatını qazanğan son qalıp ketkendirler.(88.67-nci sahife).
+Sevastopoldeki resimler galereyasında Yarmuhamedovnın eki resimi nasıldır bir mucize qabilinde saqlanıp qalğan, bes-belli, olar anda 1930 senesi ötkerilgen «Sovet Oırımnın 10 yıllığı» adlı sergide nümayiş etilip, serginin mükâfatını qazanğan son qalıp ketkendirler.(88.67-nci sahife).
 Yarmuhamedov 1935 senesi Moskvada, Şarq medeniyetleri devlet muzeyinde ötkerilgen «Sovet Oırımının sanatı» adlı nufuzlı sergide iştirak etmek içün müsaade alğan yekâne qırımtatar ressamı edi (serginin katalogında ressamnın tek adı anıla).
-
 Ustanın «Tatar toyu» resimi açıq-açıqtan etnografik yönelişte olıp, onda tatar turmuşına ait tafsilâtlar tantimlik ve meraq ile kösterilgen.
-Resimde biz tatar evinin küneş nurlarına tolu içerisini köremiz.
-Anda musafirlerni qarşılap almaq içün her şey hazır — kilimler töşelgen, odalar cıyılğan.
+Resimde biz tatar evinin küneş nurlarına tolu içerisini köremiz, anda musafirlerni qarşılap almaq içün her şey hazır — kilimler töşelgen, odalar cıyılğan.
 Kendi kendine resim ögrengen ressam yaz kününin muhitini aks ettirici ışıq aqımlarını, tınıq, hafif kölgelerni büyük ustalıqnen tasvirley bilgen.
 Resim debdebeli değil, öz ruhiyeti cehetinden cıllı ve şırnıqlı bir eserdir.
 Ressamnın Qırımda yüz bergen içtimaiy denişmelerge nisbeten inqilâbiy ihtiraslarınen sihirilgen «Sosializmge kirgen Şarq» adlı resimi ise bam-başqa his-duyğular qozğay.
