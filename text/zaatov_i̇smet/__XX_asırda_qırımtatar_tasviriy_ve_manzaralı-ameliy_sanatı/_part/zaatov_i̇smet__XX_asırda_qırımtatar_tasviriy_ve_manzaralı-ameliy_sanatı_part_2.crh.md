@@ -24,7 +24,6 @@ Ebet, XX asımın başlarında medeniyette qırımtatar halq an'aneleri daha saq
 An'aneviy bediiy asabalıqnın belli parçaları (bazı bir esnaflar, mimarcılıq, kitap miniatürası, monumental süslev) ğayıp etilmesinen birge Oırımda qırımtatar halqı içün yanı sanat şekilleri — tezya ressamlığı, grafika, eykelciliknıri ayaqqa turması içün şaraitler yaratıla.
 Teraqqiyperver başlanğıçlar çoqusı cehetten içtimaiy-siyasiy vaziyet ile bağlı ediler.
 Yanı sovet hakimiyeti çar hükümetinin diğer milletlerni eziyetlevge doğrultılğan siyasetine qarşılıq olaraq milletlemin kendi muqadderatını kendi tayin ete bilüv, serbestlik, birlik, qardaşlıq siyasetini qoydı.
-Şubhesiz, bu şeyler sınırlı olıp, olar merkezden muvafıqlaştırıla ediler.
 Rusiyede yüz bergen inqilâbiy denişmeler bir çoq kenar mintaqalarda milliy azatlıq hareketlerini qozğadılar.
 Bu esnada yarımadadaki asıl halqnıh medeniy inkişafında muayen yılışuv közetile.
 Oırım muhtariyet huquqını ala, qırımtatarlar Oırımnın asıl halqı sıfatında fanilalar, qırımtatar tili ise devlet statusına malik ola.
@@ -43,18 +42,15 @@ Olar oqumış, zengin bilgilerge malik adamlar ediler ki, istidatları icatnın 
 İşte, bu nesilge ait eh aydın vekillernin birisi i.Boraganskiydir.
 Ilyas mirza Boraganskiy (1852 senesi Bağçasarayda doğdı, 1924 senesi Sterlitamaq şeherinde vefat etti) — meşhur qırımtatar maarifperveri, naşiri, şarqşınas alimidir.
 1866 senesinden 1874 senesine qadar İstanbulda tahsil alıp, anda şarq kalligrafiyası ve örnekçiliginin sırlarını öğrendi.
-Oırımğa qaytıp kelgen son qırımtatar örneklerini işlev sahasında öz tecribesini mükemmelleştirerek, Peterburgdaki kendi matbaasında neşir ettiği çeşit türlü kitaplarnı bediiy cehetten bezetti.
-(248.63-64-nci sahifeler).
+Oırımğa qaytıp kelgen son qırımtatar örneklerini işlev sahasında öz tecribesini mükemmelleştirerek, Peterburgdaki kendi matbaasında neşir ettiği çeşit türlü kitaplarnı bediiy cehetten bezetti.(248.63-64-nci sahifeler).
 O öz matbaasında qırımtatar kitaplarından ğayrı bütün diğer türkiy tillerde, arap, fars tillerinde kitaplar çıqardı, aynı vaqıtta Sankt-Peterburg universitetinde ocalıq yaptı, Oırımdan ve Rusiye imperiyasının başqa türk-musülman regionlarından oqumağa kelgen iqtidarlı gençlerni oqutıp, olarnı işnen teminleyerek, keniş pedagogik ve hayriye faaliyetinen meşğul oldı.
 Körümü qırımtatar yazıcısı, alimi ve pedagogı Osman Aqçoqraqlı da şu nesilge mensüptir.
 Onın babası namlı hattat olğan, öz bilgilerini oğluna bergen, sonundan Osman da babası kibi, meşhur hattalardan biri sayılğan.
-Tolu olmağan orta malûmatlı Osman Aqçoqraqlı (o, Bağçasaray medresesinde tahsil aldı) öz devirinin eh oqumış adamlarından birine çevirilip (Peterburg universitetinin şarq filleri fakultetinde talebelerge hattatlıq sırlarını ögretken, belli bir vaqıt İ.
-Boraganskiynin matbaasında kitaplarını bezetken), «Rusiyede eh yahşi musülman hattatı» sayılğan, Oırım pedagogika institutında türk ve arap fillerinden ders bergen.
+Tolu olmağan orta malûmatlı Osman Aqçoqraqlı (o, Bağçasaray medresesinde tahsil aldı) öz devirinin eh oqumış adamlarından birine çevirilip (Peterburg universitetinin şarq filleri fakultetinde talebelerge hattatlıq sırlarını ögretken, belli bir vaqıt İ.Boraganskiynin matbaasında kitaplarını bezetken), «Rusiyede eh yahşi musülman hattatı» sayılğan, Oırım pedagogika institutında türk ve arap fillerinden ders bergen.
 Sankt-Peterburg camisindeki ve Hansaraydaki örnekler ve Ouran ayetlerinden ibaret yazılar, işte, onın qolunen yapılğandır.
 O. Aqçoqraqlı Oırımdaki bir çoq epigrafik abidelerni (baştaşlardaki yazılarnı ve ilâhre) oqup, ilmiy qullanuvğa kirsetken edi.
 Lâkin ustanın istidatına inkişaf etmek imkânını bermediler — biraz vaqıt keçken son hattatlıq yabaniy grafika, dep tanıla ve o bediiy icat sahasından bütünley çıqarıla, uzaq-uzaq yıllarğa unutıla.
-Hem mesele tek Oırımda qullanılğan arap elifbesinin yerine başta latin elifbesi, daha sonra ise kirillik elifbe kelgeninde değil.
-Mesele Oırımnın bütün islâm medeniyeti yoqqa çıqarılğanında, bunınnen beraber ise hattatlıq kibi fenomennin de yoq etilgenindedir.
+Hem mesele tek Oırımda qullanılğan arap elifbesinin yerine başta latin elifbesi, daha sonra ise kirillik elifbe kelgeninde değil, mesele Oırımnın bütün islâm medeniyeti yoqqa çıqarılğanında, bunınnen beraber ise hattatlıq kibi fenomennin de yoq etilgenindedir.
 Aqçokraqlımn özü ise pantürkizmde qabaatlanıp, repressiyağa oğratılğan ve 1938 senesi atıp öldürilgen edi.(184.29-ncı sahife).
 Moskvadaki Stroganov adına resaamlıq-tehnika oquv yurtunda tahsil alğan U.Bodaninskiy, A.Abiyev, A.Lâtif-zade tezya sanatı sahasında professional negizde çalışqan qırımtatar ressamlarının birinci nesiline mensüp ediler.
 Olar qırımtatar halqımn medeniy ömürinde tasviriy sanatnın zarur element sıfatında tasdiqlanmasına büyük hisse qoştılar.
