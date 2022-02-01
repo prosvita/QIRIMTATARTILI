@@ -721,37 +721,25 @@ Cepparov temiz ressamlıq vazifelerini «Balıqlar», «Tarih sarmalı», «Mavi
 Mezkûr resimler de gür renkli impressionistik tarzda, de sert, torsluqlı konstruktivizm an aneleri esasında icra olunğanlar.
 K. Cepparovnıh icadında hem real, tanış peyzajlar («Ayüvdağ»), hem Pirosmani ve Şagal ruhunda yapılğan uydurma, ideallaştırılğan levhalar («Alim», «Beklev», «Oırmızı kiygen qadın») rastkelineler.
 K. Cepparovnıh özü qayd etkeni kibi, «bu resimler adamlarğa quvanç ve zevq bağışlamaq kerekler».
-
-K.
-Cepparovnıh eserleri Sankt-Peterburgda, Oırımda, Yunanistanda ötkerilgen sergilerde defalarca nümayiş etildi.
+K.Cepparovnıh eserleri Sankt-Peterburgda, Oırımda, Yunanistanda ötkerilgen sergilerde defalarca nümayiş etildi.
 Olarnı AQŞ, Şvetsiya, Yunanistan, İsrail, Frantsiyadaki kollektsionerler satın aldılar.
-
-2.3.2.
-Grafika
-
+2.3.2.Grafika
 Grafika bütün zamanlarda, hususan içtimaiy-siyasiy münasebetler kerginleşken ve içtimaiy buhranlar yüz bergen devirlerde ayrıca talap olunğan sanat janrı olıp keldi.
 Bundan evelki bölükte icatlarını aydınlattığımız deyerlik bütün yetekçi qırımtatar ressamları mezkûr janrğa o ya da bu derecede müracaat eteler, sergilerde özlerinin grafika eserlerini de seyirci hükümine çıqaralar.
 İşbu bölükte biz grafikanı yetekçi tasviriy janr, dep sayğan ve kendisinin icadiy ferdini belgilegen ressamlar haqqında hikâye etecekmiz.
 Bediiy çezimlerde, icracılıq seviyesinde mevcut olğan çeşitlilikni ise grafikağa çeşit türlü ustalar müracaat etkeninen ve olarnın professional cehetten azırlığı da çeşit türlü olğanınen anlatmaq mümkün.
-Zemaneviy qırımtatar grafikasında «bir taraftan, hem açıq-açıqtan terğibiy çezimler, hem bidad stilizafsiyalar, diğer taraftan — halqnın faciasını, milliy hareketnin insanperver ideallarını açıp kösterüvge nisbeten ğayet ince, ğayet nefasetli, teren yanaşuvlar rastkeline».
-(205.
-268-nci sahife).
-Lâkin, hepisi bir, qırımfafar grafikasının eh yahşi numüneleri siyasiylikten iraq olıp, olar «ahlâq ve medeniyetnin «yüksek», «ebediy» değerliklerine bağışlanğanlar.
-(205.
-268nci sahife).
+Zemaneviy qırımtatar grafikasında «bir taraftan, hem açıq-açıqtan terğibiy çezimler, hem bidad stilizafsiyalar, diğer taraftan — halqnın faciasını, milliy hareketnin insanperver ideallarını açıp kösterüvge nisbeten ğayet ince, ğayet nefasetli, teren yanaşuvlar rastkeline».(205.268-nci sahife).
+Lâkin, hepisi bir, qırımfafar grafikasının eh yahşi numüneleri siyasiylikten iraq olıp, olar «ahlâq ve medeniyetnin «yüksek», «ebediy» değerliklerine bağışlanğanlar.(205.268nci sahife).
 
 Grafika sahasında çalışqan yetekçi ustalar sırasına Ramiz Netovkin kire.
 O, 1960 senesi Taşkent vilâyetinin Almazar qasabasında doğdı, 1975 senesi Vatanğa qaytıp olğan siyrek-sepelek qırımtatar qorantaları arasında Netovkinlernin ailesi de bar edi.
 O yıllarda Oırımda qırımtatarlarğa münasebet, yımşaqça etip aytqanda, pek de yahşi değil edi.
-Ne ise de Ramiz Aqmescitteki N.
-Samokiş adına ressamlıq oquv yurtuna kirmege muvaffaq ola ve onı 1980 senesi bitire.
+Ne ise de Ramiz Aqmescitteki N.Samokiş adına ressamlıq oquv yurtuna kirmege muvaffaq ola ve onı 1980 senesi bitire.
 Şu yıldan başlap cumhuriyette ve çetelde ötkerilgen sergilerde iştirak ete, 1989 senesi ise Ukraina Ressamlar birliğine aza olıp kire.
 Sonki 15 yıl içinde Oırımmh çeşit şeherlerinde hem de Estoniya, Poloniya, Türkiye kibi memleketlerde R.
 Netovkinnin 10-dan ziyade şahsiy sergisi olıp keçti.
 2000 senesi cumhuriyet qırımtatar sanatı muzeyinde ressamnıh 40 yıllığına bağışlanğan şahsiy sergisi ötkerildi.
-
-R.
-Netovkinnin grafikasında yetekçi mevzum Oırım mevzusı teşkil ete.
+R.Netovkinnin grafikasında yetekçi mevzum Oırım mevzusı teşkil ete.
 Ressam özünin eh sevgen şeheri Bağçasaraynı, bu şehernin silingen taş basamaqlı tar soqaçıqlarını, virane alına kelgen çeşmelerini, biri-birinin damına tırmaşqan campi evçiklerini, camilerinin süyrü uçlu minarelerini, yantayğan ağaç balkonlarını ayrıca zevq ile tasvirley.
 O, çoqtan-çoq bukletlerde tasvirlenip, endi her keşke belli olğan Bağçasaray abidelerini ve diqqatqa lâyıq yerlerini kör-körane aks ettirmeğe istemey, aksine, bizni taş yılnamelerinde qadim zamanlarnın aks-sedaları saqlanıp qalğan eski şeherge alıp kete.
 O şehernin soqaçıqlarında adam körünmey, sükünet hüküm süre, o şeher şimdi uyquda olıp, ana-mına uyanacaq güzel meleknin qasrını andıra.
@@ -765,33 +753,21 @@ Netovkinnin mimarcılıq kompozitsiyaları o derece ifadeli ki, resimlerde insan
 Ramiz Netovkinnin grafika tabaqlarından çoqusı hallarda seriyalar, türkümler asıl ola, meselâ: «Leningrad» (1981), «Orta Asiya» (1984-1988), «Moskva» (1985-1986), «Oazan» (1988).
 Tuvğan Oırımğa «Uzaqlaşhayatqan Oırım» (90-ncı seneler) adlı grafik eserler türkümi bağaşlanıp, oha «Bağçasaray», «Aluşta» kibi albomlar kirdiler.
 «Kostamonu» (1998) albomı ise Türkiyenin orta asırlarğa ait mimarcılığına bağışlanğandır.
-
-R.
-Netovkinnin icadiy faaliyetinde kitap grafikası ayrıca yer tuta.
-Bugünde-bugün Oırımnın tarihi ve medeniyeti boyunca kitaplarğa olğan meraq pek büyüktir, hem böyle kitaplarnı «Vozrojdeniye» Halqara fondu Oırım regional bölüginin maddiy yardımı ile neşir etmek imkânları açıldı, işte, Netovkin bir sıra kitaplarnı bezetti ki, olarnin arasında hem bediiy, hem publitsistik edebiyat mevcut.
-Onın sonki işleri cümlesinde V.
-B. Savenkovmn «Aqşam şiirleri» (1990) ve E.
-Oudusovmh «Oırımtatar milletinin şekillenüv tarihi» (1996) kitaplarını anmaq mümkün.
-Bundan ğayrı, R.
-Netovkinnin grafika janrında yapılğan peyzaj resimleri ayrı albom olaraq dere olunıp, mezkûr neşir ustanın tekrarlanmaz istidatını açıq-aydın nümayiş ete.
-
+R.Netovkinnin icadiy faaliyetinde kitap grafikası ayrıca yer tuta.
+Bugünde-bugün Qırımnın tarihi ve medeniyeti boyunca kitaplarğa olğan meraq pek büyüktir, hem böyle kitaplarnı «Vozrojdeniye» Halqara fondu Oırım regional bölüginin maddiy yardımı ile neşir etmek imkânları açıldı, işte, Netovkin bir sıra kitaplarnı bezetti ki, olarnin arasında hem bediiy, hem publitsistik edebiyat mevcut.
+Onın sonki işleri cümlesinde V.B. Savenkovmn «Aqşam şiirleri» (1990) ve E.Qudusovnın «Oırımtatar milletinin şekillenüv tarihi» (1996) kitaplarını anmaq mümkün.
+Bundan ğayrı, R.Netovkinnin grafika janrında yapılğan peyzaj resimleri ayrı albom olaraq dere olunıp, mezkûr neşir ustanın tekrarlanmaz istidatını açıq-aydın nümayiş ete.
 Enver İzzetov 1955 senesi Ferğana şeherinde doğdı, şeherdeki sanat oquv yurtunın ressamlıq bölügini bitirdi.
 Oırımda 1992 senesinden berli yaşağan ressam bütün küçüni icadiy ve teşkiliy işlerge sarf ete (Enver izzetov — Oırımtatar ressamları assotsiatsiyasının reisidir).
-Özbekistanda ekende E.
-İzzetov bediiy multiplikatsiya sahasında çalıştı.
+Özbekistanda ekende E.İzzetov bediiy multiplikatsiya sahasında çalıştı.
 Mütehassıslar «Özbekfilm» kinostudiyasında çıqarılğan «Yabancı» (1987), «Tahir ve Zohre» (1989), «Kontsert» (1990) kibi multiplikatsion filmlemin ressamı Enver İzzetov olğanını yahşi bileler.
 Özüne has kinematografiya üslübi, «kadr»nın ifadeli cazibesi İzzetovnıri tezya grafikasına da tesir etmey qalmadılar.
 Onın eserleri — sızma resimleri, akvarelleri, renkli gravyüraları abul-qubul közden keçirüvge qararlaştırılmağan.
 Müellif, simvolizm, ekspressionizmnin bediiy usularından faydalanaraq, seyircini ilk daqqalarda şaşırtqan kibi ola, lâkin resimlerge diqqatlıca köz taşlar ekensin, tasvirlengen şeylernin manasını anlap başlaysm.
 İzzetovnın grafika eserlerinin süjetlerini real ömür levhaları değil de, bu ömürnin subyektiv, allegorik idrak etilüvi teşkil eteler.
-Klassik nazmiyetnin sevdası olğan E.
-İzzetov R.
-M. Rilkenin (1981) ve Р.
-P. Pazolininin (1983) şiirlerine resimler yaptı.
+Klassik nazmiyetnin sevdası olğan E.İzzetov R.M. Rilkenin (1981) ve Р.P. Pazolininin (1983) şiirlerine resimler yaptı.
 Ted Hyüznıh şiiriyetine ise ressam özüniii «Basamaqlar» adını alğan bütün bir türkümini bağışladı.
-Umumen, T.
-Hyüznıh icadı E.
-Izzetovm telâşlandırğan meselelerge aenkdaş olıp çıqtı.
+Umumen, T.Hyüznıh icadı E.Izzetovm telâşlandırğan meselelerge aenkdaş olıp çıqtı.
 Meselâ, Hyüznıh şiirlerindeki ömürlik serseriylikke hüküm etilgen seyyah obrazında öz tuvğan toprağından ayırılğan halqnın umumiyleştirilgen obrazını tanımaq küç değil.
 Böyle serseriylik haletini ressam söznin tam manasında kostere: ğarip personajmn ayagları avada sarqıp tura, onın durğunsız vaziyetini ana-mına yıqılacaq kopçek qayd ete.
 Resimde tasvirlengen qaraman (halq dep anlamalı) «vatan» anlamına kirgen bütün şeylerni kendi sırtına yüklep alıp kete: balaban qaburçaq içinde harakterli tüz damları olğan şarq şeheri kösterilgen.
@@ -799,15 +775,10 @@ Resimde tasvirlengen qaraman (halq dep anlamalı) «vatan» anlamına kirgen bü
 Bu resimnin qaramanı — qırmızı kiygen er kişi qolunda qurbanlıq çalınacaq qara horazm tutıp tura.
 Erkek üzerinde tasvirlengen evlernifi damları, balasını sallağan qadın — ömürdir, aşağıda tasvirlengen adhesapsız qozaqlar ve olarnın içindeki cefakârlarnın ruhları ise — ölümdir.
 Esernih baş mevzusı — günahlardan arınmaq, ömürni devam ettire bilmek içün qurban çalmaq zarurlığıdır.
-
-E.
-izzetov tezya grafikasından ğayrı, mecmua ve kitap grafikası sahasında da çalışa.
+E.izzetov tezya grafikasından ğayrı, mecmua ve kitap grafikası sahasında da çalışa.
 Ozbekistanda ekende onın işleri «Zvezda Vostoka» mecmuasında sıq-sıq basılıp tura edi.
-Oırımda ise E.
-izzetovnın resimleri bir çoq deviriy neşirlernin, bilhassa «Oasevet» mecmuasının bediiy obrazını belgileyler.
-
-E.
-izzetov cumhuriyet ve halqara sergilernin iştirakçisidir, onın eserleri Brnoda olıp keçken grafika biyennalesinde nümayiş etildi.
+Oırımda ise E.izzetovnın resimleri bir çoq deviriy neşirlernin, bilhassa «Oasevet» mecmuasının bediiy obrazını belgileyler.
+E.izzetov cumhuriyet ve halqara sergilernin iştirakçisidir, onın eserleri Brnoda olıp keçken grafika biyennalesinde nümayiş etildi.
 
 Zarema Trasinova 1939 senesi Aqmescitte doğdı.
 Beş yaşlı bala ekende öz halqınen beraber sürgün olunğan Zarema hiç bir şeyge baqmadan yüksek tahsil aldı: o, P.
@@ -820,61 +791,39 @@ Z. Trasinovanın bezetken kitapları arasında hususan «Çınlar ve maneler», 
 Ressam sonki eki kitapnı bezetir eken, özüni qırımtatarlarnıh tarihi ve medeniyetini yahşi bilgen adam sıfatında kosterdi.
 Z. Trasinova 1994 senesi Oırımğa köçüp kelgen son da icatnen faal oğraşa, qırımtatar tilinde çıqqan kitaplar, dersliklerni bezete.
 Sonki bir qaç yıl içinde o mına böyle kitaplarnı bezetti: «Bu nasıl olğan edi» (SSSRde milliy repressiyalar.
-1919-1952 seneleri.) üç tom, (1993); M.
-Sergeyev.
-«Grünvald haçı» (1995); B.
-Mambet «Qoz efsanesi» (1995); A.
-Puşkin, «Ouranğa taqlid» (1997).
+1919-1952 seneleri.) üç tom, (1993); M.Sergeyev.«Grünvald haçı» (1995); B.Mambet «Qoz efsanesi» (1995); A.Puşkin, «Ouranğa taqlid» (1997).
 2000 senesi Aqmescitte orta asırlarğa ait qırımtatar şiiriyetinin «Gülşen hayalları» adlı antologiyası neşir etildi.
 Bu kitapnın özgünligini çoqusı cehetten Zarema Trasinovanın yapqan illüstratsiyaları belgilediler.
 Ressam öyle tasviriy muhitni yarata bilgen ki, bu muhitte ayan şekilge kirgen nazm sözlerinin nağmesi oquyıcı ve seyircini meftün etici Şarq alemine daldıra.
-
-Z.
-Trasinovanın grafikası janr, tehnika, icracılıq usulı (akvarel, monotipiya, qarışıq tehnika) boyunca ğayet çeşitlidir.
+Z.Trasinovanın grafikası janr, tehnika, icracılıq usulı (akvarel, monotipiya, qarışıq tehnika) boyunca ğayet çeşitlidir.
 Onın tezya grafikası ressammn istidatını bir daha isbatlay.
-Trasinova «I.
-Gasprinskiynin portreti», «Namaz» (1990), «Gurzuf hatırası» (1991) kibi eserlerde, bir taraftan, adamlar ve şeylernin real tasvirini bere, yani konkret ola, diğer taraftan, allegoriyalar ve halq rivayetlerine kendi münasebetini bildirerek, romantizmge dala.
+Trasinova «I.Gasprinskiynin portreti», «Namaz» (1990), «Gurzuf hatırası» (1991) kibi eserlerde, bir taraftan, adamlar ve şeylernin real tasvirini bere, yani konkret ola, diğer taraftan, allegoriyalar ve halq rivayetlerine kendi münasebetini bildirerek, romantizmge dala.
 Ressam bir de-bir kitapnı bezetkende ya da grafika tabaqları üzerinde çalışqanda halq kiyimlerini, turmuş eşyalarını, örneklernin simvolikasını tafsilâtlı surette ögrene.
 İşte, olıp keçken sergiler, onın eli astından çıqqan kitaplar, seyircilernin alğışları Z.
 Trasinovanı qırımtatar sanatının klassikleri sırasına qoyalar.
-
 Ressam Alim Useinov (1941 senesi doğdı) haqqında bundan evelki bölükte hikâye etken edik.
 Lâkin Useinovnın icadının daha bir cehetini grafika janrı teşkil ete.
 A. Useinovnın akvarel resimleri az sözli ve zarif yapon gravyüralarına oşap keteler.
 Olar bir baqıştan, sade ve mahfiyetliler, lâkin diqqatlıca baqsan — teren manalı, cazibeli ekenini anlaysın.
 Useinov azğana bediiy usulnen: bir qaç sızıq ve olduqça az renknen hem suvuq qışnın ayazını, hem yağmurlı künnin rutubetini, hem bahar tereklerinin çeçeklenüvini kostere.
 Onın adiy süjetleri artında ressamnın etraf muhitke aybetli münasebeti duyula.
-Bunda her şey mühim, qıymetlidir, çünki bütün bu şeyler — seyyaremizdir («Yıl mevsimleri», «Qış peyzajı» türkümleri, 19982000).
-2000 senesi Aqmescitteki bediiy muzeyde olıp keçken Oırım akvarelleri biyennalesinde A.
-Useinov konkursnın baş mükâfatını qazandı.
-
-Z.
-Trasinovanm qızı Leylâ Trasinova istidatlı grafik, dizayncı olaraq bellidir.
-O, 1964 senesi Taşkentte doğdı, başta P.
-Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı, sonra V.
+Bunda her şey mühim, qıymetlidir, çünki bütün bu şeyler — seyyaremizdir («Yıl mevsimleri», «Qış peyzajı» türkümleri, 1998-2000).
+2000 senesi Aqmescitteki bediiy muzeyde olıp keçken Oırım akvarelleri biyennalesinde A.Useinov konkursnın baş mükâfatını qazandı.
+Z.Trasinovanm qızı Leylâ Trasinova istidatlı grafik, dizayncı olaraq bellidir.
+O, 1964 senesi Taşkentte doğdı, başta P.Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı, sonra V.
 Muhina adına Leningrad ressamlıq-sanayı oquv yurtunın sanayi grafikası bölügini bitirdi (1982-1987).
 işte, o vaqıttan berli Sankt-Peterburgda yaşay ve çalışa.
 L. Trasinovanın esas eserleri cümlesine «44 senesi» türkümi (1990), dört grafik tabaqtan ibaret «Şeher ve quşlar» türkümi (1990), «Avtoportret» (1990), «Mavi urba kiygen men ve patlaqçanaqlar»» avtoportreti, «Şeherli portreti», «Oırımtatarlarnın tipleri» adlı grafika tabaqları türkümi (1991), «Men qafesteki bir quşım» türkümi (1991), «Bu nasıl olğan edi (SSSRde milliy repressiyalar.
-
 1919-1952 seneleri)» kitabının Zarema Trasinovanen birlikte yapılğan maketi kireler.
 Anasının etnografik cehetten tam, realistik grafikasından farqlı olaraq, Leylânın grafika eserlerinde uydurma ve rüyalar tekmil qarışıp ketkenler.
 Bir baqıştan tonuq, veciz olıp körüngen resimler asılında hareketli, mundericeliler ve olar muellifnin tesirçen, ihtiraslı şahs olğanını köstereler.
-
 Yaya Temirqayayev 1935 senesi Oırımda doğdı, 1944 senesi bütün halqnen beraber sürgün olundı.
-1966 senesi P.
-Benkov adına Taşkent ressamla oquv yurtunı, 1972 senesi ise A.
-N. Ostrovskiy adına teatr-ressamlıq
-
-institutını bitirdi.
+1966 senesi P.Benkov adına Taşkent ressamla oquv yurtunı, 1972 senesi ise A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi.
 1979 senesi SSSR Ressamlar birliğine qabul olunğan sofi
-
 # #
-
 Ozbekistannın yetekçi grafikleri sırasına kirdi.
-Ressamnı hususan 70-80nci senelerde mot olğan plakat janrı tanıttı («Sionizm — bugünnin faşizmidir», «Diqqat!
-Atılmasın!», «Livandan elinizni çekiniz!»).
-Ya.
-Temirqayayevnin siyasiy hem de reklam plakatları bütünittifaq ve halqara sergilerde defalarca nümayiş etildiler (Moskva, 1982-1983).
+Ressamnı hususan 70-80nci senelerde mot olğan plakat janrı tanıttı («Sionizm — bugünnin faşizmidir», «Diqqat!Atılmasın!», «Livandan elinizni çekiniz!»).
+Ya.Temirqayayevnin siyasiy hem de reklam plakatları bütünittifaq ve halqara sergilerde defalarca nümayiş etildiler (Moskva, 1982-1983).
 Temirqayayev icadının mühim bir qısımını Oırım mevzusına bağışlanğan resimler teşkil eteler.
 Söz kelimi, ressam özü içün aziz olğan bu mevzum hem grafika janrında, hem ressamlıq janrında aydınlata.
 Sürgünliknin ne ekenini ta balalıq çağında bilgen Temirqayayev aqılında qalğan, şahsen özü şaat olğan vaqialamı tantiminen tasvirley.
@@ -882,41 +831,26 @@ Ressam mühim tafsilâtlarnı qaçıracağından saqınıp, olarnı birer-birer 
 İşte, onın eserlerinin tafsilâtlı, taarifleyici mizacı da şundan kelip çıqalar.
 Oırım tabiatı, Oırım tarihi, Oırımda yaşağan adamlar haqqında «Ay-Petri» (1990), «Oarılğaç yüvası» (1990), «Mayıs 18 sabası» (1991), «Yoldaki ölüm» (1993), «Bir avuç tuvğan topraq» (1994) kibi resimler, medeniyet erbapları içün ekslibrisler seriyası hikâye eteler.
 Umumen, onın kotergen mevzularının özü ressamının icadına diqqat etmek içün esas ola bileler.
-
 Amet Seit-Ametov 1935 senesi Yaltada doğdı.
 Bütün semetdeşleri kibi, Oırımdan sürgün olundı.
-Bediiy tahsilni Özbekistanda aldı, anda 1964 senesi P.
-Benkov adına cumhuriyet ressamlıq oquv yurtum ve 1972 senesi A.
-N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi.
-
+Bediiy tahsilni Özbekistanda aldı, anda 1964 senesi P.Benkov adına cumhuriyet ressamlıq oquv yurtum ve 1972 senesi A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi.
 Seit-Ametov dizayncı sıfatında mevzuiy ve yübiley sergilerini bezetti, plakatçı sıfatında cumhuriyet ve halqara sergilerde iştirak etti (AQŞ, Şvetsiya, Rusiye, Özbekistan).
 80-nci senelernin sonlarında Oırımğa köçüp kelgen sofi tezya grafikası sahasında pek çoq çalışaraq, esasen akvarel resimleri yapa.
 Ressam sıq-sıq seferlerge çıqa, tuvğan topraqnıh özü içün hep yahı-yam köşelerini aça.
 Ruhiyet cehetinden çeşit-çeşit olğan akvarelleri (kamer, epik, monumental resimler) — Oırımnıh büyük sevgi ile tasvirlengen manzaralarıdır («Çufut-Oale», «Ceneviz qalesi», «Ayvasıl», 90-ncı seneler).
 A. Seit-Ametovmh saf, aydın natürmortları da çevredeki ömürge sevgi ile aşlanğanlar.
-
-Ya.
-Temirqayayev, A.
-Seit-Ametovnm nesiline Remzi Aliyev ve Şevket Dervişev kibi ressamlar da mensüpler.
-
-Remzi Aliyev (1939 senesi doğdı) — P.
-Benkov adına cumhuriyet ressamla oquv yurtunın ve A.
-N. Ostrovskiy adına devlet teatr-ressamlıq institutının mezunıdır (1966-1970).
+Ya.Temirqayayev, A.Seit-Ametovnm nesiline Remzi Aliyev ve Şevket Dervişev kibi ressamlar da mensüpler.
+Remzi Aliyev (1939 senesi doğdı) — P.Benkov adına cumhuriyet ressamla oquv yurtunın ve A.N. Ostrovskiy adına devlet teatr-ressamlıq institutının mezunıdır (1966-1970).
 Hal-azırda o, Aqmescit rayonının Mazanka köyünde yaşay ve çalışa.
 R. Aliyev eh evelâ plakatçı sıfatında bellidir.
 Onın eserleri qırımtatarlarğa — II Cihan cenkinin qaramanlarına, qırımtatar medeniyetinin erbaplarına bağışlanğan olıp, böyle eserlerden onın «Amethan Sultan» (1989), «Alime Abdennanova» (1990) kibi plakatlarını anmaq kerek.
-
 Grafik ressam Şevket Dervişev (1935-2000) de tahsilni P.
 Benkov adına cumhuriyet ressamlıq oquv yurtunda aldı (1955-1960).
 1990 senesi Cankoy rayonının Zareçnoye koyune köçüp keldi ve anda pedagogik hem de icadiy faaliyetnen oğraşıp başladı, cumhuriyet sergilerinde iştirak etti.
-1980-nci senelerde grafikanen faal meşğül olğan Ş.
-Dervişev (1980 senesi Moskvada ötkerilgen Olimpiya oyunları içün plakat, 1980; Olimpiadanın embleması, 1980) 1990-ncı senelerde esasen akvarelnen oğraştı («Oara haber», 1984; «Uçucılar ölmeyler» (Amethan Sultanğa bağışlana), 1995; «Dostumnıh portreti», 1996).
+1980-nci senelerde grafikanen faal meşğül olğan Ş.Dervişev (1980 senesi Moskvada ötkerilgen Olimpiya oyunları içün plakat, 1980; Olimpiadanın embleması, 1980) 1990-ncı senelerde esasen akvarelnen oğraştı («Oara haber», 1984; «Uçucılar ölmeyler» (Amethan Sultanğa bağışlana), 1995; «Dostumnıh portreti», 1996).
 A. Seit-Ametovnın balaları — Abdül ve Elmira da baba izinden kettiler.
-
 Abdül Seit-Ametovnı zemaneviy qırımtatar sanatında hiç de körülmegen kalligrafik abstraktsionizm yönelişi celp etti.
-Dizayncı ve grafik A.
-SeitAmetov P.
-Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil alğan son Harkov bediiy-sanayı institutını bitirdi (1994).
+Dizayncı ve grafik A.SeitAmetov P.Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil alğan son Harkov bediiy-sanayı institutını bitirdi (1994).
 Hattatlıq sanatını Abdül mustaqil menimsedi.
 Oırımtatarlarnın an'aneviy sanatını öğrenir eken, bu esnada hattatlıq yetekçi yer tutqanını anladı.
 Böylece, yaş grafik hattatlıq sanatını canlandırmağa tutundı.
