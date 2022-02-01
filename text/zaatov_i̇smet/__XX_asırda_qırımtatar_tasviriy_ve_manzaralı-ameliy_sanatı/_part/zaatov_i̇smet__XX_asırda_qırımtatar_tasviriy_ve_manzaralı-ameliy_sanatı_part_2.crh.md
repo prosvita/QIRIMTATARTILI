@@ -153,18 +153,13 @@ Ressamnın 1950-nci senelernin sonlarında yaratılğan akvarel resimleri endi �
 «Sabah», «Tandaki şeher», «Pialadaki nar» kibi eserler şimdi Aqmescitteki qırımtatar sanatı muzeyinde saqlanalar.(248.187-nci sahife).
 Daha yaqında belli olğanına köre, Amet Ustayevnin bir qaç eseri, cümleden, «Dağ özeni», «Oırım peyzajı», «Dağdaki yol» (1940) adlı resimler Aqmescit bediiy muzeyinin fondlarında çoq yıllar devamında saqlı turğan eken.
 Amet Ustayev 1990 senesi Qazahistannıri Çimkent şeherinde vefat etti.
-
-Oırımtatar tasviriy sanatında körümü sımalarnın birisi Abiy Yarmuhamedov (doğğan ve vefat etken yılları belli değil) edi.
+Qırımtatar tasviriy sanatında körümü sımalarnın birisi Abiy Yarmuhamedov (doğğan ve vefat etken yılları belli değil) edi.
 A. Polkanov oha Qırımnın ilk milliy ressamı, değen edi.
 Bilgenimizge köre, Yarmuhamedov tam manada professional tahsil almağan.
 1917 senesi o, Harkovdaki operetta taqımında dekoremin yardımcısı olıp, sonra Kavkazda ve Oırımda teatr dekorcısı olıp çalışqan.
-Belli bir vaqıt devamında Moskvada VHUTEMASta oquğan, sonra maddiy vaziyeti osal olğanı sebebinden kene Kezlevge qaytıp kelip, anda bezetici olıp çalışqan.
-(248.
-226-ncı sahife).
+Belli bir vaqıt devamında Moskvada VHUTEMASta oquğan, sonra maddiy vaziyeti osal olğanı sebebinden kene Kezlevge qaytıp kelip, anda bezetici olıp çalışqan.(248.226-ncı sahife).
 Sevastopoldeki resimler galereyasında Yarmuhamedovnın eki resimi nasıldır bir mucize qabilinde saqlanıp qalğan.
-Bes-belli, olar anda 1930 senesi ötkerilgen «Sovet Oırımnın 10 yıllığı» adlı sergide nümayiş etilip, serginin mükâfatını qazanğan son qalıp ketkendirler.
-(88.
-67-nci sahife).
+Bes-belli, olar anda 1930 senesi ötkerilgen «Sovet Oırımnın 10 yıllığı» adlı sergide nümayiş etilip, serginin mükâfatını qazanğan son qalıp ketkendirler.(88.67-nci sahife).
 Yarmuhamedov 1935 senesi Moskvada, Şarq medeniyetleri devlet muzeyinde ötkerilgen «Sovet Oırımının sanatı» adlı nufuzlı sergide iştirak etmek içün müsaade alğan yekâne qırımtatar ressamı edi (serginin katalogında ressamnın tek adı anıla).
 
 Ustanın «Tatar toyu» resimi açıq-açıqtan etnografik yönelişte olıp, onda tatar turmuşına ait tafsilâtlar tantimlik ve meraq ile kösterilgen.
@@ -182,25 +177,19 @@ Belli ki, böyle cemiyet qurulacağını «halqlar atası» Stalin işandırğan
 Ne ise de resimnin tasviriy değerlikleri seyircide büyük meraq doğuralar: «Tatar toyu»nda bizni meftün etken ışıq ve kölge oyum bu eserde de bar küçnen aks oluna: küneş nurları, sanki dersin, resimni delip keçeler, sıra kemerlernin ince işlengenini, vaqia olıp keçeyatqan mimarcılıq konstruktsiyasımiî yengilligini qayd eteler.
 Umumen, A.
 Yarmuhamedovnın resimleri onın plener sanatı sahasında büyük usta olğanını köstereler.
-Ressamnın belli eserleri cümlesine «Baynın bostanında», «Dağlı çobannın oyum», «Mamay taş ocaqlarında işçilernin atılıp öldürilüvi» kibi resimleri kireler.
-(248.
-226-ncı sahife).
+Ressamnın belli eserleri cümlesine «Baynın bostanında», «Dağlı çobannın oyum», «Mamay taş ocaqlarında işçilernin atılıp öldürilüvi» kibi resimleri kireler.(248.226-ncı sahife).
 1936 senesinden son hiç bir menbada ressamnın adı ahılmay.
-
 XX asımın birinci yarısında yaşap, icat etken nice-nice ressamlar Oırım medeniyetinin tarihından silinip taşlandılar!
 Keçmişte nam qazanğan, şuret arttırğan nice-nice adamlar haqqında şimdi elimizde hiç bir türlü malûmat yoq, olsa bile — zerre qadardır!
-
 Aqmescitteki bediiy muzey, ülkeşınaslıq müzeyi öz fondlarında Tohtar Afuzovnın (1900-1942) resimlerini heppeyi vaqıt saqlı tutıp, kimsege köstermediler.
 Tek yaqında bu eserlerni körmek, olarğa qıymet kesmek imkânı doğdı.
 Afuzovnın dağ ve deniz peyzajları («Ay-Petri», 1935; «Küneş qonğanda», 1937; «Deniz», 1940), cıllılıq, samimiylik ile tasvirlengen Ûırım manzaraları («Balıqçı qulübesi», 1935; «Ay ışığındaki evçik», 1939; «Oreandadaki lager», 1940), parlaq, renkkerenk natürtmortları («Küzçeçek», 1935; «Çeçekler ile natürmort», 1940; «Vişneler ile natürmort», 1940) ressamnın özgün istidatından, Moskvada V.
 Meşkovmn studiyasında aldığı temelli professional bilgilerinden delâlet bereler.
 Ressamnın hayatı 1942 senesi üzüldi — om faşistler atıp oldürdiler.
-
 Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunın mezunı Abdulla Lâtif-zadenin (1888-1955) ömüri ve icadiy faaliyeti haqqında da malûmat pek az.
 O, 1921-1924 seneleri devamında Bahçasaray muzeyinih Kokközdeki filialında (Yusupov sarayı) müfettiş (ya da mudir) (248.
 101-nci sahife) olıp çalışqan, sonra mektepte sızuv ve resim yapuv boyunca ders bergen.
-(248.
-130-ncı sahife).
+(248.130-ncı sahife).
 1930 senesi sovetlerge qarşı faaliyet alıp baruvda qabaatlanıp, Oırımdan sürgün etilgen, ömürinin 14 yılını Stalin lagerlerinde keçirgen.
 Organlar om yaqalağan vaqıtta pek çoq resimlerini, eskizlerini müsadere etkenler ki, o eserlernin taqdiri şimdi belli değil.
 Onın icadı haqqında biz tek on resimnin qara-beyaz fotoreproduktsiyalarına baqıp qıymet kese bilemiz.
