@@ -344,106 +344,53 @@ Qırımdan balalıq çağında sürgün etilgen istidatlı yaşlamın icadiy tal
 Halil Memedlâyev (1937) — şöyle istidatlı gençlernin birisi edi.
 O, Duşanbedeki ressamlıq oquv yurtunda tahsil aldı (1955-1960), 1967 senesinden başlap Leninabadnın Bediiy fondunda çalıştı, leninabadlı yaş ressamlarnın birleşmesine yetekçilik yaptı, 1977 senesi SSSR Ressamlar birliğinin azası oldı.
 H. Memedlâyevnin icadiy meraqlanuv dairesi keniş edi — o hem dekorcılıqnen oğraştı, hem monumental eserler yarattı, lâkin meyilligi mevzuiy resimlerde ve portretlerde edi.
-Ressam 70-nci senelerge has sosialistik realizm üslübinde yapılğan resimler vastasınen kündelik emek haqqında hikâye ete, emekdar insannı, Orta Asiya tabiatının güzelliklerini terennüm ete — «Turksib» (1968), «Armanda» (1970), «Yır» (1974), «Bahar» (1975), «Aşttaki burav donatması» (1983).
-
-H.
-Memedlâyev 1993 senesinden berli Oırımda yaşay, Krasnogvardeyskoye rayonının Oktâbrskoye qasabasındaki balalar ressamlıq studiyasına yolbaşçılıq yapa, icatnen çoq oğraşa, maneviy ve içtimaiy cehetten değerli eserler yarata («Dua», 1995; «Bağçasaray», 1997).
+Ressam 70-nci senelerge has sosialistik realizm üslübinde yapılğan resimler vastasınen kündelik emek haqqında hikâye ete, emekdar insannı, Orta Asiya tabiatının güzelliklerini terennüm ete — «Turksib» (1968), «Armanda» (1970), «Yır» (1974), «Bahar» (1975), «Aşttaki burav donatması» (1983).H.Memedlâyev 1993 senesinden berli Oırımda yaşay, Krasnogvardeyskoye rayonının Oktâbrskoye qasabasındaki balalar ressamlıq studiyasına yolbaşçılıq yapa, icatnen çoq oğraşa, maneviy ve içtimaiy cehetten değerli eserler yarata («Dua», 1995; «Bağçasaray», 1997).
 1995 ve 2000 seneleri Aqmescitte ve Bağçasarayda ressamnın şahsiy sergileri olıp keçti.
-
 Ressam Nuri Planciyev (1937) de Oırımdan bala ekende çıqarıldı.
 Aluşta rayonında doğup ösken Nuri bir sıra obyektiv sebeplerden ötrü professional tahsil alıp olamadı, lâkin icatta oha Leningrad Ressamlıq akademiyasının mezum Dmitriy Valerianoviç Selânin ustazlıq yaptı.
 1944 senesinden 1969 senesine qadar Nuri Planciyev Taşkent oblastındaki Yanıyol şeherinde yaşadı, anda belli rus ressamı İ.
-Brodskiynin şegirti F.
-Malkinden ressamlıq sırlarını öğrendi.
+Brodskiynin şegirti F.Malkinden ressamlıq sırlarını öğrendi.
 1975 senesi Melitopol şeherine (Zaporojye oblastı) köçüp, şimdi de şu şeherde yaşay, şeher ve cumhuriyet sergilerinde iştirak ete.
-Onın «Ay yarıq gecesinde» (1962), «Uçansuv yanındaki sırlı tavuqlar» (1987), «Oırım sığınları» (1995), «Dağlı Oırım» (1996), «Sırlı tavuqlar alanı» (1997), «Sultan tavuğı» (1997) kibi eserlerinde realistik üslüp manzaralı-folklor elementlerinen çatışqandır.
-(87.
-39-ncı sahife).
-
-Taşkentteki P.
-Benkov adına cumhuriyet ressamlıq oquv yurtum bitirgen (1955-1961) Abib İsmailov (1939 senesi doğdı) şimdilikte Samarqand şeherinde yaşay.
+Onın «Ay yarıq gecesinde» (1962), «Uçansuv yanındaki sırlı tavuqlar» (1987), «Oırım sığınları» (1995), «Dağlı Oırım» (1996), «Sırlı tavuqlar alanı» (1997), «Sultan tavuğı» (1997) kibi eserlerinde realistik üslüp manzaralı-folklor elementlerinen çatışqandır.(87.39-ncı sahife).
+Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtum bitirgen (1955-1961) Abib İsmailov (1939 senesi doğdı) şimdilikte Samarqand şeherinde yaşay.
 Bu ressam bir çoq yıllar devamında şeherdeki orta mahsus oquv yurtlarında ders berdi, 1975-80-nci senelerde şehernin Baş ressamı oldı.
 1962 senesinden itibaren cumhuriyet ve bütünittifaq sergilerinde iştirak etti, 1970 senesi SSSR Ressamlar birliğine qabul olundı.
 O, esasen peyzaj janrında çalışa — mimarcılıq ve lirik peyzajlar yarata hem de interyerlerni, muzey ekspozitsiyalarını bezetüvnen oğraşa.
-Onın belli resimleri sırasına «Agalıq.
-Qış» (1976), «Merangöl.
-Uyle» (1977), «Eski şeher» (1978), «Samarqandda qış» (1980), «Registan» (1985) kibi eserleri kireler.
-
+Onın belli resimleri sırasına «Agalıq.Qış» (1976), «Merangöl.Uyle» (1977), «Eski şeher» (1978), «Samarqandda qış» (1980), «Registan» (1985) kibi eserleri kireler.
 İşte, cenkten evel Oırımda doğğan qırımtatar ressamlarının cedveli A.
 İsmailovmn adınen yekünlene.
 Cenkten evelki nesilge ait qırımtatar tasviriy sanatı ustalarının icadını sanatşınas alimler daha endi öğrenip başladılar.
 Ayaqqa turayatqan qırımtatar sanatşınaslığı çerçivesinde bu mevzunın ileride tedqiq etilmesi neticesinde üyken nesil ressamlarımıznın cedveli bayağı kenişleycegi şubhesizdir.
-Sürgünlik yıllarında qırımtatarlarnın ekseri qısımı (70%) Ozbekistanda yaşadı, şu sebepten Özbekistan ressamlıq mektebinin qırımtatar kadrları şekillenmesinde oynağan rölüni ve qırımtatar sanat ustalarının icadına ğayet büyük tesir köstergenini qayd etmek zarur.
-
-Oırımtatar milletinden olğan yüzlernen yaş ve qızlar Taşkent ve Ferğananın ressamlıq oquv yurtlarında tahsil aldılar, işte, ilk qırımtatar heykeltraşları (A.
-Aliyev, Ş.
-Ahtemov), ekspozitsionistleri (A.
-Seit-Ametov), gobelen ustaları (M.
-Çurlu) Ozbekistanda peyda oldılar.
-Bundan ğayrı, Özbekistanda R.
-Useinov, A.
-Baraş kibi ressamlarımız, Z.
-Trasinova, E.
-İzzetov kibi grafikacılarımiz, S.
-Yaqubov, İ.
-Ablayev, F.
-Seithalilov kibi kirametçilerimiz yetişip çıqtılar.
-
+Sürgünlik yıllarında qırımtatarlarnın ekseri qısımı (70%) Ozbekistanda yaşadı, şu sebepten Özbekistan ressamlıq mektebinin qırımtatar kadrları şekillenmesinde oynağan rölüni ve qırımtatar sanat ustalarının icadına ğayet büyük tesir köstergenini qayd etmek zarur.Qırımtatar milletinden olğan yüzlernen yaş ve qızlar Taşkent ve Ferğananın ressamlıq oquv yurtlarında tahsil aldılar, işte, ilk qırımtatar heykeltraşları (A.Aliyev, Ş.
+Ahtemov), ekspozitsionistleri (A.Seit-Ametov), gobelen ustaları (M.Çurlu) Ozbekistanda peyda oldılar.
+Bundan ğayrı, Özbekistanda R.Useinov, A.Baraş kibi ressamlarımız, Z.Trasinova, E.İzzetov kibi grafikacılarımiz, S.Yaqubov, İ.Ablayev, F.Seithalilov kibi kirametçilerimiz yetişip çıqtılar.
 Bazı qırımtatar ressamları ise tahsilni Rusiyenin ve SNG devletlerinin yetekçi icadiy oquv yurtlarında aldılar.
-Meselâ, İ.
-Şeyh-zade ve N.
-Yaqubov Moskvada, L.
-Trasinova Leningradda, A.
-Belâlov, A.
-Seit-Ametov, R.
-Netovkin Ukrainada, İ.
-Veliullayev, K.
-Cepparov Gurcistanda oqudılar.
+Meselâ, İ.Şeyh-zade ve N.Yaqubov Moskvada, L.Trasinova Leningradda, A.Belâlov, A.Seit-Ametov, R.Netovkin Ukrainada, İ.Veliullayev, K.Cepparov Gurcistanda oqudılar.
 Bu hal, sözsüz, qırımtatar professional sanatının keyfiyetçe yukselüvinden delâlet bere.
-
 2.3.1989-2001 senelerindeki qırımtatar tasviriy sanatı
-
 1980-nci senelernin sonu — 1990-ncı senelernin başı umumen qırımtatar medeniyetinin ve şu cümleden qırımtatar tasviriy sanatının inkişafındaki yanı basqıçnı belgilediler.
 Bu — eh evelâ qırımtatarlar öz Vatanlarına kütleviy surette qaytıp başlağanlarınen bağlıdır.
 Evelde çeşit şeherlerde dağınıqlıqta yaşağan qırımtatar ressamları pek çoq şeylerden, meselâ, icadiy qonuşuvdan, milliy tematikanı ögge sürmek imkânlarından mahrum ediler.
 Şimdi ise özlerini eyi taraftan kostere bilgen qırımtatar ressamları çoq yıllar zarfında ilk kere Oırımdaki medeniy ceryanlarğa da tesir etmek iqtidarında oldılar.
-
 Halqnıh ömürinde yüz bergen negiz denişmeler sayesinde, siyasiy ömürnin faalleşmesi, qırımtatar halqımn bir talay demokratik serbestliklerni elde ete bilmesi neticesinde tasviriy sanatnın inkişaf etüv harakteri de denişti.
 Milliy sanatnın şimdiki devirdeki inkişafı kimerde açıq-aydın siyasiy tüs taşıy, çünki bir çoq ressamlar milliy hareketnin faal iştirakçileridirler.
 «Yanı mintaqa»larnı menimsev ketişatında ille rastkelingen bütün teşkiliy meselelerni (mesken, ustahane meselesi, birinci sergilerni teşkilâtlandıruv, qırımtatar sanatını terğib etüv meseleleri) olar olduqça qısqa müddetlerde, mustaqil surette ya da qırımtatar halqı Meclisinin qoltutuvı sayesinde çeze bildiler.
-
 Sürgünlikten Oırımğa 264 bin adam qaytıp keldi.
 Hal-azırda qırımtatarlar yarımada ehalisinin 12,7 fayızını teşkil eteler, lâkin bu sayı ket-kete arta (daha 12 yıl evelsi qırımtatarlar mında cemi ehalinin ancaq 0,1 fayızını teşkil ete ediler).
 Ustalar ve ressamlarnıh avdeti 1991 senesinin mart ayından son, yani Aqmescitte qırımtatar ressamlarının Birinci (1990 senesinifi fevrali) bütünittifaq sergisinden ve i.
 Gasprinskiynin 140 yıllığına bağışlanğan Halqara konferentsiyanm açıluvına keliştirilip ötkerilgen Ekinci bütünittifaq sergisinden son qulaç aldı.
 Sergide iştirak etmeğe hem Oırımnın özünden, hem başqa ülkelerden qırımtatar ressamları davet olundılar.
 Bu vaqiadan biraz evelce, yani 1990 senesinin mayıs ayında Aqmescitte cenkten sonki Oırım tarihında ilk kere qırımtatar ressamlarının Bütünittifaq sergisi ötkerilgen ve onda Oırımğa qaytıp kelgen ustalarnen bir sırada daha sürgünlikte bulunğan icatçılar da iştirak etken ediler.
-Birinci sergiden son 1993 senesinin baharinde daha bir sergi (205.
-248-nci sahife) ve 1994 senesi mayıs 14-te kene bir sergi ötkerildi.
-Bu sergilerden ğayrı, Oırım şeherlerinde ve Oırımdan tışta M.
-Çurlu, R.
-Netovkin, R.
-Useinov, Z.
-Trasinova, S.
-Osmanov, A.
-Baraş, N.
-Yaqubov, İ.
-Nafiyev, i.
-Ablayev kibi tanılğan ustalarnın ve diğerlerinin şahsiy sergileri olıp keçti.
+Birinci sergiden son 1993 senesinin baharinde daha bir sergi (205.248-nci sahife) ve 1994 senesi mayıs 14-te kene bir sergi ötkerildi.
+Bu sergilerden ğayrı, Oırım şeherlerinde ve Oırımdan tışta M.Çurlu, R.Netovkin, R.Useinov, Z.Trasinova, S.Osmanov, A.Baraş, N.Yaqubov, İ.Nafiyev, i.Ablayev kibi tanılğan ustalarnın ve diğerlerinin şahsiy sergileri olıp keçti.
 1995 senesinden itibaren her yıl Qırımda ve Oırımdan tışta qırımtatar ressamlarının orta esapnen 10-15 sergisi ötkerile.
 Bu sergiler qırımtatar tasviriy sanatının ayaqqa turması ve inkişaf etmesi içün negizni yaratuvğa doğrultılğan bütün teşkiliy işnifı başlanğıçı oldılar.
 1990 senelerinin başlarında Oırımtatar medeniyetini ğayrıdan tiklev boyunca koordinatsion merkez meydanğa ketirildi, biraz vaqıttan sofi bu merkez Oırımtatar medeniyet vaqufına çevirildi.
-
 1992 senesi Oırımtatar ressamlarının assotsiatsiyası cedvelge alındı.
 Sözde onın tesisçisi Sürgün olunğan halqlarnın işleri boyunca cumhuriyet komiteti edi, lâkin Assotsiatsiyağa devlet tarafından amelde hiç bir türlü yardım kösterilmedi.
 Yaş teşkilâtnın öğünde kevdelenip turğan bütün teşkiliy meselelerni Assotsiatsiyanın yolbaşçılarına, qırımtatar ziyalılarının vekillerine çezmek kerek oldı.
-Assotsiatsiyağa 1992 senesinden E.
-İzzetov reis oldı.
-Tek 1994 senesinden 1995 senesine qadar (E.
-İzzetov Özbekistanğa ketken edi) Assotsiatsiyağa İ.
-Şeyh-zade, F.
-Asanova, M.
-Çurlu yolbaşçılıq yaptılar.
+Assotsiatsiyağa 1992 senesinden E.İzzetov reis oldı.
+Tek 1994 senesinden 1995 senesine qadar (E.İzzetov Özbekistanğa ketken edi) Assotsiatsiyağa İ.Şeyh-zade, F.Asanova, M.Çurlu yolbaşçılıq yaptılar.
 Assotsiatsiya faaliyet kösterip başlağanından berli Oırımda, Ukrainada ve çetelde 90-dan ziyade sergi ötkerildi.
 Aynı zamanda Oırımtatar milliy galereyası meydanğa ketirildi.
 1992 senesinden 1993 senesine qadar bu galereya öz faaliyetini Oırımtatar medeniyetini tiklev boyunca koordinatsion merkeznin çerçivesinde alıp bardı, galereyanın eksponatları ise Simferopol bediiy muzeyinde saqlanıldılar.
@@ -452,8 +399,7 @@ Aynı zamanda Oırımtatar milliy galereyası meydanğa ketirildi.
 Gasprinskiy adına cumhuriyet qırımtatar kütüphanesinin erkânına başta bölük sıfatında, sonra filial sıfatında kirsetildi.
 2002 senesi muzeynin statusı koterildi.
 Şimdilikte o — Cumhuriyet qırımtatar sanatı müzeyi adını taşıy.
-Mezkûr muzey teşkil olunğanı sayesinde qırımtatar sanatşınaslığındaki ilmiy mektepnin temelini professional tarzda qurmaq imkânı peyda oldı, yani XIX asırnın sonlarında — XX asımın başlarında U.
-Bodaninskiy ve O.
+Mezkûr muzey teşkil olunğanı sayesinde qırımtatar sanatşınaslığındaki ilmiy mektepnin temelini professional tarzda qurmaq imkânı peyda oldı, yani XIX asırnın sonlarında — XX asımın başlarında U.Bodaninskiy ve O.
 Aqçoqraqlı başlağan işni devam ettirmek mümkün oldı.
 Bütün bu teşkiliy tedbirler böyle hallarda mıtlaqa ola turğan murekkepliklernen, ressamlar ve hakimler arasında zuur etken davalarnen özğarıldılar.
 Hem şusı quvançlı ki, Vatanğa qaytıp kelgen qırımtatar ustaları avdetnin ilk yıllarından başlap özlerini Oırımnın bediiy yüzüni şekillendirici ve belgileyici ciddiy icadiy quvet olaraq kostere bildiler.
