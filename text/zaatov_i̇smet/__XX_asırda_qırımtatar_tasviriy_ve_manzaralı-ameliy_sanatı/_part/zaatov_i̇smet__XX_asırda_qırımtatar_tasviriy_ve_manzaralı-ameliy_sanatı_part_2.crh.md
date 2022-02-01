@@ -67,26 +67,21 @@ Onın özü yazğanı kibi, 1907-1909 seneleri İstanbulda, Parijde, Münhende v
 Bundan son onın icadiy faaliyeti kene Moskva ve Sankt-Peterburgnen bağlı ola — Bodaninskiy Stroganov adına oquv yurtunın filialında ders bere, filialnın ressamlıq-sanayı mektebine yolbaşçılıq yapa, belli mimar İ.A. Fominnen beraber bezetici ressam olıp çalışa.
 1910 senesi U.Bodaninskiy Moskvadaki Ticaret bankının binasındaki plafonlarnı süslendire, Ya.V. Ratkov-Rojnovmn, S.S. Abamelek-Lazarevnin ve digerlernin evlerini bezete.
 1917 senesi Oırımğa qaytıp kele.
-
-Almaniyalı tedqiqatçı Ediğe Oırımal özünin «Oırım türklerinih milliy mücadelesi» adlı kitabında U.Bodaninskiy ve A.Abiyev haqqında böyle yaza:
-«Bular — Oırımnın asıl halqı içinden çıqmış istidatlı ressamlardır ki, olar kendi bilgilerini İtalyan ve transız ressamlıq mekteplerinde mukemmelleştirgenler».(250).
+Almaniyalı tedqiqatçı Ediğe Oırımal özünin «Oırım türklerinih milliy mücadelesi» adlı kitabında U.Bodaninskiy ve A.Abiyev haqqında böyle yaza:«Bular — Oırımnın asıl halqı içinden çıqmış istidatlı ressamlardır ki, olar kendi bilgilerini İtalyan ve transız ressamlıq mekteplerinde mukemmelleştirgenler».(250).
 20-nci senelernin milliy uyanuv dalğasında U.Bodaninskiy bediiy-pedagogik faaliyetke berilip, halq esnaflarını canlandıruvnen, 1924-29 seneleri Qırq-Azizlerde, Eski Yurtta, Eski Oırımda, Çufut-Oalede, şimaliy Oırımda etnografiya ekspeditsiyaları ötkerüvnen meşğül ola, aynı vaqıtta ressamlıqsanayı tehnikumında ders bere, orta asırlarğa ait ve zemaneviy qırımtatar sanatı haqqında lektsiyalar oquy...
 Bodaninskiy Oırım tarihında birinci kere, Yalta kinostudiyasında yaratılğan «Alim» bediiy filminin ressamı da ola.
 Biraz vaqıttan son om Bağçasaraydaki saray-muzeynin direktorı olaraq tayinleyler ve bu muzey Bodaninskiy devirinde qırımtatar sanatının ilmiy-tedqiqat merkezine çevirile.
 Teessüf ki, onın bediiy icadını aydınlatqan numüneler saqlanıp qalmadı — Bodaninskiynin elinen yaratılğan bütün eserler alim 1938 senesi atıp öldürilgen son maqsadkârlıq ile yoq etildiler.
 Onın eserleri haqqında faqat bazı bir malûmatlar mevcut.
 Meselâ, Bodaninskiy Peterburgda «Ay yarıq gecede» adlı akvarel resim (1910) yapqan, bundan gayrı 1909 senesi Moskvadaki ressamlar şirketinin 17-nci sergisinde iştirak etken, Moskva mimarcılar cemiyetinin ve Peterburgdaki Mimar-ressamlar cemiyetinin faaliyetlerine qatılğan.
-Oırımmh aq gvardiyacılardan azat olunğanının 10 yıllığına bağışlanğan yübiley sergisinde (1930) onın «Pionerler» adlı resimi nümayiş etilgen.
-U. Bodaninskiy Aqmescitteki Oırımtatar teatrinde sanalaştırılğan «Bağçasaray çeşmesi» (1927) baleti içün kostümlernin eskizlerini yarattı.
-(205.220-nci sahife).
-Bunınnen birlikte 20-nci senelerde neşir olunğan bir sıra kitaplarğa U.
-Bodaninskiynin illüstratsiyaları da saqlanıp qalğan.
-Meselâ, P.
-Nikolskiynin «Bağçasaray çeşmesi» kitabını Bodaninskiynin elinen yapılğan örnekler ve vinyetkalar yaraştıralar.
-Hem bu bezetmeler ressamnı an'aneviy örneklerni yahşi bilgen usta sıfatında köstereler.İcatçının sağlanıp qalğan süjetli eserleri cümlesine tatarlarnın turmuşı ve icadiyatı mevzusında yapılğan grafikası — «Kiyiz işlev», «Baqırcı ustahanesi» kibi resim taslaqları kireler.(205.221-nci sahife).
+Oırımmh aq gvardiyacılardan azat olunğanının 10 yıllığına bağışlanğan yübiley sergisinde (1930) onın «Pionerler» adlı resimi nümayiş etilgen;U. Bodaninskiy Aqmescitteki Oırımtatar teatrinde sanalaştırılğan «Bağçasaray çeşmesi» (1927) baleti içün kostümlernin eskizlerini yarattı.(205.220-nci sahife).
+Bunınnen birlikte 20-nci senelerde neşir olunğan bir sıra kitaplarğa U.Bodaninskiynin illüstratsiyaları da saqlanıp qalğan.
+Meselâ, P.Nikolskiynin «Bağçasaray çeşmesi» kitabını Bodaninskiynin elinen yapılğan örnekler ve vinyetkalar yaraştıralar, hem bu bezetmeler ressamnı an'aneviy örneklerni yahşi bilgen usta sıfatında köstereler.
+İcatçının sağlanıp qalğan süjetli eserleri cümlesine tatarlarnın turmuşı ve icadiyatı mevzusında yapılğan grafikası — «Kiyiz işlev», «Baqırcı ustahanesi» kibi resim taslaqları kireler.(205.221-nci sahife).
 Abdurefi Abiyev (1879-1938) haqqında malûmat pek az.
 1906 senesi o, Stroganov adına oquv yurtunı bitire, sonra oquvını Parijde devam ettire.
-Belli bir vaqıt devamında Rostovdaki mebel fabrikasında modelci olıp çalışa (1908-1910), 20-nci senelernin sonlarında Bağçasaray ressamlıq-sanayı tehnikumının direktorı ola, 30-ncı senelerde Aqmescit ressamlıq tehnikumında ocalıq yapa.
+Belli bir vaqıt devamında Rostovdaki mebel fabrikasında modelci olıp çalışa (1908-1910).
+20-nci senelernin sonlarında Bağçasaray ressamlıq-sanayı tehnikumının direktorı ola, 30-ncı senelerde Aqmescit ressamlıq tehnikumında ocalıq yapa.
 Onın mına bu eserleri haqqında az-buçuq malûmat bar: «Oadınımnın portreti», «Mimarcılıq peyzajı», «Evnin interyeri».(248.13-nci sahife).
 Bir çoq ressamlarnın taqdiri kibi, onın taqdiri de facialı oldı — qanlı repressiyalarda saq qalğanlar az edi.
 Öz halqının ömürini bütün çeşitliliği ile aks ettirmeğe ıntıluv ilk nesil qırımtatar ressamlarının harakterli bir çizgisi oldı.
