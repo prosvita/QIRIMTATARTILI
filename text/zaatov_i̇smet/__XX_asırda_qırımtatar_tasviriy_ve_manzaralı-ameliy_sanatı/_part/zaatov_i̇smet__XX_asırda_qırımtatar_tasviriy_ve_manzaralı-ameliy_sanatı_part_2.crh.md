@@ -860,18 +860,8 @@ Böyleleri sırasında «Kalligrafik abstraktsiya.
 Seit-Ametov özünin grafika kompozitsiyalarını çin merekebi, guaşnen icra eterek, aynı vaqıtta suvlama ve süslemelerden faydalana.
 Abdül grafikadan ğayrı, an'aneviy qırımtatar çölmekçiligini de ögrene ve özü de çamurdan şeyler yasay.
 Lâkin bu aqta laqırdı «Manzaralı-ameliy sanat» bölüginde olacaq.
-
 Elmira Seit-Ametova 1973 senesi Taşkentte doğdı, şimdi Oırımda yaşay.
-O, Taşkentteki P.
-Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirdi, hal-azırda kitap grafikası sahasında çalışa, esasen bala kitapları ve derslikler içün resimler yapa (E.
-Selâmet.
-«Altın balta haqqında masal» (1993); C.
-Kence.
-«Bala şiirleri» (1995); «Tuvğan edebiyat» (1998); S.
-Harahadı.
-«Elifbe» (2000).
-E. Seit-Ametovanın grafika eserleri Kiyevde, Aqmescitte ötkerilgen sergilerde nümayiş etildiler (1993, 1996, 1997).
-
+O, Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirdi, hal-azırda kitap grafikası sahasında çalışa, esasen bala kitapları ve derslikler içün resimler yapa (E.Selâmet.«Altın balta haqqında masal» (1993); C.Kence.«Bala şiirleri» (1995); «Tuvğan edebiyat» (1998); S.Harahadı.«Elifbe» (2000).E. Seit-Ametovanın grafika eserleri Kiyevde, Aqmescitte ötkerilgen sergilerde nümayiş etildiler (1993, 1996, 1997).
 Elmira Seit-Ametova kibi yaş, lâkin özlerini endi tanıta bilgen ressamlar — Aqmescitteki N.
 S. Samokiş adına ressamlıq oquv yurtunıri mezunları Cemal Alibekov (1979 senesi doğdı) ve Ridvan Baliç sanattaki kendi icadiy yollarını daha araştıracaqlar.
 2000 senesi olıp keçken Oırım akvarel biyennalesinde C.
@@ -882,40 +872,29 @@ Samokiş adına ressamlıq oquvyurtu mezunlarının eserlerinden teşkil olunğa
 O sergide Ridvannm «Bogdan Hmelnitskiy Oırım hanı İslâm Geray saniy III uzurında» adlı diplom işi nümayiş etilip, serginin baş mükâfatını qazanğan edi.
 Bundan son Ridvan Ukraina Ressamlar ve mimarlar Milliy akademiyasına yollanma alıp, şu akademiyanın talebesi oldı.
 R. Baliçnin «Oırım yalısı» (2001) adlı peyzajı ve «Şarq natürmortı» (1998) ğayet cazibeliler.
-
 Yuqarıda adları anılğan ustalar Oırımda yaşay ve çalışalar.
 Lâkin Qırımdan tışta da bir çoq semetdeşlerimiz bardır ki, olar özlerini qırımtatar ressamlarının cümlesine qoşalar.
 İnessa Cetere dizayn ve kompyüter grafikasınen oğraşa.
 Sonki yıllar devamında o, Taşkentte qadın-qızlar içün çıqarılğan «Saida» mecmuasında çalışa.
-
-A.
-N. Ostrovskiy adına Taşkent teatr-ressamlıq institutının mezum Zaur İbragimov (1937 senesi doğdı) 1969 senesinden berli Biysk şeherinde (Rusiye) yaşay ve şimdi Biysk devlet pedagogika institutının ressamlıq fakultetinde ocalıq yapa.
+A.N. Ostrovskiy adına Taşkent teatr-ressamlıq institutının mezum Zaur İbragimov (1937 senesi doğdı) 1969 senesinden berli Biysk şeherinde (Rusiye) yaşay ve şimdi Biysk devlet pedagogika institutının ressamlıq fakultetinde ocalıq yapa.
 O bir çoq cumhuriyet, bütünittifaq ve halqara sergilerinin iştirakçisi, 1980 senesinden SSSR Ressamlar birliğinin azasıdır.
 Onın «metstso-tinto» tehnikası esasında qarandaş, kömür ve akvarel boyalarnen yapqan grafika resimleri Altaynm qadimiy medeniyetine bağışlanğandır («Katun özeni», 1985; «Rerih Altayda» türkümine kirgen «Taş mabude», 1989; «Cin qasrları», 1992; «Uspeniye kilsesi», 1990).
 1990-ncı senelernin ortalarında yaratqan «Balalıq hatıraları» türkümi Zaur Ibragimovnıii icadında ayırıca yer tutıp, onda qırımtatar halqı içün facialı olğan 30-40-ncı senelernin bütün qarsanbaları aks olunğanlar.
-Ressamnın «Babamnen vedalaşuv» (1996), «Sürgünlik» (1996), «Mobilizatsiya» (1996), «Mahsus köçürilgenler» (1996) kibi resimleri — «o deşetli devimin özüne has yılnamesidir» (88.
-25-nci sahife).
-
+Ressamnın «Babamnen vedalaşuv» (1996), «Sürgünlik» (1996), «Mobilizatsiya» (1996), «Mahsus köçürilgenler» (1996) kibi resimleri — «o deşetli devimin özüne has yılnamesidir» (88.25-nci sahife).
 Ayder Beşirov 1954 senesi Marğılan şeherinde (Özbekistan) doğdı, 1973 senesi P.
 Benkov adına Taşkent ressamlıq oquv yurtum, 1982 senesi ise Bütünittifaq kinematografiya institutının kino, teatr ve televideniye ressamlığı fakultetini bitirdi.
 A. Beşirovnın icadındaki esas mevzunı Moskva soqaqlarının urbanistik nefaseti teşkil ete («Moskva soqaçığı», «Kommunalkada»).
 Ressamnın qarandaşnen, çin merekebi, qalemnen icra olunğan grafika tabaqları defalarca cumhuriyet ve bütünittifaq sergilerinde nümayiş etildiler.
 Beşirov şimdi Moskva şeherinde yaşay ve çalışa.
-
 Matbaa grafikasınen oğraşqan Rustem Abdurahmanov (1961) Ukrainanın Melitopol şeherinde yaşay.
 O, öz vaqtında Lvov matbaacılıq institutının grafika bölügini bitirgen edi.
 Rustem Melitopolde ve Aqmescitte ötkerilgen bir sıra sergilerde faal iştirak etti.
 Onın eh yahşi eserleri cümlesinde Andrey Belıynın şiirleri esasında yaratılğan «Şimal simfoniyası» (1993) adlı grafik seriyasını, «Dafnis ve Hloya» (1991) türkümini, Bora Gazı Geraynın şiirleri mevzusında yapılğan «Dolap» (1997) türkümini ahmaq zarur.
-
 Grafik Dilâver Seitaptiyev 1971 senesi Özbekistannın Gülistan şeherinde doğdı, P.
 Benkov adına cumhuriyet ressamlıq oquv yurtum bitirdi, halazırda Harkovdaki bediiy-sanayı institutının tezya grafikası bölüginde oquy.
 Onın ressamlıq stajı pek büyük olmasa da, o bir çoq cumhuriyet sergilerinde iştirak etti.
-D. Seitaptiyevnin esas eserleri sırasına «Sevişkenler» (1991), «Toy» (1991), «Eki içkici» (1993), «Nazlılıq» (1995), «1-nci sanlı manzaralı kompozitsiya» (1995), «2-nci sanlı manzaralı kompozitsiya» kibi akvarel resimleri, «Metamorfoz» (1996) adında manzaralı grafik tabaqlar türkümi kireler.
-(88.
-43-44-nci sahifeler).
-
+D. Seitaptiyevnin esas eserleri sırasına «Sevişkenler» (1991), «Toy» (1991), «Eki içkici» (1993), «Nazlılıq» (1995), «1-nci sanlı manzaralı kompozitsiya» (1995), «2-nci sanlı manzaralı kompozitsiya» kibi akvarel resimleri, «Metamorfoz» (1996) adında manzaralı grafik tabaqlar türkümi kireler.(88.43-44-nci sahifeler).
 #### 2.3.3. Heykelcilik, ufaq şekiller plastikası
-
 Heykelcilik sanatı mustaqil janr olaraq Oırımda heppeyi keç şekillendi, lâkın taşm bediiy işlev sanatı öz tamırlarınen asırlar terenligine barıp çıqa ve biz bu sanatnın durğun an'aneleri olğanını bilemiz.
 Taşm işlev sanatı — qırımtatar halqının turmuşı ve medeniyetinin ayırılmaz bir qısımıdır.
 Böyle soy sanatnı anar ekenmiz, közümiz öğünde mezar abideleri (baştaşlar), binalarnın manzaralı bezetilüvi, ufaq şekildeki inşaatlar kevdelene.
@@ -923,15 +902,12 @@ XX asımın başlarında, yani Oırımda tasviriy sanatnın bütün çeşitleri 
 Hem qırımtatar ustaları bu janrda muvafaqiyetnen çalışaraq, devir ve mefküre talap etken eserlerni yarata, mahalliy ve bütünittifaq sergilerinde iştirak ete ediler.
 Keçken asırnın 30-ncı senelerinde qırımtatar heykeltraşlarının bir qısımını repressiyalar dalğası yuvup ketti, diğer bir qısımı ise sürgünlik yerlerinde ğayıp oldı.
 Böyleliknen, qırımtatar sanatında mevcut olğan taş işlev an'aneleri üzüldi, hem tek bu değil, umumen halqmn cemi medeniy yenişleri yoqqa çıqarıldı.
-
 Heykelcilik mevzusı — mezkûr kitabımızda en zayıf aydınlatılğan mevzudır.
 Lâkin bunıri sebebi qırımtatar heykeltraşlarının bediiy seviyesi ve professionalizmi ğayet alçaq olğanında değil de, kene de şu yuqarıda andığımız meselelerde ve qırımtatar heykeltraşları pek az sayıda olğanlarındadır.
 Bugünde-bugün Oırımda milliy sanatnı canlandıruv ceryanı vira qulaç ala.
 Heykelcilik sahasında çalışqan ustalarımız — esasen daha endi ayaqqa turayatqan yaş icatçılar olıp, olar sanatnın bu janrında özlerinin salmaqlı sözlerini daha aytacaqtırlar.
-
-Oırımtatar ressamları kibi, zemaneviy heykeltraşlarımız da professional tahsilni Oırımdan tışta aldılar.
+Qırımtatar ressamları kibi, zemaneviy heykeltraşlarımız da professional tahsilni Oırımdan tışta aldılar.
 Vatanğa qaytıp kelgen son öglerinde bayağı yüksek içtimaiy ve turmuş harakterindeki sedler peyda olğanına baqmadan, olar kendi icadiy faaliyetlerini usanmadan devam ettireler.
-
 Ayder Aliyev Oırımnın yetekçi heykeltraşları sırasına kire.
 O, 1952 senesi Mari ASSRde doğdı (onın ana-babası Oırımdan anda sürgün etilgen edi), Taşkentteki P.
 Benkov adına cumhuriyet ressamlıq oquv yurtum, sonra A.
@@ -939,43 +915,28 @@ N. Ostrovskiy adına teatr-ressamlıq institutını bitirip (1977), alâ dereced
 1988 senesi SSSR Ressamlar birliğinin azası oldı.
 Daha Ozbekistanda ekende özüni her hangi materialnen — taş, ağaç, madennen çalışa bilgen usta olaraq kosterdi.
 Ozbekistanda yaşağan devirinde «Oonuşuv» (1984, tökme maden), «Bereket» (1984, alüminiy), «Analıq» (1985, mermer) kibi acayip eserler yarattı.
-
-A.
-Aliyev Oırımda 1992 senesinden berli yaşay.
+A.Aliyev Oırımda 1992 senesinden berli yaşay.
 Öz icadında zamannın en hayatiy mevzularına — sevgi, aile, tuvğan topraq mevzularına toquna.
 Aliyev bütünlikli, umumiyleştirilgen obrazlar yaratmağa seve.
 Onın «Tirilgen hatıra» (1993, dögme maden), «Ustanın qaytuvı» (1995, tunç), «Köçüv» («Aile» seriyası, 1995, tunç) kibi eserleri tuvğan medeniyetnin, qırımtatar Oırımının canlanuvına bağışlanğandır.
 Bunınnen birlikte Aliyevnin diğer bir sıra eserlerini közden keçirir ekensin, muellifnin nazik duyğulı, ince hayaletli bir adam olğanını sezesin.
 Aliyevnin qadın personajları hususan heyecanlılar ki, olarnin cazibesi, plastikası ayrıca qayd oluna.
 Olarnin tışqı hikâyesi yoqtır, amma içten ğayet teren manalı, ihtiraslı ve felsefiydirler.
-Fikirimizni «Ayneni» (1993, qaburçaq, qarışıq tehnika), «Uçup keteyatqan quşlar» (1996, tunç), «Süt ana» (1997, tunç), «Ada» (1996, tunç), «Dağlı tatar qadını» (1997, tunç), «Model» (1998, tunç), «Oturğan qadın» (1999, alüminiy), «Yatqan qadın» (1999, mermer), «Aile» (1999, Afrika taşı) kibi eserler isbatlay bileler.
-
-Oırımtatarlarnıh meşhur erbaplarına bağışlap memorial abideler yaratuv -Aliyevnin icadındaki daha bir mühim cehettir.
-Onın abidelerini hiç bir qabartuvsız haqiqiy sanat numüneleri, dep aytmaq mümkün (İ.
-Gasprinskiynin, A.
-Özenbaşlının mezarlarındaki baştaşlar, 2000).
+Fikirimizni «Ayneni» (1993, qaburçaq, qarışıq tehnika), «Uçup keteyatqan quşlar» (1996, tunç), «Süt ana» (1997, tunç), «Ada» (1996, tunç), «Dağlı tatar qadını» (1997, tunç), «Model» (1998, tunç), «Oturğan qadın» (1999, alüminiy), «Yatqan qadın» (1999, mermer), «Aile» (1999, Afrika taşı) kibi eserler isbatlay bileler.Qırımtatarlarnıh meşhur erbaplarına bağışlap memorial abideler yaratuv -Aliyevnin icadındaki daha bir mühim cehettir.
+Onın abidelerini hiç bir qabartuvsız haqiqiy sanat numüneleri, dep aytmaq mümkün (İ.Gasprinskiynin, A.Özenbaşlının mezarlarındaki baştaşlar, 2000).
 Diniy qaidelerge tolusınen riayet etilgeni halda yapılğan bu mermer baştaşlar özüni halq an anelerinden ayırıp olamağan zemaneviy ustanın içki dünyasını aks ettireler.
-
 Ayder Aliyevnin monumental eserleri sırasında ulu maarifperverimiz İsmail Gasprinskiynin şerefine 1998 senesi Aqmescitte qoyulğan heykelni de anmalımız.
 Mermer taştan yapılğan bu abide Oırımnıh medeniy ömürinde büyük bir vaqia oldı, halqmn öz oğulları haqqında hatırası silinmegenini kosterdi.
-Abide yerleştirilmezden evel leyha işleri boyunca konkurs ötkerilgen ve bu konkursta A.
-Aliyevnin teklif ettiği variant ğalip çıqqan edi.
-
+Abide yerleştirilmezden evel leyha işleri boyunca konkurs ötkerilgen ve bu konkursta A.Aliyevnin teklif ettiği variant ğalip çıqqan edi.
 Şunı da qayd etmeli ki, Oırımda qırımtatar medeniyetinin canlanmasına bağışlanğan memorial inşaatlar quruv biz içün yanı bir iş olıp, o, tarihiy ve ahlâqiy cehetten ğayet büyük emiyetke malik ola.
-Deyik, ilk abidelerni (esasen hatıra nişanları) aveskâr ustalar öz aqçasına yapqanı ve böyle abidelernin değeri olmağanı halda i.
-Gasprinskiynin heykelini tiklev ğayesine cemaatçılıq büyük mesuliyetnen yanaştı.
+Deyik, ilk abidelerni (esasen hatıra nişanları) aveskâr ustalar öz aqçasına yapqanı ve böyle abidelernin değeri olmağanı halda i.Gasprinskiynin heykelini tiklev ğayesine cemaatçılıq büyük mesuliyetnen yanaştı.
 Bundan ğayrı, 1944 senesi sürgünliginin qurbanlarına bağışlanğan abidenin eh yahşi leyhası içün konkurs ilân etildi, onda sabıq SSSRnin çeşit ülkelerinde yaşağan ustalar iştirak ettiler.
 Konkursqa hepisi olıp 26 leyha taqdim etildi ki, olar Oırımnın özünden, Moskvadan, Ukraina, Oazahistandan kelip tüştiler.
 Oırımtatar ustalarından konkursta İsmet Şeyh-zade iştirak etti.
 Onın leyhası dürbe modelinden ibaret olıp, Zincirli medresenin binasını andıra edi, çünki kompozitsiyada merkeziy qubbe planından ğayrı, Zincirli medresedeki kibi, zincir da işletilip, o bu yerde temsiliy bir mana taşıy edi.
 Leyhanm müellifi qayd etkeni kibi, «Halq — bir sarqaç kibidir, om qayda sürmesinler, o, hepisi bir, özünin asıl yerine qaytıp tura.
-Hem uzaqlaşuvı ne qadar çoq olsa, tuvğan yemin çeküvi de şu qadar büyük ola» (205.
-280-nci sahife).
-
-Oırımtatar halqınıh tarihiy taliyine bağışlanıp, Yaltada qoyulması qararlaştırılğan abidenin leyhasını, işte, İ.
-Şeyh-zade ve N.
-Yaqubov işlediler.
-
+Hem uzaqlaşuvı ne qadar çoq olsa, tuvğan yemin çeküvi de şu qadar büyük ola» (205.280-nci sahife).
+Qırımtatar halqınıh tarihiy taliyine bağışlanıp, Yaltada qoyulması qararlaştırılğan abidenin leyhasını, işte, İ.Şeyh-zade ve N.Yaqubov işlediler.
 İlmiy Ametov monumental heykelcilik sahasında çalışa.
 O, 1947 senesi Özbekistanmh Kattaqurğan şeherinde doğdı, 1974 senesi Bakudaki ressamla oquv yurtum bitirdi, 90-ncı senelerde Krasnodar ülkesinden Oırımğa köçüp keldi.
 I. Ametovnın faaliyeti, eh evelâ, ahlâq-etika cehetinden diqqatqa lâyıqtır.
@@ -983,14 +944,11 @@ Usta öz öğüne «musülman mezarlıglarını münasip halğa ketirmek» maqsa
 O, Qırım boylap pek çoq seferler yapa, unutılğan mezarlıqlarnı araştırıp tapa.
 Ana-babasının tuvğan koyu Taraqtaşta harabege çevirilgen mezarlıqtaki ölülernin qalımtılarını yanıdan kömüp, bu yerde öz parası hesabına «Yaralı taş» (1994) adlı hatıra nişanı qoydı.
 I. Ametov böyle nişanlarnı Oırımmh endi bir qaç rayonında yerleştirdi.
-
-Ametovmh abideleri janrnın bütün qaidelerine riayet etilgeni halda yapılğanlar.
+Ametovnın abideleri janrnın bütün qaidelerine riayet etilgeni halda yapılğanlar.
 Bular — alçaq negiz üstüne qoyulğan tikme taşlar olıp, olar tabiiy ve mimarcılıq muhitine ğayet uyğun tarzda kirsetileler.
 Abideler kendi sert geometrik şekilleri boyunca monumentaller, taş tüsünin özü (işlengen ve işlenmegen mermer) olarğa ayrıca ifade bağışlay.
 İnşaatlarnın manzaralı bezetilüvi pek sade, tek kimerde bir taşnın yekpareligini nasıldır şarqiy örnek ya da temsiliy belgi (tamğa) boza.
-
-İ.
-Ametov qırımtatar cemaat erbabı Seit oğlu Seydametke (1998) ve general Pyotr Grigorenkoğa (1999) bağışlap heykeller yarattı.
+İ.Ametov qırımtatar cemaat erbabı Seit oğlu Seydametke (1998) ve general Pyotr Grigorenkoğa (1999) bağışlap heykeller yarattı.
 Vladıka Klimentnin ricasını yerine ketirip, Ukrain avtokefal kilsesi içün taştan haç yasadı (1999).
 Bugünde-bugün usta Sudaqta «Oadimiy türk eykelciligi müzeyi» üzerinde çalışa.
 Bu muzey açıq avada yerleşecek, onda qadimiy türk mabudeleri, taşnı işlev sanatının numüneleri, qısqası, zemaneviy qırımtatar sanatına ğıda bergen qadimiy medeniyetnih şaatları nümayiş etilecekler.
@@ -1002,55 +960,36 @@ N. Ostrovskiy adına teatr-ressamlıq oquv yurtunın heykelcilik bölügine oqum
 Ahtemov esasen skulptura portretleri yarata.
 Onın kompozitsiyalarını eki yöneliş teşkil ete.
 Birinci yönelişke kirgen soyları — kamer lirik eserlerdir («Ana ve onın balaları», 1979, mermer; «Zarema» adlı qızınıh portreti, 1985, mermer) diğer yönelişke ise medeniyet ve ilimnin körümü erbaplarına bağışlanğan eserler kireler (Oıbray qasabasında N.i.
-Vavilovnın barelyefi, 1978; «İsmail Gasprinskiynin portreti», 1989, mermer; Aqmescit şeheri içün İ.
-Gasprinskiy abidesinin leyhası, 1991).
+Vavilovnın barelyefi, 1978; «İsmail Gasprinskiynin portreti», 1989, mermer; Aqmescit şeheri içün İ.Gasprinskiy abidesinin leyhası, 1991).
 Ş. Ahtemov — bir çoq cumhuriyet ve bütünittifaq sergilerinin iştirakçisidir.
-
 Ressam, Ukraina Ressamlıq akademiyasının mezunı Ali Belâlovnın icadında apansızdan bir burulış yüz berdi.
 2001 senesi sentâbr 12 künü qadimiy Oarasuvbazar şeherinde qırımtatarlarnıh klassik şairi, cihanda tanılğan türkşınas alim Bekir Çoban-zadenin mermer abidesi açıldı.
-Bu abidenin müellifi, işte, A.
-Belâlov edi.
+Bu abidenin müellifi, işte, A.Belâlov edi.
 Mezkûr abideni endi monumental heykeltraş adını da qazanğan Ali Belâlovnın ğayet muvafaqiyetli eseri, dep bilmek mümkün.
-
-Taşkentteki P.
-Benkov adına ressamlıq oquv yurtunın, sonra ise A.
+Taşkentteki P.Benkov adına ressamlıq oquv yurtunın, sonra ise A.
 Ostrovskiy adına teatr-ressamlıq institutının mezunı olğan Enver Zaydullayev (1947) realistik portret janrında çalıştı.
 Heykeltraşnın icadındaki toqtaluvnı onın daha yaqında Oırımğa köçmesinen anlatmaq mümkün.
 Rustem Ablâyevnin taş, ağaç, balçıqtan yapılğan eserleri — folklor, masal personajları ve hayatiy levhalardır.
 Onın çalğıcı, çoban, türlü-türlü hayvan figuraçıqları ufaq plastika janrına mensüpler.
-
 Heykelcilik — icadatnın bayağı paalığa oturğan bir çeşitidir, çünki abideler paalı materiallardan yapıla, aynı vaqıtta tehnologik ceryannın özü de bayağı maddiy ve cismaniy masraflarnı talap ete.
 Bundan ğayrı, resimlerge köre, heykeller azca satıla, şunın içün heykeltraşlarğa öz işinin maddiy semeresine ümüt etmeğe sıra tüşmey.
 Ne ise de, qırımtatar heykeltraşları mürekkep iqtisadiy vaziyetke baqmadan icatnın yanı usul ve vastalarını araştıraraq, zamannen bir adımlamağa, qırımtatar sanatına özlerinin münasip hisselerini qoşmağa tırışalar.
-
 Hulâsalar:
-
-Sanatnın Oırım içün yanı olğan avropaca numüneleri mında rus medeniyetinin tesirinde, an'aneviy medeniyet buhranğa oğrağan bir devirde kirip
-
-keldiler.
+Sanatnın Oırım içün yanı olğan avropaca numüneleri mında rus medeniyetinin tesirinde, an'aneviy medeniyet buhranğa oğrağan bir devirde kirip keldiler.
 Bu ceryan Rusiyenin erkânına kirsetilgen diğer musülman ülkelerine baqqanda, deyik, Ozbekistanğa baqqanda, Oırımda biraz evelce ve bayağı kenişçe keçti.
-
 Öz faaliyetini XX asımın ilk yıllarında başlağan qırımtatar icatçıları tahsilni çetelde aldılar.
 Olarnın pek çoqları kendi istidatlarını açıp olamadılar, olarnın taqdiri ğayet facialı oldı.
 Lâkin olar qırımtatar medeniyetinin tarihında parlaq iz qaldırıp yetiştirdiler.
-
-Ekinci nesilge mensüp icatçılar ise tahsilni Oırımda, esasen N.
-Samokişnih studiyasında aldılar.
+Ekinci nesilge mensüp icatçılar ise tahsilni Oırımda, esasen N.Samokişnih studiyasında aldılar.
 Kimersi icatçılar hatta kendi-kendine resim öğrendiler.
 Olarnın taliyi de facialı oldı, olar da bütün halqnen beraber sürgün etildiler.
 Cenkten evelki qırımtatar tasviriy sanatı sovet medeniyeti ve mefküresinin umumiy bir aqımında inkişaf etti.
 Eserlernin mundericesini belgilegen sosialistik realizm, bir taraftan, yanı, daha belli olmağan ufuqlamı aça, diğer taraftan ise mecburiy resmiy yöneliş çerçivelerinen icatnı boğa edi.
-
 Cenkten son onlarnen yıl devam etken çetin devir halqnıh güzellikke ıntıluvını yoq etip olamadı.
 Aksine, qırımtatar ressamları, heykeltraşlarının yanı bir nesili yetişip çıqtı ki, olar özlerinin tekrarlanmaz eserlerini yaratalar.
-
-Teessüf ki, icatçılarımız bir yerde değiller, çeşit memleketlerde, çeşit şeher-
-
-%
-lerde yaşaylar.
+Teessüf ki, icatçılarımız bir yerde değiller, çeşit memleketlerde, çeşit şeherlerde yaşaylar.
 Olarnın icadı tanılsa da, çoq yıllar devamında öz toprağı, öz halqı haqqında sanat vastasınen aytmaq imkânından mahrum ediler.
 Atta bugünde bile Oırımdan tışta yaşağan bir çoq ressamlarımızmn icadı milliy medeniy ayniyetten ayrı halda şekillene.
-
 Faqat qırımtatarlar Vatanğa qaytıp başlağanlarından son qırımtatar tasviriy sanatının yanı, sonki yüz yıl içinde endi ekinci canlanuvı hususında laf yürütmek mümkün oldı.
 Söz kelimi, 1990-ncı senelernin canlanuvı 192030-ncı senelernin canlanuvından keyfiyetçe farq ete.
 Zaten, 1920-30-ncı senelerde «canlanuv» termininin özü qırımtatar medeniyeti içün şartlı bir tüs taşığanı halda (çünki medeniyetimiz milliy tamırlar, milliy sanat an aneleri esasında değil de, rus ve avropaca tesir neticesinde inkişaf ete edi), 90-ncı senelernin canlanuvı haqiqiy milliy negizge esaslanğanı haqqında ayta bilemiz.
@@ -1059,32 +998,16 @@ Bu devirde sanatta sürgünlik, avdet mevzuları üstün tura; tuvğan yurtta de
 İçtimaiy anda yüz bergen haqiqiy inqilâp bediiy ifadenin yanı vastaları doğmasına alıp kele — sahte-patetik sosialistik realizm yerine yanı, qırımtatar sanatında körülmegen yönelişler (simvolizm, kalligrafik abstraktsionizm, milliy romantizm) keleler.
 Bunınnen birlikte menfiy cehetler de yoq değil.
 Kimersi eserlernin siyasiyligi professsional seviyeni bastıra.
-
 Şimdiki zamanda zemaneviy qırımtatar sanatında bir qaç yöneliş ayırılıp tura.
 Olarnin arasında realizm yetekçi yer tuta.
 Bu yöneliş Vatanğa qaytıp kelgen ve pek çoq yıllar devamında terennüm etip olamağan tuvğan topraqnın, tuvğan adamlarnın dülberligini sinirip, sonundan om aks ettirmeğe tırışqan icatçılar içün özüne has tayanç noqtası sıfatında hizmet ete.
-İşte, bizge faqat Oırım tabiatını, Oırım adamlarını köstergen peyzaj ve portret janrları da şu yönelişnin baş janrları oldılar (ressamlar, grafiklerden S.
-Osmanov, N.
-Yaqubov, R.
-Netovkin, i.
-Şeyh-zade, i.
-Nafiyev ve diğerleri).
+İşte, bizge faqat Oırım tabiatını, Oırım adamlarını köstergen peyzaj ve portret janrları da şu yönelişnin baş janrları oldılar (ressamlar, grafiklerden S.Osmanov, N.Yaqubov, R.Netovkin, i.Şeyh-zade, i.Nafiyev ve diğerleri).
 Emiyeti cehetinden ekinci yerde turğan yöneliş — simvolizmdir.
 Bu yöneliş qırımtatar tarihinin qocaman problemleri haqqında nasiatlarsız hikâye etmek imkânını bere.
-Simvolizm yönelişinde icat etken ressamlar (ressamlardan M.
-Çurlu, R.
-Useinov, A.
-Baraş, E.
-izzetov ve diğerleri) tosat-tosat sathiylik ve dekorativizmnin üslübiy usullarından faydalanalar.
-Bum bazıda resim sızuvda professional mahirlik yetişmegeninen (meselâ, M.
-Çurlunın resimlerinde professional mahirlik yetişmese de, olarnin teren felsefiyligini kimse inkâr etip olamaz), kimerde ise bediiy ifade vastası olaraq anlı surette seçilip alınmasınen (R.
-Useinov) anlatmaq mümkün.
-Yanı, daha doğrusı, endi çoqtan unutılıp, şimdi yanıdan canlanmaqta olğan icat çeşitleri cümlesine hattatlıq sanatı (A.
-Seit-Ametov) da kire.
+Simvolizm yönelişinde icat etken ressamlar (ressamlardan M.Çurlu, R.Useinov, A.Baraş, E.izzetov ve diğerleri) tosat-tosat sathiylik ve dekorativizmnin üslübiy usullarından faydalanalar.
+Bum bazıda resim sızuvda professional mahirlik yetişmegeninen (meselâ, M.Çurlunın resimlerinde professional mahirlik yetişmese de, olarnin teren felsefiyligini kimse inkâr etip olamaz), kimerde ise bediiy ifade vastası olaraq anlı surette seçilip alınmasınen (R.Useinov) anlatmaq mümkün.
+Yanı, daha doğrusı, endi çoqtan unutılıp, şimdi yanıdan canlanmaqta olğan icat çeşitleri cümlesine hattatlıq sanatı (A.Seit-Ametov) da kire.
 Nihaet, milliy romantizm yönelişini A.
-Belâlov, E.
-Osmanova, tarihiy romantizm yönelişini yaş ressam R.
-Baliç küteler.
-
+Belâlov, E.Osmanova, tarihiy romantizm yönelişini yaş ressam R.Baliç küteler.
 Bugünde-bugün qırımtatarlar özlerinin icadiy imkânlarını kendi topularında serbest açıp kostere bileler.
 Bu hal ise — qırımtatar milliy medeniyeti muvafaqiyetnen inkişaf eteceginin reinidir.
