@@ -5,11 +5,9 @@ XIX asımın sonlarına, XXI asırnın başlarına ait qırımtatar tasviriy san
 - qırımtatar halqı Rusiyenin şimaliy rayonlarına, Orta Asiyağa, Qazahistanğa zorbalıqnen sürgün etilip, dağınıq halda yerleştirilgen devirge (1944-1989 seneleri) ait tasviriy sanat.
 - qırımtatar tasviriy sanatının tarihiy Vatanda qayta tiklenüv deviri (1989-2002 seneleri).
 Bu devir qırımtatarlarnın Qırımğa avdet oluv ve yerleşüv ceryanınen bağlıdır.
-
 ### 2.1. Sürgünlikten evelki qırımtatar tasviriy sanatı
 İslâm alemindeki diğer regionlarda olğanı kibi, Oırımmh tasviriy sanatı da XIX asımın sonuna qadar öz qanunları esasında inkişaf etip, bu qanunlar mucibi aqiqatnı realistik tarzda aks ettirmek mümkün değil edi.
 Eh evelâ monumental tasviratnen hem de orta asırlarğa ait kitap miniatürasınen taqdim olunğan tasviriy sanatta esas diqqat örnekler, çeçeklerni tasvirlev üslübine berile edi.
-
 XIX asımın sonlarında qırımtatar tasviriy sanatı inqiraz halında bulunıp, bunın sebepleri yarımadadaki umumiy tarihiy-medeniy vaziyetnen, çar hükümeti yüz yıl devamında yerli medeniyetke ve qırımtatar ehalisine nisbeten keçirgen siyasetnen bağlı edi.
 Bunınnen birlikte aynı şu Rusiyege qoşuluv sayesinde Oırımğa sanatnın avropalıca medeniy an'anelerge has yanı şekilleri, cümleden, tezya sanatı ket-kete sinip, inkişaf etip başladılar.
 Qırımtatar ziyalılarının ayrı vekilleri bediiy tahsilni Rusiyede, çetelde — Avropada aldılar.
@@ -23,9 +21,7 @@ Fişer ve E.
 Lazerininin oğurlı elinen qırımtatar sanatının «altın aşırı» adını aldılar, o yıllarnı kimerde qırımtatar renessansı deviri, de deyler.
 Bu sözlerde can bar, faqat, olarnı, her halda, tamamlamaq kerek.
 Oırımnın medeniy renessansı ancaq beş yıl devam etti (1923-1927 seneleri), amma bu yıllar edebiyat, teatr, ilim, tahsilnin gür çeçeklengen yılları ediler.
-1928 senesinin yanvar ayında ise qırımtatar ziyalılarına qarşı repressiyalarnıh birinci dalğası koterile.
-(183.
-5-nci sahife).
+1928 senesinin yanvar ayında ise qırımtatar ziyalılarına qarşı repressiyalarnıh birinci dalğası koterile.(183.5-nci sahife).
 
 Oırımtatar medeniyetinin o yıllardaki inkişafı mürekkep, zıddiyetli keçti.
 Bir taraftan, muayen ösüv körünip turğanı halda, diğer taraftan — medeniyetni gizliden yoq etmeğe tırışıldı.
