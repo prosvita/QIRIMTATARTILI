@@ -90,19 +90,12 @@ Bunınnen birlikte 20-nci senelerde neşir olunğan bir sıra kitaplarğa U.
 Bodaninskiynin illüstratsiyaları da saqlanıp qalğan.
 Meselâ, P.
 Nikolskiynin «Bağçasaray çeşmesi» kitabını Bodaninskiynin elinen yapılğan örnekler ve vinyetkalar yaraştıralar.
-Hem bu bezetmeler ressamnı an'aneviy örneklerni yahşi bilgen usta sıfatında köstereler.
-İcatçının sağlanıp qalğan süjetli eserleri cümlesine tatarlarnın turmuşı ve icadiyatı mevzusında yapılğan grafikası — «Kiyiz işlev», «Baqırcı ustahanesi» kibi resim taslaqları kireler.
-(205.
-221-nci sahife).
-
+Hem bu bezetmeler ressamnı an'aneviy örneklerni yahşi bilgen usta sıfatında köstereler.İcatçının sağlanıp qalğan süjetli eserleri cümlesine tatarlarnın turmuşı ve icadiyatı mevzusında yapılğan grafikası — «Kiyiz işlev», «Baqırcı ustahanesi» kibi resim taslaqları kireler.(205.221-nci sahife).
 Abdurefi Abiyev (1879-1938) haqqında malûmat pek az.
 1906 senesi o, Stroganov adına oquv yurtunı bitire, sonra oquvını Parijde devam ettire.
 Belli bir vaqıt devamında Rostovdaki mebel fabrikasında modelci olıp çalışa (1908-1910), 20-nci senelernin sonlarında Bağçasaray ressamlıq-sanayı tehnikumının direktorı ola, 30-ncı senelerde Aqmescit ressamlıq tehnikumında ocalıq yapa.
-Onın mına bu eserleri haqqında az-buçuq malûmat bar: «Oadınımnın portreti», «Mimarcılıq peyzajı», «Evnin interyeri».
-(248.
-13-nci sahife).
+Onın mına bu eserleri haqqında az-buçuq malûmat bar: «Oadınımnın portreti», «Mimarcılıq peyzajı», «Evnin interyeri».(248.13-nci sahife).
 Bir çoq ressamlarnın taqdiri kibi, onın taqdiri de facialı oldı — qanlı repressiyalarda saq qalğanlar az edi.
-
 Öz halqının ömürini bütün çeşitliliği ile aks ettirmeğe ıntıluv ilk nesil qırımtatar ressamlarının harakterli bir çizgisi oldı.
 Tasviratnın realistik, konkret-plastik usulı olar içün birinci yerde tura edi.
 Ressamlıgta peyzaj, portret, turmuş levhası kibi janrlar ileriley.
@@ -110,24 +103,16 @@ Mahalliy halqnın turmuşına has olğan tafsilâtlarnı aks ettirüvge ayrıca 
 Ressamlarnı insan, onın emeği, etnografik hususiyetleri, kiyimi ve turmuş vaziyetinin dülberligi meraqlandıra edi.
 O devirde yarıtılğan peyzaj resimleri yarıqnen, ava ve hayatnen aşlanğanlar.
 Bu basqıçta bütün sovet memleketinde hüküm sürgen realizm usulı qırımtatar ressamları içün nasıldır sınırlayıcı vasta olmadı — olar yalınız realistik ressamlıqmn imkânlarını öğrendiler, öz resimlerinde kendi toprağını, kendi halqını tasvirlemege, ömürni olğanı kibi aks ettirmeğe tırıştılar.
-
 Şusı meraqlı ki, XX asımın birinci yarısında Oırımda heppeyi inkişaf etken rus ressamlıq sanatı professional qırımtatar tasviratına amelde Ulunmadı.
 Deyik, Oırımda birinci olıp meydanğa ketirilgen (1923) Sevastopol Ressamlar assotsiatsiyasınnın erkânında qırımtatar icadiy ziyalılarının bir vekili bile yoq edi.
-Lâkin bunınnen birlikte şum da qayd etmeli ki, Oırımğa daimiy yaşamağa köçüp kelgen ressamlar Ya.
-P. Birzgal, N.
-S. Samokiş, yazıcı M.
-Voloşin eki medeniyetnin biri-birine yaqınlaşması içün bayağı iş yaptılar.
-(205.
-215-217-nci sahifeler).
-
+Lâkin bunınnen birlikte şum da qayd etmeli ki, Oırımğa daimiy yaşamağa köçüp kelgen ressamlar Ya.P. Birzgal, N.S. Samokiş, yazıcı M.
+Voloşin eki medeniyetnin biri-birine yaqınlaşması içün bayağı iş yaptılar.(205.215-217-nci sahifeler).
 Yuqarıda adları anılğan ustalar qırımtatar ressamlarının birinci dalğasını teşkil eteler.
 Şubhesiz, asılında olar çoqça ediler.
 Meselâ, elimizge daha yaqın keçmişte tüşken «Terciman» gazetasının toplamında kezlevli Ğafar Şemsi Alâdinovnın adını rastketirdik.
 Gazetanın 1914 senesi iyün 10-da çıqqan sanında bu ressam haqqında söz yürütilip, o 1914 senesi Odessadaki ressamlıq mektebini bitirgeni ve elde ettiği muvafaqiyetleri sayesinde oquvını devam etttirmek içün Moskvağa yollanılğanı hususında yazıla.
-
 Oırımtatar ressamlarının nevbetteki gruppasını içtimaiy ve professional cehetten artıq başqa olğan icatçılar teşkil eteler.
-Bu adamlar haqqında biz qırımlı sanatşınas ve muzey hadimi A.
-Polkanovmn 1935 senesi «Literatura i iskusstvo Krıma» mecmuasında dere ettirgen maqalelerinden oqup bildik.
+Bu adamlar haqqında biz qırımlı sanatşınas ve muzey hadimi A.Polkanovmn 1935 senesi «Literatura i iskusstvo Krıma» mecmuasında dere ettirgen maqalelerinden oqup bildik.
 Mezkûr maqaleler 1930-ncı senelerde sovet Oırımının medeniy ömürinde olıp keçken denişmelerge qıymet kesmek imkânını bereler.
 Birincide, çetelde tahsil alğan ilk milliy ressamlar haqqında hiç bir söz aytılmay.
 A. Polkanov böyle yaza: «İnqilâptan evel Oırımda milliy ressamlardan bir adam bile yoq edi...
