@@ -175,8 +175,7 @@ Bir baqıştan, bu — kurort ömürinden bir levhadır, demek mümkün, asılı
 Belli ki, böyle cemiyet qurulacağını «halqlar atası» Stalin işandırğan edi.
 İşte, resimnin sağ köşesinde Stalinnin büyükten-büyük portreti qoyulmasının sebebi de şundadır.
 Ne ise de resimnin tasviriy değerlikleri seyircide büyük meraq doğuralar: «Tatar toyu»nda bizni meftün etken ışıq ve kölge oyum bu eserde de bar küçnen aks oluna: küneş nurları, sanki dersin, resimni delip keçeler, sıra kemerlernin ince işlengenini, vaqia olıp keçeyatqan mimarcılıq konstruktsiyasımiî yengilligini qayd eteler.
-Umumen, A.
-Yarmuhamedovnın resimleri onın plener sanatı sahasında büyük usta olğanını köstereler.
+Umumen, A.Yarmuhamedovnın resimleri onın plener sanatı sahasında büyük usta olğanını köstereler.
 Ressamnın belli eserleri cümlesine «Baynın bostanında», «Dağlı çobannın oyum», «Mamay taş ocaqlarında işçilernin atılıp öldürilüvi» kibi resimleri kireler.(248.226-ncı sahife).
 1936 senesinden son hiç bir menbada ressamnın adı ahılmay.
 XX asımın birinci yarısında yaşap, icat etken nice-nice ressamlar Oırım medeniyetinin tarihından silinip taşlandılar!
@@ -188,28 +187,20 @@ Meşkovmn studiyasında aldığı temelli professional bilgilerinden delâlet be
 Ressamnın hayatı 1942 senesi üzüldi — om faşistler atıp oldürdiler.
 Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunın mezunı Abdulla Lâtif-zadenin (1888-1955) ömüri ve icadiy faaliyeti haqqında da malûmat pek az.
 O, 1921-1924 seneleri devamında Bahçasaray muzeyinih Kokközdeki filialında (Yusupov sarayı) müfettiş (ya da mudir) (248.
-101-nci sahife) olıp çalışqan, sonra mektepte sızuv ve resim yapuv boyunca ders bergen.
-(248.130-ncı sahife).
+101-nci sahife) olıp çalışqan, sonra mektepte sızuv ve resim yapuv boyunca ders bergen.(248.130-ncı sahife).
 1930 senesi sovetlerge qarşı faaliyet alıp baruvda qabaatlanıp, Oırımdan sürgün etilgen, ömürinin 14 yılını Stalin lagerlerinde keçirgen.
 Organlar om yaqalağan vaqıtta pek çoq resimlerini, eskizlerini müsadere etkenler ki, o eserlernin taqdiri şimdi belli değil.
 Onın icadı haqqında biz tek on resimnin qara-beyaz fotoreproduktsiyalarına baqıp qıymet kese bilemiz.
 Ressamnın doğmuşlarında saqlanıp qalğan bu fotoreproduktsiyalarda milliy kiyimler kiygen qızlar, şeher peyzajı, turmuş eşyaları ve qırımtatarlarnıh milliy urbaları tasvirlengen.
-Ressamnın «Keçmişnin cirençli tipleri» dep adlandırılğan grafikalı satirik portretleri de pek meraqlıdır.
-(248.
-101-nci sahife).
+Ressamnın «Keçmişnin cirençli tipleri» dep adlandırılğan grafikalı satirik portretleri de pek meraqlıdır.(248.101-nci sahife).
 Lâtif-zade ömürinin sonum Harkov oblastında (Lozovaya stantsiyası) keçirdi, anda saqatlar şirketinde çalıştı.
-A. Abiyevnin torum olğan Muhtar Şerfedinov (1908-1941) Bağçasaraydaki ressamlıq-sanayı mektebini alâ işaretlemen bitirip, Moskva mimarcılıq institutına oqumağa kirdi ve Moskvada da yaşamağa qaldı.
-(248.
-213nci sahife).
+A. Abiyevnin torum olğan Muhtar Şerfedinov (1908-1941) Bağçasaraydaki ressamlıq-sanayı mektebini alâ işaretlemen bitirip, Moskva mimarcılıq institutına oqumağa kirdi ve Moskvada da yaşamağa qaldı.(248.213nci sahife).
 Saqlanıp qalğan malümatlarğa köre, Şerfedinov acayip resimci sıfatında cemaat binalarının leyhaları üzerinde çalışqan.
 Muhtar Şerfedinov Moskvadaki Gorkiy adına medeniyet ve istrahat bağçasmıh leyhasını yapqan muelliflernin birisi olaraq tanıldı.
-
 Oırımnın 1930-nci senelerdeki medeniy ömürinde meşhur ukrain ressamı, tasviratta uruş janrımh acayip ustası sayılğan akademik Nikolay Semyönoviç Samokişnin studiyası hususan büyük röl oynadı.
-Belli ki, bu studiya sonundan Simferopol ressamlıq tehnikumına çevirilgen edi, şimdi ise N.
-S. Samokiş adına ressamlıq oquv yurtu, dep adlandırıla.
+Belli ki, bu studiya sonundan Simferopol ressamlıq tehnikumına çevirilgen edi, şimdi ise N.S. Samokiş adına ressamlıq oquv yurtu, dep adlandırıla.
 Cenkten evel icat etken qırımtatar ressamlarının ekseryieti şu studiyada terbiyelendiler.
-Aqmescitte 1918 senesinden yaşağan N.
-S. Samokiş qırımtatar halqını sevip-saya edi, şu sebepten de halqnıh facialı taqdiri onı lâqayd qaldırmay edi.
+Aqmescitte 1918 senesinden yaşağan N.S. Samokiş qırımtatar halqını sevip-saya edi, şu sebepten de halqnıh facialı taqdiri onı lâqayd qaldırmay edi.
 Oırımtatar halqına münasebetini o özünin bir sıra tarihiy eserlerinde («Oırımda 1921-1922 senelerinin açılığı») aks ettirdi.
 Meselâ, «Oırımtatarlarnın hicretke ketüvi» (1934) adlı resimde tatarlarnın tuvğan topraqnen sağlıqlaşuvlarımn yanığı tasvirlene.
 Resim Simferopoldeki bediiy muzeyde nümayiş etilgen edi.
@@ -220,7 +211,6 @@ Tatar adamı itaat ile başını töben alğan (öz toprağında), rus ise özü
 Onın ayaqdaşı — körkem urbalar kiygen bir hanım lornetini közüne yaqın tutıp, ortalıqtaki qalabalıqnı meraqnen seyir etip tura.
 Ressam qırımtatar halqinin tarihındaki eh facialı daqqalamıh birisini tasvirlegen: tatarlar öz yurtunı terk etkenleri etken, daha nice-nice adamlar yolda helâk oldılar.
 Oara deniz yüzlernen, binlernen adamlarnın cesedlerini Oırım yalısına çıqarıp taşlağan edi.
-
 Anadan doğma istidatlı, pek büyük ümütler bağışlağan Şevket Qadrizade (1908 senesi Tavdayır köyünde doğğanı tahmin etile) körümü ressam ola bilecek edi.
 Kerçek, o — acayip resimler yapqan qırımtatar klassik şairi Abdurahman Oadri-zadenin oğludır.
 Şevket hususan peyzajlarnı büyük ustalıqnen yapa edi.
@@ -228,9 +218,7 @@ Rus klassik ressamlarının eserlerinden kopiyalarnı ise yüksek tehnikiy seviy
 Teessüf ki, o pek az yaşadı.
 1931 senesi Oızıl Orduda hizmet eter eken, Çuguev şeherinin civarlarında ötkerilgen talim vaqtında helâk oldı.
 Bugünde ise Şevketnin torum — Simferopol ressamlıq oquv yurtunıh talebesi Zubeir Oadri-zadeden yahşi ressam çıqacağına ümüt bar.
-
-Ressam, qırımtatar teatrinin solisti Memet Abselâmov (1911-1988) Aqmescitte N.
-S. Samokişnin studiyasını bitirdi (1934).
+Ressam, qırımtatar teatrinin solisti Memet Abselâmov (1911-1988) Aqmescitte N.S. Samokişnin studiyasını bitirdi (1934).
 İstidatlı ressam sıfatında oquvını devam ettirmek içün Leningraddaki Sanat institutına yollanıl dı, lâkin bu tekliften vazgeçip, Oırımda qaldı.
 M. Abselâmovnın ЗО-ncı senelerge ait resimleri Oırımda olıp keçken sosialistik denişmelernen sıqı bağlıdır («Üsküt köyündeki tatarlarnın mamür yaşayışı», 1935; «işçiler köşesi», 1935).
 1944 senesi M.
