@@ -408,17 +408,13 @@ Oırımtatar ressamlarının ortaqlıq ve şahsiy sergileri Moskvada, Peterburgd
 Meselâ, 1994 senesi Duysburg şeherinde (Almaniya) «Oırımtatar sanatı.
 Avropağa alıp barğan tikenli yol» serlevhalı sergi keçirildi, sonra onın esas qısımı Kölndeki Hungen qasrında nümayiş etildi.
 Hal-azırda qırımtatar ressamları öz eserlerini Oırımda, Ukrainada, Türkiyede, Almaniyada, Poloniyada, Romaniya, Rusiye ve Ozbekistanda faal nümayiş eteler.
-
 Bugünde-bugün qırımtatar tasviriy sanatı ğayet mürekkep bir devimi yaşap keçirmekte.
 Hem bunın sebebi ekseri ressamlarnın turmuş şaraitleri osal olğanında değil.
 Mesele şunda ki, onlarnen yıllar devam etken repressiyalar, taqipler, indemeyüvden sofi dünyada qırımtatarlarnın medeniyetine nisbeten meraq misilsiz derecede arttı, neticede bediiy eserlerni seçip aluv ve tenqid etüv seviyesi eksile.
 Sergilernin teşkilâtçıları kimerde ekspozitsiyalarnı ustalıq ve icracılıq seviyesi ile biri-birinden sezilirli derecede farq etken resimlerden tertip eteler, özlerince icadiy teşebbüske qoltutqan kibi olalar.
 Halbu ise, bunınnen zemaneviy qırımtatar tasviriy sanatının inkişaf tendentsiyalarına yanlış qıymet kesmek mümkün.
 Demek, zemaneviy qırımtatar ressamlarının icadı talil olunır eken, meselege olduqça ciddiy, obyektiv yanaşmaq zarur.
-
-2.3.1.
-Ressamlıq
-
+2.3.1.Ressamlıq
 Yuqarıda qayd etkenimiz kibi, ressamlıq, grafika, heykelcilik sahalarında çalışqan zemaneviy qırımtatar ustalarının ekseryieti bediiy tahsilni Özbekistanda aldılar.
 Oırımnıh yetekçi ressamlarından birisi Ramazan Useinov — işte, olarnın cumlesindendir.
 Ramazan Useinov 1949 senesi Samarqand şeherinde doğdı.
@@ -427,34 +423,24 @@ Benkov adına cumhuriyet ressamla oquv yurtum bitirgen son Samarqanddaki Bediiy 
 1980-nci yıllardan itibaren cumhuriyet, bütünittifaq, halqara sergilerde faal iştirak etip başladı.
 1988 senesi SSSR Ressamlar birliğine aza oldı, özüni ta Özbekistanda yaşap icat ekende tanıttı.
 1974 senesi ressam ilk kere Oırımğa kelip kete ve şundan sofi Vatanğa qaytmaq fikiri om terk etmey.
-R. Useinov Qırımda 1992 senesinden berli yaşay, lâkin onın avdeti biraz evelce, yani o,
-
-O
-1990 senesi Aqmescitte ötkerilgen qırımtatar ressamlarının birinci sergisinde iştirak etken vaqıtta olıp keçti, demek mümkün.
-
+R. Useinov Qırımda 1992 senesinden berli yaşay, lâkin onın avdeti biraz evelce, yani o, O 1990 senesi Aqmescitte ötkerilgen qırımtatar ressamlarının birinci sergisinde iştirak etken vaqıtta olıp keçti, demek mümkün.
 Useinovnın Oırımda yaratqan eserleri Ozbekistanda yaratqan eserlerinden bayağı farq eteler.
 Özbekistan devirine ait resimler an'aneviy sosialistik realizm üslübinde yapılğam halda, Qırım resimleri — nazik rüyalar alemidir ki, olarda ressamnın kendi tamırları haqqında soy-soplardan eşittigi hikâyeler, mevcudatm şahsen idrak etüv duyguları çatışqanlar.
 Ressamğa yanı üslüpni araştırmaq içün siltemni Oırımnın özü berdi.
 Her hangi icatçını lâqayd qaldırmaycaq Qırım manzaraları ressamm o derece meftün ettiler ki, o eski üslüpte artıq çalışıp olamadı.
 Useinovnın resimlerinde cilvekâr qaramanlar, hayvanlar, predmetler guya oynaq sağın kibi peyda olalar.
 Olar aynı vaqıtta hem konkret, hem tanış, hem şartlılar.
-İşte, «Avelev» (1980), «Parçalanğan peyzaj» (1988), «Adiy bir kün» (1988), «Qalabalıq» (1988), «Hırsızlav» (1988), «Beyaz sabah» (1989), «Kezinti» (1990), «Altın kukukquş» (1990), «Köçebe quşlar» (1990), «Doğuv» (1990), «Ay-Serez»
-
-(1994), «Yanı alanlıq» (1996), «Ouşlarnın köçüvi» (1996) kibi eserler buna misal ola bileler.
-
-R.
-Useinovnın peyzaj, natürmort, janr kompozitsiyalarında mizacğa bivasta tabilik körünmey.
+İşte, «Avelev» (1980), «Parçalanğan peyzaj» (1988), «Adiy bir kün» (1988), «Qalabalıq» (1988), «Hırsızlav» (1988), «Beyaz sabah» (1989), «Kezinti» (1990), «Altın kukukquş» (1990), «Köçebe quşlar» (1990), «Doğuv» (1990), «Ay-Serez»(1994), «Yanı alanlıq» (1996), «Ouşlarnın köçüvi» (1996) kibi eserler buna misal ola bileler.
+R.Useinovnın peyzaj, natürmort, janr kompozitsiyalarında mizacğa bivasta tabilik körünmey.
 Mübalâğa resimi ustağa kompozitsiyalar yaratmaq içün başlanğıç noqta olaraq hizmet etken real nesnelerni deniştire.
 Bu kompozitsiyalarda ressamnın muayen mantıqiy sistemağa birleştirdiği hucur predmet ve şekiller yanı rölde aks olunıp, temsiliy mana taşıp başlaylar, resimni felsefiy aenklernen tolduralar.
 Resimlernin fakturası da adden tıştır; körüner-körünmez inci renkine çalğan bitaraf zeminnin tüm-tüz sathı figuralar ve tafsillernin qabarıq, duyumlı yüzünen çatışa.
 Resimlernin yımşaq, cıllı koloritini bazıda çoq renkli şiddetli boyalar deniştirip, bu şey halq toqumacılıq sanatında belli olğan parça tehnikasını andıra.
-
 Useinovnın resimlerinde tasvirlengen alem şefqatsız içtimaiy sarsıntılardan uzaq tura.
 Onın dünyası asayişli ve tınçtır.
 Baş qaramanlar — köylülersanki dersin, biri-birlerinen aşıqmadan suhbetleşe, özlerinin asırlarca pekingen qanunları esasında yaşaylar.
 Ressamnın Oırımda yapqan resimlerini yekâne bir mevzu — Vatan mevzusı birleştire.
 Onın deyerlik her bir resiminde rastkelingen qutuçıq kibi evçikler ise Vatan temsili olıp, bu evçikler fonunda kündelik hayat levhaları aks oluna.
-
 Ressam qırımtatar halqının tarihında olıp keçken facialı vaqialarğa müracaat eter eken, olarnı boğaz yırtuvsız, yapma heyecansız ve tantimsiz tasvirley («Kervan», 1995; «Seyyahlar», 1996).
 «Kervan» adlı resimde sürgünlik mevzusı felsefiy tarzda yanğıray.
 Resimde biz eşeğini yeteklep ketken ğarip seyyahm, eşek üstüne yuklengen kene de şu qutuçıq-evçikler obasını köremiz — işte, «öz mulkümni özümnen alıp yürem».
@@ -462,35 +448,23 @@ Aynı bu usul «Avdet» adlı eserde de qullanıla — eşek minip keteyatqan qa
 Eserlernin mecaziyligi ressamğa sürgünlik ve avdet mevzularını daha terence, daha toluca açıp köstermek imkânını bere.
 Useinovnın resimlerinde pek çoq rastkelingen ve bitmez-tükenmez köçüvler temsili sayılğan kopçek ve avelegen quşlar motivinin peyda olması da tevekkel değil.
 Ressam özünin sonki yıllarda yapqan eserlerinde barlıq, ruh kibi anlamlar hususında fikir yürsete («Menim dünyam», 1998; «Hüzünlik», 1999).
-
 Ramazan Useinovnı tek Oırımda değil, tış ülkelerde de bileler.
 Hindistanda, Türkiyede, Almaniyada, Rusiye ve Ukraina ötkerilgen sergiler — bumn delilidir.
-
 Mamut Çurlunın ressamlıq üslübi 80-nci senelernin sonlarında şekillendi.
 O yıllarnın siyasiy sarsıntıları — Ferğana vaqiaları, bütün memlekette olıp keçken mitingler, TASSnın 1987 senesi iyül 23-te yapılğan ve qırımtatarlarnın taqdirini deniştirgen bildirüvi — ressamnın dünyabaqışlarına tesir etmey qalmadı.
 İşte, ressamnın ekspressiv, olduqça qısqa ve açıq-aydın üslübi de şundan kelip çıqadır.
 Mamut Çurlu mizacdan şiltem alaraq, om tam manada köçürip almay da, şekilnin idrak etilmesini keskinleştirerek, alâmetnin ifadeliligini küçelte.
 Halq ameliy sanatınen meraqlanuv ressamının sızuv üslübine de tesir etti — onın resimlerinde geometrik şekiller, renklernin timsalligi üstün turalar.
-
-1989 senesi M.
-Çurlunın ömürinde hâl etici yıl oldı, o Oırımğa köçüp keldi.
+1989 senesi M.Çurlunın ömürinde hâl etici yıl oldı, o Oırımğa köçüp keldi.
 Onın o devirde yaratqan eserlerinin esas mundericesini facialı tüşkünlik, viranelik, bir zamanlarda gür çeçeklengen medeniyetnih ğayıp olğam teşkil ettiler («Sonki minare», 1989; «Ebediyenmi?», 1989; Bağçasaraydaki soqaq», 1989; «Zuur etken reallikni hesapqa alğan peyzaj», 1990).
 Ressam adiy, bir baqıştan, olduqça sıqılğan motivlerge özünin bütün heyecanlı duyğularının terenligini bağışlay.
-
-M.
-Çurlu kolemli ve ifadeli temsillerden öz işlerinde defalarca faydalanıp, bu eserlerni özüne has türkümlerge birleştire.
+M.Çurlu kolemli ve ifadeli temsillerden öz işlerinde defalarca faydalanıp, bu eserlerni özüne has türkümlerge birleştire.
 Öz halqından ayırılğan Oırım toprağına «Oızıltaşnın çarmuqlanğan bağları» (1990), «Sürgünlik» (1990), «Avdet» (1990) kibi peyzaj resimleri bağışlanğandır.
 Aynı şu fikir ve felsefiy umumiyleştirmelernen «Çeltek torba» (1992), «Eski mıhlar» (1992), «Ösüp çıqqan soğan» (1993), «Fal» (1995) kibi natürmortlar da sinirilgen.
 M. Çurlu portretler üzerinde çalışqanda insan yüzünin real tasvirinden qaçınaraq, ancaq siluet vastası ile, harakterli hareket yardımınen psihologik cehetten tekmil obrazlar yarata — «Oızımnın portreti» (1992), «Ana ve qız» (1992).
-
 90-ncı senelernin ekinci yarısından başlap ressamnın iş usulı denişe.
 Barlıqnı kesen-kes itiraf etüv yerine Yaratuv mevzuları kele.
-Avdet ve öz toprağında yaşav quvançı, Oırımnın tabiatından ayretlenüv, qırımtatar medeniyeti qaytabaştan ayaqqa turacağına işanç ressamnın sızuv üslübini de deniştireler, koloritni daha yımşaqça, daha nefisçe eteler.
-«Armut dalı»
-
-(1995), «Sudaq (qale)» (1995), «Özenbaş qayaları» (1998), «Ouru Özen»
-
-(1998), «Oızıl Ooba yolu» (1998), «Dehizge alıp barğan yol» (1998) kibi eserler, işte, şöyle tarzda yapılğanlar.
+Avdet ve öz toprağında yaşav quvançı, Oırımnın tabiatından ayretlenüv, qırımtatar medeniyeti qaytabaştan ayaqqa turacağına işanç ressamnın sızuv üslübini de deniştireler, koloritni daha yımşaqça, daha nefisçe eteler.«Armut dalı»(1995), «Sudaq (qale)» (1995), «Özenbaş qayaları» (1998), «Ouru Özen»(1998), «Oızıl Ooba yolu» (1998), «Dehizge alıp barğan yol» (1998) kibi eserler, işte, şöyle tarzda yapılğanlar.
 
 Ressam özünin sonki yıllarda yaratqan resimlerinde halq sanatına (hususan toqumacılıq sanatına) has olğan an'aneviy tamğalardan ve nazarlıq emiyetini taşığan temsillerden faydalana.
 Bu esnada onın «Çöl» (1997), «Sımalar» (1997), «Nazarlıq» (1997), «Oorçalayıcı hareketler» (1997) kibi resimlerini anmalı.
