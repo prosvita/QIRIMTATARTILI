@@ -117,49 +117,27 @@ Mezkûr maqaleler 1930-ncı senelerde sovet Oırımının medeniy ömürinde ol�
 Birincide, çetelde tahsil alğan ilk milliy ressamlar haqqında hiç bir söz aytılmay.
 A. Polkanov böyle yaza: «İnqilâptan evel Oırımda milliy ressamlardan bir adam bile yoq edi...
 qırımtatarlarğa ressamlıq sanatına qatılmaq imkânını tek sovet hakimiyeti berdi, bu — stalince-lenince milliy siyasetnin neticelerinden biridir».
-(150.
-145-nci sahife).
+(150.145-nci sahife).
 Ekincide, ressamlarnın içtimaiy erkânı denişe — olarnin ekseryieti işçi ve kolhozcılar arasından çıqma, mektep körmegen icatçılar ediler (150.
 144-nci sahife); nihaet, resimlernin mevzuları da denişe: endi mevzu «sovet barlığının ve inqilâbiy kureşnin bütün taraflarını» qavrap ala, «istihsal ve tarla udarniklerinin portretleri»ni taqdim ete, «sosialist qurucılıq»nın mevzularını açıp kostere.
-(150.
-145-nci sahife).
+(150.145-nci sahife).
 Zaten, qırımtatar ustalarının özleri her halda etnografik tüsteki eserlerge meyil bereler.
 İşte, eki dalğağa ait qırımtatar ressamlarının içtimaiy kelip çıquvları türlü-türlü olğanına baqmadan, olarnı bir şey — icat etüvge doğrultılğan tükenmez ıntıluv birleştire.
 Oırımda o devirde ötkerilgen bir sıra bediiy sergiler (Kefe, 1927; Aqmescit, 1922, 1925, 1927, 1930, 1940 seneleri) kosterdiler ki, qırımtatar ustaları Oırımmh tasviriy sanatında yetekçi yer almaları, özlerinin aydın ve özgün istidatları ile tenqidçilernin diqqatlarını celp etmeleri içün imkân bar edi.
-(150.
-144-150-nci sahifeler).
-Meselâ, Oırımda sovet hakimiyeti tasdiqlanmasının 15 yıllığına bağışlanğan sergide artıq 21 qırımtatar ressamı iştirak etti (qiyas içün: ruslardan 43, ukrainlerden 8, yehudiylerden 11, diğer milletlerden birer adam), hem «tatar ressamları istidat cehetinden sergi iştirakçileri arasında yetekçi yerlerde bulunalar».
-(150.
-145-nci sahife).
-Bu ressamlar arasında serginin birinci mükâfatını qazanğan A.
-Ustayev, A.
-Yarmuhamedov, M.
-Abselâmov (ekinci mükâfat), Halilev, Asanov, Yağyayev, halq ustaları A.
-Kalafatov, A.
-Efendiyeva, F.
-Aliyeva, A.
-Mambetova ve diğerleri bar ediler.
+(150.144-150-nci sahifeler).
+Meselâ, Oırımda sovet hakimiyeti tasdiqlanmasının 15 yıllığına bağışlanğan sergide artıq 21 qırımtatar ressamı iştirak etti (qiyas içün: ruslardan 43, ukrainlerden 8, yehudiylerden 11, diğer milletlerden birer adam), hem «tatar ressamları istidat cehetinden sergi iştirakçileri arasında yetekçi yerlerde bulunalar».(150.145-nci sahife).
+Bu ressamlar arasında serginin birinci mükâfatını qazanğan A.Ustayev, A.Yarmuhamedov, M.Abselâmov (ekinci mükâfat), Halilev, Asanov, Yağyayev, halq ustaları A.Kalafatov, A.Efendiyeva, F.Aliyeva, A.Mambetova ve diğerleri bar ediler.
 Sergige hudayinabit (kendi kendine resim ögrengen) ressamlar da qatıldılar.
-Özünin deniz peyzajlarınen iştirak etken sobacı Azizov-şöyle istidatlı ressamlarnıh birisidir.
-(150.
-145-146-ncı sahifeler).
-
+Özünin deniz peyzajlarınen iştirak etken sobacı Azizov-şöyle istidatlı ressamlarnıh birisidir.(150.145-146-ncı sahifeler).
 Amet Ustayev (1909-1990) Tuaq köyünde doğdı, Bağçasaraydaki ameliy sanat boyunca tehnikumnı bitirdi (1926-1929), lâkin onın meraqları bayağı kenişçe edi.
 O portretler, peyzajlar da yapa edi.
 Ressamnın erte eserlerinden birisi — «Bağçasaray çeşmesi» resimi janr cehetinden turmuş levhası olıp, onda çeşmeden suv alayatqan yaş qızlar tasvirlengen.
-Oquvnı bitirgen Ustayev taqsimlev boyunca Oazahistanğa tüşe, anda kilim toquv fabrikasında ressam olıp çalışa, qazah örneklerini ögrene, süjetli ve örnekli kilimlernin eskizlerini yarata (onın eskizi esasında Leninnin portreti olğan kilim toqula — 205.
-228-nci sahife).
+Oquvnı bitirgen Ustayev taqsimlev boyunca Oazahistanğa tüşe, anda kilim toquv fabrikasında ressam olıp çalışa, qazah örneklerini ögrene, süjetli ve örnekli kilimlernin eskizlerini yarata (onın eskizi esasında Leninnin portreti olğan kilim toqula — 205.228-nci sahife).
 1934 senesi tuvğan koyune qaytıp kelgen Amet Ustayev esasen bezetüvnen oğraşa — tükânlar, qaveler, klublar içün ad tahtaları yapa, aynı vaqıtta qalem resimleri, koydeşlernin portrelerinden ibaret seriyalar yarata.
-(88.
-54-nci sahife).
-A. Ustayevni Vrubelnen qiyaslağan A.
-Polkanovnın fikirince, «Ustayev — aqransız istidat» edi.
-(150.
-146ncı sahife).
+(88.54-nci sahife).
+A. Ustayevni Vrubelnen qiyaslağan A.Polkanovnın fikirince, «Ustayev — aqransız istidat» edi.(150.146ncı sahife).
 Ustayevnin eh değerli eserlerinden birisi — «Oırğıncı aq gvardiyacılarnın tatar köyünden quvuluvı» adlı resimine belli ressam N.
-S. Samokişnin yüksek qıymet keskini haqqında malûmat bar (bu eser A.
-Polkanovnın yuqarıda anılğan maqalesinde qayd etile).
-
+S. Samokişnin yüksek qıymet keskini haqqında malûmat bar (bu eser A.Polkanovnın yuqarıda anılğan maqalesinde qayd etile).
 1935 senesi Ustayev Aqmescitke avuşa, mında Oırım oblast drama teatrinde dekorcı olıp çalışa, Pionerler evindeki resim studiyasına yolbaşçılıq yapa, Oırım Ressamlar birliğinin Teşkiliy komitetini meydanğa ketirüvde iştirak ete.
 O devir kün tertibinde turğan mevzular boyunca çoqtan çoq siyasiy plakatlar, peyzajlar, naturadan resim taslaqları, portretler yapa.
 Ustayevnin sürgünlikten evel yapıp yetiştirgen salmaqlı eserlerinden birisi — «Halq kedayı Canğazı Şerfedinnin portreti»dir (1939).
@@ -168,16 +146,11 @@ Sonki vaqıtqa qadar mezkûr esernin tek «Tvorçestvo» mecmuasında basılğan
 Lâkin şimdi elimizde portretnih yağnen ve qalemnen yapılğan eki asıl nüshası buluna.
 Portret realistik ressamlıq an'aneleri esasında keyfiyetti, professional yapılğan.
 Re simde biz aq saqailı, maniayım teren bürüşikler örtken, çatışıq qaşları astındaki közlerinde mazunlıq, yaqınlaşayatqan afatnı sezüv duyğusı aks olunğan qartnın belgece tasvirini köremiz.
-Şusı meraqlı ki, qırımlı ressamlar portret janrında çalışaqoymay ediler.
-(151.
-19-nci sahife).
+Şusı meraqlı ki, qırımlı ressamlar portret janrında çalışaqoymay ediler.(151.19-nci sahife).
 Demek, bundan ötrü Ustayevnın mezkûr eseri daha qıymetlice ola.
-Cenkten evel yaratılğan «Küneş nurlarındaki emen» adlı etüdni usta N.
-S. Samokişke hediye etken edi.
+Cenkten evel yaratılğan «Küneş nurlarındaki emen» adlı etüdni usta N.S. Samokişke hediye etken edi.
 Ressamnın 1950-nci senelernin sonlarında yaratılğan akvarel resimleri endi Özbekistan ve Oazahistan devirlerine aittir.
-«Sabah», «Tandaki şeher», «Pialadaki nar» kibi eserler şimdi Aqmescitteki qırımtatar sanatı muzeyinde saqlanalar.
-(248.
-187-nci sahife).
+«Sabah», «Tandaki şeher», «Pialadaki nar» kibi eserler şimdi Aqmescitteki qırımtatar sanatı muzeyinde saqlanalar.(248.187-nci sahife).
 Daha yaqında belli olğanına köre, Amet Ustayevnin bir qaç eseri, cümleden, «Dağ özeni», «Oırım peyzajı», «Dağdaki yol» (1940) adlı resimler Aqmescit bediiy muzeyinin fondlarında çoq yıllar devamında saqlı turğan eken.
 Amet Ustayev 1990 senesi Qazahistannıri Çimkent şeherinde vefat etti.
 
