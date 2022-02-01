@@ -465,15 +465,11 @@ M. Çurlu portretler üzerinde çalışqanda insan yüzünin real tasvirinden qa
 90-ncı senelernin ekinci yarısından başlap ressamnın iş usulı denişe.
 Barlıqnı kesen-kes itiraf etüv yerine Yaratuv mevzuları kele.
 Avdet ve öz toprağında yaşav quvançı, Oırımnın tabiatından ayretlenüv, qırımtatar medeniyeti qaytabaştan ayaqqa turacağına işanç ressamnın sızuv üslübini de deniştireler, koloritni daha yımşaqça, daha nefisçe eteler.«Armut dalı»(1995), «Sudaq (qale)» (1995), «Özenbaş qayaları» (1998), «Ouru Özen»(1998), «Oızıl Ooba yolu» (1998), «Dehizge alıp barğan yol» (1998) kibi eserler, işte, şöyle tarzda yapılğanlar.
-
 Ressam özünin sonki yıllarda yaratqan resimlerinde halq sanatına (hususan toqumacılıq sanatına) has olğan an'aneviy tamğalardan ve nazarlıq emiyetini taşığan temsillerden faydalana.
 Bu esnada onın «Çöl» (1997), «Sımalar» (1997), «Nazarlıq» (1997), «Oorçalayıcı hareketler» (1997) kibi resimlerini anmalı.
 Bular manzaralı kompozitsiyalar olıp, olarda işaretli piktogrammalarğa, tamğa timsallerine hem de geometrik örnekli parça tehnikasına has an'aneler biriktirilgen.
 M. Çurlu arhetip şekillernin — romblar, üçköşelikler — çeşit kombinatsiyalarından faydalanaraq, renk hem de ritmika cehetinden uyğun kompozitsiyalar yarata.
-
-Ressam M.
-Çurlunın icat yılları Taşkentte ve Moskvada, Sankt-Peterburgda, Kiyevde, Aqmescitte, Almaniyanın Köln, Duysburg, Haydelberg kibi şeherlerinde ötkerilgen şahsiy sergilerinde aks olunğandır.
-
+Ressam M.Çurlunın icat yılları Taşkentte ve Moskvada, Sankt-Peterburgda, Kiyevde, Aqmescitte, Almaniyanın Köln, Duysburg, Haydelberg kibi şeherlerinde ötkerilgen şahsiy sergilerinde aks olunğandır.
 Nuri Yaqubov (1963 senesi doğdı) — qırımtatar ressamlığındaki realistik yöneliş vekilidir.
 O, Taşkent oblastının Yanıyol şeherinde doğdı, Taşkentteki P.
 Benkov adına cumhuriyet ressamlıq oquv yurtunı, sonra Moskvadaki V.
@@ -487,31 +483,24 @@ Resimlerdeki ışıq terek yapraqlarının çilterinden keçip, yerde ve binalar
 Yaqubovnın peyzaj resimlerinde bir baqıştan adiy olıp körüngen, sahte debdebeden mahrum olğan şamatasız yeşil soqaçıqlar ve cıynaqlı azbarçıqlar asayiş ve sükünet keyfini bağışlaylar.
 Qırımnın her bir köşesi, olsun tınç koy soqağı, olsun orta asır binalarının eybetli divarları, ressamm sınırsız meftün ete.
 Onın Oırımı — sarsıntı ve belâlarsız Oırımdır, yerdeki cennet haqqında hayallarnı mucessemleştirgen bir diyardır.
-
-N.
-Yaqubov tasviriy sanattaki şarq nazmiyetini canlandırmaq içün miniatüra ressamlığının an'anelerini icadiy idrak etip, olarnı bugünki künge keliştirmek kerek, dep saya, işte, onın eserlerindeki sızıqlarnıri zarifliği, şekillernin nefaseti şundan kelip çıqadır.
+N.Yaqubov tasviriy sanattaki şarq nazmiyetini canlandırmaq içün miniatüra ressamlığının an'anelerini icadiy idrak etip, olarnı bugünki künge keliştirmek kerek, dep saya, işte, onın eserlerindeki sızıqlarnıri zarifliği, şekillernin nefaseti şundan kelip çıqadır.
 Fikirimizni isbatlamaq içün «Çeşme yanındaki qız» (1995), «Bağçasaray» (1991) kibi resimlerni ketire bilemiz.
 Şarq miniatüralarında yapılğanı kibi, N.
 Yaqubov öz eserlerinin süetlerindeki elementlerni tantiminen qayd ete, çünki bu elementler — qızlarnıri kiyimleri, ilvanları, olarnın suv aldıqları baqır savutları, adeti üzre, çoqraq taşında yapıla turğan oymalı örnekler, çilterli pencereler — an'aneviy şarq medeniyetine aittirler.
 Ressam, miniatüra an'anelerini devam ettirerek, meyillikni saf lokal renklerge bere.
 
-N.
-Yaqubovnın sonki yıllarda yaratqan eserleri cümlesine Gurzufqa bağışlanğan resimler türkümi kire — «Gurzufta bahar manzarası», «Gurzuf soqağı», «Özençik», «Gurzuf.
+N.Yaqubovnın sonki yıllarda yaratqan eserleri cümlesine Gurzufqa bağışlanğan resimler türkümi kire — «Gurzufta bahar manzarası», «Gurzuf soqağı», «Özençik», «Gurzuf.
 Deniz boyundaki soqaq», «Gurzuf» (hepisi resimler 1999 senesi yaratılğandır).
 Ressam öz icadında peyzaj janrından ğayrı, temsiliy resimler de yarata.
 Meselâ, «Muqaddes kitap» (1998) adlı natürmortta Oırımdaki an'aneviy İslâm medeniyetinin aydın numüneleri tasvirlengen — masa üstünde arap yazıları ile açıq kitap yata, guya daha şimdi bu kitapnı oquğan adam tespi çekken son, tespisini kitap üstünde qaldırğan, bundan ğayrı, masa üstüne oyma nağışlı baqır çaynik ve şamdan qoyulğan, mavi renk üzre arapça yazıları olğan çiniy tabaq köz qamaştırıp tura.
 Resimnin tasviriy değerlikleri seyircini hayrette qaldıralar — altın nağışlarnen işlengen masa örtüsinin gabari fakturası, kitap sahifelerinin ipranğanlığı, oyma nağışlarnın boğuq yıltıravı ğayet işançlı tarzda aks ettirilgen.
 Umumen, resim yüzünin her bir santimetri misilsiz tantim ve sevgi ile sızılğan.
-
 Nuri Yaqubovnın resimlerinde coşqunlıq ve lirika ile ifadelengen Vatan mevzusı İrfan Nafiyevnin icadında başqacasına yanğıray.
-
 İrfan Nafiyev 1951 senesi Taşkent oblastının Mırzaçöl rayonında doğdı, 1968-1975 seneleri devamında P.
 Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı.
 Orımğa avdet olğanğa qadar Samarqanddaki Bediiy fondnın istihsal ustahanelerinde çalıştı.
 Onın o devirde yarıtılğan eserleri, meselâ, 1975-1976 senelerinde Samarqanddaki Uluğbek müzeyi içün yapılğan «Orta asır müneccimleri» adlı portretler seriyası, «Qaraqumnın sırları» (1980) resimi Orta Asiyanın tarihına bağışlanğanlar.
-
-1992 senesi i.
-Nafiyev Oırımğa köçüp kele, 1995 senesi Ukraina Ressamlar birliğinin azası ola.
+1992 senesi i.Nafiyev Oırımğa köçüp kele, 1995 senesi Ukraina Ressamlar birliğinin azası ola.
 90-ncı senelernin başlarından itibaren onın eserleri keskin içtimaiy yöneliş alalar.
 «Uyanuv (1995), «Balalıq» (1995), «Qorqunçlı tüş» (1996), «Sabahnın sahar vaqtında» (1996), «Bismillah» (1996) kibi resimler seyircini qarsanbalı cenk muhitine daldırıp, qrımtatar halqının zemaneviy tarihim aks ettireler.
 İ. Nafiyevnin eserlerinde onın icadına has olğan daha bir harakterli çizgi közge çarpa.
@@ -519,18 +508,15 @@ Ressam özünin mevzuiy eserlerinde en büyük rölni tabiatqa ayıra.
 Tabiat ressam içün fon ya da vaqia yüz bereyatqan muhit değil de, ifade vastasıdır.
 Nafiyev Oırım tabiatını yılmn her bir feslinde hem yağlı boyalarnen, hem akvarel boyalarnen tasvirley, kendi duyğuları ve fikirlerine aenkdaş cehetlerni, işte, şu tabiattan tapa («Ecdatlar yolu», 1996; «Oadimiy Salğır», 1997; «Eski Kermen», 1997; «Küneş uvası», 1999).
 
-1998 senesi Aqmescitte i.
-Nafiyevnin birinci şahsiy sergisi olıp keçti.
+1998 senesi Aqmescitte i. Nafiyevnin birinci şahsiy sergisi olıp keçti.
 2000 senesi o, başlanğıç sınıf talebeleri içün qırımtatar tilinde «Tasviriy sanat» adlı qullanma çıqardı.
-
 80-nci senelernin sonlarında — 90-ncı senelernin başlarında çalışqan qırımtatar ressamlarının icadiy yüzleri biri-birinden ne qadar farq etmesin, olarnı, hepisi bir, yekâne çizgi, yani içtimaiy harakterdeki mevzularnı ögge sürgen munderice ceheti birleştire.
 Oırımtatar ressamlarının ekseri eserleri daha yaqın keçmişte yasaq sayılğan vaqialarnen, yani sürgünlik ve avdetnen bağlıdır, işte, ressam Alim Useinov öz icadında bu mevzuğa birincilerden olıp müracaat etti.
 Alim Useinov 1941 senesi Bağçasaray rayomnın Avcı köyünde doğdı.
 Bala ekende ana-babasız qalıp, sürgünlik yıllarında bir mucize ile sağaman qaldı ve balalar evine tüşti.
 1963 senesi Taşkentteki P.
 Benkov adına cumhuriyet ressamlıq oquv yurtum bitirdi, orta mektepte ders berdi ve aynı vaqıtta icatnen faal oğraştı.
-Taşkentte U.
-Alimovnın eki şahsiy sergisi ötkerildi.
+Taşkentte U.Alimovnın eki şahsiy sergisi ötkerildi.
 Onın «Avtoportret» (1968), «Mışıq tutıp turğan oğlan» (1972), «Lâleler cıyğan qart» (1974) kibi resimleri tasvirledigi adamnın içki dünyasını teren his etken ressamnın icadiy ferdini köstereler.
 70-nci senelerde Useinov «Ev-barqsızlar» seriyasını yarata, bu seriyada balalıqnın ağır hatıraları, sanki dersin, canlanalar.
 A. Useinov 1994 senesinden berli kene Oırımda yaşay, esasen grafika janrında çalışa.
