@@ -309,50 +309,30 @@ Ulu Vatan cenkinin iştirakçisi, mimar İrfan Şemsedinov Ukraina Ressamlar aka
 Cenkten son Ukraina Ressamlar akademiyasında oquv-icadiy ustahanenin rehberi olıp çalıştı, 200-den ziyade mimar yetiştirdi.
 İ. Şemsedinov — qaraman şeher Sevastopol şerefine Hrustalnıy burunında qoyulğan abide leyhasmıh, «1783-1944 seneleri qırımtatar halqına qarşı yapılğan genotsid qurbanlarına» memorial abide leyhasınıfi müellifidir.
 Sonki yıllarda Şemsedinov ressamlıq sahasına çoq diqqat ayıra.
-Böyleliknen, tuvğan Oırımımh tabiatına bağışlanğan «Bağçasaraydaki Hansaray», «Bağçasaraydaki Hancami», «Oapsıhor.
-Tatar qaraltısı», «Ouru Özen.
-Tatar qaraltısı».
-«Koktebel.
-Voloşinnin evi», «Oaradağ.
-Yağmur aldından», «Deniz qayaları.
-Dalğalar», «Küçük Özen», «Erılğan destesi» kibi akvarel resimlerinin seriyasını yarattı.
+Böyleliknen, tuvğan Oırımımh tabiatına bağışlanğan «Bağçasaraydaki Hansaray», «Bağçasaraydaki Hancami», «Oapsıhor.Tatar qaraltısı», «Ouru Özen.Tatar qaraltısı».«Koktebel.Voloşinnin evi», «Oaradağ.Yağmur aldından», «Deniz qayaları.Dalğalar», «Küçük Özen», «Erılğan destesi» kibi akvarel resimlerinin seriyasını yarattı.
 Usta özünin bu eserlerinde Oırımmh körümü yerlerini aks ettirmeknen sıhırlanmayıp, tuvğan halqnın turmuşına, tuvğan tabiatqa nisbeten aybetli münasebetini de nümayiş ete.
 Aqmescitteki qırımtatar sanatı müzeyi 1997 senesi irfan Şemsedinovnın akva-rel resimlerinden ibaret şahsiy sergisini teşkilâtlandırdı.
-
 Bir çoq qırımtatar ressamları halqnıh facialı taqdirini başından keçirerek, kendi istidatlarını tolu kölemde ömürge keçirip olamadılar.
-Hamdi Mustafayev (1918), işte, olarnın cumlesindendir.
-Cenkten evel bir qaç yıl devamında Aqmescitteki N.
+Hamdi Mustafayev (1918), işte, olarnın cumlesindendir.Cenkten evel bir qaç yıl devamında Aqmescitteki N.
 Samokiş adına ressamlıq oquv yurtunda tahsil alğan H.
-Mustafayev cenk başlanğanda oquvını bıraqıp, cebhege kete, cenkten zabit olıp qayta, Taşkentteki P.
-Benkov adına ressamlıq oquv yurtunda tahsilini devam ettire.
+Mustafayev cenk başlanğanda oquvını bıraqıp, cebhege kete, cenkten zabit olıp qayta, Taşkentteki P.Benkov adına ressamlıq oquv yurtunda tahsilini devam ettire.
 Sonra bezetüv işlerinen oğraşa, manzaralı-ameliy işlenmeler içün örnekler yarata.
 Oırımğa 1968 senesi qaytıp kele.
 H. Muştafayevnin ressamlıq icadını çoqtan-çoq portretler, natürmortlar, peyzajlar teşkil eteler.
 Kimersi monumental, kimersi lirik, kimersi felsefiy olğan bu eserlerde tuvğan Oırımına meftün olğan, ömür hikmetini bilgen, öz halqınen üzviy bağlanğan ressamnın qalbi aks oluna («Bağçasaray», «Cuma cami», «Gurzuf», «i.
-Gasprinskiynin portreti», «Oadınımnın portreti», «A.
-Lâtif-zadenin portreti»).
-
+Gasprinskiynin portreti», «Oadınımnın portreti», «A.Lâtif-zadenin portreti»).
 Cevdet Tahtarovnın (1926-1998) icadiy taliyi biraz uyğunca oldı.
-O, 1955 senesi P.
-Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirip, 25 yıl devamında Özbekistan televideniyesinde sanalaştırıcı ressam olıp çalıştı.
-Anda A.
-Udalovnıfi «Sabır», Yu.
-Ahunbabayevnih «Baba», M.
-Lermontovnın «Mtsıri», N.
-Dumbadzenin «Ebediyet qanunı» eserleri boyunca çıqarılğan filmlernin, hem de «Oarılğaç» videofilminin ressamı oldı.
-
+O, 1955 senesi P.Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirip, 25 yıl devamında Özbekistan televideniyesinde sanalaştırıcı ressam olıp çalıştı.
+Anda A.Udalovnıfi «Sabır», Yu.Ahunbabayevnih «Baba», M.Lermontovnın «Mtsıri», N.Dumbadzenin «Ebediyet qanunı» eserleri boyunca çıqarılğan filmlernin, hem de «Oarılğaç» videofilminin ressamı oldı.
 Fevzi Recepov (1923-1983) keniş, temelli tahsil alsa da, sürgünlik şaraitlerinde öz iqtidarını tolusınen kösterip olamadı.
 O, Aqmescitte, Qırım koy hocalığı institutının rektorı Arif Alimovnın ve qırımtatar tili ve edebiyatı ocapçesi Mümine Recepovanın qorantasında doğup östü.
 Aqmescitteki balalar ressamlıq studiyalarına qatnadı.
 Ta bala ekende belli ressamlarnın yağlı boyalarnen yapılğan eserlerinden eyi kopiyalar yapıp başladı.
-
-1946 senesi F.
-Recepov trudarmiyadan Samarqand şeherine kele, çünki onın qorantası anda sürgün etilgen edi.
+1946 senesi F.Recepov trudarmiyadan Samarqand şeherine kele, çünki onın qorantası anda sürgün etilgen edi.
 Şeherdeki Bediiy fondğa işke kirip, ömürinin sohunace anda çalışa.
 
 1955 senesi qırımtatar ressamları arasında birinci olıp Taşkent teatrressamcılıq institutının kündüzki bölügine ressam mütehassıslığı boyunca oqumağa kire ve om muvafaqiyetnen bitirgen son, institutta ocalıq yapmaq teklifini ala.
 Lâkin o, Samarqandqa qaytıp bara ve bezetici ressam sıfatındaki faaliyetini devam ettire.
-
 Onın natürmortlar seriyası («Georginalar ve flokslar», «Oarpız», «Ayva», «Yüzüm», «Samarqand toprağının mahsulları»), Samarqand civarlarını aks ettirgen peyzajlar («Agalıq»), eski şeherdeki mimarcılıq abidelerinin körünişleri, medeniyet ve sanat erbaplarının portretleri ressamnın professional ustalığı yüksek noqtada bulunğanını köstereler.
 Lâkin bir daha körüp olamağan Vatanının manzaralarını aks ettirgen peyzaj resimleri hususan güzeldirler.
 Meselâ, «Gurzuf», «Qaçaqmalcılar», «Oırımtatar urbasını kiygen qadın» kibi resimlerni o, balalıq ve ösmürlik hatıraları esasında yapqan edi.
@@ -360,8 +340,7 @@ Recepovnın eserleri Moskvada ötkerilgen bir çoq bütünittifaq sergilerinde, 
 Bir sıra resimlerni Samarqanddaki Tarih, medeniyet ve sanat müzeyi satın aldı.
 Sanatşınaslıq doktorı, professor, Özbekistan Ressamlar akademiyasınm akademiği Rafael Taqtaş öz maqalelerinde Recepovnın icadına ğayet yüksek qıymet kese edi.
 Recepovnın qız qardaşı 2001 senesi ressamnın ekseriyet eserlerini Vatanğa ketirebildi ve olarnı Cumhuriyet qırımtatar sanatı muzeyine bağışladı.
-
-Oırımdan balalıq çağında sürgün etilgen istidatlı yaşlamın icadiy taliyleri de çeşit türlü oldı.
+Qırımdan balalıq çağında sürgün etilgen istidatlı yaşlamın icadiy taliyleri de çeşit türlü oldı.
 Halil Memedlâyev (1937) — şöyle istidatlı gençlernin birisi edi.
 O, Duşanbedeki ressamlıq oquv yurtunda tahsil aldı (1955-1960), 1967 senesinden başlap Leninabadnın Bediiy fondunda çalıştı, leninabadlı yaş ressamlarnın birleşmesine yetekçilik yaptı, 1977 senesi SSSR Ressamlar birliğinin azası oldı.
 H. Memedlâyevnin icadiy meraqlanuv dairesi keniş edi — o hem dekorcılıqnen oğraştı, hem monumental eserler yarattı, lâkin meyilligi mevzuiy resimlerde ve portretlerde edi.
