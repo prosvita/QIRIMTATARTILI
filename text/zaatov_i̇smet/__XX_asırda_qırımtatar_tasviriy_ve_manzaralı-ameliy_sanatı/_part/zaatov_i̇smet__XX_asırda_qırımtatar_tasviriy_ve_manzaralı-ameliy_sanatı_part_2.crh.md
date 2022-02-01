@@ -609,22 +609,13 @@ Dünya güzelligini ve uyğunlığını araştırıp tapuv, ebediy aqiqatnı idr
 S. Ourtcemilnin peyzaj, natürmort resimlerini manzaralıq, boyalamıA parlaqlığı, yanğıravuqlığı ayırıp tura.
 Onın her bir resimi — renkler taşqını, tasviriy akkordlarnın uyğunlığıdır.
 S. Ourtcemilnin en yahşi eserleri cümlesine «Sevimliler içün geçekler» (1993), «Aq quş peşinde» (1994), «Balıq avı» (1994), «Sabah» (1995), «Toqunuv» (1995), «Aqşam» (1995), «Küneşli kün» (1998), «Sarı natürmort» (1999) kibi resimler kireler.
-
-S.
-Ourtcemil Taşkent vilâyetinin Yanıyol şeherinde doğup östü, 1990 senesi Nizamiy adına Taşkent devlet pedagogika institutının bediiy grafika fakultetini bitirdi.
+S.Qurtcemil Taşkent vilâyetinin Yanıyol şeherinde doğup östü, 1990 senesi Nizamiy adına Taşkent devlet pedagogika institutının bediiy grafika fakultetini bitirdi.
 O, Taşkentte ve çetelde ötkerilgen sergilernin daimiy iştirakçisidir ve onın icadı öz tedqiqatçısını bekley.
-
 Özbekistan Ressamlar akademiyasının azası Rustem Eminov (1950 senesi doğdı) 1973 senesi Nizamiy adına Taşkent devlet pedagogika institutının bediiy grafika fakultetini bitirdi, hal-azırda Özbekistan Ressamlar akademiyasının cumhuriyet ressamlıq kollecinde (sabıq P.
 Benkov adına cumhuriyet ressamlıq oquv yurtu) ders bere.
-
-R.
-Eminovmn icadiy yolu aileviy an'anelernen belgilene.
-Rustem —
-
-t •
-
+R.Eminovmn icadiy yolu aileviy an'anelernen belgilene.
+Rustem — t •
 Ozbekistanda nam qazanğan sanat erbabı Kâzim Eminovmn oğludır.
-
 Rustem Eminov — 1990 senesi qırımtatar ressamlarının Aqmescitte ötkerilgen birinci bütünittifaq sergisinin iştirakçisidir.
 Şimdi Bağçasaraydaki muzey-sarayda saqlanmaqta olğan «İsmail Gasprinskiyniii portreti» Oırımnın en meşhur sımalarının bütün bir türkümini başlay.
 Mezkûr türkümge türkşınas alim ve şair Bekir Çoban-zadenin, publitsist Asan Sabrı Ayvazovmn, şair Abdulla Lâtif-zadenin, dramaturg Umer ipçinih portretleri kire.
@@ -636,75 +627,52 @@ Böylece, sürgünlik qurbanları haqqında monumental türküm doğa ki, ressam
 Resimlerdeki adamlar hem konkret, hem umumiy bir obrazdalar.
 Eserlernin kompozitsiya cehetinden qurulması, iri planda, bütün tafsilâtları ile tasvirlengen sımalar R.
 Eminovmn realistik resimge meyilliginden delâlet bereler.
-1999 senesi Taşkentte R.
-Eminovmn şahsiy sergisi olıp keçti.
-
-Aii-Murat Bekirov 1945 senesi Özbekistanmh Namangan vilâyetindeki Almaz köyünde doğdı.
+1999 senesi Taşkentte R.Eminovmn şahsiy sergisi olıp keçti.
+Ali-Murat Bekirov 1945 senesi Özbekistanmh Namangan vilâyetindeki Almaz köyünde doğdı.
 Koy mektebini bitirgen son Taşkentteki P.
 Benkov adına cumhuriyet ressamlıq oquv yurtuna oqumağa kirdi, lâkin om ordu hizmetine çağırğanları munasebetinen oquvını bölmeğe mecbur oldı.
 Oquv yurtum 1971 senesi bitirdi.
-
 1974 senesinden Özbekistan Bediiy fondunın ustahanelerinde çalıştı, aynı vaqıtta Moskvadaki matbaacılıq institutında oqudı.
 Ressamnın «Abdullayevnin portreti (1976), «Oartiynin portreti» (1974), «Bita» kibi eserleri defalarca şeher, vilâyet, cumhuriet sergilerinde nümayiş etildiler.
-
 icatçının Ozbekistanda yaratqan eserleri cümlesinde «Intıluv» (1976), «Uzaqta Tân-Şân körüne» (1979), «Vardik suv anbarı» (1979), «Yoldaş», «Gavdaki otrâd», «Kolhozğa», «Şan-Şuret ordeninin kavaleri Ergaşev», «Çorkisar» (1982), «Çadak» (1982), «Mezar» (1981), «Leylekler» (1981), «Çust madonnası», «Örüci», «Sosialist Emek Oaramanı M.
 Loginov», «istrahat bağçasında», «Suv haqqında ballada» kibi resimlerni qayd etmeli.
-
 Biraz keççe devirde ise evelki eserlerden icra olunuv harakteri ile ayırılıp turğan yanı eserler yarata: «Ay yarıq gecesi» (1985), «Gava» (1985), «Nay» (1985).
-
 1980-nci senelernin ortalarında Namangan şeherinde ressamnın şahsiy sergisi olıp keçti.
 Bundan ğayrı ressam Moskvada ötkerilgen «Dizayn ve plakat» sergisinde de iştirak etti ve anda onın bir qaç eseri nümayiş etildi.
 Ressamnın Özbekistandaki icadiy devirini «Komendant uzurında», «1944 senesi, mayıs 18», «Şarq sabası» kibi eserler yekünleyler.
-
 1992 senesi Oırımğa koçüp kelgen A.
 Bekirov mındaki icadiy ceryanğa sıqı qatıla ve «Oaval», «Ay-Petri dağı», «Keçmişteki Mishor», «Novıy svet», «Bağçasaray soqaçığı», «Uyanuv» kibi resimlerni yarata.
-
-A.
-Bekirov Oırım ressamlarının sergilerinde, cümleden Oırımtatar ressamları assotsiatsiyası teşkilâtlandırğan sergilerde faal iştirak ete, ressamlıqtan ğayrı, ağaç üstünde oyuvnen, inter'er ve ekster'erni bezetüvnen oğraşa.
-
+A.Bekirov Oırım ressamlarının sergilerinde, cümleden Oırımtatar ressamları assotsiatsiyası teşkilâtlandırğan sergilerde faal iştirak ete, ressamlıqtan ğayrı, ağaç üstünde oyuvnen, inter'er ve ekster'erni bezetüvnen oğraşa.
 Hal-azırda Aqmescitte yaşay.
 Ukraina Ressamlar birliğinin azası, Özbekistan cumhurietinde nam qazanğan medeniyet hadimidir.
-
 XX asımın sonu tasviriy janrlar ve aqımlarnın çeşitliliginen, endi klassikağa çevirilgen yönelişlernin, meselâ, simvolizm, ekspressionizm, sürrealizmnin ğayrıdan doğmasınen qayd oluna.
 Nice-nice yıllar zarfında sosialistik realizm tırşavlarınen sınırlanğan ressamlar, nihaet, serbestlik elde etip, öz fikir ve duyğularını açıq-açıqtan ifade etmek imkânına malik oldılar.
 İcatçılar yanı bediiy vastalar ve usullarnı araştırıp başlağanları sayesinde, evelden yasaq olunğan ve seyirci közünden çetke alınğan eserlerni keniş tedqiq etmek ihtiyacı doğdı.
 Kerçek barlıqtan alıp-berecegi olmağan obrazlar kimersi ressamlarğa kendi fikirlerini ifade etmek içün qudretli şiltem berdi ve olarnın icadiy yüzüni belgilediler.
 Diğer ressamlar ise samimiy, yalansız realizm usulına sadıq qaldılar.
-
 Qarı-qoca Mustafa Aliyev ve Guzal Alimatova şimdi de Ozbekistanda yaşay ve çalışalar.
 Monumental-manzaralı sanat sahasında çalışqan Mustafa Aliyev 1956 senesi Rusiyenin Perm vilâyetindeki Krasnaya Vişera rayonının Gej köyünde doğdı.
 Onın ana-babası 1944 senesi, işte, anda sürgün etilgen ediler.
-
-M.
-Aliyev 1982 senesi A.
-Kosteyev adına Çimkent ressamlıq oquv yurtunın dizayn bölügini, 1988 senesi ise A.
+M.Aliyev 1982 senesi A.Kosteyev adına Çimkent ressamlıq oquv yurtunın dizayn bölügini, 1988 senesi ise A.
 Ostrovskiy adına Taşkent teatrressamlıq institutının monumental-manzaralı sanat bölügini bitirdi.
 1989 senesinden 1991 senesine qadar Taşkentteki heykelcilik ve monumental sanat kombinatında çalıştı.
 Biz onın Taşkent şeherindeki çeşit binalarnı monumental bezetüv boyunca işlerini bilemiz (Koy hocalığı institutındaki, Akuşerlik ve ginekologiya institutındaki, Çkalov adına aviatsiya zavodının memuriy binasındaki ve Medeniyet sarayındaki monumental süslemeler, enkakustika).
-1995 senesinden berli P.
-Benkov adına Taşkent ressamlıq oquv yurtunın ressamlıq ve dizayn bölügine mudirlik yapa, ders bere.
+1995 senesinden berli P.Benkov adına Taşkent ressamlıq oquv yurtunın ressamlıq ve dizayn bölügine mudirlik yapa, ders bere.
 Peyzaj, natürmort, portret, avangard janrlarında çalışaraq, çeşit sergilerde iştirak etti, anda onın «Aqtaş» (2000), «Navrez» (2000), «Ûırmızı damlar» (2000), «Dağ peyzajı» (2000), «Alma bağçası qışta» (2000) ve diğer eserleri qayd etildiler.
-
 Ressam Guzal Alimatova 1966 senesi Taşkentte doğdı.
-1984 senesi Taşkentteki cumhuriyet ihtisaslaştırılan muzıka-ressamlıq mektep-internatını, 1990 senesi A.
-N. Ostrovskiy adına Taşkent teatr-ressamlıq institutının tezya ressamlığı bölügini bitirdi.
+1984 senesi Taşkentteki cumhuriyet ihtisaslaştırılan muzıka-ressamlıq mektep-internatını, 1990 senesi A.N. Ostrovskiy adına Taşkent teatr-ressamlıq institutının tezya ressamlığı bölügini bitirdi.
 Aspiranturada oqumaq içün tevsiye etildi.
-
 1990 senesinden 1993 senesine qadar Cumhuriyet ihtisaslaştırılan muzıka-ressamlıq mektep-internatında resim ve kompozitsiya boyunca oca olıp çalıştı, 1993 senesinden itibaren Özbekistan devlet teleradiokompaniyasında sanalaştırıcı ressam olıp çalışa.
 2001 senesi Ressamlar icadiy birleşmesinin azası oldı.
 1987 senesinden berli bütünittifaq ve cumhuriyet sergilerinde iştirak ete.
 Onın resimleri esasen peyzaj, natürmort ve portret janrlarında yapılğan olıp, bir çoq eserleri hususiy kollektsiyalarda hem de Özbekistan Prezidenti Apparatınm kollektsiyasında buluna («Yasimenler», 2000; «Nargüzler», 2001; «Sabah», 2001; «Çua çeçekleri», 2000; «Bulutlar», 2001; «Qırım.
-Azav denizi», 2001; «Bağçasaray.
-Oaytuv», 1990).
-
+Azav denizi», 2001; «Bağçasaray.Oaytuv», 1990).
 Osman Çubarov — qırımtatar tasviriy sanatının realistik yönelişinde çalışqan eh qart vekillerden biridir.
 Onın taqdiri pek zor ve facialı oldı.
 1923 senesi Gurzufta doğğan Osman Çubarovnm qorantası 30-ncı senelerde «kulak» dep tanıla ve Tambov vilâyetine sürgün etile.
 Andan olar Çeçenistanğa koçeler.
-II Cihan cenkinde iştirak etken O.
-Çubarov 1943 senesi ağır yaralandı.
-1955 senesi Çubarov Rostov ressamlıq oquv yurtum, 1963 senesi ise i.
-Repin adına Leningrad ressamlıq ve mimarcılıq institutını bitirdi, anda E.
+II Cihan cenkinde iştirak etken O.Çubarov 1943 senesi ağır yaralandı.
+1955 senesi Çubarov Rostov ressamlıq oquv yurtum, 1963 senesi ise i.Repin adına Leningrad ressamlıq ve mimarcılıq institutını bitirdi, anda E.
 Moiseyenkonm ustahanesinde tahsil aldı.
 1957 senesinden SSSR Ressamlar birliğinin azası olğan, Çeçen-inguş ASSRde nam qazanğan sanat erbabı unvanınen taqdirlengen, bir sıra cumhuriyet ve bütünittifaq sergilerinde iştirak etken O.
 Çubarov bütün vaqıt realizmnin klassik an'anelerine sadıq olıp keldi.
@@ -718,7 +686,6 @@ Ustanın Vatanğa avdeti ğayet facialı oldı.
 Çeçenistanda başlanğan cenk onın yaşayışını, icadını berbat etti.
 Böylece, ressam Çeçenistandan köçmege, öz eserlerinin ekseri qısımını bıraqıp ketmege mecbur oldı.
 O. Çubarov 1997 senesinden berli Oırımda yaşay.
-
 Şevket Seydametovmn (1954 senesi doğdı) icadı qırımtatar tasviriy sanatında biraz ayrıca tura.
 Ş. Seydametov — özüni tolusınen sahna bezetüv sanatına bağışlağan yekâne qırımtatar ressamıdır.
 Professional qırımtatar teatrinin tarihi 100 yılm teşkil ete.
@@ -727,13 +694,7 @@ Oırımğa qaytıp kelgen bir sıra yazıcılar, aktörlar, çalğıcılar Aqmes
 Bundan evel o Duşanbe şeherindeki Alimov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı, sonra çoq yıllar devamında Leninabad şeherindeki Bediiy fondda çalıştı, anda sanatnın deyerlik bütün sahalarında meharet arttırdı.
 Seydametov monumental süslev işlerinen oğraştı, şımarış boyunca portretler yaptı, gobelenler, makrameler toqudı, vilâyet, cumhuriyet sergilerinde iştirak etti (peyzaj resimleri, zamandaşlarnın portretleri).
 1992 senesi Oırımğa köçüp kelip, öz icadını yanı açılğan teatrnen bağladı.
-
-Teessüf ki, keçmişte teatr temaşaları nasıl bezetilgenini kösterici misaller yahut numüneler elimizde yoqtır, lâkin bu sahada U.
-Bodaninskiy, A.
-Ustayev ve S.
-Osmanov kibi ressamlar çalışqanından delâlet berici vesiqalar mevcut, işte, Ş.
-Seydametovğa öz işinde Avropanın sahna bezetüvdeki qazançlarına, an'aneviy qırımtatar medeniyetine ve professional ressam sıfatındaki kendi sezgilerine bazanmaq kerek ola.
-
+Teessüf ki, keçmişte teatr temaşaları nasıl bezetilgenini kösterici misaller yahut numüneler elimizde yoqtır, lâkin bu sahada U.Bodaninskiy, A.Ustayev ve S.Osmanov kibi ressamlar çalışqanından delâlet berici vesiqalar mevcut, işte, Ş.Seydametovğa öz işinde Avropanın sahna bezetüvdeki qazançlarına, an'aneviy qırımtatar medeniyetine ve professional ressam sıfatındaki kendi sezgilerine bazanmaq kerek ola.
 Teatrnin repertuarı ğayet keniştir.
 Mında halq efsaneleri, tarihiy eserler, cihan klassik edebiyatı, bala masalları esasında temaşalar, halq maişetinden piyesalar oynala.
 Olarnın her birine ayrıca yanaşmaq, tek şu temaşağa kelişikli çezimni tapmaq kerek.
@@ -744,19 +705,13 @@ Meselâ, «Bağçasaray çeşmesi» spektaklinde (1999) dekoratsiyanı ince işl
 Konstruktsiyalar tez dağıtıla, qolaylıqnen deniştirile ve artistlerge keder etmeyler.
 Şekiller şartlı tarzda kösterilgenine baqmadan, seyirciler Hansaray muhitini, saraynın harakterli siluetleri ve tafsillerini bir kereden tanıylar.
 «Mishor qızı» spektaklinde (2000) tavandan sarqıp turğan mavı-beyaz örtü (deniz ve dalğalar temsili) fonunda yerleştirilgen eki büyük gügüm seyircini guya deniz yalısına, Arzı qız alıp qaçılğan meşhur çeşme yanına keçire.
-
 Adeti üzre, boş sahna (anda tek bir qaç dane iri butaforiya şeyleri buluna) tem-tegiz, bir tüslü ya da körüner-körünmez art perde (meselâ, «Mamlük Beybars» spektaklindeki mısır freskaları) fonunda oynalğan ifadeli mizansenalar içün keniş imkânlar aça.
 Seydametov tasviriy cehetten mevhum, lâkin obraz cehetinden işançlı muhit yaratmağa bile.
 Deyik, «Mamlük Beybars» spektaklinde sahna muhiti muhteşem-monumental ruhta olsa, «Mishor qızı» temaşasında nefasetli-koterinki, balalar içün temaşalarda ise letafetli-tılsımlı ruhta ola.
-
-Şubhesiz, bugünde-bugün qırımtatar sahna bezetüv sanatı haqqında aytmağa daha erte, amma Ş.
-Seydametovnm icadı — böyle soy sanat özünin ilk emin adımlarını atayatqanının bivasta numünesidir.
-
+Şubhesiz, bugünde-bugün qırımtatar sahna bezetüv sanatı haqqında aytmağa daha erte, amma Ş.Seydametovnm icadı — böyle soy sanat özünin ilk emin adımlarını atayatqanının bivasta numünesidir.
 «Ressamlıq» bölügini endi rahmetli olğan ve icadiy asabalığı pek çoq resimlerden ibaret olğan ressamnın adınen yekünleymiz.
 Bu adam — Kâzim Cepparovdır (1947-1998).
-
-K.
-Cepparov ana-babası Oırımdan sürgün etildigi Voljsk şeherinde doğdı, balalıq ve ösmürlik çağı Suhumi şeherinde keçti, anda ressamlıq oquv yurtunı bitirdi ve ressamlıq ustahanelerinde çalıştı.
+K.Cepparov ana-babası Oırımdan sürgün etildigi Voljsk şeherinde doğdı, balalıq ve ösmürlik çağı Suhumi şeherinde keçti, anda ressamlıq oquv yurtunı bitirdi ve ressamlıq ustahanelerinde çalıştı.
 1990 senesi Ressamlar birliğine aza olaraq qabul olundı.
 K. Cepparovnıh resimleri süjet, bediiy usul cehetinden çoq çeşitliler, lâkin mevzu ve üslübiyet boyunca umumiyleştirilgende olar bütün bir türkümlerni teşkil ete ve ressam icadının esas yönelişlerini köstereler.
 Onın «Tilenci», «Muhacirler», «Zona» kibi keskin sosial resimlerinde «küçük adam» mevzusı yahğıray.
