@@ -114,11 +114,9 @@ Amet Ustayev (1909-1990) Tuaq köyünde doğdı, Bağçasaraydaki ameliy sanat b
 O portretler, peyzajlar da yapa edi.
 Ressamnın erte eserlerinden birisi — «Bağçasaray çeşmesi»Resimi janr cehetinden turmuş levhası olıp, onda çeşmeden suv alayatqan yaş qızlar tasvirlengen.
 Oquvnı bitirgen Ustayev taqsimlev boyunca Oazahistanğa tüşe, anda kilim toquv fabrikasında ressam olıp çalışa, qazah örneklerini ögrene, süjetli ve örnekli kilimlernin eskizlerini yarata (onın eskizi esasında Leninnin portreti olğan kilim toqula — 205.228-nci sahife).
-1934 senesi tuvğan koyune qaytıp kelgen Amet Ustayev esasen bezetüvnen oğraşa — tükânlar, qaveler, klublar içün ad tahtaları yapa, aynı vaqıtta qalem resimleri, koydeşlernin portrelerinden ibaret seriyalar yarata.
-(88.54-nci sahife).
+1934 senesi tuvğan koyune qaytıp kelgen Amet Ustayev esasen bezetüvnen oğraşa — tükânlar, qaveler, klublar içün ad tahtaları yapa, aynı vaqıtta qalem resimleri, koydeşlernin portrelerinden ibaret seriyalar yarata.(88.54-nci sahife).
 A. Ustayevni Vrubelnen qiyaslağan A.Polkanovnın fikirince, «Ustayev — aqransız istidat» edi.(150.146ncı sahife).
-Ustayevnin eh değerli eserlerinden birisi — «Oırğıncı aq gvardiyacılarnın tatar köyünden quvuluvı» adlı resimine belli ressam N.
-S. Samokişnin yüksek qıymet keskini haqqında malûmat bar (bu eser A.Polkanovnın yuqarıda anılğan maqalesinde qayd etile).
+Ustayevnin en değerli eserlerinden birisi — «Oırğıncı aq gvardiyacılarnın tatar köyünden quvuluvı» adlı resimine belli ressam N.S. Samokişnin yüksek qıymet keskini haqqında malûmat bar (bu eser A.Polkanovnın yuqarıda anılğan maqalesinde qayd etile).
 1935 senesi Ustayev Aqmescitke avuşa, mında Oırım oblast drama teatrinde dekorcı olıp çalışa, Pionerler evindeki resim studiyasına yolbaşçılıq yapa, Oırım Ressamlar birliğinin Teşkiliy komitetini meydanğa ketirüvde iştirak ete.
 O devir kün tertibinde turğan mevzular boyunca çoqtan çoq siyasiy plakatlar, peyzajlar, naturadan resim taslaqları, portretler yapa.
 Ustayevnin sürgünlikten evel yapıp yetiştirgen salmaqlı eserlerinden birisi — «Halq kedayı Canğazı Şerfedinnin portreti»dir (1939).
