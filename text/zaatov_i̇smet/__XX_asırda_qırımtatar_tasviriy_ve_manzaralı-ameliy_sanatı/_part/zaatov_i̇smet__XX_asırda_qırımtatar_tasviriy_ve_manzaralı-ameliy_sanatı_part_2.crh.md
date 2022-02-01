@@ -93,8 +93,7 @@ O devirde yarıtılğan peyzaj resimleri yarıqnen, ava ve hayatnen aşlanğanla
 Bu basqıçta bütün sovet memleketinde hüküm sürgen realizm usulı qırımtatar ressamları içün nasıldır sınırlayıcı vasta olmadı — olar yalınız realistik ressamlıqmn imkânlarını öğrendiler, öz resimlerinde kendi toprağını, kendi halqını tasvirlemege, ömürni olğanı kibi aks ettirmeğe tırıştılar.
 Şusı meraqlı ki, XX asımın birinci yarısında Oırımda heppeyi inkişaf etken rus ressamlıq sanatı professional qırımtatar tasviratına amelde Ulunmadı.
 Deyik, Oırımda birinci olıp meydanğa ketirilgen (1923) Sevastopol Ressamlar assotsiatsiyasınnın erkânında qırımtatar icadiy ziyalılarının bir vekili bile yoq edi.
-Lâkin bunınnen birlikte şum da qayd etmeli ki, Oırımğa daimiy yaşamağa köçüp kelgen ressamlar Ya.P. Birzgal, N.S. Samokiş, yazıcı M.
-Voloşin eki medeniyetnin biri-birine yaqınlaşması içün bayağı iş yaptılar.(205.215-217-nci sahifeler).
+Lâkin bunınnen birlikte şum da qayd etmeli ki, Oırımğa daimiy yaşamağa köçüp kelgen ressamlar Ya.P. Birzgal, N.S. Samokiş, yazıcı M.Voloşin eki medeniyetnin biri-birine yaqınlaşması içün bayağı iş yaptılar.(205.215-217-nci sahifeler).
 Yuqarıda adları anılğan ustalar qırımtatar ressamlarının birinci dalğasını teşkil eteler.
 Şubhesiz, asılında olar çoqça ediler.
 Meselâ, elimizge daha yaqın keçmişte tüşken «Terciman» gazetasının toplamında kezlevli Ğafar Şemsi Alâdinovnın adını rastketirdik.
@@ -103,23 +102,17 @@ Oırımtatar ressamlarının nevbetteki gruppasını içtimaiy ve professional c
 Bu adamlar haqqında biz qırımlı sanatşınas ve muzey hadimi A.Polkanovmn 1935 senesi «Literatura i iskusstvo Krıma» mecmuasında dere ettirgen maqalelerinden oqup bildik.
 Mezkûr maqaleler 1930-ncı senelerde sovet Oırımının medeniy ömürinde olıp keçken denişmelerge qıymet kesmek imkânını bereler.
 Birincide, çetelde tahsil alğan ilk milliy ressamlar haqqında hiç bir söz aytılmay.
-A. Polkanov böyle yaza: «İnqilâptan evel Oırımda milliy ressamlardan bir adam bile yoq edi...
-qırımtatarlarğa ressamlıq sanatına qatılmaq imkânını tek sovet hakimiyeti berdi, bu — stalince-lenince milliy siyasetnin neticelerinden biridir».
-(150.145-nci sahife).
-Ekincide, ressamlarnın içtimaiy erkânı denişe — olarnin ekseryieti işçi ve kolhozcılar arasından çıqma, mektep körmegen icatçılar ediler (150.
-144-nci sahife); nihaet, resimlernin mevzuları da denişe: endi mevzu «sovet barlığının ve inqilâbiy kureşnin bütün taraflarını» qavrap ala, «istihsal ve tarla udarniklerinin portretleri»ni taqdim ete, «sosialist qurucılıq»nın mevzularını açıp kostere.
-(150.145-nci sahife).
+A. Polkanov böyle yaza: «İnqilâptan evel Oırımda milliy ressamlardan bir adam bile yoq edi...qırımtatarlarğa ressamlıq sanatına qatılmaq imkânını tek sovet hakimiyeti berdi, bu — stalince-lenince milliy siyasetnin neticelerinden biridir»(150.145-nci sahife).
+Ekincide, ressamlarnın içtimaiy erkânı denişe — olarnin ekseryieti işçi ve kolhozcılar arasından çıqma, mektep körmegen icatçılar ediler (150.144-nci sahife); nihaet, resimlernin mevzuları da denişe: endi mevzu «sovet barlığının ve inqilâbiy kureşnin bütün taraflarını» qavrap ala, «istihsal ve tarla udarniklerinin portretleri»ni taqdim ete, «sosialist qurucılıq»nın mevzularını açıp kostere.(150.145-nci sahife).
 Zaten, qırımtatar ustalarının özleri her halda etnografik tüsteki eserlerge meyil bereler.
 İşte, eki dalğağa ait qırımtatar ressamlarının içtimaiy kelip çıquvları türlü-türlü olğanına baqmadan, olarnı bir şey — icat etüvge doğrultılğan tükenmez ıntıluv birleştire.
-Oırımda o devirde ötkerilgen bir sıra bediiy sergiler (Kefe, 1927; Aqmescit, 1922, 1925, 1927, 1930, 1940 seneleri) kosterdiler ki, qırımtatar ustaları Oırımmh tasviriy sanatında yetekçi yer almaları, özlerinin aydın ve özgün istidatları ile tenqidçilernin diqqatlarını celp etmeleri içün imkân bar edi.
-(150.144-150-nci sahifeler).
+Oırımda o devirde ötkerilgen bir sıra bediiy sergiler (Kefe, 1927; Aqmescit, 1922, 1925, 1927, 1930, 1940 seneleri) kosterdiler ki, qırımtatar ustaları Oırımmh tasviriy sanatında yetekçi yer almaları, özlerinin aydın ve özgün istidatları ile tenqidçilernin diqqatlarını celp etmeleri içün imkân bar edi.(150.144-150-nci sahifeler).
 Meselâ, Oırımda sovet hakimiyeti tasdiqlanmasının 15 yıllığına bağışlanğan sergide artıq 21 qırımtatar ressamı iştirak etti (qiyas içün: ruslardan 43, ukrainlerden 8, yehudiylerden 11, diğer milletlerden birer adam), hem «tatar ressamları istidat cehetinden sergi iştirakçileri arasında yetekçi yerlerde bulunalar».(150.145-nci sahife).
 Bu ressamlar arasında serginin birinci mükâfatını qazanğan A.Ustayev, A.Yarmuhamedov, M.Abselâmov (ekinci mükâfat), Halilev, Asanov, Yağyayev, halq ustaları A.Kalafatov, A.Efendiyeva, F.Aliyeva, A.Mambetova ve diğerleri bar ediler.
-Sergige hudayinabit (kendi kendine resim ögrengen) ressamlar da qatıldılar.
-Özünin deniz peyzajlarınen iştirak etken sobacı Azizov-şöyle istidatlı ressamlarnıh birisidir.(150.145-146-ncı sahifeler).
+Sergige hudayinabit (kendi kendine resim ögrengen) ressamlar da qatıldılar,Özünin deniz peyzajlarınen iştirak etken sobacı Azizov-şöyle istidatlı ressamlarnıh birisidir.(150.145-146-ncı sahifeler).
 Amet Ustayev (1909-1990) Tuaq köyünde doğdı, Bağçasaraydaki ameliy sanat boyunca tehnikumnı bitirdi (1926-1929), lâkin onın meraqları bayağı kenişçe edi.
 O portretler, peyzajlar da yapa edi.
-Ressamnın erte eserlerinden birisi — «Bağçasaray çeşmesi» resimi janr cehetinden turmuş levhası olıp, onda çeşmeden suv alayatqan yaş qızlar tasvirlengen.
+Ressamnın erte eserlerinden birisi — «Bağçasaray çeşmesi»Resimi janr cehetinden turmuş levhası olıp, onda çeşmeden suv alayatqan yaş qızlar tasvirlengen.
 Oquvnı bitirgen Ustayev taqsimlev boyunca Oazahistanğa tüşe, anda kilim toquv fabrikasında ressam olıp çalışa, qazah örneklerini ögrene, süjetli ve örnekli kilimlernin eskizlerini yarata (onın eskizi esasında Leninnin portreti olğan kilim toqula — 205.228-nci sahife).
 1934 senesi tuvğan koyune qaytıp kelgen Amet Ustayev esasen bezetüvnen oğraşa — tükânlar, qaveler, klublar içün ad tahtaları yapa, aynı vaqıtta qalem resimleri, koydeşlernin portrelerinden ibaret seriyalar yarata.
 (88.54-nci sahife).
