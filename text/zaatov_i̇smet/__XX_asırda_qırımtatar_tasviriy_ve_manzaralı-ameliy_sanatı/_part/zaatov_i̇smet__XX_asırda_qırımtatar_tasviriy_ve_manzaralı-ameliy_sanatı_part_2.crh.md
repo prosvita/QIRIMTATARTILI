@@ -64,10 +64,8 @@ Zamandaşları onı «tarihiy hatıranın bekçisi» (248.63-nci sahife), ressam
 1905 senesinden 1907 senesine qadar Aqmescitteki Kommertsiya oquv yurtunda grafika sanatı boyunca ders berdi.
 Tahsilini İtaliyada, Frantsiya, Türkiyede devam ettirdi.
 Onın özü yazğanı kibi, 1907-1909 seneleri İstanbulda, Parijde, Münhende ve Drezdende çalışqan, 1912 senesi ise İtaliyağa barıp, anda Uyanuv devirinin monumental ressamlığını ögrengen.
-Bundan son onın icadiy faaliyeti kene Moskva ve Sankt-Peterburgnen bağlı ola — Bodaninskiy Stroganov adına oquv yurtunın filialında ders bere, filialnın ressamlıq-sanayı mektebine yolbaşçılıq yapa, belli mimar İ.
-A. Fominnen beraber bezetici ressam olıp çalışa.
-1910 senesi U.Bodaninskiy Moskvadaki Ticaret bankının binasındaki plafonlarnı süslendire, Ya.
-V. Ratkov-Rojnovmn, S.S. Abamelek-Lazarevnin ve digerlernin evlerini bezete.
+Bundan son onın icadiy faaliyeti kene Moskva ve Sankt-Peterburgnen bağlı ola — Bodaninskiy Stroganov adına oquv yurtunın filialında ders bere, filialnın ressamlıq-sanayı mektebine yolbaşçılıq yapa, belli mimar İ.A. Fominnen beraber bezetici ressam olıp çalışa.
+1910 senesi U.Bodaninskiy Moskvadaki Ticaret bankının binasındaki plafonlarnı süslendire, Ya.V. Ratkov-Rojnovmn, S.S. Abamelek-Lazarevnin ve digerlernin evlerini bezete.
 1917 senesi Oırımğa qaytıp kele.
 
 Almaniyalı tedqiqatçı Ediğe Oırımal özünin «Oırım türklerinih milliy mücadelesi» adlı kitabında U.Bodaninskiy ve A.Abiyev haqqında böyle yaza:
