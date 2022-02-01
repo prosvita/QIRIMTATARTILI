@@ -15,14 +15,11 @@ Lâkin bu esnada eh büyük adım XIX asırnın sonlarında, Rusiyenin yetekçi 
 Yarımadağa sanatnın yanı şekilleri kelmesinen mındaki medeniy ömür heppeyi canlandı, teatr, kinematograf, edebiyat ilerilediler, qırımtatar icadiy ziyalılarımn sayısı östü.
 Şubhesiz, Oırım medeniyetinde Ğarp ve Şarqmiî «körüşmesi» birinci kere değil edi (bu yerde Geraylar devirini hatırlamaq mümkün: o vaqıtlarda hanlar kendi huzurlarına İtalyan ustalarını davet ete turğanlar), lâkin bu keresinde münasebetler bam-başqa tüs taşıy ediler — Avropa medeniyetinin tesiri çoq asırlıq mahalliy an'anelernih büs-bütün inkâr etilgeni halda keçirildi.
 Bu hal hususan yarımadada bolşevikler hakimyeti tasdiqlanğan son közge çarpıp başladı, çünki sovet Rusiyesinin inqilâbiy sanatı musülman Oırımının medeniy asabalığını zerrece hesapqa almay edi.
-
 XX asımın yigirminci seneleri amerikalı qırımşınaslar A.
-Fişer ve E.
-Lazerininin oğurlı elinen qırımtatar sanatının «altın aşırı» adını aldılar, o yıllarnı kimerde qırımtatar renessansı deviri, de deyler.
+Fişer ve E.Lazerininin oğurlı elinen qırımtatar sanatının «altın aşırı» adını aldılar, o yıllarnı kimerde qırımtatar renessansı deviri, de deyler.
 Bu sözlerde can bar, faqat, olarnı, her halda, tamamlamaq kerek.
 Oırımnın medeniy renessansı ancaq beş yıl devam etti (1923-1927 seneleri), amma bu yıllar edebiyat, teatr, ilim, tahsilnin gür çeçeklengen yılları ediler.
 1928 senesinin yanvar ayında ise qırımtatar ziyalılarına qarşı repressiyalarnıh birinci dalğası koterile.(183.5-nci sahife).
-
 Oırımtatar medeniyetinin o yıllardaki inkişafı mürekkep, zıddiyetli keçti.
 Bir taraftan, muayen ösüv körünip turğanı halda, diğer taraftan — medeniyetni gizliden yoq etmeğe tırışıldı.
 Ebet, XX asımın başlarında medeniyette qırımtatar halq an'aneleri daha saqlanılğan ediler, lâkin Oırımdaki medeniy zeminniri özgünligi sovet hakimiyeti yıllarında bütünley yoq etildi.
@@ -33,16 +30,13 @@ Yanı sovet hakimiyeti çar hükümetinin diğer milletlerni eziyetlevge doğrul
 Rusiyede yüz bergen inqilâbiy denişmeler bir çoq kenar mintaqalarda milliy azatlıq hareketlerini qozğadılar.
 Bu esnada yarımadadaki asıl halqnıh medeniy inkişafında muayen yılışuv közetile.
 Oırım muhtariyet huquqını ala, qırımtatarlar Oırımnın asıl halqı sıfatında fanilalar, qırımtatar tili ise devlet statusına malik ola.
-1923 senesi partiyanın baş yolu, dep ilân etilgen tamırlaştıruv siyaseti neticesinde qırımtatarlarğa hakimiyet organlarında, oquv yurtlarında ve istihsalda keniş kvotalar berildi.
-(183.
-5-nci sahife).
+1923 senesi partiyanın baş yolu, dep ilân etilgen tamırlaştıruv siyaseti neticesinde qırımtatarlarğa hakimiyet organlarında, oquv yurtlarında ve istihsalda keniş kvotalar berildi.(183.5-nci sahife).
 Böyleliknen, milliy tahsil sistemasını qaytadan teşkilâtlandıruv, yanı medeniy muessiselerni meydanğa ketirüv ceryam başlana; bir sıra medeniyet erbaplarının, şu cümleden qırımtatar ressamlarının peyda olması içün şaraitler doğa.
 20-30-ncı seneler devamında an'aneviy esnaflarnı canlandıruv boyunca iş alınıp barıla (Bağçasarayda sonundan Oırım oblast tatar sanayı-ressamlıq mektebi, dep adlandırılğan tatar ressamlıq-sanayı tehnikumı çalışıp başlay).
 Amma böyle vaziyet çoqqa sürmedi.
 Regionlarnın öz mustaqilligini böyle gür nümayiş etmesinen Sovet hakimiyeti razılaşıp olamay edi.
 Bu şey ahır-sonu qırımtatar milleti içün ödelmez ğayıplarğa alıp keldi.
 Medeniyeti ve sanatının tarihi bu derecede facialı vaqialarğa tolup-taşqan daha bir halqnı tapmaq küçtir.
-
 Oırımtatarlarmh sürgünlikten evelki sanatı bir taraftan aydın, özgün sanat olıp, ekinci taraftan — o ğayet az ögrenilgen bir körüniş edi.
 Bunıfı sebebi şunda ki, Oırımnıh asıl halqımn sürgünlikten evelki medeniyeti hususında cenkten sofi da onlarnen yıllar devamında ağız açılmadı.
 
