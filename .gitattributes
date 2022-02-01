@@ -1,0 +1,11 @@
+* text=auto
+*.md text diff=markdown
+*.sh text eol=lf
+*.pdf binary
+*.png binary
+*.jpg binary
+*.gif binary
+
+package.json text eol=lf
+package-lock.json text -diff
+*.lock text -diff
