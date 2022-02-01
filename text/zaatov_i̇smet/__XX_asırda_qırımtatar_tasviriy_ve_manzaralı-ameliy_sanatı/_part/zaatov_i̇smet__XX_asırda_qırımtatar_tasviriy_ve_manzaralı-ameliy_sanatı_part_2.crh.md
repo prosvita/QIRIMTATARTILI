@@ -11,9 +11,8 @@ XIX asırnın sonlarında qırımtatar tasviriy sanatı inqiraz halında bulunı
 Yarımadağa sanatnın yanı şekilleri kelmesinen mındaki medeniy ömür heppeyi canlandı, teatr, kinematograf, edebiyat ilerilediler, qırımtatar icadiy ziyalılarımn sayısı östü.
 Şubhesiz, Qırım medeniyetinde Ğarp ve Şarqnın «körüşmesi» birinci kere değil edi (bu yerde Geraylar devirini hatırlamaq mümkün: o vaqıtlarda hanlar kendi huzurlarına İtalyan ustalarını davet ete turğanlar), lâkin bu keresinde münasebetler bam-başqa tüs taşıy ediler — Avropa medeniyetinin tesiri çoq asırlıq mahalliy an'anelernih büs-bütün inkâr etilgeni halda keçirildi.
 Qırımtatar ziyalılarının ayrı vekilleri bediiy tahsilni Rusiyede, çetelde — Avropada aldılar.
-Lâkin bu esnada eh büyük adım XIX asırnın sonlarında, Rusiyenin yetekçi ressamları Oırımğa daimiy yaşamağa kelip başlağanlarından son atıldı.
-Bu devir qırımtatarlarnın Qırımğa avdet oluv ve yerleşüv ceryanınen bağlıdır.
-Bunınnen birlikte aynı şu Rusiyege qoşuluv sayesinde Oırımğa sanatnın avropalıca medeniy an'anelerge has yanı şekilleri, cümleden, tezya sanatı ket-kete sinip, inkişaf etip başladılar.
+Lâkin bu esnada en büyük adım XIX asırnın sonlarında, Rusiyenin yetekçi ressamları Qırımğa daimiy yaşamağa kelip başlağanlarından son atıldı.
+Bunınnen birlikte aynı şu Rusiyege qoşuluv sayesinde Qırımğa sanatnın avropalıca medeniy an'anelerge has yanı şekilleri, cümleden, tezya sanatı ket-kete sinip, inkişaf etip başladılar.
 Bu hal hususan yarımadada bolşevikler hakimyeti tasdiqlanğan son közge çarpıp başladı, çünki sovet Rusiyesinin inqilâbiy sanatı musülman Oırımının medeniy asabalığını zerrece hesapqa almay edi.
 XX asımın yigirminci seneleri amerikalı qırımşınaslar A.Fişer ve E.Lazerininin oğurlı elinen qırımtatar sanatının «altın aşırı» adını aldılar, o yıllarnı kimerde qırımtatar renessansı deviri, de deyler.
 Bu sözlerde can bar, faqat, olarnı, her halda, tamamlamaq kerek.
