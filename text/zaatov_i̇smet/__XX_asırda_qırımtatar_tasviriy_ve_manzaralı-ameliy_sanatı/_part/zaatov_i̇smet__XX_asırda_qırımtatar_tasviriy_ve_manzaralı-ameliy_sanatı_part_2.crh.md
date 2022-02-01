@@ -1,14 +1,12 @@
 ## ÛIRIMTATARLARNIN XX ASIRDAKİ TASVİRİY SANATI: İNKİŞAFNIN MEYİLLERİ VE ESAS MUAMMALARI
 
 XIX asımın sonlarına, XXI asırnın başlarına ait qırımtatar tasviriy sanatı inkişafnın üç esas basqıçını keçti ki, bu basqıçlar doğrudan-doğru halqnın siyasiy ve etnik tarihi ile bağlıdırlar:
-
-- 1895 senesinden 1944 senesine qadar olğan devirde (Rusiyenin ve ğarbiy Avropanın akademik merkezlerinde ilk professional qırımtatar ressamlarının oqup başlağan vaqtından sürgünlikke qadar) tasviriy sanatnın inkişafı.
-- qırımtatar halqı Rusiyenin şimaliy rayonlarına, Orta Asiyağa, Qazahistanğa zorbalıqnen sürgün etilip, dağınıq halda yerleştirilgen devirge (19441989 seneleri) ait tasviriy sanat.
-- qırımtatar tasviriy sanatının tarihiy Vatanda qayta tiklenüv deviri (19892002 seneleri).
-Bu devir qırımtatarlarnıh Oırımğa avdet oluv ve yerleşüv ceryanınen bağlıdır.
+- 1895 senesinden 1944 senesine qadar olğan devirde (Rusienin ve ğarbiy Avropanın akademik merkezlerinde ilk professional qırımtatar ressamlarının oqup başlağan vaqtından sürgünlikke qadar) sanatşnviriy in.sanatşviriy in.
+- qırımtatar halqı Rusiyenin şimaliy rayonlarına, Orta Asiyağa, Qazahistanğa zorbalıqnen sürgün etilip, dağınıq halda yerleştirilgen devirge (1944-1989 seneleri) ait tasviriy sanat.
+- qırımtatar tasviriy sanatının tarihiy Vatanda qayta tiklenüv deviri (1989-2002 seneleri).
+Bu devir qırımtatarlarnın Qırımğa avdet oluv ve yerleşüv ceryanınen bağlıdır.
 
 ### 2.1. Sürgünlikten evelki qırımtatar tasviriy sanatı
-
 İslâm alemindeki diğer regionlarda olğanı kibi, Oırımmh tasviriy sanatı da XIX asımın sonuna qadar öz qanunları esasında inkişaf etip, bu qanunlar mucibi aqiqatnı realistik tarzda aks ettirmek mümkün değil edi.
 Eh evelâ monumental tasviratnen hem de orta asırlarğa ait kitap miniatürasınen taqdim olunğan tasviriy sanatta esas diqqat örnekler, çeçeklerni tasvirlev üslübine berile edi.
 
