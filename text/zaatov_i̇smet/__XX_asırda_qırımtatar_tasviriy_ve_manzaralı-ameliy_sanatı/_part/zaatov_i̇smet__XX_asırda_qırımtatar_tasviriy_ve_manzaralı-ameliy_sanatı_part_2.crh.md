@@ -13,18 +13,10 @@ Qırımtatar ziyalılarının ayrı vekilleri bediiy tahsilni Rusiyede, çetelde
 Lâkin bu esnada eh büyük adım XIX asırnın sonlarında, Rusiyenin yetekçi ressamları Oırımğa daimiy yaşamağa kelip başlağanlarından son atıldı.
 Bu devir qırımtatarlarnın Qırımğa avdet oluv ve yerleşüv ceryanınen bağlıdır.
 Bunınnen birlikte aynı şu Rusiyege qoşuluv sayesinde Oırımğa sanatnın avropalıca medeniy an'anelerge has yanı şekilleri, cümleden, tezya sanatı ket-kete sinip, inkişaf etip başladılar.
-
-
-
-
-
-
-
 Bu hal hususan yarımadada bolşevikler hakimyeti tasdiqlanğan son közge çarpıp başladı, çünki sovet Rusiyesinin inqilâbiy sanatı musülman Oırımının medeniy asabalığını zerrece hesapqa almay edi.
-XX asımın yigirminci seneleri amerikalı qırımşınaslar A.
-Fişer ve E.Lazerininin oğurlı elinen qırımtatar sanatının «altın aşırı» adını aldılar, o yıllarnı kimerde qırımtatar renessansı deviri, de deyler.
+XX asımın yigirminci seneleri amerikalı qırımşınaslar A.Fişer ve E.Lazerininin oğurlı elinen qırımtatar sanatının «altın aşırı» adını aldılar, o yıllarnı kimerde qırımtatar renessansı deviri, de deyler.
 Bu sözlerde can bar, faqat, olarnı, her halda, tamamlamaq kerek.
-Oırımnın medeniy renessansı ancaq beş yıl devam etti (1923-1927 seneleri), amma bu yıllar edebiyat, teatr, ilim, tahsilnin gür çeçeklengen yılları ediler.
+Qırımnın medeniy renessansı ancaq beş yıl devam etti (1923-1927 seneleri), amma bu yıllar edebiyat, teatr, ilim, tahsilnin gür çeçeklengen yılları ediler.
 1928 senesinin yanvar ayında ise qırımtatar ziyalılarına qarşı repressiyalarnıh birinci dalğası koterile.(183.5-nci sahife).
 Oırımtatar medeniyetinin o yıllardaki inkişafı mürekkep, zıddiyetli keçti.
 Bir taraftan, muayen ösüv körünip turğanı halda, diğer taraftan — medeniyetni gizliden yoq etmeğe tırışıldı.
