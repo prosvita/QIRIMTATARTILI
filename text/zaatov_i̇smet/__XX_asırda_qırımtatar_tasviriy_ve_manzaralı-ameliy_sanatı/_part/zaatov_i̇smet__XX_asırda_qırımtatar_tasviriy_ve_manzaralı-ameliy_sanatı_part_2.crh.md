@@ -150,7 +150,6 @@ Resimdeki kimersi avropalıcasına, kimersi musülmancasına kiyinip quşanğan 
 Bir baqıştan, bu — kurort ömürinden bir levhadır, demek mümkün, asılında ise, bu resim — muellifnin yanı cemiyet haqqında hayalıdır.
 Belli ki, böyle cemiyet qurulacağını «halqlar atası» Stalin işandırğan edi.
 İşte, resimnin sağ köşesinde Stalinnin büyükten-büyük portreti qoyulmasının sebebi de şundadır.
-Ne ise de resimnin tasviriy değerlikleri seyircide büyük meraq doğuralar: «Tatar toyu»nda bizni meftün etken ışıq ve kölge oyum bu eserde de bar küçnen aks oluna: küneş nurları, sanki dersin, resimni delip keçeler, sıra kemerlernin ince işlengenini, vaqia olıp keçeyatqan mimarcılıq konstruktsiyasımiî yengilligini qayd eteler.
 Umumen, A.Yarmuhamedovnın resimleri onın plener sanatı sahasında büyük usta olğanını köstereler.
 Ressamnın belli eserleri cümlesine «Baynın bostanında», «Dağlı çobannın oyum», «Mamay taş ocaqlarında işçilernin atılıp öldürilüvi» kibi resimleri kireler.(248.226-ncı sahife).
 1936 senesinden son hiç bir menbada ressamnın adı ahılmay.
