@@ -260,59 +260,36 @@ Bu eserler diqqatımıznı, başta bir, tasvirlengen adamlarnıh degerliklerinen
 Ressamğa siyasiy taqipler şaraitinde bulunğan halqnıfi eh yahşi vekilleri öz istidatlarının tanılmasına irişe bilgenlerini köstermek mühim edi.
 Ressam yapqan «Elmira» adlı portrette (1983) zamandaşımız, dülber, oqumışlı, ülviy ve şairane mizaçlı qırımtatar qadımnın ideali mucessemleşkendir.
 Doğru, ressamnın bazı bir diğer portretlerinde tışqı yaldızlamalar, teatrcilik pası közge çarpa, belki de, bu şey resssamnın aktörlıq zenatının tesirinen bağlıdır.
-
 Osmanovnm icadında Oırım mevzusı ayrıca yer tuta.
 Ressam sürgünlikte yaşar eken, Vatanına defalarca kele, mında peyzaj resimleri yaratmaq içün ilham ala, resimlerde Oırımnıh eh körümü yerlerini tasvirley («Ayuvdağ», «Çehovnın Gurzuftaki evi», «Deniz ve qayalar», 1982).
 Ressam «Qırımnın yalıboyunda gece» adlı peyzaj resiminde Ayüvdağnın panoramalı körünişini bere.
 Dağ eteğindeki evçiklernin pencereleri gece qaranlığında yanıp turalar, ay nurları ise dalğasız deniz sathında, dersin, bir yol keçirip, seyircini tuvğan yalığa qaytmağa çağıralar.
-
-S.
-Osmanov Oırımğa 1988 senesi qaytıp keldi ve derhal faal icadiy işke kirişti — qırımtatar medeniyetinin ulu erbaplarından I.
-Gasprinskiy, N.
-Çelebicihan, B.
-Çoban-zade, U.
+S.Osmanov Oırımğa 1988 senesi qaytıp keldi ve derhal faal icadiy işke kirişti — qırımtatar medeniyetinin ulu erbaplarından I.Gasprinskiy, N.Çelebicihan, B.Çoban-zade, U.
 İpçiğe bağışlanğan yübiley tantanalarını yaraştırdı.
 1990-ncı senelerde Aluştada (1991) ve Aqmescitte (1994) ressamnın şahsiy sergileri ötkerildi.
 Oırım devirine ait resimler esasen peyzaj ve natürmort janrında yapılğanlar.
 Bu devirde yaratılğan peyzajlarnıh ruhiyeti de denişe.
 80-nci senelerge ait eserlerde elegik duyğular üstün turğan olsa, 90-ncı senelerde yapılğan resimlerde artıq heyecanlı-patetik duyğular qabarıp çıqa.
 Vatanına qaytqan ressamnı sarıp alğan duyğularm deniz peyzajları seriyasında — doğayatqan küneşnin gülgülü şavleleri astında nazlanğan yalıdaki qayalarğa barıp urulğan şiddetli dalğalarda közetmek mümkün.
-
 Cenkten evel icat etken qırımtatar ressamları cümlesine qarasuvbazarli Resid Çelebiyevni de qoşmaq lâzim.
 Oırımtatar devlet teatri açılğan künden (1923) başlap şu teatrde ressam ve aktör olıp çalışqan (251.
 20-nci sahife) bu adam Bağçasaray muzeyinifi direktorı Usein Bodaninskiy Oırım boylap teşkilâtlandırdığı meşhur etnografik eskpeditsiyada tasvirleyici ressam sıfatında iştirak etti.
 R. Çelebiyevnin resimleri şimdi Bağçasaray tarihiy-medeniy zapovedniginin fondlarında saqlanalar.
-
 Bağçasaray rayonının Teberti köyünde doğğan Emir-Amet Parikov da 1920-1930-ncı senelerde tanılğan peyzaj ustalarından birisi edi.
-E-A.
-Parikov 1924 senesi Bağçasaraydaki bediiy-sanayı tehnikumını bitirgen son ressam hem de kemik ve ağaç üstünde oymacı diplomını aldı.
-
+E-A.Parikov 1924 senesi Bağçasaraydaki bediiy-sanayı tehnikumını bitirgen son ressam hem de kemik ve ağaç üstünde oymacı diplomını aldı.
 O, özüni SSSR Ressamlar akademiyasının muhbir azası Usein Bodaninskiy şegirti, dep saya edi.
 Lâkin 20-nci senelernin ekinci yarısında professional artistlikke ziyade berilgen Parikov ressamlıq işini çetke süre ve belli bir vaqıttan son meşhur qırımttar komik artistine çevirile.
 
-E-A.
-Parikov 1936 senesi vefat etti.
-Aqmescitnih Subhi soqağındakı qırımtatar mezarlığında defn olundı.
-(250.
-45-nci sahife).
-
-2.2.
-1950-1980 senelerindeki qırımtatar tasviriy sanatı
-
+E-A.Parikov 1936 senesi vefat etti.
+Aqmescitnih Subhi soqağındakı qırımtatar mezarlığında defn olundı.(250.45-nci sahife).
+2.2.1950-1980 senelerindeki qırımtatar tasviriy sanatı
 ûırımtatar tasviriy sanatının ayaqqa turuv ve inkişaf etüvindeki ekinci basqıç 50-80-nci senelerge, yani qırımtatarlarnıh daha sürgünlikte, esasen
-
-t •
-
 Ozbekistanda, yaşağan yıllarına doğru keldi.
 E. Oudusov qayd etkeni kibi, sürgünlik yıllarında ümüt etilmegen şey yüz berdi: «qırımtatarlar diğer türkiy tilli halqlarnen qarışıp, yer yüzünden, umumen cihannın etnik haritasından yoq olmaq yerine özlerinin milliy şahsiyetini saqlap qalmaqnen bir sırada şaşılacaq derecede dayanıqlıq kösterip...
-dünyada en oqumış milletler sırasına çıqtılar».
-(90.
-28-nci sahife).
-
+dünyada en oqumış milletler sırasına çıqtılar».(90.28-nci sahife).
 İcadiy yollarını cenkten evel Oırımda başlağan bazı qırımtatar ustaları özlerini Oırımdan tışta da tanıttılar, unvanlar qazandılar.
 Meselâ, ressam Kâzim Eminov Ozbekistanda nam qazanğan sanat erbabı unvanını birinci olıp alğanlar sırasında edi.
-Aluştada doğup ösken K.
-Eminov (1928-1976) bediiy tahsilni N.
+Aluştada doğup ösken K.Eminov (1928-1976) bediiy tahsilni N.
 S. Samokişnin studiyasında alıp başladı (ta 1939 senesi o balalar icadiyatı olimpiadasında iştirak etip, birinci mukâfatnı qazanğan edi).
 1946 senesi Samarqand ressamlıq oquv yurtunın bir kereden 2-nci kursına qabul etildi, lâkin bir yıl keçer-keçmez, qırımtatar milletinden olğanı içün oquv yurtundan quvuldı, sonra Taşkentke köçti ve anda 1953 senesi P.
 Benkov adına cumhuriyet ressamlıq oquv yurtum alâ işaretlemen bitirdi.
@@ -324,14 +301,9 @@ O, sürgünlikte yaşap, Vatanına daima asret olsa da, Özbekistannı da yürek
 Özbek toprağında yaşağan adamlarnı alğışlağan, Özbekistannın tarihına bağışlanğan bir çoq acayip eserler yarattı («Uçaq uçup keçti», 1960; «Frunze ve Mirşarapov», 1960; «Oarılğaç», 1961; «Çırçıq vadiysi», 1969; «Çarvaq», 1972; «Uyanuv», «Emek», «Rahatlanuv» triptihi, 1972; «Parkent aqsaqalları», 1974).
 1970-nci senelerde Eminov Qırım memurlarının qarşılığına baqmadan, Oırımğa eki kere sefer yapıp oldı.
 Onın icadındaki bu sonki devir (1970-1976) ressam istidatının gür çeçeklenmesinen, onın istidatı tuvğan topraqqa bitmez-tükenmez sevgi ile ğıdalanmasınen qayd oluna.
-Eminov Oırım mevzusında 30-ğa yaqın peyzaj resimleri yaptı, olarnın arasında «Cenüp hikâyesi.
-Ayüvdağ.
-Oırım» (1973), «Gurzuf.
-Zeytün terekleri» (1970) kibi eserler bar.
-«Ay-Petride ösken çamlar» (1973) adlı resim mezkûr seriyadaki eh güzel resimler cumlesindendir.
+Eminov Oırım mevzusında 30-ğa yaqın peyzaj resimleri yaptı, olarnın arasında «Cenüp hikâyesi.Ayüvdağ.Oırım» (1973), «Gurzuf.Zeytün terekleri» (1970) kibi eserler bar.«Ay-Petride ösken çamlar» (1973) adlı resim mezkûr seriyadaki eh güzel resimler cumlesindendir.
 Bu resim şimdilikte Taşkentteki devlet Sanat muzeyinin kollektsiyasında buluna.
 Vatanğa sevgisini boyalar tilinen ustalıq ile ifadelegen acayip ressam Kâzim Eminovnm ömüri avtomobil qazası neticesinde üzüldi.
-
 Ulu Vatan cenkinin iştirakçisi, mimar İrfan Şemsedinov Ukraina Ressamlar akademiyasınıh professorı, değen şerefli unvan taşıy.
 İ. Şemsedinov 1919 senesi Kezlevde doğdı, 1935 senesinden 1941 senesine qadar Moskvada, Harkovda oqudı.
 Cenkten son Ukraina Ressamlar akademiyasında oquv-icadiy ustahanenin rehberi olıp çalıştı, 200-den ziyade mimar yetiştirdi.
