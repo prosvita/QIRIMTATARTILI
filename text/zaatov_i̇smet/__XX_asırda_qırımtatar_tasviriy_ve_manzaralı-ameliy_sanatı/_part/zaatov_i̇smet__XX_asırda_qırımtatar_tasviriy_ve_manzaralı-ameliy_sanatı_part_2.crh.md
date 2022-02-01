@@ -5,7 +5,6 @@ XIX asımın sonlarına, XXI asırnın başlarına ait qırımtatar tasviriy san
 - qırımtatar halqı Rusiyenin şimaliy rayonlarına, Orta Asiyağa, Qazahistanğa zorbalıqnen sürgün etilip, dağınıq halda yerleştirilgen devirge (1944-1989 seneleri) ait tasviriy sanat.
 - qırımtatar tasviriy sanatının tarihiy Vatanda qayta tiklenüv deviri (1989-2002 seneleri).
 Bu devir qırımtatarlarnın Qırımğa avdet oluv ve yerleşüv ceryanınen bağlıdır.
-### 2.1. Sürgünlikten evelki qırımtatar tasviriy sanatı
 İslâm alemindeki diğer regionlarda olğanı kibi, Oırımmh tasviriy sanatı da XIX asımın sonuna qadar öz qanunları esasında inkişaf etip, bu qanunlar mucibi aqiqatnı realistik tarzda aks ettirmek mümkün değil edi.
 Eh evelâ monumental tasviratnen hem de orta asırlarğa ait kitap miniatürasınen taqdim olunğan tasviriy sanatta esas diqqat örnekler, çeçeklerni tasvirlev üslübine berile edi.
 XIX asımın sonlarında qırımtatar tasviriy sanatı inqiraz halında bulunıp, bunın sebepleri yarımadadaki umumiy tarihiy-medeniy vaziyetnen, çar hükümeti yüz yıl devamında yerli medeniyetke ve qırımtatar ehalisine nisbeten keçirgen siyasetnen bağlı edi.
@@ -63,42 +62,30 @@ Olar qırımtatar halqımn medeniy ömürinde tasviriy sanatnın zarur element s
 Professional esasta çalışqan ilk qırımtatar ressamlarının peyda olmasına belli bir derecede İ.Gasprinskiynin, İ.Boraganskiynin, A.Mediyevnin ve diğer qırımtatar naşirlerinin aktiv faaliyeti şiltem berdi, çünki olarnın neşir ettiği gazetalar, mecmualar ve kitaplarnı bediiy bezetmek içün qırımtatar halqınıh medeniyeti ve sanatını içinden bilgen, bu halq medeniyetinin taşıyıcısı sayılğan professional ressamlar hem Oırımda, hem Peterburgda talap oluna ediler.
 Türkiy halqlarnın maarifçisi İsmail Gasprinskiynin meslekdeşi ve izdeşi sayılğan, qırımtatar ilimi ve sanatının qoruyıcısı olğan polkovnik İsmail Mufti-zadenin bu esnadaki hizmetleri ğayet büyüktir.
 O, 1883 senesi «Cemiyet-i hayriye» adlı qırımtatar hayriye vaqufını amelde meydanğa ketire ve onı tek 1887 senesi resmiy surette cedvelge aldırtıp ola.
-XIX asırnın sonlarında ilk qırımtatar ressamları İ.
-Mufti-zadenin şahsiy paraları ve «Cemiyet-i hayriye»nin maddiy qoltutuvı sayesinde Moskvağa oqumağa yollanılıp, sonra Frantsiya, Almaniya, Türkiyede ameliyat keçtiler.(249.175-nci sahife).
+XIX asırnın sonlarında ilk qırımtatar ressamları İ.Mufti-zadenin şahsiy paraları ve «Cemiyet-i hayriye»nin maddiy qoltutuvı sayesinde Moskvağa oqumağa yollanılıp, sonra Frantsiya, Almaniya, Türkiyede ameliyat keçtiler.(249.175-nci sahife).
 XX asırnın başlarına ait qırımtatar tasviriy sanatının eh büyük sımalarından biri Usein Bodaninskiy edi.
-Zamandaşları onı «tarihiy hatıranın bekçisi» (248.
-63-nci sahife), ressam, sanatşınas, etnograf sıfatında bile ediler.
-U. Bodaninskiy bediiy tahsilnin esaslarını Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunda aldı, anda K.
-A. Korovinnin elinde oqup, bezetici-ressam zenaatını menimsedi (1896-1905).
+Zamandaşları onı «tarihiy hatıranın bekçisi» (248.63-nci sahife), ressam, sanatşınas, etnograf sıfatında bile ediler.
+U. Bodaninskiy bediiy tahsilnin esaslarını Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunda aldı, anda K.A. Korovinnin elinde oqup, bezetici-ressam zenaatını menimsedi (1896-1905).
 1905 senesinden 1907 senesine qadar Aqmescitteki Kommertsiya oquv yurtunda grafika sanatı boyunca ders berdi.
 Tahsilini İtaliyada, Frantsiya, Türkiyede devam ettirdi.
 Onın özü yazğanı kibi, 1907-1909 seneleri İstanbulda, Parijde, Münhende ve Drezdende çalışqan, 1912 senesi ise İtaliyağa barıp, anda Uyanuv devirinin monumental ressamlığını ögrengen.
 Bundan son onın icadiy faaliyeti kene Moskva ve Sankt-Peterburgnen bağlı ola — Bodaninskiy Stroganov adına oquv yurtunın filialında ders bere, filialnın ressamlıq-sanayı mektebine yolbaşçılıq yapa, belli mimar İ.
 A. Fominnen beraber bezetici ressam olıp çalışa.
-1910 senesi U.
-Bodaninskiy Moskvadaki Ticaret bankının binasındaki plafonlarnı süslendire, Ya.
-V. Ratkov-Rojnovmn, S.
-S. Abamelek-Lazarevnin ve digerlernin evlerini bezete.
+1910 senesi U.Bodaninskiy Moskvadaki Ticaret bankının binasındaki plafonlarnı süslendire, Ya.
+V. Ratkov-Rojnovmn, S.S. Abamelek-Lazarevnin ve digerlernin evlerini bezete.
 1917 senesi Oırımğa qaytıp kele.
 
-Almaniyalı tedqiqatçı Ediğe Oırımal özünin «Oırım türklerinih milliy mücadelesi» adlı kitabında U.
-Bodaninskiy ve A.
-Abiyev haqqında böyle yaza:
-«Bular — Oırımnın asıl halqı içinden çıqmış istidatlı ressamlardır ki, olar kendi bilgilerini İtalyan ve transız ressamlıq mekteplerinde mukemmelleştirgenler».
-(250).
-
-20-nci senelernin milliy uyanuv dalğasında U.
-Bodaninskiy bediiy-pedagogik faaliyetke berilip, halq esnaflarını canlandıruvnen, 1924-29 seneleri Qırq-Azizlerde, Eski Yurtta, Eski Oırımda, Çufut-Oalede, şimaliy Oırımda etnografiya ekspeditsiyaları ötkerüvnen meşğül ola, aynı vaqıtta ressamlıqsanayı tehnikumında ders bere, orta asırlarğa ait ve zemaneviy qırımtatar sanatı haqqında lektsiyalar oquy...
+Almaniyalı tedqiqatçı Ediğe Oırımal özünin «Oırım türklerinih milliy mücadelesi» adlı kitabında U.Bodaninskiy ve A.Abiyev haqqında böyle yaza:
+«Bular — Oırımnın asıl halqı içinden çıqmış istidatlı ressamlardır ki, olar kendi bilgilerini İtalyan ve transız ressamlıq mekteplerinde mukemmelleştirgenler».(250).
+20-nci senelernin milliy uyanuv dalğasında U.Bodaninskiy bediiy-pedagogik faaliyetke berilip, halq esnaflarını canlandıruvnen, 1924-29 seneleri Qırq-Azizlerde, Eski Yurtta, Eski Oırımda, Çufut-Oalede, şimaliy Oırımda etnografiya ekspeditsiyaları ötkerüvnen meşğül ola, aynı vaqıtta ressamlıqsanayı tehnikumında ders bere, orta asırlarğa ait ve zemaneviy qırımtatar sanatı haqqında lektsiyalar oquy...
 Bodaninskiy Oırım tarihında birinci kere, Yalta kinostudiyasında yaratılğan «Alim» bediiy filminin ressamı da ola.
 Biraz vaqıttan son om Bağçasaraydaki saray-muzeynin direktorı olaraq tayinleyler ve bu muzey Bodaninskiy devirinde qırımtatar sanatının ilmiy-tedqiqat merkezine çevirile.
-
 Teessüf ki, onın bediiy icadını aydınlatqan numüneler saqlanıp qalmadı — Bodaninskiynin elinen yaratılğan bütün eserler alim 1938 senesi atıp öldürilgen son maqsadkârlıq ile yoq etildiler.
 Onın eserleri haqqında faqat bazı bir malûmatlar mevcut.
 Meselâ, Bodaninskiy Peterburgda «Ay yarıq gecede» adlı akvarel resim (1910) yapqan, bundan gayrı 1909 senesi Moskvadaki ressamlar şirketinin 17-nci sergisinde iştirak etken, Moskva mimarcılar cemiyetinin ve Peterburgdaki Mimar-ressamlar cemiyetinin faaliyetlerine qatılğan.
 Oırımmh aq gvardiyacılardan azat olunğanının 10 yıllığına bağışlanğan yübiley sergisinde (1930) onın «Pionerler» adlı resimi nümayiş etilgen.
 U. Bodaninskiy Aqmescitteki Oırımtatar teatrinde sanalaştırılğan «Bağçasaray çeşmesi» (1927) baleti içün kostümlernin eskizlerini yarattı.
-(205.
-220-nci sahife).
+(205.220-nci sahife).
 Bunınnen birlikte 20-nci senelerde neşir olunğan bir sıra kitaplarğa U.
 Bodaninskiynin illüstratsiyaları da saqlanıp qalğan.
 Meselâ, P.
