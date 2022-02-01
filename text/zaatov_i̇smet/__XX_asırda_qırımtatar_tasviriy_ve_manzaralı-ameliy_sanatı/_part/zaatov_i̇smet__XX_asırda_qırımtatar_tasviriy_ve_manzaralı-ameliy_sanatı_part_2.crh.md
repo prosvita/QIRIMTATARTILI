@@ -54,13 +54,13 @@ Hem mesele tek Oırımda qullanılğan arap elifbesinin yerine başta latin elif
 Aqçokraqlımn özü ise pantürkizmde qabaatlanıp, repressiyağa oğratılğan ve 1938 senesi atıp öldürilgen edi.(184.29-ncı sahife).
 Moskvadaki Stroganov adına resaamlıq-tehnika oquv yurtunda tahsil alğan U.Bodaninskiy, A.Abiyev, A.Lâtif-zade tezya sanatı sahasında professional negizde çalışqan qırımtatar ressamlarının birinci nesiline mensüp ediler.
 Olar qırımtatar halqımn medeniy ömürinde tasviriy sanatnın zarur element sıfatında tasdiqlanmasına büyük hisse qoştılar.
-Professional esasta çalışqan ilk qırımtatar ressamlarının peyda olmasına belli bir derecede İ.Gasprinskiynin, İ.Boraganskiynin, A.Mediyevnin ve diğer qırımtatar naşirlerinin aktiv faaliyeti şiltem berdi, çünki olarnın neşir ettiği gazetalar, mecmualar ve kitaplarnı bediiy bezetmek içün qırımtatar halqınıh medeniyeti ve sanatını içinden bilgen, bu halq medeniyetinin taşıyıcısı sayılğan professional ressamlar hem Oırımda, hem Peterburgda talap oluna ediler.
+Professional esasta çalışqan ilk qırımtatar ressamlarının peyda olmasına belli bir derecede İ.Gasprinskiynin, İ.Boraganskiynin, A.Mediyevnin ve diğer qırımtatar naşirlerinin aktiv faaliyeti şiltem berdi.
+ çünki olarnın neşir ettiği gazetalar, mecmualar ve kitaplarnı bediiy bezetmek içün qırımtatar halqınıh medeniyeti ve sanatını içinden bilgen, bu halq medeniyetinin taşıyıcısı sayılğan professional ressamlar hem Oırımda, hem Peterburgda talap oluna ediler.
 Türkiy halqlarnın maarifçisi İsmail Gasprinskiynin meslekdeşi ve izdeşi sayılğan, qırımtatar ilimi ve sanatının qoruyıcısı olğan polkovnik İsmail Mufti-zadenin bu esnadaki hizmetleri ğayet büyüktir.
 O, 1883 senesi «Cemiyet-i hayriye» adlı qırımtatar hayriye vaqufını amelde meydanğa ketire ve onı tek 1887 senesi resmiy surette cedvelge aldırtıp ola.
 XIX asırnın sonlarında ilk qırımtatar ressamları İ.Mufti-zadenin şahsiy paraları ve «Cemiyet-i hayriye»nin maddiy qoltutuvı sayesinde Moskvağa oqumağa yollanılıp, sonra Frantsiya, Almaniya, Türkiyede ameliyat keçtiler.(249.175-nci sahife).
 XX asırnın başlarına ait qırımtatar tasviriy sanatının eh büyük sımalarından biri Usein Bodaninskiy edi.
-Zamandaşları onı «tarihiy hatıranın bekçisi» (248.63-nci sahife), ressam, sanatşınas, etnograf sıfatında bile ediler.
-U. Bodaninskiy bediiy tahsilnin esaslarını Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunda aldı, anda K.A. Korovinnin elinde oqup, bezetici-ressam zenaatını menimsedi (1896-1905).
+Zamandaşları onı «tarihiy hatıranın bekçisi» (248.63-nci sahife), ressam, sanatşınas, etnograf sıfatında bile ediler.U. Bodaninskiy bediiy tahsilnin esaslarını Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunda aldı, anda K.A. Korovinnin elinde oqup, bezetici-ressam zenaatını menimsedi (1896-1905).
 1905 senesinden 1907 senesine qadar Aqmescitteki Kommertsiya oquv yurtunda grafika sanatı boyunca ders berdi.
 Tahsilini İtaliyada, Frantsiya, Türkiyede devam ettirdi.
 Onın özü yazğanı kibi, 1907-1909 seneleri İstanbulda, Parijde, Münhende ve Drezdende çalışqan, 1912 senesi ise İtaliyağa barıp, anda Uyanuv devirinin monumental ressamlığını ögrengen.
