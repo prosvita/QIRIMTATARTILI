@@ -721,8 +721,7 @@ Ne ise de Ramiz Aqmescitteki N.Samokiş adına ressamlıq oquv yurtuna kirmege m
 Sonki 15 yıl içinde Oırımmh çeşit şeherlerinde hem de Estoniya, Poloniya, Türkiye kibi memleketlerde R.Netovkinnin 10-dan ziyade şahsiy sergisi olıp keçti.
 2000 senesi cumhuriyet qırımtatar sanatı muzeyinde ressamnıh 40 yıllığına bağışlanğan şahsiy sergisi ötkerildi.
 R.Netovkinnin grafikasında yetekçi mevzum Qırım mevzusı teşkil ete.
-%Hususan ressamnıñ sevimli Bağçasarayı: onıñ endi silingen taş basamaqları eski aralıqları, bozulğan çemeleri, biri-biriniñ üstüne üymeleşken evçikler, cami ve süyrü ucu minareler, qıyışqan ağaç çardaqlar...
-Ressam özünin eh sevgen şeheri Bağçasaraynı, bu şehernin silingen taş basamaqlı tar soqaçıqlarını, virane alına kelgen çeşmelerini, biri-birinin damına tırmaşqan campi evçiklerini, camilerinin süyrü uçlu minarelerini, yantayğan ağaç balkonlarını ayrıca zevq ile tasvirley.
+Ressam özünin eh sevgen şeheri Bağçasaraynı, bu şehernin silingen taş basamaqlı tar soqaçıqlarını, virane alına kelgen çeşmelerini, biri-birinin damına tırınaşqan campi evçiklerini, camilerinin süyrü uçlu minarelerini, yantayğan ağaç balkonlarını ayrıca zevq ile tasvirley.
 O, çoqtan-çoq bukletlerde tasvirlenip, endi her keşke belli olğan Bağçasaray abidelerini ve diqqatqa lâyıq yerlerini kör-körane aks ettirmeğe istemey, aksine, bizni taş yılnamelerinde qadim zamanlarnın aks-sedaları saqlanıp qalğan eski şeherge alıp kete.
 O şehernin soqaçıqlarında adam körünmey, sükünet hüküm süre, o şeher şimdi uyquda olıp, ana-mına uyanacaq güzel meleknin qasrını andıra.
 Ressam «Küneşli Bağçasaray» (1988), «Hansaray» (1990), «Taraqtaş köyündeki cami» (1990), «Kokköz», (1990), «Cuma cami» (1996), «Kemer» (1997) kibi resimlerni qalem ve çin merekebinen, özü içün eh kelişikli üslüpte yapqan.
@@ -731,15 +730,19 @@ Ressam özünin monohromlı grafikasına kimerde bir nazik akvarel ve pastel boy
 Netovkinnin mimarcılıq peyzajları — abideler ve binalarmn ancaq tasviri değil de, aynı vaqıtta halq tarihinin, halq medeniyetinin şaatlıqlarıdır.
 Olar tabiiy muhitke uyğun bir tarzda bulunalar, ressam ise, öz nevbetinde, bu tabiiy muhitni büyük tantimlik ve sevgi ile aks ettire.
 Netovkinnin grafika eserleri de monumental muhteşem, de kamerli mahrem, de meşhum susqun, de debdebeli ve quvançlı olalar, çünki olarda ressamnın özü, onın haleti, ruhiyeti aks oluna.
-Netovkinnin mimarcılıq kompozitsiyaları o derece ifadeli ki, resimlerde insan oğlu insan olmağanım hatta abaylamaysın, aksine, resimde adamlar da tasvirlengendir, şunın içün olardan böyle cıllılıq kele, dep belleysin.
-Ramiz Netovkinnin grafika tabaqlarından çoqusı hallarda seriyalar, türkümler asıl ola, meselâ: «Leningrad» (1981), «Orta Asiya» (1984-1988), «Moskva» (1985-1986), «Oazan» (1988).
+Netovkinnin mimarcılıq kompozitsiyaları o derece ifadeli ki, resimlerde insan oğlu insan olmağanım hatta abaylamaysınю
+ Аksine, resimde adamlar da tasvirlengendir, şunın içün olardan böyle cıllılıq kele, dep belleysin.
+Ramiz Netovkinnin grafika tabaqlarından çoqusı hallarda seriyalar, türkümler asıl ola.
+ meselâ: «Leningrad» (1981), «Orta Asiya» (1984-1988), «Moskva» (1985-1986), «Oazan» (1988).
 Tuvğan Oırımğa «Uzaqlaşhayatqan Oırım» (90-ncı seneler) adlı grafik eserler türkümi bağaşlanıp, oha «Bağçasaray», «Aluşta» kibi albomlar kirdiler.
 «Kostamonu» (1998) albomı ise Türkiyenin orta asırlarğa ait mimarcılığına bağışlanğandır.
 R.Netovkinnin icadiy faaliyetinde kitap grafikası ayrıca yer tuta.
-Bugünde-bugün Qırımnın tarihi ve medeniyeti boyunca kitaplarğa olğan meraq pek büyüktir, hem böyle kitaplarnı «Vozrojdeniye» Halqara fondu Oırım regional bölüginin maddiy yardımı ile neşir etmek imkânları açıldı, işte, Netovkin bir sıra kitaplarnı bezetti ki, olarnin arasında hem bediiy, hem publitsistik edebiyat mevcut.
+Bugünde-bugün Qırımnın tarihi ve medeniyeti boyunca kitaplarğa olğan meraq pek büyüktir, hem böyle kitaplarnı «Vozrojdeniye» Halqara fondu Oırım regional bölüginin maddiy yardımı ile neşir etmek imkânları açıldı.
+ Іşte, Netovkin bir sıra kitaplarnı bezetti ki, olarnin arasında hem bediiy, hem publitsistik edebiyat mevcut.
 Onın sonki işleri cümlesinde V.B. Savenkovmn «Aqşam şiirleri» (1990) ve E.Qudusovnın «Oırımtatar milletinin şekillenüv tarihi» (1996) kitaplarını anmaq mümkün.
 Bundan ğayrı, R.Netovkinnin grafika janrında yapılğan peyzaj resimleri ayrı albom olaraq dere olunıp, mezkûr neşir ustanın tekrarlanmaz istidatını açıq-aydın nümayiş ete.
-Enver İzzetov 1955 senesi Ferğana şeherinde doğdı, şeherdeki sanat oquv yurtunın ressamlıq bölügini bitirdi.
+Enver İzzetov 1955 senesi Ferğana şeherinde doğdı.
+şeherdeki sanat oquv yurtunın ressamlıq bölügini bitirdi.
 Oırımda 1992 senesinden berli yaşağan ressam bütün küçüni icadiy ve teşkiliy işlerge sarf ete (Enver izzetov — Oırımtatar ressamları assotsiatsiyasının reisidir).
 Özbekistanda ekende E.İzzetov bediiy multiplikatsiya sahasında çalıştı.
 Mütehassıslar «Özbekfilm» kinostudiyasında çıqarılğan «Yabancı» (1987), «Tahir ve Zohre» (1989), «Kontsert» (1990) kibi multiplikatsion filmlemin ressamı Enver İzzetov olğanını yahşi bileler.
@@ -761,19 +764,16 @@ E.izzetov tezya grafikasından ğayrı, mecmua ve kitap grafikası sahasında da
 Ozbekistanda ekende onın işleri «Zvezda Vostoka» mecmuasında sıq-sıq basılıp tura edi.
 Oırımda ise E.izzetovnın resimleri bir çoq deviriy neşirlernin, bilhassa «Oasevet» mecmuasının bediiy obrazını belgileyler.
 E.izzetov cumhuriyet ve halqara sergilernin iştirakçisidir, onın eserleri Brnoda olıp keçken grafika biyennalesinde nümayiş etildi.
-
 Zarema Trasinova 1939 senesi Aqmescitte doğdı.
-Beş yaşlı bala ekende öz halqınen beraber sürgün olunğan Zarema hiç bir şeyge baqmadan yüksek tahsil aldı: o, P.
-Benkov adına cumhuriyet ressamlıq oquv yurtunın kitap grafikası bölügini ve A.
-N. Ostrovskiy adına Taşkent devlet teatr-ressamlıq institutını bitirdi.
-SSSR Ressamlar birliğine 1976 senesinden aza olğan Zarema Trasinova Ozbekistanda eh büyük neşriyat sayılğan G.
-Gulam adına kitap neşriyatında çoq yıllar devamında çalışıp, 200-ge yaqın kitap bezetti.
+Beş yaşlı bala ekende öz halqınen beraber sürgün olunğan Zarema hiç bir şeyge baqmadan yüksek tahsil aldı.
+ О, P.Benkov adına cumhuriyet ressamlıq oquv yurtunın kitap grafikası bölügini ve A.N. Ostrovskiy adına Taşkent devlet teatr-ressamlıq institutını bitirdi.
+%SSSR Ressamlar birliğine 1976 senesinden aza ola.
+ Zarema Trasinova Ozbekistanda en büyük neşriyat sayılğan GGulam adına kitap neşriyatında çoq yıllar devamında çalışıp, 200-ge yaqın kitap bezetti.
 Bu kitaplarnın 20-den ziyadesi halqara, cumhuriyet ve cumhuriyetlerara konkurslarda fahriy diplomlarnen taqdirlendi.
 Z. Trasinovanın bezetken kitapları arasında hususan «Çınlar ve maneler», Özbek edebiyatının klassigi Muqimiynin şiirler cıyıntığını, qırımtatar şiiriyetinin klassigi Aşıq Umernin şiirler kitabını, «Tapmacalar», «Oırımtatarlarnıh efsaneleri ve masalları», «Ahmet ahay lâtifeleri» kibi kitaplarnı anmalı.
 Ressam sonki eki kitapnı bezetir eken, özüni qırımtatarlarnıh tarihi ve medeniyetini yahşi bilgen adam sıfatında kosterdi.
 Z. Trasinova 1994 senesi Oırımğa köçüp kelgen son da icatnen faal oğraşa, qırımtatar tilinde çıqqan kitaplar, dersliklerni bezete.
-Sonki bir qaç yıl içinde o mına böyle kitaplarnı bezetti: «Bu nasıl olğan edi» (SSSRde milliy repressiyalar.
-1919-1952 seneleri.) üç tom, (1993); M.Sergeyev.«Grünvald haçı» (1995); B.Mambet «Qoz efsanesi» (1995); A.Puşkin, «Ouranğa taqlid» (1997).
+Sonki bir qaç yıl içinde o mına böyle kitaplarnı bezetti: «Bu nasıl olğan edi» (SSSRde milliy repressiyalar.1919-1952 seneleri.) üç tom, (1993); M.Sergeyev.«Grünvald haçı» (1995); B.Mambet «Qoz efsanesi» (1995); A.Puşkin, «Ouranğa taqlid» (1997).
 2000 senesi Aqmescitte orta asırlarğa ait qırımtatar şiiriyetinin «Gülşen hayalları» adlı antologiyası neşir etildi.
 Bu kitapnın özgünligini çoqusı cehetten Zarema Trasinovanın yapqan illüstratsiyaları belgilediler.
 Ressam öyle tasviriy muhitni yarata bilgen ki, bu muhitte ayan şekilge kirgen nazm sözlerinin nağmesi oquyıcı ve seyircini meftün etici Şarq alemine daldıra.
