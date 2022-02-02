@@ -419,19 +419,20 @@ Ressamnın Oırımda yapqan resimlerini yekâne bir mevzu — Vatan mevzusı bir
 Onın deyerlik her bir resiminde rastkelingen qutuçıq kibi evçikler ise Vatan temsili olıp, bu evçikler fonunda kündelik hayat levhaları aks oluna.
 Ressam qırımtatar halqının tarihında olıp keçken facialı vaqialarğa müracaat eter eken, olarnı boğaz yırtuvsız, yapma heyecansız ve tantimsiz tasvirley («Kervan», 1995; «Seyyahlar», 1996).«Kervan» adlı resimde sürgünlik mevzusı felsefiy tarzda yanğıray.
 Resimde biz eşeğini yeteklep ketken ğarip seyyahm, eşek üstüne yuklengen kene de şu qutuçıq-evçikler obasını köremiz — işte, «öz mulkümni özümnen alıp yürem».
-Aynı bu usul «Avdet» adlı eserde de qullanıla — eşek minip keteyatqan qadın ellerinde qutuçıq kibi evçiklerni tuta, guya onın elindekisi fidançıqlar da, olarnı yanı yerde oturtacaq.
+Aynı bu usul «Avdet» adlı eserde de qullanıla.
+ Еşek minip keteyatqan qadın ellerinde qutuçıq kibi evçiklerni tuta, guya onın elindekisi fidançıqlar da, olarnı yanı yerde oturtacaq.
 Eserlernin mecaziyligi ressamğa sürgünlik ve avdet mevzularını daha terence, daha toluca açıp köstermek imkânını bere.
 Useinovnın resimlerinde pek çoq rastkelingen ve bitmez-tükenmez köçüvler temsili sayılğan kopçek ve avelegen quşlar motivinin peyda olması da tevekkel değil.
 Ressam özünin sonki yıllarda yapqan eserlerinde barlıq, ruh kibi anlamlar hususında fikir yürsete («Menim dünyam», 1998; «Hüzünlik», 1999).
-Ramazan Useinovnı tek Oırımda değil, tış ülkelerde de bileler.
-Hindistanda, Türkiyede, Almaniyada, Rusiye ve Ukraina ötkerilgen sergiler — bumn delilidir.
+Ramazan Useinovnı tek Oırımda değil, tış ülkelerde de bileler, Hindistanda, Türkiyede, Almaniyada, Rusiye ve Ukraina ötkerilgen sergiler — bumn delilidir.
 Mamut Çurlunın ressamlıq üslübi 80-nci senelernin sonlarında şekillendi.
 O yıllarnın siyasiy sarsıntıları — Ferğana vaqiaları, bütün memlekette olıp keçken mitingler, TASSnın 1987 senesi iyül 23-te yapılğan ve qırımtatarlarnın taqdirini deniştirgen bildirüvi — ressamnın dünyabaqışlarına tesir etmey qalmadı.
 İşte, ressamnın ekspressiv, olduqça qısqa ve açıq-aydın üslübi de şundan kelip çıqadır.
 Mamut Çurlu mizacdan şiltem alaraq, om tam manada köçürip almay da, şekilnin idrak etilmesini keskinleştirerek, alâmetnin ifadeliligini küçelte.
 Halq ameliy sanatınen meraqlanuv ressamının sızuv üslübine de tesir etti — onın resimlerinde geometrik şekiller, renklernin timsalligi üstün turalar.
 1989 senesi M.Çurlunın ömürinde hâl etici yıl oldı, o Oırımğa köçüp keldi.
-Onın o devirde yaratqan eserlerinin esas mundericesini facialı tüşkünlik, viranelik, bir zamanlarda gür çeçeklengen medeniyetnih ğayıp olğam teşkil ettiler («Sonki minare», 1989; «Ebediyenmi?», 1989; Bağçasaraydaki soqaq», 1989; «Zuur etken reallikni hesapqa alğan peyzaj», 1990).
+Onın o devirde yaratqan eserlerinin esas mundericesini facialı tüşkünlik, viranelik.
+ Bir zamanlarda gür çeçeklengen medeniyetnih ğayıp olğam teşkil ettiler («Sonki minare», 1989; «Ebediyenmi?», 1989; Bağçasaraydaki soqaq», 1989; «Zuur etken reallikni hesapqa alğan peyzaj», 1990).
 Ressam adiy, bir baqıştan, olduqça sıqılğan motivlerge özünin bütün heyecanlı duyğularının terenligini bağışlay.
 M.Çurlu kolemli ve ifadeli temsillerden öz işlerinde defalarca faydalanıp, bu eserlerni özüne has türkümlerge birleştire.
 Öz halqından ayırılğan Oırım toprağına «Oızıltaşnın çarmuqlanğan bağları» (1990), «Sürgünlik» (1990), «Avdet» (1990) kibi peyzaj resimleri bağışlanğandır.
