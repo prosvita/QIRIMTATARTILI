@@ -858,22 +858,26 @@ O bir çoq cumhuriyet, bütünittifaq ve halqara sergilerinin iştirakçisi, 198
 Onın «metstso-tinto» tehnikası esasında qarandaş, kömür ve akvarel boyalarnen yapqan grafika resimleri Altaynm qadimiy medeniyetine bağışlanğandır («Katun özeni», 1985; «Rerih Altayda» türkümine kirgen «Taş mabude», 1989; «Cin qasrları», 1992; «Uspeniye kilsesi», 1990).
 1990-ncı senelernin ortalarında yaratqan «Balalıq hatıraları» türkümi Zaur Ibragimovnıii icadında ayırıca yer tutıp, onda qırımtatar halqı içün facialı olğan 30-40-ncı senelernin bütün qarsanbaları aks olunğanlar.
 Ressamnın «Babamnen vedalaşuv» (1996), «Sürgünlik» (1996), «Mobilizatsiya» (1996), «Mahsus köçürilgenler» (1996) kibi resimleri — «o deşetli devimin özüne has yılnamesidir» (88.25-nci sahife).
-Ayder Beşirov 1954 senesi Marğılan şeherinde (Özbekistan) doğdı, 1973 senesi P.
-Benkov adına Taşkent ressamlıq oquv yurtum, 1982 senesi ise Bütünittifaq kinematografiya institutının kino, teatr ve televideniye ressamlığı fakultetini bitirdi.
+Ayder Beşirov 1954 senesi Marğılan şeherinde (Özbekistan) doğdı.
+ 1973 senesi P.Benkov adına Taşkent ressamlıq oquv yurtum.
+ 1982 senesi ise Bütünittifaq kinematografiya institutının kino, teatr ve televideniye ressamlığı fakultetini bitirdi.
 A. Beşirovnın icadındaki esas mevzunı Moskva soqaqlarının urbanistik nefaseti teşkil ete («Moskva soqaçığı», «Kommunalkada»).
-Ressamnın qarandaşnen, çin merekebi, qalemnen icra olunğan grafika tabaqları defalarca cumhuriyet ve bütünittifaq sergilerinde nümayiş etildiler.
+Ressamnın qarandaşnen, çin merekebi, qalemnen icra olunğan grafika tabaqları defalarca.
+ Cumhuriyet ve bütünittifaq sergilerinde nümayiş etildiler.
 Beşirov şimdi Moskva şeherinde yaşay ve çalışa.
 Matbaa grafikasınen oğraşqan Rustem Abdurahmanov (1961) Ukrainanın Melitopol şeherinde yaşay.
 O, öz vaqtında Lvov matbaacılıq institutının grafika bölügini bitirgen edi.
 Rustem Melitopolde ve Aqmescitte ötkerilgen bir sıra sergilerde faal iştirak etti.
 Onın eh yahşi eserleri cümlesinde Andrey Belıynın şiirleri esasında yaratılğan «Şimal simfoniyası» (1993) adlı grafik seriyasını, «Dafnis ve Hloya» (1991) türkümini, Bora Gazı Geraynın şiirleri mevzusında yapılğan «Dolap» (1997) türkümini ahmaq zarur.
-Grafik Dilâver Seitaptiyev 1971 senesi Özbekistannın Gülistan şeherinde doğdı, P.
-Benkov adına cumhuriyet ressamlıq oquv yurtum bitirdi, halazırda Harkovdaki bediiy-sanayı institutının tezya grafikası bölüginde oquy.
+Grafik Dilâver Seitaptiyev 1971 senesi Özbekistannın Gülistan şeherinde doğdı, P.Benkov adına cumhuriyet ressamlıq oquv yurtum bitirdi, halazırda Harkovdaki bediiy-sanayı institutının tezya grafikası bölüginde oquy.
 Onın ressamlıq stajı pek büyük olmasa da, o bir çoq cumhuriyet sergilerinde iştirak etti.
 D. Seitaptiyevnin esas eserleri sırasına «Sevişkenler» (1991), «Toy» (1991), «Eki içkici» (1993), «Nazlılıq» (1995), «1-nci sanlı manzaralı kompozitsiya» (1995), «2-nci sanlı manzaralı kompozitsiya» kibi akvarel resimleri, «Metamorfoz» (1996) adında manzaralı grafik tabaqlar türkümi kireler.(88.43-44-nci sahifeler).
+
 #### 2.3.3. Heykelcilik, ufaq şekiller plastikası
-Heykelcilik sanatı mustaqil janr olaraq Oırımda heppeyi keç şekillendi, lâkın taşm bediiy işlev sanatı öz tamırlarınen asırlar terenligine barıp çıqa ve biz bu sanatnın durğun an'aneleri olğanını bilemiz.
-Taşm işlev sanatı — qırımtatar halqının turmuşı ve medeniyetinin ayırılmaz bir qısımıdır.
+
+Heykelcilik sanatı mustaqil janr olaraq Oırımda heppeyi keç şekillendi.
+ Lâkın taşnı bediiy işlev sanatı öz tamırlarınen asırlar terenligine barıp çıqa ve biz bu sanatnın durğun an'aneleri olğanını bilemiz.
+Taşnı işlev sanatı — qırımtatar halqının turmuşı ve medeniyetinin ayırılmaz bir qısımıdır.
 Böyle soy sanatnı anar ekenmiz, közümiz öğünde mezar abideleri (baştaşlar), binalarnın manzaralı bezetilüvi, ufaq şekildeki inşaatlar kevdelene.
 XX asımın başlarında, yani Oırımda tasviriy sanatnın bütün çeşitleri gür inkişaf etip başlağanda, qırımtatar heykelciliğinin kendi mektebini meydanğa ketirmek içün bütün imkânlar bar edi.
 Hem qırımtatar ustaları bu janrda muvafaqiyetnen çalışaraq, devir ve mefküre talap etken eserlerni yarata, mahalliy ve bütünittifaq sergilerinde iştirak ete ediler.
