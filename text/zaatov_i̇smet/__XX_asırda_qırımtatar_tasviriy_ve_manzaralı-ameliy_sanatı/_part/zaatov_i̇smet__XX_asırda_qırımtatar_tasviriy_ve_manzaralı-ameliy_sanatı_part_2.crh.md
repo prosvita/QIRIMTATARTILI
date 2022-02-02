@@ -944,16 +944,18 @@ Birinci yönelişke kirgen soyları — kamer lirik eserlerdir («Ana ve onın b
 Ş. Ahtemov — bir çoq cumhuriyet ve bütünittifaq sergilerinin iştirakçisidir.
 Ressam, Ukraina Ressamlıq akademiyasının mezunı Ali Belâlovnın icadında apansızdan bir burulış yüz berdi.
 2001 senesi sentâbr 12 künü qadimiy Oarasuvbazar şeherinde qırımtatarlarnıh klassik şairi, cihanda tanılğan türkşınas alim Bekir Çoban-zadenin mermer abidesi açıldı.
-Bu abidenin müellifi, işte, A.Belâlov edi.
-Mezkûr abideni endi monumental heykeltraş adını da qazanğan Ali Belâlovnın ğayet muvafaqiyetli eseri, dep bilmek mümkün.
+Bu abidenin müellifi, işte, A.Belâlov edi, mezkûr abideni endi monumental heykeltraş adını da qazanğan Ali Belâlovnın ğayet muvafaqiyetli eseri, dep bilmek mümkün.
 Taşkentteki P.Benkov adına ressamlıq oquv yurtunın, sonra ise A.Ostrovskiy adına teatr-ressamlıq institutının mezunı olğan Enver Zaydullayev (1947) realistik portret janrında çalıştı.
 Heykeltraşnın icadındaki toqtaluvnı onın daha yaqında Oırımğa köçmesinen anlatmaq mümkün.
 Rustem Ablâyevnin taş, ağaç, balçıqtan yapılğan eserleri — folklor, masal personajları ve hayatiy levhalardır.
 Onın çalğıcı, çoban, türlü-türlü hayvan figuraçıqları ufaq plastika janrına mensüpler.
-Heykelcilik — icadatnın bayağı paalığa oturğan bir çeşitidir, çünki abideler paalı materiallardan yapıla, aynı vaqıtta tehnologik ceryannın özü de bayağı maddiy ve cismaniy masraflarnı talap ete.
+Heykelcilik — icadatnın bayağı paalığa oturğan bir çeşitidir.
+ %Аbideler paalı materiallardan yapıla, aynı vaqıtta tehnologik ceryannın özü de bayağı maddiy ve cismaniy masraflarnı talap ete.
 Bundan ğayrı, resimlerge köre, heykeller azca satıla, şunın içün heykeltraşlarğa öz işinin maddiy semeresine ümüt etmeğe sıra tüşmey.
 Ne ise de, qırımtatar heykeltraşları mürekkep iqtisadiy vaziyetke baqmadan icatnın yanı usul ve vastalarını araştıraraq, zamannen bir adımlamağa, qırımtatar sanatına özlerinin münasip hisselerini qoşmağa tırışalar.
+
 Hulâsalar:
+
 Sanatnın Oırım içün yanı olğan avropaca numüneleri mında rus medeniyetinin tesirinde, an'aneviy medeniyet buhranğa oğrağan bir devirde kirip keldiler.
 Bu ceryan Rusiyenin erkânına kirsetilgen diğer musülman ülkelerine baqqanda, deyik, Ozbekistanğa baqqanda, Oırımda biraz evelce ve bayağı kenişçe keçti.
 Öz faaliyetini XX asımın ilk yıllarında başlağan qırımtatar icatçıları tahsilni çetelde aldılar.
@@ -964,19 +966,17 @@ Kimersi icatçılar hatta kendi-kendine resim öğrendiler.
 Olarnın taliyi de facialı oldı, olar da bütün halqnen beraber sürgün etildiler.
 Cenkten evelki qırımtatar tasviriy sanatı sovet medeniyeti ve mefküresinin umumiy bir aqımında inkişaf etti.
 Eserlernin mundericesini belgilegen sosialistik realizm, bir taraftan, yanı, daha belli olmağan ufuqlamı aça, diğer taraftan ise mecburiy resmiy yöneliş çerçivelerinen icatnı boğa edi.
-Cenkten son onlarnen yıl devam etken çetin devir halqnıh güzellikke ıntıluvını yoq etip olamadı.
-Aksine, qırımtatar ressamları, heykeltraşlarının yanı bir nesili yetişip çıqtı ki, olar özlerinin tekrarlanmaz eserlerini yaratalar.
+Cenkten son onlarnen yıl devam etken çetin devir halqnıh güzellikke ıntıluvını yoq etip olamadı, аksine, qırımtatar ressamları, heykeltraşlarının yanı bir nesili yetişip çıqtı ki, olar özlerinin tekrarlanmaz eserlerini yaratalar.
 Teessüf ki, icatçılarımız bir yerde değiller, çeşit memleketlerde, çeşit şeherlerde yaşaylar.
 Olarnın icadı tanılsa da, çoq yıllar devamında öz toprağı, öz halqı haqqında sanat vastasınen aytmaq imkânından mahrum ediler.
-Atta bugünde bile Oırımdan tışta yaşağan bir çoq ressamlarımızmn icadı milliy medeniy ayniyetten ayrı halda şekillene.
+Atta bugünde bile Qırımdan tışta yaşağan bir çoq ressamlarımızmn icadı milliy medeniy ayniyetten ayrı halda şekillene.
 Faqat qırımtatarlar Vatanğa qaytıp başlağanlarından son qırımtatar tasviriy sanatının yanı, sonki yüz yıl içinde endi ekinci canlanuvı hususında laf yürütmek mümkün oldı.
-Söz kelimi, 1990-ncı senelernin canlanuvı 192030-ncı senelernin canlanuvından keyfiyetçe farq ete.
-Zaten, 1920-30-ncı senelerde «canlanuv» termininin özü qırımtatar medeniyeti içün şartlı bir tüs taşığanı halda (çünki medeniyetimiz milliy tamırlar, milliy sanat an aneleri esasında değil de, rus ve avropaca tesir neticesinde inkişaf ete edi), 90-ncı senelernin canlanuvı haqiqiy milliy negizge esaslanğanı haqqında ayta bilemiz.
-
+Söz kelimi, 1990-ncı senelernin canlanuvı 1920-30-ncı senelernin canlanuvından keyfiyetçe farq ete.
+Zaten, 1920-30-ncı senelerde «canlanuv» termininin özü qırımtatar medeniyeti içün şartlı bir tüs taşığanı halda (çünki medeniyetimiz milliy tamırlar, milliy sanat an aneleri esasında değil de, rus ve avropaca tesir neticesinde inkişaf ete edi).
+ 90-ncı senelernin canlanuvı haqiqiy milliy negizge esaslanğanı haqqında ayta bilemiz.
 Bu devirde sanatta sürgünlik, avdet mevzuları üstün tura; tuvğan yurtta deyerlik yoq etilgen milliy medeniy asabalıqnı öğrenmek imkânları doğa.
 İçtimaiy anda yüz bergen haqiqiy inqilâp bediiy ifadenin yanı vastaları doğmasına alıp kele — sahte-patetik sosialistik realizm yerine yanı, qırımtatar sanatında körülmegen yönelişler (simvolizm, kalligrafik abstraktsionizm, milliy romantizm) keleler.
-Bunınnen birlikte menfiy cehetler de yoq değil.
-Kimersi eserlernin siyasiyligi professsional seviyeni bastıra.
+Bunınnen birlikte menfiy cehetler de yoq değil, kimersi eserlernin siyasiyligi professsional seviyeni bastıra.
 Şimdiki zamanda zemaneviy qırımtatar sanatında bir qaç yöneliş ayırılıp tura.
 Olarnin arasında realizm yetekçi yer tuta.
 Bu yöneliş Vatanğa qaytıp kelgen ve pek çoq yıllar devamında terennüm etip olamağan tuvğan topraqnın, tuvğan adamlarnın dülberligini sinirip, sonundan om aks ettirmeğe tırışqan icatçılar içün özüne has tayanç noqtası sıfatında hizmet ete.
