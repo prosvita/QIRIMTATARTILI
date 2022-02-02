@@ -157,19 +157,19 @@ XX asımın birinci yarısında yaşap, icat etken nice-nice ressamlar Oırım m
 Keçmişte nam qazanğan, şuret arttırğan nice-nice adamlar haqqında şimdi elimizde hiç bir türlü malûmat yoq, olsa bile — zerre qadardır!
 Aqmescitteki bediiy muzey, ülkeşınaslıq müzeyi öz fondlarında Tohtar Afuzovnın (1900-1942) resimlerini heppeyi vaqıt saqlı tutıp, kimsege köstermediler.
 Tek yaqında bu eserlerni körmek, olarğa qıymet kesmek imkânı doğdı.
-Afuzovnın dağ ve deniz peyzajları («Ay-Petri», 1935; «Küneş qonğanda», 1937; «Deniz», 1940), cıllılıq, samimiylik ile tasvirlengen Ûırım manzaraları («Balıqçı qulübesi», 1935; «Ay ışığındaki evçik», 1939; «Oreandadaki lager», 1940), parlaq, renkkerenk natürtmortları («Küzçeçek», 1935; «Çeçekler ile natürmort», 1940; «Vişneler ile natürmort», 1940) ressamnın özgün istidatından, Moskvada V.
-Meşkovmn studiyasında aldığı temelli professional bilgilerinden delâlet bereler.
+Afuzovnın dağ ve deniz peyzajları («Ay-Petri», 1935; «Küneş qonğanda», 1937; «Deniz», 1940), cıllılıq, samimiylik ile tasvirlengen Ûırım manzaraları («Balıqçı qulübesi», 1935; «Ay ışığındaki evçik», 1939; «Oreandadaki lager», 1940), parlaq, renkkerenk natürtmortları («Küzçeçek», 1935; «Çeçekler ile natürmort», 1940; «Vişneler ile natürmort», 1940) ressamnın özgün istidatından, Moskvada V.Meşkovnın studiyasında aldığı temelli professional bilgilerinden delâlet bereler.
 Ressamnın hayatı 1942 senesi üzüldi — om faşistler atıp oldürdiler.
 Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunın mezunı Abdulla Lâtif-zadenin (1888-1955) ömüri ve icadiy faaliyeti haqqında da malûmat pek az.
-O, 1921-1924 seneleri devamında Bahçasaray muzeyinih Kokközdeki filialında (Yusupov sarayı) müfettiş (ya da mudir) (248.
-101-nci sahife) olıp çalışqan, sonra mektepte sızuv ve resim yapuv boyunca ders bergen.(248.130-ncı sahife).
-1930 senesi sovetlerge qarşı faaliyet alıp baruvda qabaatlanıp, Oırımdan sürgün etilgen, ömürinin 14 yılını Stalin lagerlerinde keçirgen.
+O, 1921-1924 seneleri devamında Bahçasaray muzeyinih Kokközdeki filialında (Yusupov sarayı) müfettiş (ya da mudir) (248.101-nci sahife) olıp çalışqan, sonra mektepte sızuv ve resim yapuv boyunca ders bergen.(248.130-ncı sahife).
+1930 senesi sovetlerge qarşı faaliyet alıp baruvda qabaatlanıp, Oırımdan sürgün etilgen.
+ömürinin 14 yılını Stalin lagerlerinde keçirgen.
 Organlar om yaqalağan vaqıtta pek çoq resimlerini, eskizlerini müsadere etkenler ki, o eserlernin taqdiri şimdi belli değil.
 Onın icadı haqqında biz tek on resimnin qara-beyaz fotoreproduktsiyalarına baqıp qıymet kese bilemiz.
 Ressamnın doğmuşlarında saqlanıp qalğan bu fotoreproduktsiyalarda milliy kiyimler kiygen qızlar, şeher peyzajı, turmuş eşyaları ve qırımtatarlarnıh milliy urbaları tasvirlengen.
 Ressamnın «Keçmişnin cirençli tipleri» dep adlandırılğan grafikalı satirik portretleri de pek meraqlıdır.(248.101-nci sahife).
 Lâtif-zade ömürinin sonum Harkov oblastında (Lozovaya stantsiyası) keçirdi, anda saqatlar şirketinde çalıştı.
-A. Abiyevnin torum olğan Muhtar Şerfedinov (1908-1941) Bağçasaraydaki ressamlıq-sanayı mektebini alâ işaretlemen bitirip, Moskva mimarcılıq institutına oqumağa kirdi ve Moskvada da yaşamağa qaldı.(248.213nci sahife).
+A. Abiyevnin torum olğan Muhtar Şerfedinov (1908-1941).
+ Bağçasaraydaki ressamlıq-sanayı mektebini alâ işaretlemen bitirip,Moskva mimarcılıq institutına oqumağa kirdi ve Moskvada da yaşamağa qaldı.(248.213nci sahife).
 Saqlanıp qalğan malümatlarğa köre, Şerfedinov acayip resimci sıfatında cemaat binalarının leyhaları üzerinde çalışqan.
 Muhtar Şerfedinov Moskvadaki Gorkiy adına medeniyet ve istrahat bağçasmıh leyhasını yapqan muelliflernin birisi olaraq tanıldı.
 Oırımnın 1930-nci senelerdeki medeniy ömürinde meşhur ukrain ressamı, tasviratta uruş janrımh acayip ustası sayılğan akademik Nikolay Semyönoviç Samokişnin studiyası hususan büyük röl oynadı.
