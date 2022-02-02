@@ -176,7 +176,7 @@ Oırımnın 1930-nci senelerdeki medeniy ömürinde meşhur ukrain ressamı, tas
 Belli ki, bu studiya sonundan Simferopol ressamlıq tehnikumına çevirilgen edi, şimdi ise N.S. Samokiş adına ressamlıq oquv yurtu, dep adlandırıla.
 Cenkten evel icat etken qırımtatar ressamlarının ekseryieti şu studiyada terbiyelendiler.
 Aqmescitte 1918 senesinden yaşağan N.S. Samokiş qırımtatar halqını sevip-saya edi. 
-%
+%O, qırımtatar pek ürmet ete ve şunıñ içün de qırımtatar halqnıñ facialı tarihi onı er daim raatsızlap tura edi.
 Oırımtatar halqına münasebetini o özünin bir sıra tarihiy eserlerinde («Oırımda 1921-1922 senelerinin açılığı») aks ettirdi.
 Meselâ, «Oırımtatarlarnın hicretke ketüvi» (1934) adlı resimde tatarlarnın tuvğan topraqnen sağlıqlaşuvlarımn yanığı tasvirlene.
 Resim Simferopoldeki bediiy muzeyde nümayiş etilgen edi.
@@ -197,15 +197,15 @@ Bugünde ise Şevketnin torum — Simferopol ressamlıq oquv yurtunıh talebesi 
 Ressam, qırımtatar teatrinin solisti Memet Abselâmov (1911-1988) Aqmescitte N.S. Samokişnin studiyasını bitirdi (1934).
 İstidatlı ressam sıfatında oquvını devam ettirmek içün Leningraddaki Sanat institutına yollanıl dı, lâkin bu tekliften vazgeçip, Oırımda qaldı.
 M. Abselâmovnın ЗО-ncı senelerge ait resimleri Oırımda olıp keçken sosialistik denişmelernen sıqı bağlıdır («Üsküt köyündeki tatarlarnın mamür yaşayışı», 1935; «işçiler köşesi», 1935).
-1944 senesi M.
-Abselâmov bütün halqınen beraber Öırımdan sürgün etilip, Tacikistanğa tüşe.
-Cumhuriyet ve Bütünittifaq sergilerinde iştirak etken, 1958 senesinden SSSR Ressamlar birliğinin azası olğan M.
-Abselâmov peyzaj janrının tanılğan ustası edi («Küneşli kün», 1947; «Sabah», 1955; «Küz», 1956; «Tacikistanda bahar», 1962; «Oızıl damlar», 1979).(88.9-ncı sahife).
+1944 senesi M.Abselâmov bütün halqınen beraber Öırımdan sürgün etilip.
+ Tacikistanğa tüşe.
+Cumhuriyet ve Bütünittifaq sergilerinde iştirak etken, 1958 senesinden SSSR Ressamlar birliğinin azası olğan M.Abselâmov peyzaj janrının tanılğan ustası edi.
+ («Küneşli kün», 1947; «Sabah», 1955; «Küz», 1956; «Tacikistanda bahar», 1962; «Oızıl damlar», 1979).(88.9-ncı sahife).
 Abselâmovnın eh sevgen mevzusı — Oırım tabiatı edi («Oırım gecesi», 1958; «Oırım selbileri», 1958; «Gurzuf», 1980; «Tan», 1983; «Sonki ışıq», 1984; «Bahar», 1985).
 Oırım manzaralarını ressam ta 30-ncı senelerde tasvirlep başladı («Yanı Üsküt», 1936).
 Onın peyzajları acayip nazm ile ayırılıp turalar: olar kolorit cehetinden yarıq ve nazik olmaqnen beraber tek Oırım tabiatının güzelligini değil, aynı vaqıtta muellifnin sevgisini ve ayretini ifadeleyler.
-
-Farit İlyasov (1915-1944?) Başqırtıstanda doğup östü, lâkin onın taliyi de qırımtatarlarnıh facialı taliyi kibi oldı.
+Farit İlyasov (1915-1944?) Başqırtıstanda doğup östü.
+ lâkin onın taliyi de qırımtatarlarnıh facialı taliyi kibi oldı.
 F. İlyasov Oazan ressamlıq oquv yurtum bitirdi (1934), Tataristan ASSRnin Sovet ressamları birliğini meydanğa ketirüvde faal iştirak etti, 1936 senesinden şu Birlik reisinin birinci muavini olıp çalıştı.(205.225-nci sahife).
 Ressamnın Oazanda yaşağan devirine ait tek kataloglardaki anmalar qaldı (grafika tabaqları, cümleden — bestekâr N.Jiganovnın portreti).
 1940 senesi ötkerilgen «Sovet Oırımı 20 yaşında» adlı yübiley sergisinde onın «Gorkiy «Teselli»de» resimi nümayiş etildi (248.
