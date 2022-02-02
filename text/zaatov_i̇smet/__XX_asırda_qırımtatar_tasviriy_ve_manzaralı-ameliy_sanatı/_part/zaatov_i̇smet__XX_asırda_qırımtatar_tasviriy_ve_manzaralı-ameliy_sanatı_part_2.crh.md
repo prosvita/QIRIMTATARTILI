@@ -255,18 +255,14 @@ Belli bir vaqıttan son meşhur qırımtаtar komik artistine çevirile.
 E-A.Parikov 1936 senesi vefat etti.
 Aqmescitnin Subhi soqağındakı qırımtatar mezarlığında defіn olundı.(250.45-nci sahife).
 
-
 2.2.1950-1980 senelerindeki qırımtatar tasviriy sanatı
-Qırımtatar tasviriy sanatının ayaqqa turuv ve inkişaf etüvindeki ekinci basqıç 50-80-nci senelerge, yani qırımtatarlarnıh daha sürgünlikte, esasen
-Ozbekistanda, yaşağan yıllarına doğru keldi.
-E. Oudusov qayd etkeni kibi, sürgünlik yıllarında ümüt etilmegen şey yüz berdi: «qırımtatarlar diğer türkiy tilli halqlarnen qarışıp, yer yüzünden, umumen cihannın etnik haritasından yoq olmaq yerine özlerinin milliy şahsiyetini saqlap qalmaqnen bir sırada şaşılacaq derecede dayanıqlıq kösterip...
-dünyada en oqumış milletler sırasına çıqtılar».(90.28-nci sahife).
+Qırımtatar tasviriy sanatının ayaqqa turuv ve inkişaf etüvindeki ekinci basqıç 50-80-nci senelerge, yani qırımtatarlarnıh daha sürgünlikte.
+Еsasen Ozbekistanda, yaşağan yıllarına doğru keldi.
+E. Oudusov qayd etkeni kibi, sürgünlik yıllarında ümüt etilmegen şey yüz berdi: «qırımtatarlar diğer türkiy tilli halqlarnen qarışıp, yer yüzünden, umumen cihannın etnik haritasından yoq olmaq yerine özlerinin milliy şahsiyetini saqlap qalmaqnen bir sırada şaşılacaq derecede dayanıqlıq kösterip...dünyada en oqumış milletler sırasına çıqtılar».(90.28-nci sahife).
 İcadiy yollarını cenkten evel Oırımda başlağan bazı qırımtatar ustaları özlerini Oırımdan tışta da tanıttılar, unvanlar qazandılar.
 Meselâ, ressam Kâzim Eminov Ozbekistanda nam qazanğan sanat erbabı unvanını birinci olıp alğanlar sırasında edi.
-Aluştada doğup ösken K.Eminov (1928-1976) bediiy tahsilni N.
-S. Samokişnin studiyasında alıp başladı (ta 1939 senesi o balalar icadiyatı olimpiadasında iştirak etip, birinci mukâfatnı qazanğan edi).
-1946 senesi Samarqand ressamlıq oquv yurtunın bir kereden 2-nci kursına qabul etildi, lâkin bir yıl keçer-keçmez, qırımtatar milletinden olğanı içün oquv yurtundan quvuldı, sonra Taşkentke köçti ve anda 1953 senesi P.
-Benkov adına cumhuriyet ressamlıq oquv yurtum alâ işaretlemen bitirdi.
+Aluştada doğup ösken K.Eminov (1928-1976) bediiy tahsilni N.S. Samokişnin studiyasında alıp başladı (ta 1939 senesi o balalar icadiyatı olimpiadasında iştirak etip, birinci mukâfatnı qazanğan edi).
+1946 senesi Samarqand ressamlıq oquv yurtunın bir kereden 2-nci kursına qabul etildi, lâkin bir yıl keçer-keçmez, qırımtatar milletinden olğanı içün oquv yurtundan quvuldı, sonra Taşkentke köçti ve anda 1953 senesi P.Benkov adına cumhuriyet ressamlıq oquv yurtum alâ işaretlemen bitirdi.
 1954 senesinden cumhuriyet ve bütünittifaq sergilerinde muntazam iştirak etti.
 1955 senesi SSSR Ressamlar birliğinin azası oldı.
 Yıllar devamında Taşkent pedagogika institutımn bediiy grafika fakultetinde ders berdi.
@@ -275,11 +271,13 @@ O, sürgünlikte yaşap, Vatanına daima asret olsa da, Özbekistannı da yürek
 Özbek toprağında yaşağan adamlarnı alğışlağan, Özbekistannın tarihına bağışlanğan bir çoq acayip eserler yarattı («Uçaq uçup keçti», 1960; «Frunze ve Mirşarapov», 1960; «Oarılğaç», 1961; «Çırçıq vadiysi», 1969; «Çarvaq», 1972; «Uyanuv», «Emek», «Rahatlanuv» triptihi, 1972; «Parkent aqsaqalları», 1974).
 1970-nci senelerde Eminov Qırım memurlarının qarşılığına baqmadan, Oırımğa eki kere sefer yapıp oldı.
 Onın icadındaki bu sonki devir (1970-1976) ressam istidatının gür çeçeklenmesinen, onın istidatı tuvğan topraqqa bitmez-tükenmez sevgi ile ğıdalanmasınen qayd oluna.
-Eminov Oırım mevzusında 30-ğa yaqın peyzaj resimleri yaptı, olarnın arasında «Cenüp hikâyesi.Ayüvdağ.Oırım» (1973), «Gurzuf.Zeytün terekleri» (1970) kibi eserler bar.«Ay-Petride ösken çamlar» (1973) adlı resim mezkûr seriyadaki eh güzel resimler cumlesindendir.
+Eminov Oırım mevzusında 30-ğa yaqın peyzaj resimleri yaptı, olarnın arasında «Cenüp hikâyesi.Ayüvdağ.Oırım» (1973), «Gurzuf.Zeytün terekleri» (1970) kibi eserler bar.
+«Ay-Petride ösken çamlar» (1973) adlı resim mezkûr seriyadaki eh güzel resimler cumlesindendir.
 Bu resim şimdilikte Taşkentteki devlet Sanat muzeyinin kollektsiyasında buluna.
 Vatanğa sevgisini boyalar tilinen ustalıq ile ifadelegen acayip ressam Kâzim Eminovnm ömüri avtomobil qazası neticesinde üzüldi.
 Ulu Vatan cenkinin iştirakçisi, mimar İrfan Şemsedinov Ukraina Ressamlar akademiyasınıh professorı, değen şerefli unvan taşıy.
-İ. Şemsedinov 1919 senesi Kezlevde doğdı, 1935 senesinden 1941 senesine qadar Moskvada, Harkovda oqudı.
+İ. Şemsedinov 1919 senesi Kezlevde doğdı.
+ 1935 senesinden 1941 senesine qadar Moskvada, Harkovda oqudı.
 Cenkten son Ukraina Ressamlar akademiyasında oquv-icadiy ustahanenin rehberi olıp çalıştı, 200-den ziyade mimar yetiştirdi.
 İ. Şemsedinov — qaraman şeher Sevastopol şerefine Hrustalnıy burunında qoyulğan abide leyhasmıh, «1783-1944 seneleri qırımtatar halqına qarşı yapılğan genotsid qurbanlarına» memorial abide leyhasınıfi müellifidir.
 Sonki yıllarda Şemsedinov ressamlıq sahasına çoq diqqat ayıra.
@@ -287,10 +285,8 @@ Böyleliknen, tuvğan Oırımımh tabiatına bağışlanğan «Bağçasaraydaki 
 Usta özünin bu eserlerinde Oırımmh körümü yerlerini aks ettirmeknen sıhırlanmayıp, tuvğan halqnın turmuşına, tuvğan tabiatqa nisbeten aybetli münasebetini de nümayiş ete.
 Aqmescitteki qırımtatar sanatı müzeyi 1997 senesi irfan Şemsedinovnın akva-rel resimlerinden ibaret şahsiy sergisini teşkilâtlandırdı.
 Bir çoq qırımtatar ressamları halqnıh facialı taqdirini başından keçirerek, kendi istidatlarını tolu kölemde ömürge keçirip olamadılar.
-Hamdi Mustafayev (1918), işte, olarnın cumlesindendir.Cenkten evel bir qaç yıl devamında Aqmescitteki N.
-Samokiş adına ressamlıq oquv yurtunda tahsil alğan H.
-Mustafayev cenk başlanğanda oquvını bıraqıp, cebhege kete, cenkten zabit olıp qayta, Taşkentteki P.Benkov adına ressamlıq oquv yurtunda tahsilini devam ettire.
-Sonra bezetüv işlerinen oğraşa, manzaralı-ameliy işlenmeler içün örnekler yarata.
+Hamdi Mustafayev (1918), işte, olarnın cumlesindendir.
+Cenkten evel bir qaç yıl devamında Aqmescitteki N.Samokiş adına ressamlıq oquv yurtunda tahsil alğan H.Mustafayev cenk başlanğanda oquvını bıraqıp, cebhege kete, cenkten zabit olıp qayta, Taşkentteki P.Benkov adına ressamlıq oquv yurtunda tahsilini devam ettire.Sonra bezetüv işlerinen oğraşa, manzaralı-ameliy işlenmeler içün örnekler yarata.
 Oırımğa 1968 senesi qaytıp kele.
 H. Muştafayevnin ressamlıq icadını çoqtan-çoq portretler, natürmortlar, peyzajlar teşkil eteler.
 Kimersi monumental, kimersi lirik, kimersi felsefiy olğan bu eserlerde tuvğan Oırımına meftün olğan, ömür hikmetini bilgen, öz halqınen üzviy bağlanğan ressamnın qalbi aks oluna («Bağçasaray», «Cuma cami», «Gurzuf», «i.
