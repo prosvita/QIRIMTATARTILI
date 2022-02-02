@@ -608,7 +608,7 @@ Koy mektebini bitirgen son Taşkentteki P.Benkov adına cumhuriyet ressamlıq oq
 Oquv yurtum 1971 senesi bitirdi.
 1974 senesinden Özbekistan Bediiy fondunın ustahanelerinde çalıştı.
  Аynı vaqıtta Moskvadaki matbaacılıq institutında oqudı.
-Ressamnın «Abdullayevnin portreti (1976), «Oartiynin portreti» (1974), «Bita» kibi eserleri defalarca şeher, vilâyet, cumhuriet sergilerinde nümayiş etildiler.
+Ressamnın «Abdullayevnin portreti (1976), «Qartiynin portreti» (1974), «Bita» kibi eserleri defalarca şeher, vilâyet, cumhuriet sergilerinde nümayiş etildiler.
 icatçının Ozbekistanda yaratqan eserleri cümlesinde «Intıluv» (1976), «Uzaqta Tân-Şân körüne» (1979), «Vardik suv anbarı» (1979), «Yoldaş», «Gavdaki otrâd», «Kolhozğa», «Şan-Şuret ordeninin kavaleri Ergaşev», «Çorkisar» (1982), «Çadak» (1982), «Mezar» (1981), «Leylekler» (1981), «Çust madonnası», «Örüci», «Sosialist Emek Oaramanı M.Loginov», «istrahat bağçasında», «Suv haqqında ballada» kibi resimlerni qayd etmeli.
 Biraz keççe devirde ise evelki eserlerden icra olunuv harakteri ile ayırılıp turğan yanı eserler yarata: «Ay yarıq gecesi» (1985), «Gava» (1985), «Nay» (1985).
 1980-nci senelernin ortalarında Namangan şeherinde ressamnın şahsiy sergisi olıp keçti.
