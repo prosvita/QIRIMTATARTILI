@@ -612,7 +612,7 @@ Biraz keççe devirde ise evelki eserlerden icra olunuv harakteri ile ayırılı
 1980-nci senelernin ortalarında Namangan şeherinde ressamnın şahsiy sergisi olıp keçti.
 Bundan ğayrı ressam Moskvada ötkerilgen «Dizayn ve plakat» sergisinde de iştirak etti ve anda onın bir qaç eseri nümayiş etildi.
 Ressamnın Özbekistandaki icadiy devirini «Komendant uzurında», «1944 senesi, mayıs 18», «Şarq sabası» kibi eserler yekünleyler.
-1992 senesi Oırımğa koçüp kelgen A.Bekirov mındaki icadiy ceryanğa sıqı qatıla ve «Oaval», «Ay-Petri dağı», «Keçmişteki Mishor», «Novıy svet», «Bağçasaray soqaçığı», «Uyanuv» kibi resimlerni yarata.
+1992 senesi Qırımğa koçüp kelgen A.Bekirov mındaki icadiy ceryanğa sıqı qatıla ve «Oaval», «Ay-Petri dağı», «Keçmişteki Mishor», «Novıy svet», «Bağçasaray soqaçığı», «Uyanuv» kibi resimlerni yarata.
 A.Bekirov Oırım ressamlarının sergilerinde, cümleden Oırımtatar ressamları assotsiatsiyası teşkilâtlandırğan sergilerde faal iştirak ete, ressamlıqtan ğayrı, ağaç üstünde oyuvnen, inter'er ve ekster'erni bezetüvnen oğraşa.
 Hal-azırda Aqmescitte yaşay.
 Ukraina Ressamlar birliğinin azası, Özbekistan cumhurietinde nam qazanğan medeniyet hadimidir.
@@ -631,20 +631,21 @@ Biz onın Taşkent şeherindeki çeşit binalarnı monumental bezetüv boyunca i
 1995 senesinden berli P.Benkov adına Taşkent ressamlıq oquv yurtunın ressamlıq ve dizayn bölügine mudirlik yapa, ders bere.
 Peyzaj, natürmort, portret, avangard janrlarında çalışaraq, çeşit sergilerde iştirak etti, anda onın «Aqtaş» (2000), «Navrez» (2000), «Ûırmızı damlar» (2000), «Dağ peyzajı» (2000), «Alma bağçası qışta» (2000) ve diğer eserleri qayd etildiler.
 Ressam Guzal Alimatova 1966 senesi Taşkentte doğdı.
-1984 senesi Taşkentteki cumhuriyet ihtisaslaştırılan muzıka-ressamlıq mektep-internatını, 1990 senesi A.N. Ostrovskiy adına Taşkent teatr-ressamlıq institutının tezya ressamlığı bölügini bitirdi.
+1984 senesi Taşkentteki cumhuriyet ihtisaslaştırılan muzıka-ressamlıq mektep-internatını.
+ 1990 senesi A.N. Ostrovskiy adına Taşkent teatr-ressamlıq institutının tezya ressamlığı bölügini bitirdi.
 Aspiranturada oqumaq içün tevsiye etildi.
-1990 senesinden 1993 senesine qadar Cumhuriyet ihtisaslaştırılan muzıka-ressamlıq mektep-internatında resim ve kompozitsiya boyunca oca olıp çalıştı, 1993 senesinden itibaren Özbekistan devlet teleradiokompaniyasında sanalaştırıcı ressam olıp çalışa.
+1990 senesinden 1993 senesine qadar Cumhuriyet ihtisaslaştırılan muzıka-ressamlıq mektep-internatında resim ve kompozitsiya boyunca oca olıp çalıştı.
+1993 senesinden itibaren Özbekistan devlet teleradiokompaniyasında sanalaştırıcı ressam olıp çalışa.
 2001 senesi Ressamlar icadiy birleşmesinin azası oldı.
 1987 senesinden berli bütünittifaq ve cumhuriyet sergilerinde iştirak ete.
-Onın resimleri esasen peyzaj, natürmort ve portret janrlarında yapılğan olıp, bir çoq eserleri hususiy kollektsiyalarda hem de Özbekistan Prezidenti Apparatınm kollektsiyasında buluna («Yasimenler», 2000; «Nargüzler», 2001; «Sabah», 2001; «Çua çeçekleri», 2000; «Bulutlar», 2001; «Qırım.
-Azav denizi», 2001; «Bağçasaray.Oaytuv», 1990).
+Onın resimleri esasen peyzaj, natürmort ve portret janrlarında yapılğan olıp, bir çoq eserleri hususiy kollektsiyalarda hem de Özbekistan Prezidenti Apparatınm kollektsiyasında buluna («Yasimenler», 2000; «Nargüzler», 2001; «Sabah», 2001; «Çua çeçekleri», 2000; «Bulutlar», 2001; «Qırım.Azav denizi», 2001; «Bağçasaray.Oaytuv», 1990).
 Osman Çubarov — qırımtatar tasviriy sanatının realistik yönelişinde çalışqan eh qart vekillerden biridir.
 Onın taqdiri pek zor ve facialı oldı.
-1923 senesi Gurzufta doğğan Osman Çubarovnm qorantası 30-ncı senelerde «kulak» dep tanıla ve Tambov vilâyetine sürgün etile.
-Andan olar Çeçenistanğa koçeler.
+%1923 senesi Gurzufta doğdı.
+30-ncı senelerde «kulak» dep tanıla ve Tambov vilâyetine sürgün etile.
+%Andan onın qorantası Groznıy şeerine (Çeçen-Inguş ASSR) koçe.
 II Cihan cenkinde iştirak etken O.Çubarov 1943 senesi ağır yaralandı.
-1955 senesi Çubarov Rostov ressamlıq oquv yurtum, 1963 senesi ise i.Repin adına Leningrad ressamlıq ve mimarcılıq institutını bitirdi, anda E.
-Moiseyenkonm ustahanesinde tahsil aldı.
+1955 senesi Çubarov Rostov ressamlıq oquv yurtum, 1963 senesi ise i.Repin adına Leningrad ressamlıq ve mimarcılıq institutını bitirdi, anda E.Moiseyenkonm ustahanesinde tahsil aldı.
 1957 senesinden SSSR Ressamlar birliğinin azası olğan, Çeçen-inguş ASSRde nam qazanğan sanat erbabı unvanınen taqdirlengen, bir sıra cumhuriyet ve bütünittifaq sergilerinde iştirak etken O.
 Çubarov bütün vaqıt realizmnin klassik an'anelerine sadıq olıp keldi.
 Ressamnın anlı icadiy ömüri Çeçenistanda keçti, işte, icadı da şu diyarnen bağlı oldı.
