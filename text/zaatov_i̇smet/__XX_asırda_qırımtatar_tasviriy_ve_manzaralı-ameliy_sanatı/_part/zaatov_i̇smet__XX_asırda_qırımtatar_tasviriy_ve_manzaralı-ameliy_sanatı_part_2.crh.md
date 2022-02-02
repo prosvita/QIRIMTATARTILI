@@ -387,16 +387,19 @@ Mesele şunda ki, onlarnen yıllar devam etken repressiyalar, taqipler, indemey�
 Sergilernin teşkilâtçıları kimerde ekspozitsiyalarnı ustalıq ve icracılıq seviyesi ile biri-birinden sezilirli derecede farq etken resimlerden tertip eteler, özlerince icadiy teşebbüske qoltutqan kibi olalar.
 Halbu ise, bunınnen zemaneviy qırımtatar tasviriy sanatının inkişaf tendentsiyalarına yanlış qıymet kesmek mümkün.
 Demek, zemaneviy qırımtatar ressamlarının icadı talil olunır eken, meselege olduqça ciddiy, obyektiv yanaşmaq zarur.
-2.3.1.Ressamlıq
+
+###2.3.1.RESSAMLIQ
 Yuqarıda qayd etkenimiz kibi, ressamlıq, grafika, heykelcilik sahalarında çalışqan zemaneviy qırımtatar ustalarının ekseryieti bediiy tahsilni Özbekistanda aldılar.
 Oırımnıh yetekçi ressamlarından birisi Ramazan Useinov — işte, olarnın cumlesindendir.
 Ramazan Useinov 1949 senesi Samarqand şeherinde doğdı.
-1971 senesi Taşkentteki P.
-Benkov adına cumhuriyet ressamla oquv yurtum bitirgen son Samarqanddaki Bediiy fondğa yollanıldı, anda bir qaç yıl monumental-manzaralı ressamlıqnen meşğül oldı.
+1971 senesi Taşkentteki P.Benkov adına cumhuriyet ressamla oquv yurtum bitirgen son.
+ Samarqanddaki Bediiy fondğa yollanıldı, anda bir qaç yıl monumental-manzaralı ressamlıqnen meşğül oldı.
 1980-nci yıllardan itibaren cumhuriyet, bütünittifaq, halqara sergilerde faal iştirak etip başladı.
-1988 senesi SSSR Ressamlar birliğine aza oldı, özüni ta Özbekistanda yaşap icat ekende tanıttı.
+1988 senesi SSSR Ressamlar birliğine aza oldı.
+ özüni ta Özbekistanda yaşap icat ekende tanıttı.
 1974 senesi ressam ilk kere Oırımğa kelip kete ve şundan sofi Vatanğa qaytmaq fikiri om terk etmey.
-R. Useinov Qırımda 1992 senesinden berli yaşay, lâkin onın avdeti biraz evelce, yani o, O 1990 senesi Aqmescitte ötkerilgen qırımtatar ressamlarının birinci sergisinde iştirak etken vaqıtta olıp keçti, demek mümkün.
+R. Useinov Qırımda 1992 senesinden berli yaşay.
+ lâkin onın avdeti biraz evelce, yani o, O 1990 senesi Aqmescitte ötkerilgen qırımtatar ressamlarının birinci sergisinde iştirak etken vaqıtta olıp keçti, demek mümkün.
 Useinovnın Oırımda yaratqan eserleri Ozbekistanda yaratqan eserlerinden bayağı farq eteler.
 Özbekistan devirine ait resimler an'aneviy sosialistik realizm üslübinde yapılğam halda, Qırım resimleri — nazik rüyalar alemidir ki, olarda ressamnın kendi tamırları haqqında soy-soplardan eşittigi hikâyeler, mevcudatm şahsen idrak etüv duyguları çatışqanlar.
 Ressamğa yanı üslüpni araştırmaq içün siltemni Oırımnın özü berdi.
