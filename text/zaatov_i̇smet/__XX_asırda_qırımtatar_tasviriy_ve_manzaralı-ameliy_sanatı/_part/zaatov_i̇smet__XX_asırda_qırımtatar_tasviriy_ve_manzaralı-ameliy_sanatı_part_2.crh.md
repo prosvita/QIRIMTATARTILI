@@ -797,16 +797,14 @@ işte, o vaqıttan berli Sankt-Peterburgda yaşay ve çalışa.
 L. Trasinovanın esas eserleri cümlesine «44 senesi» türkümi (1990), dört grafik tabaqtan ibaret «Şeher ve quşlar» türkümi (1990), «Avtoportret» (1990), «Mavi urba kiygen men ve patlaqçanaqlar»» avtoportreti, «Şeherli portreti», «Oırımtatarlarnın tipleri» adlı grafika tabaqları türkümi (1991), «Men qafesteki bir quşım» türkümi (1991), «Bu nasıl olğan edi (SSSRde milliy repressiyalar.1919-1952 seneleri)» kitabının Zarema Trasinovanen birlikte yapılğan maketi kireler.
 Anasının etnografik cehetten tam, realistik grafikasından farqlı olaraq, Leylânın grafika eserlerinde uydurma ve rüyalar tekmil qarışıp ketkenler.
 Bir baqıştan tonuq, veciz olıp körüngen resimler asılında hareketli, mundericeliler ve olar muellifnin tesirçen, ihtiraslı şahs olğanını köstereler.
-
+%Keçmiş tarihiy mevzular, qırimtatar halqınıñ öz Vatanına qaytuvınen bağlı problemalar aynı zamanda em grafiklerni, em de boyalı resimnen oğraşqan ressamlarnı da bir çeşit raatsızlaylar.
 Yaya Temirqayayev 1935 senesi Oırımda doğdı, 1944 senesi bütün halqnen beraber sürgün olundı.
-1966 senesi P.Benkov adına Taşkent ressamla oquv yurtunı, 1972 senesi ise A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi.
+1966 senesi P.Benkov adına Taşkent ressamla oquv yurtunı.
+ 1972 senesi ise A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi.
 1979 senesi SSSR Ressamlar birliğine qabul olunğan sofi
-# #
-Ozbekistannın yetekçi grafikleri sırasına kirdi.
 Ressamnı hususan 70-80nci senelerde mot olğan plakat janrı tanıttı («Sionizm — bugünnin faşizmidir», «Diqqat!Atılmasın!», «Livandan elinizni çekiniz!»).
 Ya.Temirqayayevnin siyasiy hem de reklam plakatları bütünittifaq ve halqara sergilerde defalarca nümayiş etildiler (Moskva, 1982-1983).
-Temirqayayev icadının mühim bir qısımını Oırım mevzusına bağışlanğan resimler teşkil eteler.
-Söz kelimi, ressam özü içün aziz olğan bu mevzum hem grafika janrında, hem ressamlıq janrında aydınlata.
+Temirqayayev icadının mühim bir qısımını Oırım mevzusına bağışlanğan resimler teşkil eteler, Söz kelimi, ressam özü içün aziz olğan bu mevzum hem grafika janrında, hem ressamlıq janrında aydınlata.
 Sürgünliknin ne ekenini ta balalıq çağında bilgen Temirqayayev aqılında qalğan, şahsen özü şaat olğan vaqialamı tantiminen tasvirley.
 Ressam mühim tafsilâtlarnı qaçıracağından saqınıp, olarnı birer-birer qayd ete.
 İşte, onın eserlerinin tafsilâtlı, taarifleyici mizacı da şundan kelip çıqalar.
