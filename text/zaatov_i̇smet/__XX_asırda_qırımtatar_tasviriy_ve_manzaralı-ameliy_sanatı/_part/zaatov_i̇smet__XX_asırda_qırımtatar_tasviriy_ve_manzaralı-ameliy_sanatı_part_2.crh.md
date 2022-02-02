@@ -615,7 +615,8 @@ Biraz keççe devirde ise evelki eserlerden icra olunuv harakteri ile ayırılı
 Bundan ğayrı ressam Moskvada ötkerilgen «Dizayn ve plakat» sergisinde de iştirak etti ve anda onın bir qaç eseri nümayiş etildi.
 Ressamnın Özbekistandaki icadiy devirini «Komendant uzurında», «1944 senesi, mayıs 18», «Şarq sabası» kibi eserler yekünleyler.
 1992 senesi Qırımğa koçüp kelgen A.Bekirov mındaki icadiy ceryanğa sıqı qatıla ve «Oaval», «Ay-Petri dağı», «Keçmişteki Mishor», «Novıy svet», «Bağçasaray soqaçığı», «Uyanuv» kibi resimlerni yarata.
-A.Bekirov Oırım ressamlarının sergilerinde, cümleden Oırımtatar ressamları assotsiatsiyası teşkilâtlandırğan sergilerde faal iştirak ete, ressamlıqtan ğayrı, ağaç üstünde oyuvnen, inter'er ve ekster'erni bezetüvnen oğraşa.
+A.Bekirov Qırım ressamlarının sergilerinde, cümleden Qırımtatar ressamları assotsiatsiyası teşkilâtlandırğan sergilerde faal iştirak ete.
+Ressamlıqtan ğayrı, ağaç üstünde oyuvnen, inter'er ve ekster'erni bezetüvnen oğraşa.
 Hal-azırda Aqmescitte yaşay.
 Ukraina Ressamlar birliğinin azası, Özbekistan cumhurietinde nam qazanğan medeniyet hadimidir.
 XX asımın sonu tasviriy janrlar ve aqımlarnın çeşitliliginen, endi klassikağa çevirilgen yönelişlernin, meselâ, simvolizm, ekspressionizm, sürrealizmnin ğayrıdan doğmasınen qayd oluna.
