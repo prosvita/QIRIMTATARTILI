@@ -238,26 +238,25 @@ Osmanovnm icadında Oırım mevzusı ayrıca yer tuta.
 Ressam sürgünlikte yaşar eken, Vatanına defalarca kele, mında peyzaj resimleri yaratmaq içün ilham ala, resimlerde Oırımnıh eh körümü yerlerini tasvirley («Ayuvdağ», «Çehovnın Gurzuftaki evi», «Deniz ve qayalar», 1982).
 Ressam «Qırımnın yalıboyunda gece» adlı peyzaj resiminde Ayüvdağnın panoramalı körünişini bere.
 Dağ eteğindeki evçiklernin pencereleri gece qaranlığında yanıp turalar, ay nurları ise dalğasız deniz sathında, dersin, bir yol keçirip, seyircini tuvğan yalığa qaytmağa çağıralar.
-S.Osmanov Oırımğa 1988 senesi qaytıp keldi ve derhal faal icadiy işke kirişti — qırımtatar medeniyetinin ulu erbaplarından I.Gasprinskiy, N.Çelebicihan, B.Çoban-zade, U.
-İpçiğe bağışlanğan yübiley tantanalarını yaraştırdı.
+S.Osmanov Oırımğa 1988 senesi qaytıp keldi ve derhal faal icadiy işke kirişti — qırımtatar medeniyetinin ulu erbaplarından I.Gasprinskiy, N.Çelebicihan, B.Çoban-zade, U.İpçiğe bağışlanğan yübiley tantanalarını yaraştırdı.
 1990-ncı senelerde Aluştada (1991) ve Aqmescitte (1994) ressamnın şahsiy sergileri ötkerildi.
-Oırım devirine ait resimler esasen peyzaj ve natürmort janrında yapılğanlar.
-Bu devirde yaratılğan peyzajlarnıh ruhiyeti de denişe.
+Oırım devirine ait resimler esasen peyzaj ve natürmort janrında yapılğanlar, bu devirde yaratılğan peyzajlarnıh ruhiyeti de denişe.
 80-nci senelerge ait eserlerde elegik duyğular üstün turğan olsa, 90-ncı senelerde yapılğan resimlerde artıq heyecanlı-patetik duyğular qabarıp çıqa.
 Vatanına qaytqan ressamnı sarıp alğan duyğularm deniz peyzajları seriyasında — doğayatqan küneşnin gülgülü şavleleri astında nazlanğan yalıdaki qayalarğa barıp urulğan şiddetli dalğalarda közetmek mümkün.
 Cenkten evel icat etken qırımtatar ressamları cümlesine qarasuvbazarli Resid Çelebiyevni de qoşmaq lâzim.
-Oırımtatar devlet teatri açılğan künden (1923) başlap şu teatrde ressam ve aktör olıp çalışqan (251.
-20-nci sahife) bu adam Bağçasaray muzeyinifi direktorı Usein Bodaninskiy Oırım boylap teşkilâtlandırdığı meşhur etnografik eskpeditsiyada tasvirleyici ressam sıfatında iştirak etti.
+Qırımtatar devlet teatri açılğan künden (1923) başlap şu teatrde ressam ve aktör olıp çalışqan (251.20-nci sahife).
+ Bu adam Bağçasaray muzeyinifi direktorı Usein Bodaninskiy Qırım boylap teşkilâtlandırdığı meşhur etnografik eskpeditsiyada tasvirleyici ressam sıfatında iştirak etti.
 R. Çelebiyevnin resimleri şimdi Bağçasaray tarihiy-medeniy zapovedniginin fondlarında saqlanalar.
 Bağçasaray rayonının Teberti köyünde doğğan Emir-Amet Parikov da 1920-1930-ncı senelerde tanılğan peyzaj ustalarından birisi edi.
 E-A.Parikov 1924 senesi Bağçasaraydaki bediiy-sanayı tehnikumını bitirgen son ressam hem de kemik ve ağaç üstünde oymacı diplomını aldı.
 O, özüni SSSR Ressamlar akademiyasının muhbir azası Usein Bodaninskiy şegirti, dep saya edi.
 Lâkin 20-nci senelernin ekinci yarısında professional artistlikke ziyade berilgen Parikov ressamlıq işini çetke süre ve belli bir vaqıttan son meşhur qırımttar komik artistine çevirile.
-
 E-A.Parikov 1936 senesi vefat etti.
 Aqmescitnih Subhi soqağındakı qırımtatar mezarlığında defn olundı.(250.45-nci sahife).
+
+
 2.2.1950-1980 senelerindeki qırımtatar tasviriy sanatı
-ûırımtatar tasviriy sanatının ayaqqa turuv ve inkişaf etüvindeki ekinci basqıç 50-80-nci senelerge, yani qırımtatarlarnıh daha sürgünlikte, esasen
+Qırımtatar tasviriy sanatının ayaqqa turuv ve inkişaf etüvindeki ekinci basqıç 50-80-nci senelerge, yani qırımtatarlarnıh daha sürgünlikte, esasen
 Ozbekistanda, yaşağan yıllarına doğru keldi.
 E. Oudusov qayd etkeni kibi, sürgünlik yıllarında ümüt etilmegen şey yüz berdi: «qırımtatarlar diğer türkiy tilli halqlarnen qarışıp, yer yüzünden, umumen cihannın etnik haritasından yoq olmaq yerine özlerinin milliy şahsiyetini saqlap qalmaqnen bir sırada şaşılacaq derecede dayanıqlıq kösterip...
 dünyada en oqumış milletler sırasına çıqtılar».(90.28-nci sahife).
