@@ -572,14 +572,12 @@ M. Çurlunın şegirti olğan V.Useinov, ustazı kibi, öz icadiy yolum ameliy r
 V.Useinovmn resimleri figurativ harakterdedir.
 Lâkin o, kerçek alemge ait nesnelerni tasvirler eken, şartlı kompozitsiyalar yarata ve bu kompozitsiyalar sonundan çeşit türlü manalarnen ve temsiliy telqinlernen tolup taşqan işaretler sistemasına çevirile.
 «Vaqıt toqtadı» (1986), «Sabiynin işmarı» (1993), «Beş küneş» (1996), «Sabah avası mezarcının ayaqları astına töşele» (1998) kibi resimler — muellifnin olıp keçeyatqan vaqialarğa seslenüvi, içki dünyasının ifadesi hem de onın felsefiy umumiyleştirmeleridir.
-
+%Useinovnıñ tasvirat eserlerinde üstün turğan telâşlı duyğusı halqınıñ başına tüşken facialı adaletsizlikni añlamağa ve onıñ sebeplerini qıdırmağa mecbur ete.
 Useinov — bir sıra cumhuriyet ve halqara sergilernin iştirakçisidir.
 Onın resimleri AOŞta, italiyada, Hindistanda, Rusiyede nümayiş etildiler.
-1994, 1997 seneleri Sankt-Peterburgda ve Taşkentte V.
-Useinovmn şahsiy sergileri olıp keçti.
+1994, 1997 seneleri Sankt-Peterburgda ve Taşkentte V.Useinovmn şahsiy sergileri olıp keçti.
 Onın elinen yaratılğan eserler SNG memleketlerinde ve çeteldeki muzeylerde hem de hususiy kollektsiyalarda saqlanalar.
-Seyran Ourtcelilnin (1967 senesi doğdı) resimleri V.
-Useinovmn resimlerinden bütünley farq eteler.
+Seyran Ourtcelilnin (1967 senesi doğdı) resimleri V.Useinovmn resimlerinden bütünley farq eteler.
 Olarda bam-başqa hayalet, bam-başqa ruhiyet sezile.
 S. Ourtcelilnin eserleri ömür mücadelelerinden uzaq turalar, daha yaqın keçmişte yahut da bizim devirimizde yüz bergen vaqialar aks olunmaylar.
 Dünya güzelligini ve uyğunlığını araştırıp tapuv, ebediy aqiqatnı idrak etüv meselesi ressam içün birinci yerde tura.
