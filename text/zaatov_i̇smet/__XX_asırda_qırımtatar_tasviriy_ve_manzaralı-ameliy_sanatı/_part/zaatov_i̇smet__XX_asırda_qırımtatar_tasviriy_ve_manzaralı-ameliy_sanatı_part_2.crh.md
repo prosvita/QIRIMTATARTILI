@@ -711,17 +711,17 @@ Bundan evelki bölükte icatlarını aydınlattığımız deyerlik bütün yetek
 İşbu bölükte biz grafikanı yetekçi tasviriy janr, dep sayğan ve kendisinin icadiy ferdini belgilegen ressamlar haqqında hikâye etecekmiz.
 Bediiy çezimlerde, icracılıq seviyesinde mevcut olğan çeşitlilikni ise grafikağa çeşit türlü ustalar müracaat etkeninen ve olarnın professional cehetten azırlığı da çeşit türlü olğanınen anlatmaq mümkün.
 Zemaneviy qırımtatar grafikasında «bir taraftan, hem açıq-açıqtan terğibiy çezimler, hem bidad stilizafsiyalar, diğer taraftan — halqnın faciasını, milliy hareketnin insanperver ideallarını açıp kösterüvge nisbeten ğayet ince, ğayet nefasetli, teren yanaşuvlar rastkeline».(205.268-nci sahife).
-Lâkin, hepisi bir, qırımfafar grafikasının eh yahşi numüneleri siyasiylikten iraq olıp, olar «ahlâq ve medeniyetnin «yüksek», «ebediy» değerliklerine bağışlanğanlar.(205.268nci sahife).
-
+Lâkin, hepisi bir, qırımtatar grafikasının en yahşi numüneleri siyasiylikten iraq olıp, olar «ahlâq ve medeniyetnin «yüksek», «ebediy» değerliklerine bağışlanğanlar.(205.268nci sahife).
 Grafika sahasında çalışqan yetekçi ustalar sırasına Ramiz Netovkin kire.
-O, 1960 senesi Taşkent vilâyetinin Almazar qasabasında doğdı, 1975 senesi Vatanğa qaytıp olğan siyrek-sepelek qırımtatar qorantaları arasında Netovkinlernin ailesi de bar edi.
+O, 1960 senesi Taşkent vilâyetinin Almazar qasabasında doğdı,
+ 1975 senesi Vatanğa qaytıp olğan siyrek-sepelek qırımtatar qorantaları arasında Netovkinlernin ailesi de bar edi.
 O yıllarda Oırımda qırımtatarlarğa münasebet, yımşaqça etip aytqanda, pek de yahşi değil edi.
 Ne ise de Ramiz Aqmescitteki N.Samokiş adına ressamlıq oquv yurtuna kirmege muvaffaq ola ve onı 1980 senesi bitire.
 Şu yıldan başlap cumhuriyette ve çetelde ötkerilgen sergilerde iştirak ete, 1989 senesi ise Ukraina Ressamlar birliğine aza olıp kire.
-Sonki 15 yıl içinde Oırımmh çeşit şeherlerinde hem de Estoniya, Poloniya, Türkiye kibi memleketlerde R.
-Netovkinnin 10-dan ziyade şahsiy sergisi olıp keçti.
+Sonki 15 yıl içinde Oırımmh çeşit şeherlerinde hem de Estoniya, Poloniya, Türkiye kibi memleketlerde R.Netovkinnin 10-dan ziyade şahsiy sergisi olıp keçti.
 2000 senesi cumhuriyet qırımtatar sanatı muzeyinde ressamnıh 40 yıllığına bağışlanğan şahsiy sergisi ötkerildi.
-R.Netovkinnin grafikasında yetekçi mevzum Oırım mevzusı teşkil ete.
+R.Netovkinnin grafikasında yetekçi mevzum Qırım mevzusı teşkil ete.
+%Hususan ressamnıñ sevimli Bağçasarayı: onıñ endi silingen taş basamaqları eski aralıqları, bozulğan çemeleri, biri-biriniñ üstüne üymeleşken evçikler, cami ve süyrü ucu minareler, qıyışqan ağaç çardaqlar...
 Ressam özünin eh sevgen şeheri Bağçasaraynı, bu şehernin silingen taş basamaqlı tar soqaçıqlarını, virane alına kelgen çeşmelerini, biri-birinin damına tırmaşqan campi evçiklerini, camilerinin süyrü uçlu minarelerini, yantayğan ağaç balkonlarını ayrıca zevq ile tasvirley.
 O, çoqtan-çoq bukletlerde tasvirlenip, endi her keşke belli olğan Bağçasaray abidelerini ve diqqatqa lâyıq yerlerini kör-körane aks ettirmeğe istemey, aksine, bizni taş yılnamelerinde qadim zamanlarnın aks-sedaları saqlanıp qalğan eski şeherge alıp kete.
 O şehernin soqaçıqlarında adam körünmey, sükünet hüküm süre, o şeher şimdi uyquda olıp, ana-mına uyanacaq güzel meleknin qasrını andıra.
