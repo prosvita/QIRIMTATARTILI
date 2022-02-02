@@ -175,7 +175,8 @@ Muhtar Şerfedinov Moskvadaki Gorkiy adına medeniyet ve istrahat bağçasmıh l
 Oırımnın 1930-nci senelerdeki medeniy ömürinde meşhur ukrain ressamı, tasviratta uruş janrımh acayip ustası sayılğan akademik Nikolay Semyönoviç Samokişnin studiyası hususan büyük röl oynadı.
 Belli ki, bu studiya sonundan Simferopol ressamlıq tehnikumına çevirilgen edi, şimdi ise N.S. Samokiş adına ressamlıq oquv yurtu, dep adlandırıla.
 Cenkten evel icat etken qırımtatar ressamlarının ekseryieti şu studiyada terbiyelendiler.
-Aqmescitte 1918 senesinden yaşağan N.S. Samokiş qırımtatar halqını sevip-saya edi, şu sebepten de halqnıh facialı taqdiri onı lâqayd qaldırmay edi.
+Aqmescitte 1918 senesinden yaşağan N.S. Samokiş qırımtatar halqını sevip-saya edi. 
+%
 Oırımtatar halqına münasebetini o özünin bir sıra tarihiy eserlerinde («Oırımda 1921-1922 senelerinin açılığı») aks ettirdi.
 Meselâ, «Oırımtatarlarnın hicretke ketüvi» (1934) adlı resimde tatarlarnın tuvğan topraqnen sağlıqlaşuvlarımn yanığı tasvirlene.
 Resim Simferopoldeki bediiy muzeyde nümayiş etilgen edi.
