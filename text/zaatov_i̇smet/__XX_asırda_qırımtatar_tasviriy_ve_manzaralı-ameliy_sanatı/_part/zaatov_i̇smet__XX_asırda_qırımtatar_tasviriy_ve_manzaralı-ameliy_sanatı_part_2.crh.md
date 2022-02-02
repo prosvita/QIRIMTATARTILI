@@ -823,36 +823,34 @@ Remzi Aliyev (1939 senesi doğdı) — P.Benkov adına cumhuriyet ressamla oquv 
 Hal-azırda o, Aqmescit rayonının Mazanka köyünde yaşay ve çalışa.
 R. Aliyev eh evelâ plakatçı sıfatında bellidir.
 Onın eserleri qırımtatarlarğa — II Cihan cenkinin qaramanlarına, qırımtatar medeniyetinin erbaplarına bağışlanğan olıp, böyle eserlerden onın «Amethan Sultan» (1989), «Alime Abdennanova» (1990) kibi plakatlarını anmaq kerek.
-Grafik ressam Şevket Dervişev (1935-2000) de tahsilni P.
-Benkov adına cumhuriyet ressamlıq oquv yurtunda aldı (1955-1960).
+Grafik ressam Şevket Dervişev (1935-2000) de tahsilni P.Benkov adına cumhuriyet ressamlıq oquv yurtunda aldı (1955-1960).
 1990 senesi Cankoy rayonının Zareçnoye koyune köçüp keldi ve anda pedagogik hem de icadiy faaliyetnen oğraşıp başladı, cumhuriyet sergilerinde iştirak etti.
 1980-nci senelerde grafikanen faal meşğül olğan Ş.Dervişev (1980 senesi Moskvada ötkerilgen Olimpiya oyunları içün plakat, 1980; Olimpiadanın embleması, 1980) 1990-ncı senelerde esasen akvarelnen oğraştı («Oara haber», 1984; «Uçucılar ölmeyler» (Amethan Sultanğa bağışlana), 1995; «Dostumnıh portreti», 1996).
 A. Seit-Ametovnın balaları — Abdül ve Elmira da baba izinden kettiler.
 Abdül Seit-Ametovnı zemaneviy qırımtatar sanatında hiç de körülmegen kalligrafik abstraktsionizm yönelişi celp etti.
 Dizayncı ve grafik A.SeitAmetov P.Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil alğan son Harkov bediiy-sanayı institutını bitirdi (1994).
 Hattatlıq sanatını Abdül mustaqil menimsedi.
-Oırımtatarlarnın an'aneviy sanatını öğrenir eken, bu esnada hattatlıq yetekçi yer tutqanını anladı.
+Qırımtatarlarnın an'aneviy sanatını öğrenir eken, bu esnada hattatlıq yetekçi yer tutqanını anladı.
 Böylece, yaş grafik hattatlıq sanatını canlandırmağa tutundı.
 O kendi eserlerinde arap hariflerinih örmelerini klassik qırımtatar örneklerinen biriktirerek, tekrarlanmaz kompozitsiyalar yarata ki, olar seyircini tek öz dülberligi ve manzaralılığınen meftün etip qalmadan, halqnın tarihi, an'aneleri haqqında tüşüncelerge dalmağa da mecbur eteler.
-Böyleleri sırasında «Kalligrafik abstraktsiya.
-«A harifi sahrada» (1994), «Kalligrafik abstraktsiya (adsız)» (1994), dört tabaqtan ibaret ornamental kompozitsiyalar türkümi (1995), arap harifleri mevzusında eki tabaqtan ibaret abstrakt kompozitsiyalar (1996), «Quran sureleri» adlı kalligrafik kompozitsiyalar (1997), «Allahının 99 adından birisi» (1997) kireler.
+Böyleleri sırasında «Kalligrafik abstraktsiya: «A harifi sahrada» (1994), «Kalligrafik abstraktsiya (adsız)» (1994), dört tabaqtan ibaret ornamental kompozitsiyalar türkümi (1995), arap harifleri mevzusında eki tabaqtan ibaret abstrakt kompozitsiyalar (1996), «Quran sureleri» adlı kalligrafik kompozitsiyalar (1997), «Allahının 99 adından birisi» (1997) kireler.
 Seit-Ametov özünin grafika kompozitsiyalarını çin merekebi, guaşnen icra eterek, aynı vaqıtta suvlama ve süslemelerden faydalana.
 Abdül grafikadan ğayrı, an'aneviy qırımtatar çölmekçiligini de ögrene ve özü de çamurdan şeyler yasay.
 Lâkin bu aqta laqırdı «Manzaralı-ameliy sanat» bölüginde olacaq.
-Elmira Seit-Ametova 1973 senesi Taşkentte doğdı, şimdi Oırımda yaşay.
-O, Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirdi, hal-azırda kitap grafikası sahasında çalışa, esasen bala kitapları ve derslikler içün resimler yapa (E.Selâmet.«Altın balta haqqında masal» (1993); C.Kence.«Bala şiirleri» (1995); «Tuvğan edebiyat» (1998); S.Harahadı.«Elifbe» (2000).E. Seit-Ametovanın grafika eserleri Kiyevde, Aqmescitte ötkerilgen sergilerde nümayiş etildiler (1993, 1996, 1997).
-Elmira Seit-Ametova kibi yaş, lâkin özlerini endi tanıta bilgen ressamlar — Aqmescitteki N.
-S. Samokiş adına ressamlıq oquv yurtunıri mezunları Cemal Alibekov (1979 senesi doğdı) ve Ridvan Baliç sanattaki kendi icadiy yollarını daha araştıracaqlar.
-2000 senesi olıp keçken Oırım akvarel biyennalesinde C.
-Alibekov «Çufut-Qale» (1999), «Alupka.
-Eski soqaq» (2000) adlı akvarel resimlerinden ibaret türküm içün «Debüt» değen nufuzlı mükâfat qazandı.
-Ridvan Baliç 1980 senesi Tacikistannın Leninabad (şimdiki Hocent) şeherinde doğdı, 2001 senesi N.
-Samokiş adına ressamlıq oquvyurtu mezunlarının eserlerinden teşkil olunğan sergiden son tanıldı.
+Elmira Seit-Ametova 1973 senesi Taşkentte doğdı.
+ şimdi Oırımda yaşay.
+O, Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirdi.
+ Hal-azırda kitap grafikası sahasında çalışa.
+ Esasen bala kitapları ve derslikler içün resimler yapa (E.Selâmet.«Altın balta haqqında masal» (1993); C.Kence.«Bala şiirleri» (1995); «Tuvğan edebiyat» (1998); S.Harahadı.«Elifbe» (2000).
+E. Seit-Ametovanın grafika eserleri Kiyevde, Aqmescitte ötkerilgen sergilerde nümayiş etildiler (1993, 1996, 1997).
+Elmira Seit-Ametova kibi yaş, lâkin özlerini endi tanıta bilgen ressamlar — Aqmescitteki N.S. Samokiş adına ressamlıq oquv yurtunıri mezunları Cemal Alibekov (1979 senesi doğdı) ve Ridvan Baliç sanattaki kendi icadiy yollarını daha araştıracaqlar.
+2000 senesi olıp keçken Oırım akvarel biyennalesinde C.Alibekov «Çufut-Qale» (1999), «Alupka.Eski soqaq» (2000) adlı akvarel resimlerinden ibaret türküm içün «Debüt» değen nufuzlı mükâfat qazandı.
+Ridvan Baliç 1980 senesi Tacikistannın Leninabad (şimdiki Hocent) şeherinde doğdı.
+ 2001 senesi N.Samokiş adına ressamlıq oquvyurtu mezunlarının eserlerinden teşkil olunğan sergiden son tanıldı.
 O sergide Ridvannm «Bogdan Hmelnitskiy Oırım hanı İslâm Geray saniy III uzurında» adlı diplom işi nümayiş etilip, serginin baş mükâfatını qazanğan edi.
 Bundan son Ridvan Ukraina Ressamlar ve mimarlar Milliy akademiyasına yollanma alıp, şu akademiyanın talebesi oldı.
 R. Baliçnin «Oırım yalısı» (2001) adlı peyzajı ve «Şarq natürmortı» (1998) ğayet cazibeliler.
-Yuqarıda adları anılğan ustalar Oırımda yaşay ve çalışalar.
-Lâkin Qırımdan tışta da bir çoq semetdeşlerimiz bardır ki, olar özlerini qırımtatar ressamlarının cümlesine qoşalar.
+Yuqarıda adları anılğan ustalar Oırımda yaşay ve çalışalar,Lâkin Qırımdan tışta da bir çoq semetdeşlerimiz bardır ki, olar özlerini qırımtatar ressamlarının cümlesine qoşalar.
 İnessa Cetere dizayn ve kompyüter grafikasınen oğraşa.
 Sonki yıllar devamında o, Taşkentte qadın-qızlar içün çıqarılğan «Saida» mecmuasında çalışa.
 A.N. Ostrovskiy adına Taşkent teatr-ressamlıq institutının mezum Zaur İbragimov (1937 senesi doğdı) 1969 senesinden berli Biysk şeherinde (Rusiye) yaşay ve şimdi Biysk devlet pedagogika institutının ressamlıq fakultetinde ocalıq yapa.
