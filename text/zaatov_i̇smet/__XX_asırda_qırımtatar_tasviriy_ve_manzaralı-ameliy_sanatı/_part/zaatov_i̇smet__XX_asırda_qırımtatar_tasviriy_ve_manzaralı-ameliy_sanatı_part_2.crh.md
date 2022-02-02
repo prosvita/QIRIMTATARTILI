@@ -321,17 +321,17 @@ icatnen çoq oğraşa, maneviy ve içtimaiy cehetten değerli eserler yarata («
 Ressam Nuri Planciyev (1937) de Oırımdan bala ekende çıqarıldı.
 Aluşta rayonında doğup ösken Nuri bir sıra obyektiv sebeplerden ötrü professional tahsil alıp olamadı.
 Lâkin icatta oha Leningrad Ressamlıq akademiyasının mezum Dmitriy Valerianoviç Selânin ustazlıq yaptı.
-1944 senesinden 1969 senesine qadar Nuri Planciyev Taşkent oblastındaki Yanıyol şeherinde yaşadı, anda belli rus ressamı İ.
-Brodskiynin şegirti F.Malkinden ressamlıq sırlarını öğrendi.
+1944 senesinden 1969 senesine qadar Nuri Planciyev Taşkent oblastındaki Yanıyol şeherinde yaşadı, anda belli rus ressamı İ.Brodskiynin şegirti F.Malkinden ressamlıq sırlarını öğrendi.
 1975 senesi Melitopol şeherine (Zaporojye oblastı) köçüp, şimdi de şu şeherde yaşay, şeher ve cumhuriyet sergilerinde iştirak ete.
 Onın «Ay yarıq gecesinde» (1962), «Uçansuv yanındaki sırlı tavuqlar» (1987), «Oırım sığınları» (1995), «Dağlı Oırım» (1996), «Sırlı tavuqlar alanı» (1997), «Sultan tavuğı» (1997) kibi eserlerinde realistik üslüp manzaralı-folklor elementlerinen çatışqandır.(87.39-ncı sahife).
 Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtum bitirgen (1955-1961) Abib İsmailov (1939 senesi doğdı) şimdilikte Samarqand şeherinde yaşay.
-Bu ressam bir çoq yıllar devamında şeherdeki orta mahsus oquv yurtlarında ders berdi, 1975-80-nci senelerde şehernin Baş ressamı oldı.
-1962 senesinden itibaren cumhuriyet ve bütünittifaq sergilerinde iştirak etti, 1970 senesi SSSR Ressamlar birliğine qabul olundı.
+Bu ressam bir çoq yıllar devamında şeherdeki orta mahsus oquv yurtlarında ders berdi/
+ 1975-80-nci senelerde şehernin Baş ressamı oldı.
+1962 senesinden itibaren cumhuriyet ve bütünittifaq sergilerinde iştirak etti.
+ 1970 senesi SSSR Ressamlar birliğine qabul olundı.
 O, esasen peyzaj janrında çalışa — mimarcılıq ve lirik peyzajlar yarata hem de interyerlerni, muzey ekspozitsiyalarını bezetüvnen oğraşa.
 Onın belli resimleri sırasına «Agalıq.Qış» (1976), «Merangöl.Uyle» (1977), «Eski şeher» (1978), «Samarqandda qış» (1980), «Registan» (1985) kibi eserleri kireler.
-İşte, cenkten evel Oırımda doğğan qırımtatar ressamlarının cedveli A.
-İsmailovmn adınen yekünlene.
+İşte, cenkten evel Oırımda doğğan qırımtatar ressamlarının cedveli A.İsmailovmn adınen yekünlene.
 Cenkten evelki nesilge ait qırımtatar tasviriy sanatı ustalarının icadını sanatşınas alimler daha endi öğrenip başladılar.
 Ayaqqa turayatqan qırımtatar sanatşınaslığı çerçivesinde bu mevzunın ileride tedqiq etilmesi neticesinde üyken nesil ressamlarımıznın cedveli bayağı kenişleycegi şubhesizdir.
 Sürgünlik yıllarında qırımtatarlarnın ekseri qısımı (70%) Ozbekistanda yaşadı, şu sebepten Özbekistan ressamlıq mektebinin qırımtatar kadrları şekillenmesinde oynağan rölüni ve qırımtatar sanat ustalarının icadına ğayet büyük tesir köstergenini qayd etmek zarur.Qırımtatar milletinden olğan yüzlernen yaş ve qızlar Taşkent ve Ferğananın ressamlıq oquv yurtlarında tahsil aldılar, işte, ilk qırımtatar heykeltraşları (A.Aliyev, Ş.
