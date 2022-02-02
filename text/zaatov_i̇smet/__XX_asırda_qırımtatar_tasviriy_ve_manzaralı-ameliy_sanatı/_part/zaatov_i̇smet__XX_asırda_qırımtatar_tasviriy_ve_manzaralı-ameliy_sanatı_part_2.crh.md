@@ -417,8 +417,7 @@ Onın dünyası asayişli ve tınçtır.
 Baş qaramanlar — köylülersanki dersin, biri-birlerinen aşıqmadan suhbetleşe, özlerinin asırlarca pekingen qanunları esasında yaşaylar.
 Ressamnın Oırımda yapqan resimlerini yekâne bir mevzu — Vatan mevzusı birleştire.
 Onın deyerlik her bir resiminde rastkelingen qutuçıq kibi evçikler ise Vatan temsili olıp, bu evçikler fonunda kündelik hayat levhaları aks oluna.
-Ressam qırımtatar halqının tarihında olıp keçken facialı vaqialarğa müracaat eter eken, olarnı boğaz yırtuvsız, yapma heyecansız ve tantimsiz tasvirley («Kervan», 1995; «Seyyahlar», 1996).
-«Kervan» adlı resimde sürgünlik mevzusı felsefiy tarzda yanğıray.
+Ressam qırımtatar halqının tarihında olıp keçken facialı vaqialarğa müracaat eter eken, olarnı boğaz yırtuvsız, yapma heyecansız ve tantimsiz tasvirley («Kervan», 1995; «Seyyahlar», 1996).«Kervan» adlı resimde sürgünlik mevzusı felsefiy tarzda yanğıray.
 Resimde biz eşeğini yeteklep ketken ğarip seyyahm, eşek üstüne yuklengen kene de şu qutuçıq-evçikler obasını köremiz — işte, «öz mulkümni özümnen alıp yürem».
 Aynı bu usul «Avdet» adlı eserde de qullanıla — eşek minip keteyatqan qadın ellerinde qutuçıq kibi evçiklerni tuta, guya onın elindekisi fidançıqlar da, olarnı yanı yerde oturtacaq.
 Eserlernin mecaziyligi ressamğa sürgünlik ve avdet mevzularını daha terence, daha toluca açıp köstermek imkânını bere.
