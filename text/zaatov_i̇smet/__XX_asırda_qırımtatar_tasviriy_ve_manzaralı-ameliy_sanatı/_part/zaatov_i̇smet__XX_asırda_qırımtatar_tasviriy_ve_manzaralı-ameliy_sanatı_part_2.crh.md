@@ -250,7 +250,8 @@ R. Çelebiyevnin resimleri şimdi Bağçasaray tarihiy-medeniy zapovedniginin fo
 Bağçasaray rayonının Teberti köyünde doğğan Emir-Amet Parikov da 1920-1930-ncı senelerde tanılğan peyzaj ustalarından birisi edi.
 E-A.Parikov 1924 senesi Bağçasaraydaki bediiy-sanayı tehnikumını bitirgen son ressam hem de kemik ve ağaç üstünde oymacı diplomını aldı.
 O, özüni SSSR Ressamlar akademiyasının muhbir azası Usein Bodaninskiy şegirti, dep saya edi.
-Lâkin 20-nci senelernin ekinci yarısında professional artistlikke ziyade berilgen Parikov ressamlıq işini çetke süre ve belli bir vaqıttan son meşhur qırımttar komik artistine çevirile.
+Lâkin 20-nci senelernin ekinci yarısında professional artistlikke ziyade berilgen Parikov ressamlıq işini çetke süre.
+ Belli bir vaqıttan son meşhur qırımttar komik artistine çevirile.
 E-A.Parikov 1936 senesi vefat etti.
 Aqmescitnih Subhi soqağındakı qırımtatar mezarlığında defn olundı.(250.45-nci sahife).
 
