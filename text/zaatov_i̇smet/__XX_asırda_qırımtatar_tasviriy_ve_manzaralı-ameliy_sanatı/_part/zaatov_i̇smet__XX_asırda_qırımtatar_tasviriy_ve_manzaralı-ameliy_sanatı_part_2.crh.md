@@ -882,17 +882,17 @@ Böyle soy sanatnı anar ekenmiz, közümiz öğünde mezar abideleri (baştaşl
 XX asımın başlarında, yani Oırımda tasviriy sanatnın bütün çeşitleri gür inkişaf etip başlağanda, qırımtatar heykelciliğinin kendi mektebini meydanğa ketirmek içün bütün imkânlar bar edi.
 Hem qırımtatar ustaları bu janrda muvafaqiyetnen çalışaraq, devir ve mefküre talap etken eserlerni yarata, mahalliy ve bütünittifaq sergilerinde iştirak ete ediler.
 Keçken asırnın 30-ncı senelerinde qırımtatar heykeltraşlarının bir qısımını repressiyalar dalğası yuvup ketti, diğer bir qısımı ise sürgünlik yerlerinde ğayıp oldı.
-Böyleliknen, qırımtatar sanatında mevcut olğan taş işlev an'aneleri üzüldi, hem tek bu değil, umumen halqmn cemi medeniy yenişleri yoqqa çıqarıldı.
+Böyleliknen, qırımtatar sanatında mevcut olğan taş işlev an'aneleri üzüldi, hem tek bu değil.
+ Umumen halqmn cemi medeniy yenişleri yoqqa çıqarıldı.
 Heykelcilik mevzusı — mezkûr kitabımızda en zayıf aydınlatılğan mevzudır.
-Lâkin bunıri sebebi qırımtatar heykeltraşlarının bediiy seviyesi ve professionalizmi ğayet alçaq olğanında değil de, kene de şu yuqarıda andığımız meselelerde ve qırımtatar heykeltraşları pek az sayıda olğanlarındadır.
+Lâkin bunıri sebebi qırımtatar heykeltraşlarının bediiy seviyesi ve professionalizmi ğayet alçaq olğanında değil, de, kene de şu yuqarıda andığımız meselelerde ve qırımtatar heykeltraşları pek az sayıda olğanlarındadır.
 Bugünde-bugün Oırımda milliy sanatnı canlandıruv ceryanı vira qulaç ala.
-Heykelcilik sahasında çalışqan ustalarımız — esasen daha endi ayaqqa turayatqan yaş icatçılar olıp, olar sanatnın bu janrında özlerinin salmaqlı sözlerini daha aytacaqtırlar.
-Qırımtatar ressamları kibi, zemaneviy heykeltraşlarımız da professional tahsilni Oırımdan tışta aldılar.
+Heykelcilik sahasında çalışqan ustalarımız — esasen daha endi ayaqqa turayatqan yaş icatçılar olıp.
+ Оlar sanatnın bu janrında özlerinin salmaqlı sözlerini daha aytacaqtırlar.
+Qırımtatar ressamları kibi, zemaneviy heykeltraşlarımız da professional tahsilni Qırımdan tışta aldılar.
 Vatanğa qaytıp kelgen son öglerinde bayağı yüksek içtimaiy ve turmuş harakterindeki sedler peyda olğanına baqmadan, olar kendi icadiy faaliyetlerini usanmadan devam ettireler.
 Ayder Aliyev Oırımnın yetekçi heykeltraşları sırasına kire.
-O, 1952 senesi Mari ASSRde doğdı (onın ana-babası Oırımdan anda sürgün etilgen edi), Taşkentteki P.
-Benkov adına cumhuriyet ressamlıq oquv yurtum, sonra A.
-N. Ostrovskiy adına teatr-ressamlıq institutını bitirip (1977), alâ derecede professional bilgiler aldı.
+O, 1952 senesi Mari ASSRde doğdı (onın ana-babası Oırımdan anda sürgün etilgen edi), Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtum, sonra A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirip (1977), alâ derecede professional bilgiler aldı.
 1988 senesi SSSR Ressamlar birliğinin azası oldı.
 Daha Ozbekistanda ekende özüni her hangi materialnen — taş, ağaç, madennen çalışa bilgen usta olaraq kosterdi.
 Ozbekistanda yaşağan devirinde «Oonuşuv» (1984, tökme maden), «Bereket» (1984, alüminiy), «Analıq» (1985, mermer) kibi acayip eserler yarattı.
