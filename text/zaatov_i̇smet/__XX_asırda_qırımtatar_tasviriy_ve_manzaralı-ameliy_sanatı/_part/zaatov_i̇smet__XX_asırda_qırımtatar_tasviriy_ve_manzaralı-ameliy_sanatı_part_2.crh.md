@@ -579,12 +579,13 @@ Onın resimleri AOŞta, italiyada, Hindistanda, Rusiyede nümayiş etildiler.
 Onın elinen yaratılğan eserler SNG memleketlerinde ve çeteldeki muzeylerde hem de hususiy kollektsiyalarda saqlanalar.
 Seyran Ourtcelilnin (1967 senesi doğdı) resimleri V.Useinovmn resimlerinden bütünley farq eteler.
 Olarda bam-başqa hayalet, bam-başqa ruhiyet sezile.
-S. Ourtcelilnin eserleri ömür mücadelelerinden uzaq turalar, daha yaqın keçmişte yahut da bizim devirimizde yüz bergen vaqialar aks olunmaylar.
+S. Qurtcelilnin eserleri ömür mücadelelerinden uzaq turalar, daha yaqın keçmişte yahut da bizim devirimizde yüz bergen vaqialar aks olunmaylar.
 Dünya güzelligini ve uyğunlığını araştırıp tapuv, ebediy aqiqatnı idrak etüv meselesi ressam içün birinci yerde tura.
 S. Ourtcemilnin peyzaj, natürmort resimlerini manzaralıq, boyalamıA parlaqlığı, yanğıravuqlığı ayırıp tura.
 Onın her bir resimi — renkler taşqını, tasviriy akkordlarnın uyğunlığıdır.
 S. Ourtcemilnin en yahşi eserleri cümlesine «Sevimliler içün geçekler» (1993), «Aq quş peşinde» (1994), «Balıq avı» (1994), «Sabah» (1995), «Toqunuv» (1995), «Aqşam» (1995), «Küneşli kün» (1998), «Sarı natürmort» (1999) kibi resimler kireler.
-S.Qurtcemil Taşkent vilâyetinin Yanıyol şeherinde doğup östü, 1990 senesi Nizamiy adına Taşkent devlet pedagogika institutının bediiy grafika fakultetini bitirdi.
+S.Qurtcemil Taşkent vilâyetinin Yanıyol şeherinde doğup östü.
+ 1990 senesi Nizamiy adına Taşkent devlet pedagogika institutının bediiy grafika fakultetini bitirdi.
 O, Taşkentte ve çetelde ötkerilgen sergilernin daimiy iştirakçisidir ve onın icadı öz tedqiqatçısını bekley.
 Özbekistan Ressamlar akademiyasının azası Rustem Eminov (1950 senesi doğdı) 1973 senesi Nizamiy adına Taşkent devlet pedagogika institutının bediiy grafika fakultetini bitirdi, hal-azırda Özbekistan Ressamlar akademiyasının cumhuriyet ressamlıq kollecinde (sabıq P.
 Benkov adına cumhuriyet ressamlıq oquv yurtu) ders bere.
