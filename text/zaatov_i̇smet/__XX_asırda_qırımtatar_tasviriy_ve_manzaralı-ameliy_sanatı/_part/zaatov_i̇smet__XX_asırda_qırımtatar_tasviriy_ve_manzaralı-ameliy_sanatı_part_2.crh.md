@@ -788,17 +788,16 @@ Lâkin Useinovnın icadının daha bir cehetini grafika janrı teşkil ete.
 A. Useinovnın akvarel resimleri az sözli ve zarif yapon gravyüralarına oşap keteler.
 Olar bir baqıştan, sade ve mahfiyetliler, lâkin diqqatlıca baqsan — teren manalı, cazibeli ekenini anlaysın.
 Useinov azğana bediiy usulnen: bir qaç sızıq ve olduqça az renknen hem suvuq qışnın ayazını, hem yağmurlı künnin rutubetini, hem bahar tereklerinin çeçeklenüvini kostere.
-Onın adiy süjetleri artında ressamnın etraf muhitke aybetli münasebeti duyula.
-Bunda her şey mühim, qıymetlidir, çünki bütün bu şeyler — seyyaremizdir («Yıl mevsimleri», «Qış peyzajı» türkümleri, 1998-2000).
+Onın adiy süjetleri artında ressamnın etraf muhitke aybetli münasebeti duyula, иunda her şey mühim, qıymetlidir, çünki bütün bu şeyler — seyyaremizdir («Yıl mevsimleri», «Qış peyzajı» türkümleri, 1998-2000).
 2000 senesi Aqmescitteki bediiy muzeyde olıp keçken Oırım akvarelleri biyennalesinde A.Useinov konkursnın baş mükâfatını qazandı.
 Z.Trasinovanm qızı Leylâ Trasinova istidatlı grafik, dizayncı olaraq bellidir.
-O, 1964 senesi Taşkentte doğdı, başta P.Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı, sonra V.
-Muhina adına Leningrad ressamlıq-sanayı oquv yurtunın sanayi grafikası bölügini bitirdi (1982-1987).
+O, 1964 senesi Taşkentte doğdı.
+ Başta P.Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı, sonra V.Muhina adına Leningrad ressamlıq-sanayı oquv yurtunın sanayi grafikası bölügini bitirdi (1982-1987).
 işte, o vaqıttan berli Sankt-Peterburgda yaşay ve çalışa.
-L. Trasinovanın esas eserleri cümlesine «44 senesi» türkümi (1990), dört grafik tabaqtan ibaret «Şeher ve quşlar» türkümi (1990), «Avtoportret» (1990), «Mavi urba kiygen men ve patlaqçanaqlar»» avtoportreti, «Şeherli portreti», «Oırımtatarlarnın tipleri» adlı grafika tabaqları türkümi (1991), «Men qafesteki bir quşım» türkümi (1991), «Bu nasıl olğan edi (SSSRde milliy repressiyalar.
-1919-1952 seneleri)» kitabının Zarema Trasinovanen birlikte yapılğan maketi kireler.
+L. Trasinovanın esas eserleri cümlesine «44 senesi» türkümi (1990), dört grafik tabaqtan ibaret «Şeher ve quşlar» türkümi (1990), «Avtoportret» (1990), «Mavi urba kiygen men ve patlaqçanaqlar»» avtoportreti, «Şeherli portreti», «Oırımtatarlarnın tipleri» adlı grafika tabaqları türkümi (1991), «Men qafesteki bir quşım» türkümi (1991), «Bu nasıl olğan edi (SSSRde milliy repressiyalar.1919-1952 seneleri)» kitabının Zarema Trasinovanen birlikte yapılğan maketi kireler.
 Anasının etnografik cehetten tam, realistik grafikasından farqlı olaraq, Leylânın grafika eserlerinde uydurma ve rüyalar tekmil qarışıp ketkenler.
 Bir baqıştan tonuq, veciz olıp körüngen resimler asılında hareketli, mundericeliler ve olar muellifnin tesirçen, ihtiraslı şahs olğanını köstereler.
+
 Yaya Temirqayayev 1935 senesi Oırımda doğdı, 1944 senesi bütün halqnen beraber sürgün olundı.
 1966 senesi P.Benkov adına Taşkent ressamla oquv yurtunı, 1972 senesi ise A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi.
 1979 senesi SSSR Ressamlar birliğine qabul olunğan sofi
@@ -934,11 +933,11 @@ Abideler kendi sert geometrik şekilleri boyunca monumentaller, taş tüsünin �
 Vladıka Klimentnin ricasını yerine ketirip, Ukrain avtokefal kilsesi içün taştan haç yasadı (1999).
 Bugünde-bugün usta Sudaqta «Oadimiy türk eykelciligi müzeyi» üzerinde çalışa.
 Bu muzey açıq avada yerleşecek, onda qadimiy türk mabudeleri, taşnı işlev sanatının numüneleri, qısqası, zemaneviy qırımtatar sanatına ğıda bergen qadimiy medeniyetnih şaatları nümayiş etilecekler.
-
 Heykeltraş Şevket Ahtemov (1937 senesi doğdı) şimdi Taşkent şeherinde yaşay.
+
+
 O ta bala ekende ağaç üstünde oyuvnen meraqlandı, Toqumacılar medeniyet sarayındaki tasviriy sanat tögeregine qatnadı.
-Ağaçm qayta işlev zavodınıh mebel tsehinde çalışışır eken, professional heykeltraş olmaq qararına kelip, 1970 senesi A.
-N. Ostrovskiy adına teatr-ressamlıq oquv yurtunın heykelcilik bölügine oqumağa kirdi (1970-1975).
+Ağaçm qayta işlev zavodınıh mebel tsehinde çalışışır eken, professional heykeltraş olmaq qararına kelip, 1970 senesi A.N. Ostrovskiy adına teatr-ressamlıq oquv yurtunın heykelcilik bölügine oqumağa kirdi (1970-1975).
 Ahtemov esasen skulptura portretleri yarata.
 Onın kompozitsiyalarını eki yöneliş teşkil ete.
 Birinci yönelişke kirgen soyları — kamer lirik eserlerdir («Ana ve onın balaları», 1979, mermer; «Zarema» adlı qızınıh portreti, 1985, mermer) diğer yönelişke ise medeniyet ve ilimnin körümü erbaplarına bağışlanğan eserler kireler (Oıbray qasabasında N.i.
@@ -948,8 +947,7 @@ Ressam, Ukraina Ressamlıq akademiyasının mezunı Ali Belâlovnın icadında a
 2001 senesi sentâbr 12 künü qadimiy Oarasuvbazar şeherinde qırımtatarlarnıh klassik şairi, cihanda tanılğan türkşınas alim Bekir Çoban-zadenin mermer abidesi açıldı.
 Bu abidenin müellifi, işte, A.Belâlov edi.
 Mezkûr abideni endi monumental heykeltraş adını da qazanğan Ali Belâlovnın ğayet muvafaqiyetli eseri, dep bilmek mümkün.
-Taşkentteki P.Benkov adına ressamlıq oquv yurtunın, sonra ise A.
-Ostrovskiy adına teatr-ressamlıq institutının mezunı olğan Enver Zaydullayev (1947) realistik portret janrında çalıştı.
+Taşkentteki P.Benkov adına ressamlıq oquv yurtunın, sonra ise A.Ostrovskiy adına teatr-ressamlıq institutının mezunı olğan Enver Zaydullayev (1947) realistik portret janrında çalıştı.
 Heykeltraşnın icadındaki toqtaluvnı onın daha yaqında Oırımğa köçmesinen anlatmaq mümkün.
 Rustem Ablâyevnin taş, ağaç, balçıqtan yapılğan eserleri — folklor, masal personajları ve hayatiy levhalardır.
 Onın çalğıcı, çoban, türlü-türlü hayvan figuraçıqları ufaq plastika janrına mensüpler.
