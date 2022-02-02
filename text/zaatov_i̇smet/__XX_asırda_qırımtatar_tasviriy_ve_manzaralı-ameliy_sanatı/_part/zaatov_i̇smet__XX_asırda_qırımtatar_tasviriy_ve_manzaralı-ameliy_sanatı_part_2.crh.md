@@ -343,6 +343,7 @@ Meselâ, İ.Şeyh-zade ve N.Yaqubov Moskvada, L.Trasinova Leningradda, A.Belâlo
 Bu hal, sözsüz, qırımtatar professional sanatının keyfiyetçe yukselüvinden delâlet bere.
 
 2.3.1989-2001 senelerindeki qırımtatar tasviriy sanatı
+
 1980-nci senelernin sonu — 1990-ncı senelernin başı umumen qırımtatar medeniyetinin ve şu cümleden qırımtatar tasviriy sanatının inkişafındaki yanı basqıçnı belgilediler.
 Bu — eh evelâ qırımtatarlar öz Vatanlarına kütleviy surette qaytıp başlağanlarınen bağlıdır.
 Evelde çeşit şeherlerde dağınıqlıqta yaşağan qırımtatar ressamları pek çoq şeylerden, meselâ, icadiy qonuşuvdan, milliy tematikanı ögge sürmek imkânlarından mahrum ediler.
@@ -389,6 +390,7 @@ Halbu ise, bunınnen zemaneviy qırımtatar tasviriy sanatının inkişaf tenden
 Demek, zemaneviy qırımtatar ressamlarının icadı talil olunır eken, meselege olduqça ciddiy, obyektiv yanaşmaq zarur.
 
 ###2.3.1.RESSAMLIQ
+
 Yuqarıda qayd etkenimiz kibi, ressamlıq, grafika, heykelcilik sahalarında çalışqan zemaneviy qırımtatar ustalarının ekseryieti bediiy tahsilni Özbekistanda aldılar.
 Oırımnıh yetekçi ressamlarından birisi Ramazan Useinov — işte, olarnın cumlesindendir.
 Ramazan Useinov 1949 senesi Samarqand şeherinde doğdı.
@@ -577,7 +579,7 @@ Useinov — bir sıra cumhuriyet ve halqara sergilernin iştirakçisidir.
 Onın resimleri AOŞta, italiyada, Hindistanda, Rusiyede nümayiş etildiler.
 1994, 1997 seneleri Sankt-Peterburgda ve Taşkentte V.Useinovmn şahsiy sergileri olıp keçti.
 Onın elinen yaratılğan eserler SNG memleketlerinde ve çeteldeki muzeylerde hem de hususiy kollektsiyalarda saqlanalar.
-Seyran Ourtcelilnin (1967 senesi doğdı) resimleri V.Useinovmn resimlerinden bütünley farq eteler.
+Seyran Ourtcelilnin (1967 senesi doğdı) resimleri V.Useinovın resimlerinden bütünley farq eteler.
 Olarda bam-başqa hayalet, bam-başqa ruhiyet sezile.
 S. Qurtcelilnin eserleri ömür mücadelelerinden uzaq turalar, daha yaqın keçmişte yahut da bizim devirimizde yüz bergen vaqialar aks olunmaylar.
 Dünya güzelligini ve uyğunlığını araştırıp tapuv, ebediy aqiqatnı idrak etüv meselesi ressam içün birinci yerde tura.
@@ -661,7 +663,8 @@ O. Çubarov 1997 senesinden berli Oırımda yaşay.
 Şevket Seydametovmn (1954 senesi doğdı) icadı qırımtatar tasviriy sanatında biraz ayrıca tura.
 Ş. Seydametov — özüni tolusınen sahna bezetüv sanatına bağışlağan yekâne qırımtatar ressamıdır.
 Professional qırımtatar teatrinin tarihi 100 yılm teşkil ete.
-Oırımğa qaytıp kelgen bir sıra yazıcılar, aktörlar, çalğıcılar Aqmescitte qırımtatar müzikali drama teatrini tiklemek içün çoq küç sarf ettiler, işte, 1990 senesi teatr açıldı.
+Oırımğa qaytıp kelgen bir sıra yazıcılar, aktörlar, çalğıcılar Aqmescitte qırımtatar müzikali drama teatrini tiklemek içün çoq küç sarf ettiler.
+işte, 1990 senesi teatr açıldı.
 Ş. Seydametov ise 1993 senesinden berli şu teatrnin baş ressamı olıp çalışa.
 Bundan evel o Duşanbe şeherindeki Alimov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı.
  Sonra çoq yıllar devamında Leninabad şeherindeki Bediiy fondda çalıştı, anda sanatnın deyerlik bütün sahalarında meharet arttırdı.
@@ -695,11 +698,13 @@ Adamlarnın ğayrıtabiiy biçimde tasvirlenmesi ise muellifnin adiy adamlar iç
 Ressam accı barlıqnı yumor ve kinayenen yımşataraq, şu «küçük adamlar»nı merhametli, efsaneviy qaramanlarğa çevire («Azbar sipirici», «Ammal»).
 Cepparov temiz ressamlıq vazifelerini «Balıqlar», «Tarih sarmalı», «Mavi çeçek», «Yeşil ada», «Horaz» kibi abstrakt-manzaralı kompozitsiyalar vastasınen çeze.
 Mezkûr resimler de gür renkli impressionistik tarzda, de sert, torsluqlı konstruktivizm an aneleri esasında icra olunğanlar.
-K. Cepparovnıh icadında hem real, tanış peyzajlar («Ayüvdağ»), hem Pirosmani ve Şagal ruhunda yapılğan uydurma, ideallaştırılğan levhalar («Alim», «Beklev», «Oırmızı kiygen qadın») rastkelineler.
-K. Cepparovnıh özü qayd etkeni kibi, «bu resimler adamlarğa quvanç ve zevq bağışlamaq kerekler».
+K. Cepparovnıh icadında hem real, tanış peyzajlar («Ayüvdağ»), hem Pirosmani ve Şagal ruhunda yapılğan uydurma, ideallaştırılğan levhalar («Alim», «Beklev», «Qırmızı kiygen qadın») rastkelineler.
+K. Cepparovnın özü qayd etkeni kibi, «bu resimler adamlarğa quvanç ve zevq bağışlamaq kerekler».
 K.Cepparovnıh eserleri Sankt-Peterburgda, Oırımda, Yunanistanda ötkerilgen sergilerde defalarca nümayiş etildi.
 Olarnı AQŞ, Şvetsiya, Yunanistan, İsrail, Frantsiyadaki kollektsionerler satın aldılar.
+
 2.3.2.Grafika
+
 Grafika bütün zamanlarda, hususan içtimaiy-siyasiy münasebetler kerginleşken ve içtimaiy buhranlar yüz bergen devirlerde ayrıca talap olunğan sanat janrı olıp keldi.
 Bundan evelki bölükte icatlarını aydınlattığımız deyerlik bütün yetekçi qırımtatar ressamları mezkûr janrğa o ya da bu derecede müracaat eteler, sergilerde özlerinin grafika eserlerini de seyirci hükümine çıqaralar.
 İşbu bölükte biz grafikanı yetekçi tasviriy janr, dep sayğan ve kendisinin icadiy ferdini belgilegen ressamlar haqqında hikâye etecekmiz.
