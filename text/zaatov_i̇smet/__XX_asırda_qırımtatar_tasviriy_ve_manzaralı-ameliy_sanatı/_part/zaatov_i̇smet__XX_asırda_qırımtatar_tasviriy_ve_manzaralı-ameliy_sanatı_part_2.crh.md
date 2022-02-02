@@ -507,24 +507,27 @@ Asan Seydametov (Baraş) — Taşkent şeherinde doğup östü.
 A.Baraş özünin «Arılar» (1991), «Apofeoz» (1990-1991), «Arabacı»(1996), «Dürbe» (1998), «Ressamnın tüşü» (1999), «Şairnin tüşü» (1999) kibi eserlerinde etik-felsefiy meselelerni koterip, qırımtatar halqının ve onın medeniyetinin keçmişi ve kelecegi haqqında fikir yürsete.
 Resimlernin renk qurumı büyük mana taşıy.
 Erılğan tüsnin portaqal tüsnen, al qan tüsnin zümrüt tüsnen ümüt etilmegen birikmesi bir baqıştan, diqqatnı özünin gür renklerinen celp ete, asılında ise muellifnin rahatsız içki dünyasını, onın qaâr-qasevetlerini açıp kostere («Bağçada», 1998; «Saat», 1998).
-Ressam İsmet Şeyh-zade qırımtatar sanatında parlaq, tekrarlanmaz bir şahs sıfatında bellidir, istidatlı, ğayretli, daima icadiy araştıruvlarda bulunğan, original leyhalarmh ve cesürane aktsiyalarnın müellifi olğan bu icatçı Qırımnın siyasiy ve medeniy ömürinde faal iştirak ete.
-İsmet Şeyh-zade 1965 senesi Taşkent oblastının Çırçıq şeherinde doğdı, 1984 senesi P.
-Benkov adına cumhuriyet ressamlıq oquv yurtum, 1993 senesi ise Moskvadaki V.i. Surikov adına devlet ressamlıg institutını alâ işaretlemen bitirdi, i.Şeyh-zadenin icadiy yolu — yorğunlıq bilmegen tedqiqatçının yoludır.
+Ressam İsmet Şeyh-zade qırımtatar sanatında parlaq, tekrarlanmaz bir şahs sıfatında bellidir.
+ Іstidatlı, ğayretli, daima icadiy araştıruvlarda bulunğan, original leyhalarmh ve cesürane aktsiyalarnın müellifi olğan bu icatçı Qırımnın siyasiy ve medeniy ömürinde faal iştirak ete.
+İsmet Şeyh-zade 1965 senesi Taşkent oblastının Çırçıq şeherinde doğdı.
+ 1984 senesi P. Benkov adına cumhuriyet ressamlıq oquv yurtum, 1993 senesi ise Moskvadaki V.i. Surikov adına devlet ressamlıg institutını alâ işaretlemen bitirdi.
+i.Şeyh-zadenin icadiy yolu — yorğunlıq bilmegen tedqiqatçının yoludır.
 Ressam sanatnın çeşit janrları ve çeşitlerine müracaat eterek, hem keçmişnin klassik tecribesinden, hem zemaneviy avangardnın usullarından faydalana.
 Ta Moskvada oquğan yıllarında o, Surikov institutının foyesinde «Vatan çeşmesi» adlı monumental panno yarattı, SSSR Malie nazirliginin rahatlıq evindeki balalar kompleksini süsledi.
 Onın küçlü ifadeli monumental şekillerge meyilligi sonundan genotsid ve sürgünlik qurbanlarına bağışlanğan abidelernin leyhalarında (Yalta, Aqmescit) da, 90-ncı senelernin sonlarında yapqan toquma pannolarında («Solomon», Oırımda auktsion», «B.G. — Oırımdaki siluet») da aks olundı.
 i.Şeyh-zadenin ressamlıq icadı çeşit janrlarnı, yani portret, peyzaj, mevzuiy resim kibi janrlarnı qavrap ala.
 Onın «Feodosiya.Küneş qonğanda» (1989), «Qırım peyzajı.Qale» (1989), «Koreiz.Damlar» (1992), «Mayıs sabası» (1993), «Koreiz qasabası» (1993) kibi peyzaj resimleri Oırım manzaralarının ancaq tasviri olıp qalmadan, aynı vaqıtta, asırlarca yaşağan adamlarından mahrum olğan güzel topraq haqqında efkârnen hikâye eteler.
+%Bu al azbarlarda ve soqaqlarda adamlarnıñ olmağanlarından qayd etile.
 Resim yapuvnın kefi, pastoz usulı ressamğa tacialı barlıq obrazını yaratmağa yardım ete.
 Onın «Oartanamnın Kefedeki evi» (1989), «Mayıs 18» (1992) kibi resimlerini hatırlav resimleri, umumiyleştirüv resimleri, demek mümkün.
 İ.Şeyh-zade Oırım tarihim pek yahşi bile, halqnıh medeniyetini ve özüniri genealogik tamırlarını ögrene.
-«Zincirli» (1993) adlı avtobiografik resimde biz medresenin qadimiy divarları fonunda insan kevdesinin hıra körünişini közetemiz.
-Hem bu körüniş vaqıt sisi arasından de peyda ola, de yoq olıp kete.
+«Zincirli» (1993) adlı avtobiografik resimde biz medresenin qadimiy divarları fonunda insan kevdesinin hıra körünişini közetemiz. 
+%Кörüniş vaqıt sisi arasından de peyda ola, de yoq olıp kete.
 Böylece, ressam kendi qartbabasınıh — öz devirinin maarifperver insanlarından biri sayılğan, lâkin İstanbulğa muhacirlikke ketmege mecbur olğan adamnın obrazını canlandırmağa tırışa.
-1995 senesi Parijde akademik sergi olıp keçken son İ.
-Şeyh-zade Rusiye Ressamlar akademiyasının diplomınen taqdirlendi.
+1995 senesi Parijde akademik sergi olıp keçken son İ.Şeyh-zade Rusiye Ressamlar akademiyasının diplomınen taqdirlendi.
 Ali Belâlov (1963 senesi doğdı) — tahsilni Kiyevdeki Sanat akademiyasında alğan ilk qırımtatar ressamlarının birisidir (1995).
-Namangan şeherinde doğup ösken Ali Belâlov mahalliy sanat oquv yurtunı bitirgen son 1990 senesinden berli Oırımda yaşay.
+%Namangan şeherinde doğup ösken Ali Belâlov mahalliy sanat oquv yurtunı bitirdi.
+ %1990 senesinden berli Oırımda yaşay.
 Belâlovmn «Kefe» (1996), «Bağçasaray» (1996), «Ay yarıq gecesinde» (1996), «Çeşme» (1997) kibi peyzaj resimleri Oırımmh tanış köşelerini aks ettireler; «Musafirlerge qave» (1990), «Oartanamnın qavesi» (1990) kibi natürmortları seyirci közüni yaqın, balalıqtan tanış olğan nesnelernen quvandıralar.
 Ressam tuvğan yurtqa sevgisi haqqında bağırıp-çağırmay.
 Resimlemin bir baqıştan adiy motivleri artında öz tarihi ve an'aneviy urf-adetlerine malik olğan halqnın ömüri tura.
@@ -543,12 +546,12 @@ Ressam öz eserlerinin süjetlerini işler eken, süjetnin vesiqalı olmasına, 
 Onın resimlerinde hareket sezile, ressam öz üslübinen hem içtimaiy resimlerge has ruhiy kerginlikni, hem qırımtatarlarnın turmuşı ve bayramlarına bağışlanğan resimlernin neşesini aks ettirmeğe bile.
 Elmaz Osmanova Oırımda 2000 senesinden berli yaşay.
 O, 1962 senesi Taşkent vilâyetinin Orta Saray köyünde doğdı.
-İhtisaslaştırılan sanat mektebinde oquğan sofi A.
-N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi (1985).
+İhtisaslaştırılan sanat mektebinde oquğan sofi A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi (1985).
 Bir sıra yıllar devamında Cumhuriyet tasviriy ve ameliy sanat litseyinde çalıştı, anda hem ocalıq yaptı, hem icatnen oğraştı.
-1998 senesi Özbekistan Ressamlar birliğinin azası oldı, Ozbekistanda ve diğer cumhuriyetlerde olıp keçken sergilernin daimiy iştirakçisi olaraq tanıldı.
+1998 senesi Özbekistan Ressamlar birliğinin azası oldı.
+ Ozbekistanda ve diğer cumhuriyetlerde olıp keçken sergilernin daimiy iştirakçisi olaraq tanıldı.
 1995 senesi ressamnın Vatanda, Aqmescit şeherinde ilk şahsiy sergisi ötkerildi.
-Osmanovanıh sevip çalışqan üslübini koterinki romantik üslüp, dep adlandırmaq mümkün.
+%E. Osmanovanın sevip çalışqan üslübini koterinki romantik üslüp.
 Bular — şarq efsaneleri, halq rivayetleri ve muellifnin kendi hayalları tesirinde doğğan süjetli ve süjetsiz kompozitsiyalardır.
 Resimlerde muellifnin güzellikke temennası, baht ve sevgi haqqında arzuları mucessemleşkendir.
 Onın zamandaşlarımızğa bağışlanğan eserlerinde bile kene de şu romantika pası duyula.
@@ -558,17 +561,14 @@ E. Osmanovanın eserleri Özbekistan, Rusiye, Ukraina, Frantsiya, Almaniya, Tür
 Oırımtatar ressamlarının çoqusı artıq Vatanğa qaytıp keldi, lâkin bir çoq ressamlarımız daha Oırımdan tışta yaşaylar.
 Rustem Eminov, Vyaçeslav Useinov, Inessa Cetere, Abib ismailov, Seyran Ourtcemil şimdi Ozbekistanda yaşay ve çalışalar.
 Özbek diyarı qırımtatar ziyalılarının bayağı bir qısımım yetiştirdi.
-Zemaneviy qırımtatar sanatınının tedqiqatçısı S.
-Çervonnayanın qayd etkeni kibi, qırımtatar sanatı 1980-nci senelernin sonlarına qadar milliy çizgileri resmiy surette tanılmağanı halda yaşadı — «qırımtatar milletine mensüp ressamlar sergilerde, sanatşınaslıq tedqiqatlarında, matbuat maqalelerinde bir de-bir milletnin vekilleri sıfatında değil de, ait cumhuriyet ve şeherlernin vekilleri sıfatında anılalar, olarnin milleti ise hiç bir katalogda, hiç bir maqalede bir kere bile qayd olunmağan edi».
-(205.240-241-nci sahifeler).
+Zemaneviy qırımtatar sanatınının tedqiqatçısı S.Çervonnayanın qayd etkeni kibi, qırımtatar sanatı 1980-nci senelernin sonlarına qadar milliy çizgileri resmiy surette tanılmağanı halda yaşadı — «qırımtatar milletine mensüp ressamlar sergilerde, sanatşınaslıq tedqiqatlarında, matbuat maqalelerinde bir de-bir milletnin vekilleri sıfatında değil de, ait cumhuriyet ve şeherlernin vekilleri sıfatında anılalar, olarnin milleti ise hiç bir katalogda, hiç bir maqalede bir kere bile qayd olunmağan edi».(205.240-241-nci sahifeler).
 Kerçekten de, Özbek sanatşınaslığında, meselâ, Mamut Çurluğa qırımtatar halqımn Özbekistanda yaşap, çalışqan vekili sıfatında değil de, başta bir gobelen janrında çalışqan acayip usta sıfatında qıymet kesile edi.
-Özbek sanatşınasları M.
-Çurlunın icadiy yenişlerini hesapqa alır ekenler, om sadece yüksek professional seviyede turğan usta sıfatında, Özbekistannın çoq milletli sanatının vekillerinden birisi sıfatında tamy ediler.
+Özbek sanatşınasları M.Çurlunın icadiy yenişlerini hesapqa alır ekenler, om sadece yüksek professional seviyede turğan usta sıfatında, Özbekistannın çoq milletli sanatının vekillerinden birisi sıfatında tamy ediler.
 Hem bugün de Özbekistanda qırımtatar ustalarına münasebet olarnin milletinen değil, professionallıq derecesinen belgilene.
 Vyaçeslav Useinov 1962 senesi Ferğana şeherinde doğdı.
 1985 senesi Bobruysk (Belorusiye) ressamlıq oquv yurtum bitirdi.
-M. Çurlunın şegirti olğan V.Useinov, ustazı kibi, öz icadiy yolum ameliy ressam olaraq başladı, 1986 senesi ferğanalı ressamlamıh Taşkentte olıp keçken sergisinde özüni faal icatçı sıfatında kosterdi.
-
+M. Çurlunın şegirti olğan V.Useinov, ustazı kibi, öz icadiy yolum ameliy ressam olaraq başladı.
+1986 senesi ferğanalı ressamlamıh Taşkentte olıp keçken sergisinde özüni faal icatçı sıfatında kosterdi.
 V.Useinovmn resimleri figurativ harakterdedir.
 Lâkin o, kerçek alemge ait nesnelerni tasvirler eken, şartlı kompozitsiyalar yarata ve bu kompozitsiyalar sonundan çeşit türlü manalarnen ve temsiliy telqinlernen tolup taşqan işaretler sistemasına çevirile.
 «Vaqıt toqtadı» (1986), «Sabiynin işmarı» (1993), «Beş küneş» (1996), «Sabah avası mezarcının ayaqları astına töşele» (1998) kibi resimler — muellifnin olıp keçeyatqan vaqialarğa seslenüvi, içki dünyasının ifadesi hem de onın felsefiy umumiyleştirmeleridir.
