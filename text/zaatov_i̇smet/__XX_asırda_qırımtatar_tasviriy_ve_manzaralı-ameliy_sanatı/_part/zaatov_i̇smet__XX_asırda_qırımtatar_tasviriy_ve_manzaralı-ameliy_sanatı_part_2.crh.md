@@ -589,35 +589,30 @@ S.Qurtcemil Taşkent vilâyetinin Yanıyol şeherinde doğup östü.
 O, Taşkentte ve çetelde ötkerilgen sergilernin daimiy iştirakçisidir ve onın icadı öz tedqiqatçısını bekley.
 Özbekistan Ressamlar akademiyasının azası Rustem Eminov (1950 senesi doğdı) 1973 senesi Nizamiy adına Taşkent devlet pedagogika institutının bediiy grafika fakultetini bitirdi, hal-azırda Özbekistan Ressamlar akademiyasının cumhuriyet ressamlıq kollecinde (sabıq P.
 Benkov adına cumhuriyet ressamlıq oquv yurtu) ders bere.
-R.Eminovmn icadiy yolu aileviy an'anelernen belgilene.
-Rustem — t •
+R.Eminovın icadiy yolu aileviy an'anelernen belgilene.
 Ozbekistanda nam qazanğan sanat erbabı Kâzim Eminovmn oğludır.
 Rustem Eminov — 1990 senesi qırımtatar ressamlarının Aqmescitte ötkerilgen birinci bütünittifaq sergisinin iştirakçisidir.
 Şimdi Bağçasaraydaki muzey-sarayda saqlanmaqta olğan «İsmail Gasprinskiyniii portreti» Oırımnın en meşhur sımalarının bütün bir türkümini başlay.
-Mezkûr türkümge türkşınas alim ve şair Bekir Çoban-zadenin, publitsist Asan Sabrı Ayvazovmn, şair Abdulla Lâtif-zadenin, dramaturg Umer ipçinih portretleri kire.
+%Bular individual ve gruppalar türkşınas alim ve şair Bekir Çoban-zadenin, publitsist Asan Sabrı Ayvazovmn, şair Abdulla Lâtif-zadenin, dramaturg Umer ipçinin portretlerdir.
 Rustem Eminovmn portret eserleri sırasında zamandaşlarımızdan Eşref Şemyizadenin, Şamil Alâdinnin, Musa Mamutnm obrazları da mevcut.
-Oz küçüni peyzaj, portret janrlarında sınap baqqan R.
-Eminov öğüne ğayet mürekkep vazife qoya — qırımtatar halqımn accı taqdiri haqqında hikâye etmek istey.
+Oz küçüni peyzaj, portret janrlarında sınap baqqan R.Eminov öğüne ğayet mürekkep vazife qoya — qırımtatar halqımn accı taqdiri haqqında hikâye etmek istey.
 Böylece, sürgünlik qurbanları haqqında monumental türküm doğa ki, ressam bu türküm üzerinde mına endi 10 yıldan ziyade çalışa.
 «Ümüt tek Allahqa», «Vatansız adamlar», «Sürgünlik balaları» triptihlerine (1992-1999) birleştirilgen resimlerde biz bir talay insan tiplerini, tekrarlanmaz mizaclarnı köremiz.
 Resimlerdeki adamlar hem konkret, hem umumiy bir obrazdalar.
-Eserlernin kompozitsiya cehetinden qurulması, iri planda, bütün tafsilâtları ile tasvirlengen sımalar R.
-Eminovmn realistik resimge meyilliginden delâlet bereler.
+Eserlernin kompozitsiya cehetinden qurulması, iri planda, bütün tafsilâtları ile tasvirlengen sımalar R.Eminovmn realistik resimge meyilliginden delâlet bereler.
 1999 senesi Taşkentte R.Eminovmn şahsiy sergisi olıp keçti.
-Ali-Murat Bekirov 1945 senesi Özbekistanmh Namangan vilâyetindeki Almaz köyünde doğdı.
-Koy mektebini bitirgen son Taşkentteki P.
-Benkov adına cumhuriyet ressamlıq oquv yurtuna oqumağa kirdi, lâkin om ordu hizmetine çağırğanları munasebetinen oquvını bölmeğe mecbur oldı.
+Ali-Murat Bekirov 1945 senesi Özbekistanın Namangan vilâyetindeki Almaz köyünde doğdı.
+Koy mektebini bitirgen son Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtuna oqumağa kirdi.
 Oquv yurtum 1971 senesi bitirdi.
-1974 senesinden Özbekistan Bediiy fondunın ustahanelerinde çalıştı, aynı vaqıtta Moskvadaki matbaacılıq institutında oqudı.
+1974 senesinden Özbekistan Bediiy fondunın ustahanelerinde çalıştı.
+ Аynı vaqıtta Moskvadaki matbaacılıq institutında oqudı.
 Ressamnın «Abdullayevnin portreti (1976), «Oartiynin portreti» (1974), «Bita» kibi eserleri defalarca şeher, vilâyet, cumhuriet sergilerinde nümayiş etildiler.
-icatçının Ozbekistanda yaratqan eserleri cümlesinde «Intıluv» (1976), «Uzaqta Tân-Şân körüne» (1979), «Vardik suv anbarı» (1979), «Yoldaş», «Gavdaki otrâd», «Kolhozğa», «Şan-Şuret ordeninin kavaleri Ergaşev», «Çorkisar» (1982), «Çadak» (1982), «Mezar» (1981), «Leylekler» (1981), «Çust madonnası», «Örüci», «Sosialist Emek Oaramanı M.
-Loginov», «istrahat bağçasında», «Suv haqqında ballada» kibi resimlerni qayd etmeli.
+icatçının Ozbekistanda yaratqan eserleri cümlesinde «Intıluv» (1976), «Uzaqta Tân-Şân körüne» (1979), «Vardik suv anbarı» (1979), «Yoldaş», «Gavdaki otrâd», «Kolhozğa», «Şan-Şuret ordeninin kavaleri Ergaşev», «Çorkisar» (1982), «Çadak» (1982), «Mezar» (1981), «Leylekler» (1981), «Çust madonnası», «Örüci», «Sosialist Emek Oaramanı M.Loginov», «istrahat bağçasında», «Suv haqqında ballada» kibi resimlerni qayd etmeli.
 Biraz keççe devirde ise evelki eserlerden icra olunuv harakteri ile ayırılıp turğan yanı eserler yarata: «Ay yarıq gecesi» (1985), «Gava» (1985), «Nay» (1985).
 1980-nci senelernin ortalarında Namangan şeherinde ressamnın şahsiy sergisi olıp keçti.
 Bundan ğayrı ressam Moskvada ötkerilgen «Dizayn ve plakat» sergisinde de iştirak etti ve anda onın bir qaç eseri nümayiş etildi.
 Ressamnın Özbekistandaki icadiy devirini «Komendant uzurında», «1944 senesi, mayıs 18», «Şarq sabası» kibi eserler yekünleyler.
-1992 senesi Oırımğa koçüp kelgen A.
-Bekirov mındaki icadiy ceryanğa sıqı qatıla ve «Oaval», «Ay-Petri dağı», «Keçmişteki Mishor», «Novıy svet», «Bağçasaray soqaçığı», «Uyanuv» kibi resimlerni yarata.
+1992 senesi Oırımğa koçüp kelgen A.Bekirov mındaki icadiy ceryanğa sıqı qatıla ve «Oaval», «Ay-Petri dağı», «Keçmişteki Mishor», «Novıy svet», «Bağçasaray soqaçığı», «Uyanuv» kibi resimlerni yarata.
 A.Bekirov Oırım ressamlarının sergilerinde, cümleden Oırımtatar ressamları assotsiatsiyası teşkilâtlandırğan sergilerde faal iştirak ete, ressamlıqtan ğayrı, ağaç üstünde oyuvnen, inter'er ve ekster'erni bezetüvnen oğraşa.
 Hal-azırda Aqmescitte yaşay.
 Ukraina Ressamlar birliğinin azası, Özbekistan cumhurietinde nam qazanğan medeniyet hadimidir.
