@@ -452,7 +452,8 @@ O, Taşkent oblastının Yanıyol şeherinde doğdı, Taşkentteki P.Benkov adı
 1992 senesinden berli Qırımda yaşay.
 Onın 90-ncı senelerde yaratqan eserleri — plener ressamlığına has mükemmel numünelerdir.
  («Taldalı soqaçıq», 1991; «Denizge», 1991; «Koreizde ay yarıq gecesi», 1991; «Varisler», 1992; «Güller hiyabanı», 1992; «Gülgülü basamaq», 1992; «Ömür menbası», 1993; «Badem çeçek aça», 1995).
-Ressam özünin bir sıra peyzaj resimlerini Türkiye seferinde yapıp («Safranbolu.Türkiye», 1999), anda Qırımnı aridırğan, közüne sıcaq körüngen manzaralarnı seçip aldı.
+Ressam özünin bir sıra peyzaj resimlerini Türkiye seferinde yapıp («Safranbolu.Türkiye», 1999).
+Аnda Qırımnı aridırğan, közüne sıcaq körüngen manzaralarnı seçip aldı.
 Yaqubovmn resimleri tolu manada havanen ve küneş nurunen sinirilgenler.
 Resimlerdeki ışıq terek yapraqlarının çilterinden keçip, yerde ve binalarnın divarlarında ğarayib örnekler tize.
 Yaqubovnın peyzaj resimlerinde bir baqıştan adiy olıp körüngen, sahte debdebeden mahrum olğan şamatasız yeşil soqaçıqlar ve cıynaqlı azbarçıqlar asayiş ve sükünet keyfini bağışlaylar.
