@@ -208,12 +208,10 @@ Farit İlyasov (1915-1944?) Başqırtıstanda doğup östü.
  lâkin onın taliyi de qırımtatarlarnıh facialı taliyi kibi oldı.
 F. İlyasov Oazan ressamlıq oquv yurtum bitirdi (1934), Tataristan ASSRnin Sovet ressamları birliğini meydanğa ketirüvde faal iştirak etti, 1936 senesinden şu Birlik reisinin birinci muavini olıp çalıştı.(205.225-nci sahife).
 Ressamnın Oazanda yaşağan devirine ait tek kataloglardaki anmalar qaldı (grafika tabaqları, cümleden — bestekâr N.Jiganovnın portreti).
-1940 senesi ötkerilgen «Sovet Oırımı 20 yaşında» adlı yübiley sergisinde onın «Gorkiy «Teselli»de» resimi nümayiş etildi (248.
-101-nci sahife), bundan ğayrı, onın «Tatar köyünde Oızıl Orduğa özğaruv» adlı resimi anıla.
+1940 senesi ötkerilgen «Sovet Oırımı 20 yaşında» adlı yübiley sergisinde onın «Gorkiy «Teselli»de» resimi nümayiş etildi (248.101-nci sahife), bundan ğayrı, onın «Tatar köyünde Oızıl Orduğa özğaruv» adlı resimi anıla.
 Ressam eki kere yaqalana — başta Oazanda (tezden azat oluna), sonra 1944 senesi Oırımda.
 Bundan son ressamnın izleri coyula.
-Qırımnın cenk arfesi yıllarındaki medeniy ömüri haqqında biz esasen qırımlı sanatşınas ve muzey hadimi A.
-Polkanovnın faaliyeti sayesinde bilemiz.
+Qırımnın cenk arfesi yıllarındaki medeniy ömüri haqqında biz esasen qırımlı sanatşınas ve muzey hadimi A.Polkanovnın faaliyeti sayesinde bilemiz.
 Rus ve ukrain sanatşınaslarınen birlikte o da mecmua ve gazetalarda maqaleler bastırıp, qırımtatar ressamları haqqında defalarca yazdı, öz maqalelerinde qırımtatar ressamlarının tuvğan topraqnı, tuvğan tabiatnı nasıl sevgenlerini qayd etti.
 Oırım medeniyetine ait olıp, yoq olunuvğa hüküm etilgen bediiy kollektsiyalarnın saqlanıp qalmasında A.Polkanovnın hizmeti büyüktir.
 Ressam Şamil Muratov haqqında biz tek bir şeyni, yani 1944 senesi halq sürgün etilgen vaqıtta onın Oırımda olmağanını ve bu ressam bir sıra cumhuriyet hem de bütünittifaq sergilerinde iştirak etkenini bilemiz.(205.227-nci sahife).
@@ -223,8 +221,8 @@ O, 1936 senesi Aqmescitteki ressamlıq tehnikumını bitire ve aynı şu yılı 
 E. Alimovnın eserlerini «Yaş quvet», «Komsomolskaya pravda» gazetalarında basılğan (1933-1936) reproduktsiyalardan bilemiz.
 İşte, bu eserler sırasına «Yüzümci qızlar», «Dağda tan», «Oaytarmağa oynağan qız» kibi resimler kireler.
 Seithalil Osmanov (1919-1994) — Oırımda ta cenkten evel icat etip, sürgünlikten son Vatanğa avdet olğan yekâne qırımtatar ressamdır.
-Onın icadiy faaliyeti artistlikten başlandı — S.Osmanov 1937 senesi Aqmescitteki teatr tehnikumımh aktörlıq bölügini bitirdi ve şu yılı da N.
-S. Samokişnin ressamlıq studiyasına qatnap başladı.
+Onın icadiy faaliyeti artistlikten başlandı
+ %S.Osmanov 1937 senesi Aqmescitteki teatr tehnikumımh aktörlıq bölügini bitirdi ve şu yılı da N.S. Samokişnin ressamlıq studiyasına qatnap başladı.
 1943 senesine qadar qırımtatar drama teatrinde artist ve rejissör olıp çalıştı, ressam sıfatında bir sıra spektakllerni yaraştırdı.
 Professional ressamlıqnen sürgünlikte meşğül oldı.
 Anda hem teatrde roller oynadı, hem Tacikistan Bediiy fondunda (Leninabad şeheri) çalıştı, cumhuriyet ve bütünittifaq sergilerinde iştirak etti.
