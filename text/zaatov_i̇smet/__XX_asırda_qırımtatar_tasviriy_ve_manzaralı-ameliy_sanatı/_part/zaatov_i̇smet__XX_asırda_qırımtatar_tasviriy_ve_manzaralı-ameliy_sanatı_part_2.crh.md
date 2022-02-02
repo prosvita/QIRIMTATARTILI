@@ -289,8 +289,7 @@ Hamdi Mustafayev (1918), işte, olarnın cumlesindendir.
 Cenkten evel bir qaç yıl devamında Aqmescitteki N.Samokiş adına ressamlıq oquv yurtunda tahsil alğan H.Mustafayev cenk başlanğanda oquvını bıraqıp, cebhege kete, cenkten zabit olıp qayta, Taşkentteki P.Benkov adına ressamlıq oquv yurtunda tahsilini devam ettire.Sonra bezetüv işlerinen oğraşa, manzaralı-ameliy işlenmeler içün örnekler yarata.
 Oırımğa 1968 senesi qaytıp kele.
 H. Muştafayevnin ressamlıq icadını çoqtan-çoq portretler, natürmortlar, peyzajlar teşkil eteler.
-Kimersi monumental, kimersi lirik, kimersi felsefiy olğan bu eserlerde tuvğan Oırımına meftün olğan, ömür hikmetini bilgen, öz halqınen üzviy bağlanğan ressamnın qalbi aks oluna («Bağçasaray», «Cuma cami», «Gurzuf», «i.
-Gasprinskiynin portreti», «Oadınımnın portreti», «A.Lâtif-zadenin portreti»).
+Kimersi monumental, kimersi lirik, kimersi felsefiy olğan bu eserlerde tuvğan Oırımına meftün olğan, ömür hikmetini bilgen, öz halqınen üzviy bağlanğan ressamnın qalbi aks oluna («Bağçasaray», «Cuma cami», «Gurzuf», «i.Gasprinskiynin portreti», «Oadınımnın portreti», «A.Lâtif-zadenin portreti»).
 Cevdet Tahtarovnın (1926-1998) icadiy taliyi biraz uyğunca oldı.
 O, 1955 senesi P.Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirip, 25 yıl devamında Özbekistan televideniyesinde sanalaştırıcı ressam olıp çalıştı.
 Anda A.Udalovnıfi «Sabır», Yu.Ahunbabayevnih «Baba», M.Lermontovnın «Mtsıri», N.Dumbadzenin «Ebediyet qanunı» eserleri boyunca çıqarılğan filmlernin, hem de «Oarılğaç» videofilminin ressamı oldı.
@@ -300,8 +299,8 @@ Aqmescitteki balalar ressamlıq studiyalarına qatnadı.
 Ta bala ekende belli ressamlarnın yağlı boyalarnen yapılğan eserlerinden eyi kopiyalar yapıp başladı.
 1946 senesi F.Recepov trudarmiyadan Samarqand şeherine kele, çünki onın qorantası anda sürgün etilgen edi.
 Şeherdeki Bediiy fondğa işke kirip, ömürinin sohunace anda çalışa.
-
-1955 senesi qırımtatar ressamları arasında birinci olıp Taşkent teatrressamcılıq institutının kündüzki bölügine ressam mütehassıslığı boyunca oqumağa kire ve om muvafaqiyetnen bitirgen son, institutta ocalıq yapmaq teklifini ala.
+1955 senesi qırımtatar ressamları arasında birinci olıp Taşkent teatrressamcılıq institutının kündüzki bölügine ressam mütehassıslığı boyunca oqumağa kire ve om muvafaqiyetnen bitirgen son.
+ Іnstitutta ocalıq yapmaq teklifini ala.
 Lâkin o, Samarqandqa qaytıp bara ve bezetici ressam sıfatındaki faaliyetini devam ettire.
 Onın natürmortlar seriyası («Georginalar ve flokslar», «Oarpız», «Ayva», «Yüzüm», «Samarqand toprağının mahsulları»), Samarqand civarlarını aks ettirgen peyzajlar («Agalıq»), eski şeherdeki mimarcılıq abidelerinin körünişleri, medeniyet ve sanat erbaplarının portretleri ressamnın professional ustalığı yüksek noqtada bulunğanını köstereler.
 Lâkin bir daha körüp olamağan Vatanının manzaralarını aks ettirgen peyzaj resimleri hususan güzeldirler.
@@ -312,12 +311,16 @@ Sanatşınaslıq doktorı, professor, Özbekistan Ressamlar akademiyasınm akade
 Recepovnın qız qardaşı 2001 senesi ressamnın ekseriyet eserlerini Vatanğa ketirebildi ve olarnı Cumhuriyet qırımtatar sanatı muzeyine bağışladı.
 Qırımdan balalıq çağında sürgün etilgen istidatlı yaşlamın icadiy taliyleri de çeşit türlü oldı.
 Halil Memedlâyev (1937) — şöyle istidatlı gençlernin birisi edi.
-O, Duşanbedeki ressamlıq oquv yurtunda tahsil aldı (1955-1960), 1967 senesinden başlap Leninabadnın Bediiy fondunda çalıştı, leninabadlı yaş ressamlarnın birleşmesine yetekçilik yaptı, 1977 senesi SSSR Ressamlar birliğinin azası oldı.
-H. Memedlâyevnin icadiy meraqlanuv dairesi keniş edi — o hem dekorcılıqnen oğraştı, hem monumental eserler yarattı, lâkin meyilligi mevzuiy resimlerde ve portretlerde edi.
-Ressam 70-nci senelerge has sosialistik realizm üslübinde yapılğan resimler vastasınen kündelik emek haqqında hikâye ete, emekdar insannı, Orta Asiya tabiatının güzelliklerini terennüm ete — «Turksib» (1968), «Armanda» (1970), «Yır» (1974), «Bahar» (1975), «Aşttaki burav donatması» (1983).H.Memedlâyev 1993 senesinden berli Oırımda yaşay, Krasnogvardeyskoye rayonının Oktâbrskoye qasabasındaki balalar ressamlıq studiyasına yolbaşçılıq yapa, icatnen çoq oğraşa, maneviy ve içtimaiy cehetten değerli eserler yarata («Dua», 1995; «Bağçasaray», 1997).
+O, Duşanbedeki ressamlıq oquv yurtunda tahsil aldı (1955-1960), 1967 senesinden başlap Leninabadnın Bediiy fondunda çalıştı, leninabadlı yaş ressamlarnın birleşmesine yetekçilik yaptı.
+H. Memedlâyevnin icadiy meraqlanuv dairesi keniş edi.
+ %1977 senesi SSSR Ressamlar birliğinin azası oldı — o hem dekorcılıqnen oğraştı, hem monumental eserler yarattı, lâkin meyilligi mevzuiy resimlerde ve portretlerde edi.
+Ressam 70-nci senelerge has sosialistik realizm üslübinde yapılğan resimler vastasınen kündelik emek haqqında hikâye ete, emekdar insannı, Orta Asiya tabiatının güzelliklerini terennüm ete — «Turksib» (1968), «Armanda» (1970), «Yır» (1974), «Bahar» (1975), «Aşttaki burav donatması» (1983).
+H.Memedlâyev 1993 senesinden berli Oırımda yaşay, Krasnogvardeyskoye rayonının Oktâbrskoye qasabasındaki balalar ressamlıq studiyasına yolbaşçılıq yapa.
+icatnen çoq oğraşa, maneviy ve içtimaiy cehetten değerli eserler yarata («Dua», 1995; «Bağçasaray», 1997).
 1995 ve 2000 seneleri Aqmescitte ve Bağçasarayda ressamnın şahsiy sergileri olıp keçti.
 Ressam Nuri Planciyev (1937) de Oırımdan bala ekende çıqarıldı.
-Aluşta rayonında doğup ösken Nuri bir sıra obyektiv sebeplerden ötrü professional tahsil alıp olamadı, lâkin icatta oha Leningrad Ressamlıq akademiyasının mezum Dmitriy Valerianoviç Selânin ustazlıq yaptı.
+Aluşta rayonında doğup ösken Nuri bir sıra obyektiv sebeplerden ötrü professional tahsil alıp olamadı.
+Lâkin icatta oha Leningrad Ressamlıq akademiyasının mezum Dmitriy Valerianoviç Selânin ustazlıq yaptı.
 1944 senesinden 1969 senesine qadar Nuri Planciyev Taşkent oblastındaki Yanıyol şeherinde yaşadı, anda belli rus ressamı İ.
 Brodskiynin şegirti F.Malkinden ressamlıq sırlarını öğrendi.
 1975 senesi Melitopol şeherine (Zaporojye oblastı) köçüp, şimdi de şu şeherde yaşay, şeher ve cumhuriyet sergilerinde iştirak ete.
