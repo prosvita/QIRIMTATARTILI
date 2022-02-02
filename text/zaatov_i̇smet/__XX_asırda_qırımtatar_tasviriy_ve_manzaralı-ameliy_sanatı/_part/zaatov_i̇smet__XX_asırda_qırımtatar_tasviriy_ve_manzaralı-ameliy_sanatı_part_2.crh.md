@@ -780,9 +780,9 @@ Ressam öyle tasviriy muhitni yarata bilgen ki, bu muhitte ayan şekilge kirgen 
 Z.Trasinovanın grafikası janr, tehnika, icracılıq usulı (akvarel, monotipiya, qarışıq tehnika) boyunca ğayet çeşitlidir.
 Onın tezya grafikası ressammn istidatını bir daha isbatlay.
 Trasinova «I.Gasprinskiynin portreti», «Namaz» (1990), «Gurzuf hatırası» (1991) kibi eserlerde, bir taraftan, adamlar ve şeylernin real tasvirini bere, yani konkret ola, diğer taraftan, allegoriyalar ve halq rivayetlerine kendi münasebetini bildirerek, romantizmge dala.
+%Trasinova qırımtatar halqının tarihi ve medeniyetini pek yahşı bilgen insandır.
 Ressam bir de-bir kitapnı bezetkende ya da grafika tabaqları üzerinde çalışqanda halq kiyimlerini, turmuş eşyalarını, örneklernin simvolikasını tafsilâtlı surette ögrene.
-İşte, olıp keçken sergiler, onın eli astından çıqqan kitaplar, seyircilernin alğışları Z.
-Trasinovanı qırımtatar sanatının klassikleri sırasına qoyalar.
+İşte, olıp keçken sergiler, onın eli astından çıqqan kitaplar, seyircilernin alğışları Z.Trasinovanı qırımtatar sanatının klassikleri sırasına qoyalar.
 Ressam Alim Useinov (1941 senesi doğdı) haqqında bundan evelki bölükte hikâye etken edik.
 Lâkin Useinovnın icadının daha bir cehetini grafika janrı teşkil ete.
 A. Useinovnın akvarel resimleri az sözli ve zarif yapon gravyüralarına oşap keteler.
