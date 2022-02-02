@@ -984,9 +984,9 @@ Bu yöneliş Vatanğa qaytıp kelgen ve pek çoq yıllar devamında terennüm et
 Emiyeti cehetinden ekinci yerde turğan yöneliş — simvolizmdir.
 Bu yöneliş qırımtatar tarihinin qocaman problemleri haqqında nasiatlarsız hikâye etmek imkânını bere.
 Simvolizm yönelişinde icat etken ressamlar (ressamlardan M.Çurlu, R.Useinov, A.Baraş, E.izzetov ve diğerleri) tosat-tosat sathiylik ve dekorativizmnin üslübiy usullarından faydalanalar.
-Bum bazıda resim sızuvda professional mahirlik yetişmegeninen (meselâ, M.Çurlunın resimlerinde professional mahirlik yetişmese de, olarnin teren felsefiyligini kimse inkâr etip olamaz), kimerde ise bediiy ifade vastası olaraq anlı surette seçilip alınmasınen (R.Useinov) anlatmaq mümkün.
+Bum bazıda resim sızuvda professional mahirlik yetişmegeninen.
+(meselâ, M.Çurlunın resimlerinde professional mahirlik yetişmese de, olarnin teren felsefiyligini kimse inkâr etip olamaz), kimerde ise bediiy ifade vastası olaraq anlı surette seçilip alınmasınen (R.Useinov) anlatmaq mümkün.
 Yanı, daha doğrusı, endi çoqtan unutılıp, şimdi yanıdan canlanmaqta olğan icat çeşitleri cümlesine hattatlıq sanatı (A.Seit-Ametov) da kire.
-Nihaet, milliy romantizm yönelişini A.
-Belâlov, E.Osmanova, tarihiy romantizm yönelişini yaş ressam R.Baliç küteler.
+Nihaet, milliy romantizm yönelişini A.Belâlov, E.Osmanova, tarihiy romantizm yönelişini yaş ressam R.Baliç küteler.
 Bugünde-bugün qırımtatarlar özlerinin icadiy imkânlarını kendi topularında serbest açıp kostere bileler.
 Bu hal ise — qırımtatar milliy medeniyeti muvafaqiyetnen inkişaf eteceginin reinidir.
