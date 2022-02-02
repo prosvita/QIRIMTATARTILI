@@ -352,8 +352,7 @@ Milliy sanatnın şimdiki devirdeki inkişafı kimerde açıq-aydın siyasiy tü
 «Yanı mintaqa»larnı menimsev ketişatında ille rastkelingen bütün teşkiliy meselelerni (mesken, ustahane meselesi, birinci sergilerni teşkilâtlandıruv, qırımtatar sanatını terğib etüv meseleleri) olar olduqça qısqa müddetlerde, mustaqil surette ya da qırımtatar halqı Meclisinin qoltutuvı sayesinde çeze bildiler.
 Sürgünlikten Oırımğa 264 bin adam qaytıp keldi.
 Hal-azırda qırımtatarlar yarımada ehalisinin 12,7 fayızını teşkil eteler, lâkin bu sayı ket-kete arta (daha 12 yıl evelsi qırımtatarlar mında cemi ehalinin ancaq 0,1 fayızını teşkil ete ediler).
-Ustalar ve ressamlarnıh avdeti 1991 senesinin mart ayından son, yani Aqmescitte qırımtatar ressamlarının Birinci (1990 senesinifi fevrali) bütünittifaq sergisinden ve i.
-Gasprinskiynin 140 yıllığına bağışlanğan Halqara konferentsiyanm açıluvına keliştirilip ötkerilgen Ekinci bütünittifaq sergisinden son qulaç aldı.
+Ustalar ve ressamlarnıh avdeti 1991 senesinin mart ayından son, yani Aqmescitte qırımtatar ressamlarının Birinci (1990 senesinifi fevrali) bütünittifaq sergisinden ve i.Gasprinskiynin 140 yıllığına bağışlanğan Halqara konferentsiyanm açıluvına keliştirilip ötkerilgen Ekinci bütünittifaq sergisinden son qulaç aldı.
 Sergide iştirak etmeğe hem Oırımnın özünden, hem başqa ülkelerden qırımtatar ressamları davet olundılar.
 Bu vaqiadan biraz evelce, yani 1990 senesinin mayıs ayında Aqmescitte cenkten sonki Oırım tarihında ilk kere qırımtatar ressamlarının Bütünittifaq sergisi ötkerilgen ve onda Oırımğa qaytıp kelgen ustalarnen bir sırada daha sürgünlikte bulunğan icatçılar da iştirak etken ediler.
 Birinci sergiden son 1993 senesinin baharinde daha bir sergi (205.248-nci sahife) ve 1994 senesi mayıs 14-te kene bir sergi ötkerildi.
@@ -370,12 +369,11 @@ Assotsiatsiya faaliyet kösterip başlağanından berli Oırımda, Ukrainada ve 
 Aynı zamanda Oırımtatar milliy galereyası meydanğa ketirildi.
 1992 senesinden 1993 senesine qadar bu galereya öz faaliyetini Oırımtatar medeniyetini tiklev boyunca koordinatsion merkeznin çerçivesinde alıp bardı, galereyanın eksponatları ise Simferopol bediiy muzeyinde saqlanıldılar.
 1993 senesinden 1997 senesine qadar galereyanın fondlarını tekmillev, umumen om idare etüvnen Oırımtatar ressamlarının assotsiatsiyası oğraştı.
-1990 senesi ise galereya Oırımtatar sanat muzeyine çevirilip, i.
-Gasprinskiy adına cumhuriyet qırımtatar kütüphanesinin erkânına başta bölük sıfatında, sonra filial sıfatında kirsetildi.
+1990 senesi ise galereya Oırımtatar sanat muzeyine çevirilip, i.Gasprinskiy adına cumhuriyet qırımtatar kütüphanesinin erkânına başta bölük sıfatında, sonra filial sıfatında kirsetildi.
 2002 senesi muzeynin statusı koterildi.
 Şimdilikte o — Cumhuriyet qırımtatar sanatı müzeyi adını taşıy.
-Mezkûr muzey teşkil olunğanı sayesinde qırımtatar sanatşınaslığındaki ilmiy mektepnin temelini professional tarzda qurmaq imkânı peyda oldı, yani XIX asırnın sonlarında — XX asımın başlarında U.Bodaninskiy ve O.
-Aqçoqraqlı başlağan işni devam ettirmek mümkün oldı.
+Mezkûr muzey teşkil olunğanı sayesinde qırımtatar sanatşınaslığındaki ilmiy mektepnin temelini professional tarzda qurmaq imkânı peyda oldı, yani XIX asırnın sonlarında — XX asımın başlarında U.Bodaninskiy ve O.Aqçoqraqlı başlağan işni devam ettirmek mümkün oldı.
+%Muzey direktsiyasınıñ fikirince o sanatşınaslıq boyunca milliy merkez olmalı.
 Bütün bu teşkiliy tedbirler böyle hallarda mıtlaqa ola turğan murekkepliklernen, ressamlar ve hakimler arasında zuur etken davalarnen özğarıldılar.
 Hem şusı quvançlı ki, Vatanğa qaytıp kelgen qırımtatar ustaları avdetnin ilk yıllarından başlap özlerini Oırımnın bediiy yüzüni şekillendirici ve belgileyici ciddiy icadiy quvet olaraq kostere bildiler.
 Bundan ğayrı, qırımtatar sanatından bütün alem haberdar olıp başladı.
