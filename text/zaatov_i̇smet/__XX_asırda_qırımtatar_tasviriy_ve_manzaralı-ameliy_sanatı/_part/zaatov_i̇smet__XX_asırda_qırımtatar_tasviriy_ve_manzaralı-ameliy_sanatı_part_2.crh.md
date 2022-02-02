@@ -334,12 +334,14 @@ Onın belli resimleri sırasına «Agalıq.Qış» (1976), «Merangöl.Uyle» (1
 İşte, cenkten evel Oırımda doğğan qırımtatar ressamlarının cedveli A.İsmailovmn adınen yekünlene.
 Cenkten evelki nesilge ait qırımtatar tasviriy sanatı ustalarının icadını sanatşınas alimler daha endi öğrenip başladılar.
 Ayaqqa turayatqan qırımtatar sanatşınaslığı çerçivesinde bu mevzunın ileride tedqiq etilmesi neticesinde üyken nesil ressamlarımıznın cedveli bayağı kenişleycegi şubhesizdir.
-Sürgünlik yıllarında qırımtatarlarnın ekseri qısımı (70%) Ozbekistanda yaşadı, şu sebepten Özbekistan ressamlıq mektebinin qırımtatar kadrları şekillenmesinde oynağan rölüni ve qırımtatar sanat ustalarının icadına ğayet büyük tesir köstergenini qayd etmek zarur.Qırımtatar milletinden olğan yüzlernen yaş ve qızlar Taşkent ve Ferğananın ressamlıq oquv yurtlarında tahsil aldılar, işte, ilk qırımtatar heykeltraşları (A.Aliyev, Ş.
-Ahtemov), ekspozitsionistleri (A.Seit-Ametov), gobelen ustaları (M.Çurlu) Ozbekistanda peyda oldılar.
+Sürgünlik yıllarında qırımtatarlarnın ekseri qısımı (70%) Ozbekistanda yaşadı, şu sebepten Özbekistan ressamlıq mektebinin qırımtatar kadrları şekillenmesinde oynağan rölüni ve qırımtatar sanat ustalarının icadına ğayet büyük tesir köstergenini qayd etmek zarur.
+Qırımtatar milletinden olğan yüzlernen yaş ve qızlar Taşkent ve Ferğananın ressamlıq oquv yurtlarında tahsil aldılar.
+ Işte, ilk qırımtatar heykeltraşları (A.Aliyev, Ş.Ahtemov), ekspozitsionistleri (A.Seit-Ametov), gobelen ustaları (M.Çurlu) Ozbekistanda peyda oldılar.
 Bundan ğayrı, Özbekistanda R.Useinov, A.Baraş kibi ressamlarımız, Z.Trasinova, E.İzzetov kibi grafikacılarımiz, S.Yaqubov, İ.Ablayev, F.Seithalilov kibi kirametçilerimiz yetişip çıqtılar.
 Bazı qırımtatar ressamları ise tahsilni Rusiyenin ve SNG devletlerinin yetekçi icadiy oquv yurtlarında aldılar.
 Meselâ, İ.Şeyh-zade ve N.Yaqubov Moskvada, L.Trasinova Leningradda, A.Belâlov, A.Seit-Ametov, R.Netovkin Ukrainada, İ.Veliullayev, K.Cepparov Gurcistanda oqudılar.
 Bu hal, sözsüz, qırımtatar professional sanatının keyfiyetçe yukselüvinden delâlet bere.
+
 2.3.1989-2001 senelerindeki qırımtatar tasviriy sanatı
 1980-nci senelernin sonu — 1990-ncı senelernin başı umumen qırımtatar medeniyetinin ve şu cümleden qırımtatar tasviriy sanatının inkişafındaki yanı basqıçnı belgilediler.
 Bu — eh evelâ qırımtatarlar öz Vatanlarına kütleviy surette qaytıp başlağanlarınen bağlıdır.
