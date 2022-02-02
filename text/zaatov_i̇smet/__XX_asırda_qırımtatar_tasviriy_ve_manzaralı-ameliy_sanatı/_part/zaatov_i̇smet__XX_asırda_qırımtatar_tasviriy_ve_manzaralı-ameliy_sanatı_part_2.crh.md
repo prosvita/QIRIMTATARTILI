@@ -663,10 +663,12 @@ O. Çubarov 1997 senesinden berli Oırımda yaşay.
 Professional qırımtatar teatrinin tarihi 100 yılm teşkil ete.
 Oırımğa qaytıp kelgen bir sıra yazıcılar, aktörlar, çalğıcılar Aqmescitte qırımtatar müzikali drama teatrini tiklemek içün çoq küç sarf ettiler, işte, 1990 senesi teatr açıldı.
 Ş. Seydametov ise 1993 senesinden berli şu teatrnin baş ressamı olıp çalışa.
-Bundan evel o Duşanbe şeherindeki Alimov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı, sonra çoq yıllar devamında Leninabad şeherindeki Bediiy fondda çalıştı, anda sanatnın deyerlik bütün sahalarında meharet arttırdı.
+Bundan evel o Duşanbe şeherindeki Alimov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı.
+ Sonra çoq yıllar devamında Leninabad şeherindeki Bediiy fondda çalıştı, anda sanatnın deyerlik bütün sahalarında meharet arttırdı.
 Seydametov monumental süslev işlerinen oğraştı, şımarış boyunca portretler yaptı, gobelenler, makrameler toqudı, vilâyet, cumhuriyet sergilerinde iştirak etti (peyzaj resimleri, zamandaşlarnın portretleri).
 1992 senesi Oırımğa köçüp kelip, öz icadını yanı açılğan teatrnen bağladı.
-Teessüf ki, keçmişte teatr temaşaları nasıl bezetilgenini kösterici misaller yahut numüneler elimizde yoqtır, lâkin bu sahada U.Bodaninskiy, A.Ustayev ve S.Osmanov kibi ressamlar çalışqanından delâlet berici vesiqalar mevcut, işte, Ş.Seydametovğa öz işinde Avropanın sahna bezetüvdeki qazançlarına, an'aneviy qırımtatar medeniyetine ve professional ressam sıfatındaki kendi sezgilerine bazanmaq kerek ola.
+Teessüf ki, keçmişte teatr temaşaları nasıl bezetilgenini kösterici misaller yahut numüneler elimizde yoqtır, lâkin bu sahada U.Bodaninskiy, A.Ustayev ve S.Osmanov kibi ressamlar çalışqanından delâlet berici vesiqalar mevcut.
+Işte, Ş.Seydametovğa öz işinde Avropanın sahna bezetüvdeki qazançlarına, an'aneviy qırımtatar medeniyetine ve professional ressam sıfatındaki kendi sezgilerine bazanmaq kerek ola.
 Teatrnin repertuarı ğayet keniştir.
 Mında halq efsaneleri, tarihiy eserler, cihan klassik edebiyatı, bala masalları esasında temaşalar, halq maişetinden piyesalar oynala.
 Olarnın her birine ayrıca yanaşmaq, tek şu temaşağa kelişikli çezimni tapmaq kerek.
@@ -680,10 +682,12 @@ Konstruktsiyalar tez dağıtıla, qolaylıqnen deniştirile ve artistlerge keder
 Adeti üzre, boş sahna (anda tek bir qaç dane iri butaforiya şeyleri buluna) tem-tegiz, bir tüslü ya da körüner-körünmez art perde (meselâ, «Mamlük Beybars» spektaklindeki mısır freskaları) fonunda oynalğan ifadeli mizansenalar içün keniş imkânlar aça.
 Seydametov tasviriy cehetten mevhum, lâkin obraz cehetinden işançlı muhit yaratmağa bile.
 Deyik, «Mamlük Beybars» spektaklinde sahna muhiti muhteşem-monumental ruhta olsa, «Mishor qızı» temaşasında nefasetli-koterinki, balalar içün temaşalarda ise letafetli-tılsımlı ruhta ola.
-Şubhesiz, bugünde-bugün qırımtatar sahna bezetüv sanatı haqqında aytmağa daha erte, amma Ş.Seydametovnm icadı — böyle soy sanat özünin ilk emin adımlarını atayatqanının bivasta numünesidir.
+Şubhesiz, bugünde-bugün qırımtatar sahna bezetüv sanatı haqqında aytmağa daha erte.
+ Аmma Ş.Seydametovnm icadı — böyle soy sanat özünin ilk emin adımlarını atayatqanının bivasta numünesidir.
 «Ressamlıq» bölügini endi rahmetli olğan ve icadiy asabalığı pek çoq resimlerden ibaret olğan ressamnın adınen yekünleymiz.
 Bu adam — Kâzim Cepparovdır (1947-1998).
-K.Cepparov ana-babası Oırımdan sürgün etildigi Voljsk şeherinde doğdı, balalıq ve ösmürlik çağı Suhumi şeherinde keçti, anda ressamlıq oquv yurtunı bitirdi ve ressamlıq ustahanelerinde çalıştı.
+K.Cepparov ana-babası Oırımdan sürgün etildigi Voljsk şeherinde doğdı.
+ Balalıq ve ösmürlik çağı Suhumi şeherinde keçti, anda ressamlıq oquv yurtunı bitirdi ve ressamlıq ustahanelerinde çalıştı.
 1990 senesi Ressamlar birliğine aza olaraq qabul olundı.
 K. Cepparovnıh resimleri süjet, bediiy usul cehetinden çoq çeşitliler, lâkin mevzu ve üslübiyet boyunca umumiyleştirilgende olar bütün bir türkümlerni teşkil ete ve ressam icadının esas yönelişlerini köstereler.
 Onın «Tilenci», «Muhacirler», «Zona» kibi keskin sosial resimlerinde «küçük adam» mevzusı yahğıray.
