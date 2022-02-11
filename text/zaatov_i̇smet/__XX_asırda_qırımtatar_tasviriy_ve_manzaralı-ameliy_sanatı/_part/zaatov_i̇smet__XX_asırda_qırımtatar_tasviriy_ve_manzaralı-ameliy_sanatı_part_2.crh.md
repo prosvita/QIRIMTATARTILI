@@ -895,8 +895,8 @@ Ayder Aliyev Oırımnın yetekçi heykeltraşları sırasına kire.
 O, 1952 senesi Mari ASSRde doğdı (onın ana-babası Oırımdan anda sürgün etilgen edi), Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtum, sonra A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirip (1977), alâ derecede professional bilgiler aldı.
 1988 senesi SSSR Ressamlar birliğinin azası oldı.
 Daha Ozbekistanda ekende özüni her hangi materialnen — taş, ağaç, madennen çalışa bilgen usta olaraq kosterdi.
-Ozbekistanda yaşağan devirinde «Oonuşuv» (1984, tökme maden), «Bereket» (1984, alüminiy), «Analıq» (1985, mermer) kibi acayip eserler yarattı.
-A.Aliyev Oırımda 1992 senesinden berli yaşay.
+Ozbekistanda yaşağan devirinde «Qonuşuv» (1984, tökme maden), «Bereket» (1984, alüminiy), «Analıq» (1985, mermer) kibi acayip eserler yarattı.
+A.Aliyev Qırımda 1992 senesinden berli yaşay.
 Öz icadında zamannın en hayatiy mevzularına — sevgi, aile, tuvğan topraq mevzularına toquna.
 Aliyev bütünlikli, umumiyleştirilgen obrazlar yaratmağa seve.
 Onın «Tirilgen hatıra» (1993, dögme maden), «Ustanın qaytuvı» (1995, tunç), «Köçüv» («Aile» seriyası, 1995, tunç) kibi eserleri tuvğan medeniyetnin, qırımtatar Oırımının canlanuvına bağışlanğandır.
@@ -910,7 +910,7 @@ Diniy qaidelerge tolusınen riayet etilgeni halda yapılğan bu mermer baştaşl
 Ayder Aliyevnin monumental eserleri sırasında ulu maarifperverimiz İsmail Gasprinskiynin şerefine 1998 senesi Aqmescitte qoyulğan heykelni de anmalımız.
 Mermer taştan yapılğan bu abide Qırımnın medeniy ömürinde büyük bir vaqia oldı, halqmn öz oğulları haqqında hatırası silinmegenini kosterdi.
 Abide yerleştirilmezden evel leyha işleri boyunca konkurs ötkerilgen ve bu konkursta A.Aliyevnin teklif ettiği variant ğalip çıqqan edi.
-Şunı da qayd etmeli ki, Oırımda qırımtatar medeniyetinin canlanmasına bağışlanğan memorial inşaatlar quruv biz içün yanı bir iş olıp, o, tarihiy ve ahlâqiy cehetten ğayet büyük emiyetke malik ola.
+Şunı da qayd etmeli ki, Qırımda qırımtatar medeniyetinin canlanmasına bağışlanğan memorial inşaatlar quruv biz içün yanı bir iş olıp, o, tarihiy ve ahlâqiy cehetten ğayet büyük emiyetke malik ola.
 Deyik, ilk abidelerni (esasen hatıra nişanları) aveskâr ustalar öz aqçasına yapqanı ve böyle abidelernin değeri olmağanı halda i.Gasprinskiynin heykelini tiklev ğayesine cemaatçılıq büyük mesuliyetnen yanaştı.
 Bundan ğayrı, 1944 senesi sürgünliginin qurbanlarına bağışlanğan abidenin eh yahşi leyhası içün konkurs ilân etildi, onda sabıq SSSRnin çeşit ülkelerinde yaşağan ustalar iştirak ettiler.
 Konkursqa hepisi olıp 26 leyha taqdim etildi ki, olar Qırımnın özünden, Moskvadan, Ukraina, Qazahistandan kelip tüştiler.
@@ -926,14 +926,14 @@ I. Ametovnın faaliyeti, eh evelâ, ahlâq-etika cehetinden diqqatqa lâyıqtır
 Usta öz öğüne «musülman mezarlıglarını münasip halğa ketirmek» maqsadını qoydı.
 O, Qırım boylap pek çoq seferler yapa, unutılğan mezarlıqlarnı araştırıp tapa.
 Ana-babasının tuvğan koyu Taraqtaşta harabege çevirilgen mezarlıqtaki ölülernin qalımtılarını yanıdan kömüp, bu yerde öz parası hesabına «Yaralı taş» (1994) adlı hatıra nişanı qoydı.
-I. Ametov böyle nişanlarnı Oırımmh endi bir qaç rayonında yerleştirdi.
+I. Ametov böyle nişanlarnı Qırımmh endi bir qaç rayonında yerleştirdi.
 Ametovnın abideleri janrnın bütün qaidelerine riayet etilgeni halda yapılğanlar.
 Bular — alçaq negiz üstüne qoyulğan tikme taşlar olıp, olar tabiiy ve mimarcılıq muhitine ğayet uyğun tarzda kirsetileler.
 Abideler kendi sert geometrik şekilleri boyunca monumentaller, taş tüsünin özü (işlengen ve işlenmegen mermer) olarğa ayrıca ifade bağışlay.
 İnşaatlarnın manzaralı bezetilüvi pek sade, tek kimerde bir taşnın yekpareligini nasıldır şarqiy örnek ya da temsiliy belgi (tamğa) boza.
 İ.Ametov qırımtatar cemaat erbabı Seit oğlu Seydametke (1998) ve general Pyotr Grigorenkoğa (1999) bağışlap heykeller yarattı.
 Vladıka Klimentnin ricasını yerine ketirip, Ukrain avtokefal kilsesi içün taştan haç yasadı (1999).
-Bugünde-bugün usta Sudaqta «Oadimiy türk eykelciligi müzeyi» üzerinde çalışa.
+Bugünde-bugün usta Sudaqta «Qadimiy türk eykelciligi müzeyi» üzerinde çalışa.
 Bu muzey açıq avada yerleşecek, onda qadimiy türk mabudeleri, taşnı işlev sanatının numüneleri, qısqası, zemaneviy qırımtatar sanatına ğıda bergen qadimiy medeniyetnih şaatları nümayiş etilecekler.
 Heykeltraş Şevket Ahtemov (1937 senesi doğdı) şimdi Taşkent şeherinde yaşay.
 O ta bala ekende ağaç üstünde oyuvnen meraqlandı, Toqumacılar medeniyet sarayındaki tasviriy sanat tögeregine qatnadı.
@@ -943,7 +943,7 @@ Onın kompozitsiyalarını eki yöneliş teşkil ete.
 Birinci yönelişke kirgen soyları — kamer lirik eserlerdir («Ana ve onın balaları», 1979, mermer; «Zarema» adlı qızınıh portreti, 1985, mermer) diğer yönelişke ise medeniyet ve ilimnin körümü erbaplarına bağışlanğan eserler kireler (Oıbray qasabasında N.i.Vavilovnın barelyefi, 1978; «İsmail Gasprinskiynin portreti», 1989, mermer; Aqmescit şeheri içün İ.Gasprinskiy abidesinin leyhası, 1991).
 Ş. Ahtemov — bir çoq cumhuriyet ve bütünittifaq sergilerinin iştirakçisidir.
 Ressam, Ukraina Ressamlıq akademiyasının mezunı Ali Belâlovnın icadında apansızdan bir burulış yüz berdi.
-2001 senesi sentâbr 12 künü qadimiy Oarasuvbazar şeherinde qırımtatarlarnıh klassik şairi, cihanda tanılğan türkşınas alim Bekir Çoban-zadenin mermer abidesi açıldı.
+2001 senesi sentâbr 12 künü qadimiy Qarasuvbazar şeherinde qırımtatarlarnıh klassik şairi, cihanda tanılğan türkşınas alim Bekir Çoban-zadenin mermer abidesi açıldı.
 Bu abidenin müellifi, işte, A.Belâlov edi, mezkûr abideni endi monumental heykeltraş adını da qazanğan Ali Belâlovnın ğayet muvafaqiyetli eseri, dep bilmek mümkün.
 Taşkentteki P.Benkov adına ressamlıq oquv yurtunın, sonra ise A.Ostrovskiy adına teatr-ressamlıq institutının mezunı olğan Enver Zaydullayev (1947) realistik portret janrında çalıştı.
 Heykeltraşnın icadındaki toqtaluvnı onın daha yaqında Oırımğa köçmesinen anlatmaq mümkün.
@@ -956,12 +956,12 @@ Ne ise de, qırımtatar heykeltraşları mürekkep iqtisadiy vaziyetke baqmadan 
 
 Hulâsalar:
 
-Sanatnın Oırım içün yanı olğan avropaca numüneleri mında rus medeniyetinin tesirinde, an'aneviy medeniyet buhranğa oğrağan bir devirde kirip keldiler.
-Bu ceryan Rusiyenin erkânına kirsetilgen diğer musülman ülkelerine baqqanda, deyik, Ozbekistanğa baqqanda, Oırımda biraz evelce ve bayağı kenişçe keçti.
+Sanatnın Qırım içün yanı olğan avropaca numüneleri mında rus medeniyetinin tesirinde, an'aneviy medeniyet buhranğa oğrağan bir devirde kirip keldiler.
+Bu ceryan Rusiyenin erkânına kirsetilgen diğer musülman ülkelerine baqqanda, deyik, Ozbekistanğa baqqanda, Qırımda biraz evelce ve bayağı kenişçe keçti.
 Öz faaliyetini XX asımın ilk yıllarında başlağan qırımtatar icatçıları tahsilni çetelde aldılar.
 Olarnın pek çoqları kendi istidatlarını açıp olamadılar, olarnın taqdiri ğayet facialı oldı.
 Lâkin olar qırımtatar medeniyetinin tarihında parlaq iz qaldırıp yetiştirdiler.
-Ekinci nesilge mensüp icatçılar ise tahsilni Oırımda, esasen N.Samokişnih studiyasında aldılar.
+Ekinci nesilge mensüp icatçılar ise tahsilni Qırımda, esasen N.Samokişnih studiyasında aldılar.
 Kimersi icatçılar hatta kendi-kendine resim öğrendiler.
 Olarnın taliyi de facialı oldı, olar da bütün halqnen beraber sürgün etildiler.
 Cenkten evelki qırımtatar tasviriy sanatı sovet medeniyeti ve mefküresinin umumiy bir aqımında inkişaf etti.
@@ -980,7 +980,7 @@ Bunınnen birlikte menfiy cehetler de yoq değil, kimersi eserlernin siyasiyligi
 Şimdiki zamanda zemaneviy qırımtatar sanatında bir qaç yöneliş ayırılıp tura.
 Olarnin arasında realizm yetekçi yer tuta.
 Bu yöneliş Vatanğa qaytıp kelgen ve pek çoq yıllar devamında terennüm etip olamağan tuvğan topraqnın, tuvğan adamlarnın dülberligini sinirip, sonundan om aks ettirmeğe tırışqan icatçılar içün özüne has tayanç noqtası sıfatında hizmet ete.
-İşte, bizge faqat Oırım tabiatını, Oırım adamlarını köstergen peyzaj ve portret janrları da şu yönelişnin baş janrları oldılar (ressamlar, grafiklerden S.Osmanov, N.Yaqubov, R.Netovkin, i.Şeyh-zade, i.Nafiyev ve diğerleri).
+İşte, bizge faqat Qırım tabiatını, Qırım adamlarını köstergen peyzaj ve portret janrları da şu yönelişnin baş janrları oldılar (ressamlar, grafiklerden S.Osmanov, N.Yaqubov, R.Netovkin, i.Şeyh-zade, i.Nafiyev ve diğerleri).
 Emiyeti cehetinden ekinci yerde turğan yöneliş — simvolizmdir.
 Bu yöneliş qırımtatar tarihinin qocaman problemleri haqqında nasiatlarsız hikâye etmek imkânını bere.
 Simvolizm yönelişinde icat etken ressamlar (ressamlardan M.Çurlu, R.Useinov, A.Baraş, E.izzetov ve diğerleri) tosat-tosat sathiylik ve dekorativizmnin üslübiy usullarından faydalanalar.
