@@ -1,4 +1,4 @@
-## ÛIRIMTATARLARNIN XX ASIRDAKİ TASVİRİY SANATI: İNKİŞAFNIÑ MEYİLLERİ VE ESAS MUAMMALARI
+## QIRIMTATARLARNIN XX ASIRDAKİ TASVİRİY SANATI: İNKİŞAFNIÑ MEYİLLERİ VE ESAS MUAMMALARI
 
 XIX asırnıñ soñlarına, XXI asırnıñ başlarına ait qırımtatar tasviriy sanatı inkişafnın üç esas basqıçını keçti ki, bu basqıçlar doğrudan-doğru halqnıñ siyasiy ve etnik tarihi ile bağlıdırlar:
 - 1895 senesinden 1944 senesine qadar olğan devirde.
