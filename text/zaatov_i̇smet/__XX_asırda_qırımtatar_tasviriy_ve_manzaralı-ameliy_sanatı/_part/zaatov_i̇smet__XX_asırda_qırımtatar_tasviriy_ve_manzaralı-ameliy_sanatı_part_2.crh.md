@@ -1,26 +1,26 @@
 ## ÛIRIMTATARLARNIN XX ASIRDAKİ TASVİRİY SANATI: İNKİŞAFNIN MEYİLLERİ VE ESAS MUAMMALARI
 
-XIX asırnıñ soñlarına, XXI asırnın başlarına ait qırımtatar tasviriy sanatı inkişafnın üç esas basqıçını keçti ki, bu basqıçlar doğrudan-doğru halqnın siyasiy ve etnik tarihi ile bağlıdırlar:
+XIX asırnıñ soñlarına, XXI asırnıñ başlarına ait qırımtatar tasviriy sanatı inkişafnın üç esas basqıçını keçti ki, bu basqıçlar doğrudan-doğru halqnıñ siyasiy ve etnik tarihi ile bağlıdırlar:
 - 1895 senesinden 1944 senesine qadar olğan devirde.
-Rusienin ve ğarbiy Avropanın akademik merkezlerinde ilk professional qırımtatar ressamlarının oqup başlağan vaqtından sürgünlikke qadar 
+Rusieniñ ve ğarbiy Avropanıñ akademik merkezlerinde ilk professional qırımtatar ressamlarınıñ oqup başlağan vaqtından sürgünlikke qadar 
 - qırımtatar halqı Rusiyenin şimaliy rayonlarına, Orta Asiyağa, Qazahistanğa zorbalıqnen sürgün etilip, dağınıq halda yerleştirilgen devirge (1944-1989 seneleri) ait tasviriy sanat.
-- qırımtatar tasviriy sanatının tarihiy Vatanda qayta tiklenüv deviri (1989-2002 seneleri).
+- qırımtatar tasviriy sanatınıñ tarihiy Vatanda qayta tiklenüv deviri (1989-2002 seneleri).
 En evelâ monumental tasviratnen hem de orta asırlarğa ait kitap miniatürasınen taqdim olunğan tasviriy sanatta esas diqqat örnekler, çeçeklerni tasvirlev üslübine berile edi.
-XIX asırnın sonlarında qırımtatar tasviriy sanatı inqiraz halında bulunıp, bunın sebepleri yarımadadaki umumiy tarihiy-medeniy vaziyetnen, çar hükümeti yüz yıl devamında yerli medeniyetke ve qırımtatar ehalisine nisbeten keçirgen siyasetnen bağlı edi.
-İslâm alemindeki diğer regionlarda olğanı kibi, Qırımnın tasviriy sanatı da XIX asımın sonuna qadar öz qanunları esasında inkişaf etip, bu qanunlar mucibi aqiqatnı realistik tarzda aks ettirmek mümkün değil edi.
+XIX asırnıñ sonlarında qırımtatar tasviriy sanatı inqiraz halında bulunıp, bunın sebepleri yarımadadaki umumiy tarihiy-medeniy vaziyetnen, çar hükümeti yüz yıl devamında yerli medeniyetke ve qırımtatar ehalisine nisbeten keçirgen siyasetnen bağlı edi.
+İslâm alemindeki diğer regionlarda olğanı kibi, Qırımnıñ tasviriy sanatı da XIX asırnıñ sonuna qadar öz qanunları esasında inkişaf etip, bu qanunlar mucibi aqiqatnı realistik tarzda aks ettirmek mümkün değil edi.
 Yarımadağa sanatnın yanı şekilleri kelmesinen mındaki medeniy ömür heppeyi canlandı, teatr, kinematograf, edebiyat ilerilediler, qırımtatar icadiy ziyalılarımn sayısı östü.
-Şubhesiz, Qırım medeniyetinde Ğarp ve Şarqnın «körüşmesi» birinci kere değil edi (bu yerde Geraylar devirini hatırlamaq mümkün: o vaqıtlarda hanlar kendi huzurlarına İtalyan ustalarını davet ete turğanlar), lâkin bu keresinde münasebetler bam-başqa tüs taşıy ediler — Avropa medeniyetinin tesiri çoq asırlıq mahalliy an'anelernih büs-bütün inkâr etilgeni halda keçirildi.
+Şubhesiz, Qırım medeniyetinde Ğarp ve Şarqnıñ «körüşmesi» birinci kere değil edi (bu yerde Geraylar devirini hatırlamaq mümkün: o vaqıtlarda hanlar kendi huzurlarına İtalyan ustalarını davet ete turğanlar), lâkin bu keresinde münasebetler bam-başqa tüs taşıy ediler — Avropa medeniyetiniñ tesiri çoq asırlıq mahalliy an'anelernih büs-bütün inkâr etilgeni halda keçirildi.
 Qırımtatar ziyalılarının ayrı vekilleri bediiy tahsilni Rusiyede, çetelde — Avropada aldılar.
-Lâkin bu esnada en büyük adım XIX asırnın sonlarında, Rusiyenin yetekçi ressamları Qırımğa daimiy yaşamağa kelip başlağanlarından son atıldı.
-Bunınnen birlikte aynı şu Rusiyege qoşuluv sayesinde Qırımğa sanatnın avropalıca medeniy an'anelerge has yanı şekilleri, cümleden, tezya sanatı ket-kete sinip, inkişaf etip başladılar.
-Bu hal hususan yarımadada bolşevikler hakimyeti tasdiqlanğan son közge çarpıp başladı, çünki sovet Rusiyesinin inqilâbiy sanatı musülman Oırımının medeniy asabalığını zerrece hesapqa almay edi.
-XX asımın yigirminci seneleri amerikalı qırımşınaslar A.Fişer ve E.Lazerininin oğurlı elinen qırımtatar sanatının «altın aşırı» adını aldılar, o yıllarnı kimerde qırımtatar renessansı deviri, de deyler.
+Lâkin bu esnada en büyük adım XIX asırnıñ soñlarında, Rusiyenin yetekçi ressamları Qırımğa daimiy yaşamağa kelip başlağanlarından soñ atıldı.
+Bunınnen birlikte aynı şu Rusiyege qoşuluv sayesinde Qırımğa sanatnıñ avropalıca medeniy an'anelerge has yanı şekilleri, cümleden, tezya sanatı ket-kete sinip, inkişaf etip başladılar.
+Bu hal hususan yarımadada bolşevikler hakimyeti tasdiqlanğan son közge çarpıp başladı, çünki sovet Rusiyesinin inqilâbiy sanatı musülman Qırımınıñ medeniy asabalığını zerrece hesapqa almay edi.
+XX asırnıñ yigirminci seneleri amerikalı qırımşınaslar A.Fişer ve E.Lazerininin oğurlı elinen qırımtatar sanatının «altın aşırı» adını aldılar, o yıllarnı kimerde qırımtatar renessansı deviri, de deyler.
 Bu sözlerde can bar, faqat, olarnı, her halda, tamamlamaq kerek.
-Qırımnın medeniy renessansı ancaq beş yıl devam etti (1923-1927 seneleri), amma bu yıllar edebiyat, teatr, ilim, tahsilnin gür çeçeklengen yılları ediler.
-1928 senesinin yanvar ayında ise qırımtatar ziyalılarına qarşı repressiyalarnıh birinci dalğası koterile.(183.5-nci sahife).
-Oırımtatar medeniyetinin o yıllardaki inkişafı mürekkep, zıddiyetli keçti.
+Qırımnıñ medeniy renessansı ancaq beş yıl devam etti (1923-1927 seneleri), amma bu yıllar edebiyat, teatr, ilim, tahsilnin gür çeçeklengen yılları ediler.
+1928 senesiniñ yanvar ayında ise qırımtatar ziyalılarına qarşı repressiyalarnıñ birinci dalğası koterile.(183.5-nci sahife).
+Qırımtatar medeniyetinin o yıllardaki inkişafı mürekkep, zıddiyetli keçti.
 Bir taraftan, muayen ösüv körünip turğanı halda, diğer taraftan — medeniyetni gizliden yoq etmeğe tırışıldı.
-Ebet, XX asımın başlarında medeniyette qırımtatar halq an'aneleri daha saqlanılğan ediler, lâkin Oırımdaki medeniy zeminniri özgünligi sovet hakimiyeti yıllarında bütünley yoq etildi.
+Ebet, XX asırnıñ başlarında medeniyette qırımtatar halq ananeleri daha saqlanılğan ediler, lâkin Oırımdaki medeniy zeminniri özgünligi sovet hakimiyeti yıllarında bütünley yoq etildi.
 An'aneviy bediiy asabalıqnın belli parçaları (bazı bir esnaflar, mimarcılıq, kitap miniatürası, monumental süslev) ğayıp etilmesinen birge Oırımda qırımtatar halqı içün yanı sanat şekilleri — tezya ressamlığı, grafika, eykelciliknıri ayaqqa turması içün şaraitler yaratıla.
 Teraqqiyperver başlanğıçlar çoqusı cehetten içtimaiy-siyasiy vaziyet ile bağlı ediler.
 Yanı sovet hakimiyeti çar hükümetinin diğer milletlerni eziyetlevge doğrultılğan siyasetine qarşılıq olaraq milletlemin kendi muqadderatını kendi tayin ete bilüv, serbestlik, birlik, qardaşlıq siyasetini qoydı.
