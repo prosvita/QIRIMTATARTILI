@@ -160,58 +160,58 @@ Tek yaqında bu eserlerni körmek, olarğa qıymet kesmek imkânı doğdı.
 Afuzovnıñ dağ ve deniz peyzajları («Ay-Petri», 1935; «Küneş qonğanda», 1937; «Deniz», 1940), cıllılıq, samimiylik ile tasvirlengen Qırım manzaraları («Balıqçı qulübesi», 1935; «Ay ışığındaki evçik», 1939; «Oreandadaki lager», 1940), parlaq, renkkerenk natürtmortları («Küzçeçek», 1935; «Çeçekler ile natürmort», 1940; «Vişneler ile natürmort», 1940) ressamnıñ özgün istidatından, Moskvada V.Meşkovnıñ studiyasında aldığı temelli professional bilgilerinden delâlet bereler.
 Ressamnıñ hayatı 1942 senesi üzüldi — onı faşistler atıp oldürdiler.
 Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunın mezunı Abdulla Lâtif-zadenin (1888-1955) ömüri ve icadiy faaliyeti haqqında da malûmat pek az.
-O, 1921-1924 seneleri devamında Bahçasaray muzeyinih Kokközdeki filialında (Yusupov sarayı) müfettiş (ya da mudir) (248.101-nci sahife) olıp çalışqan, sonra mektepte sızuv ve resim yapuv boyunca ders bergen.(248.130-ncı sahife).
+O, 1921-1924 seneleri devamında Bahçasaray muzeyiniñ Kokközdeki filialında (Yusupov sarayı) müfettiş (ya da mudir) (248.101-nci sahife) olıp çalışqan, sonra mektepte sızuv ve resim yapuv boyunca ders bergen.(248.130-ncı sahife).
 1930 senesi sovetlerge qarşı faaliyet alıp baruvda qabaatlanıp, Qırımdan sürgün etilgen.
 ömürinin 14 yılını Stalin lagerlerinde keçirgen.
 Organlar om yaqalağan vaqıtta pek çoq resimlerini, eskizlerini müsadere etkenler ki, o eserlernin taqdiri şimdi belli değil.
-Onın icadı haqqında biz tek on resimnin qara-beyaz fotoreproduktsiyalarına baqıp qıymet kese bilemiz.
-Ressamnın doğmuşlarında saqlanıp qalğan bu fotoreproduktsiyalarda milliy kiyimler kiygen qızlar, şeher peyzajı, turmuş eşyaları ve qırımtatarlarnıh milliy urbaları tasvirlengen.
-Ressamnın «Keçmişnin cirençli tipleri» dep adlandırılğan grafikalı satirik portretleri de pek meraqlıdır.(248.101-nci sahife).
-Lâtif-zade ömürinin sonum Harkov oblastında (Lozovaya stantsiyası) keçirdi, anda saqatlar şirketinde çalıştı.
+Onıñ icadı haqqında biz tek on resimnin qara-beyaz fotoreproduktsiyalarına baqıp qıymet kese bilemiz.
+Ressamnıñ doğmuşlarında saqlanıp qalğan bu fotoreproduktsiyalarda milliy kiyimler kiygen qızlar, şeher peyzajı, turmuş eşyaları ve qırımtatarlarnıñ milliy urbaları tasvirlengen.
+Ressamnıñ «Keçmişniñ cirençli tipleri» dep adlandırılğan grafikalı satirik portretleri de pek meraqlıdır.(248.101-nci sahife).
+Lâtif-zade ömüriniñ sonum Harkov oblastında (Lozovaya stantsiyası) keçirdi, anda saqatlar şirketinde çalıştı.
 A. Abiyevnin torum olğan Muhtar Şerfedinov (1908-1941).
  Bağçasaraydaki ressamlıq-sanayı mektebini alâ işaretlemen bitirip,Moskva mimarcılıq institutına oqumağa kirdi ve Moskvada da yaşamağa qaldı.(248.213nci sahife).
-Saqlanıp qalğan malümatlarğa köre, Şerfedinov acayip resimci sıfatında cemaat binalarının leyhaları üzerinde çalışqan.
+Saqlanıp qalğan malümatlarğa köre, Şerfedinov acayip resimci sıfatında cemaat binalarınıñ leyhaları üzerinde çalışqan.
 Muhtar Şerfedinov Moskvadaki Gorkiy adına medeniyet ve istrahat bağçasmıh leyhasını yapqan muelliflernin birisi olaraq tanıldı.
-Qırımnın 1930-nci senelerdeki medeniy ömürinde meşhur ukrain ressamı, tasviratta uruş janrımh acayip ustası sayılğan akademik Nikolay Semyönoviç Samokişnin studiyası hususan büyük röl oynadı.
+Qırımnınñ 1930-nci senelerdeki medeniy ömürinde meşhur ukrain ressamı, tasviratta uruş janrımh acayip ustası sayılğan akademik Nikolay Semyönoviç Samokişniñ studiyası hususan büyük röl oynadı.
 Belli ki, bu studiya sonundan Simferopol ressamlıq tehnikumına çevirilgen edi, şimdi ise N.S. Samokiş adına ressamlıq oquv yurtu, dep adlandırıla.
-Cenkten evel icat etken qırımtatar ressamlarının ekseryieti şu studiyada terbiyelendiler.
+Cenkten evel icat etken qırımtatar ressamlarınıñ ekseryieti şu studiyada terbiyelendiler.
 Aqmescitte 1918 senesinden yaşağan N.S. Samokiş qırımtatar halqını sevip-saya edi. 
 %O, qırımtatar pek ürmet ete ve şunıñ içün de qırımtatar halqnıñ facialı tarihi onı er daim raatsızlap tura edi.
 Qırımtatar halqına münasebetini o özünin bir sıra tarihiy eserlerinde («Oırımda 1921-1922 senelerinin açılığı») aks ettirdi.
-Meselâ, «Qırımtatarlarnın hicretke ketüvi» (1934) adlı resimde tatarlarnın tuvğan topraqnen sağlıqlaşuvlarımn yanığı tasvirlene.
+Meselâ, «Qırımtatarlarnıñ hicretke ketüvi» (1934) adlı resimde tatarlarnın tuvğan topraqnen sağlıqlaşuvlarımn yanığı tasvirlene.
 Resim Simferopoldeki bediiy muzeyde nümayiş etilgen edi.
 Resimde biz yelkenli gemige çıqmaq içün skelede toplanğan zavallı adamlarnı köremiz.
 Daha demin yönegen diğer gemi ise ufuqqa taba aşıqa.
-Resimnin sağ qısımında, birinci planda ğayet emiyetli levha tasvirlengen — vatanını terk eteyatqan adiy koylu tatar adamı endiden son şu topraqqa sahiplik yapacaq rus pomeşçiginen guya sessiz laqırdı ete.
+Resimniñ sağ qısımında, birinci planda ğayet emiyetli levha tasvirlengen — vatanını terk eteyatqan adiy koylu tatar adamı endiden son şu topraqqa sahiplik yapacaq rus pomeşçiginen guya sessiz laqırdı ete.
 Tatar adamı itaat ile başını töben alğan (öz toprağında), rus ise özüni şorbacı (birevnin toprağında) kibi his ete.
-Onın ayaqdaşı — körkem urbalar kiygen bir hanım lornetini közüne yaqın tutıp, ortalıqtaki qalabalıqnı meraqnen seyir etip tura.
+Onıñ ayaqdaşı — körkem urbalar kiygen bir hanım lornetini közüne yaqın tutıp, ortalıqtaki qalabalıqnı meraqnen seyir etip tura.
 Ressam qırımtatar halqinin tarihındaki eh facialı daqqalamıh birisini tasvirlegen: tatarlar öz yurtunı terk etkenleri etken, daha nice-nice adamlar yolda helâk oldılar.
-Oara deniz yüzlernen, binlernen adamlarnın cesedlerini Qırım yalısına çıqarıp taşlağan edi.
+Oara deniz yüzlernen, binlernen adamlarnıñ cesedlerini Qırım yalısına çıqarıp taşlağan edi.
 Anadan doğma istidatlı, pek büyük ümütler bağışlağan Şevket Qadrizade (1908 senesi Tavdayır köyünde doğğanı tahmin etile) körümü ressam ola bilecek edi.
 Kerçek, o — acayip resimler yapqan qırımtatar klassik şairi Abdurahman Qadri-zadenin oğludır.
 Şevket hususan peyzajlarnı büyük ustalıqnen yapa edi.
-Rus klassik ressamlarının eserlerinden kopiyalarnı ise yüksek tehnikiy seviyede ve tamlılıqnen icra ete edi.
+Rus klassik ressamlarıñ eserlerinden kopiyalarnı ise yüksek tehnikiy seviyede ve tamlılıqnen icra ete edi.
 Teessüf ki, o pek az yaşadı.
-1931 senesi Qızıl Orduda hizmet eter eken, Çuguev şeherinin civarlarında ötkerilgen talim vaqtında helâk oldı.
-Bugünde ise Şevketnin torum — Simferopol ressamlıq oquv yurtunıh talebesi Zubeir Qadri-zadeden yahşi ressam çıqacağına ümüt bar.
-Ressam, qırımtatar teatrinin solisti Memet Abselâmov (1911-1988) Aqmescitte N.S. Samokişnin studiyasını bitirdi (1934).
-İstidatlı ressam sıfatında oquvını devam ettirmek içün Leningraddaki Sanat institutına yollanıl dı, lâkin bu tekliften vazgeçip, Qırımda qaldı.
-M. Abselâmovnın ЗО-ncı senelerge ait resimleri Qırımda olıp keçken sosialistik denişmelernen sıqı bağlıdır («Üsküt köyündeki tatarlarnın mamür yaşayışı», 1935; «işçiler köşesi», 1935).
+1931 senesi Qızıl Orduda hizmet eter eken, Çuguev şeheriniñ civarlarında ötkerilgen talim vaqtında helâk oldı.
+Bugünde ise Şevketnin torum — Simferopol ressamlıq oquv yurtunıñ talebesi Zubeir Qadri-zadeden yahşi ressam çıqacağına ümüt bar.
+Ressam, qırımtatar teatrinin solisti Memet Abselâmov (1911-1988) Aqmescitte N.S. Samokişniñ studiyasını bitirdi (1934).
+İstidatlı ressam sıfatında oquvını devam ettirmek içün Leningraddaki Sanat institutına yollanıldı, lâkin bu tekliften vazgeçip, Qırımda qaldı.
+M. Abselâmovnıñ ЗО-ncı senelerge ait resimleri Qırımda olıp keçken sosialistik denişmelernen sıqı bağlıdır («Üsküt köyündeki tatarlarnın mamür yaşayışı», 1935; «işçiler köşesi», 1935).
 1944 senesi M.Abselâmov bütün halqınen beraber Qırımdan sürgün etilip.
  Tacikistanğa tüşe.
 Cumhuriyet ve Bütünittifaq sergilerinde iştirak etken, 1958 senesinden SSSR Ressamlar birliğinin azası olğan M.Abselâmov peyzaj janrının tanılğan ustası edi.
  («Küneşli kün», 1947; «Sabah», 1955; «Küz», 1956; «Tacikistanda bahar», 1962; «Oızıl damlar», 1979).(88.9-ncı sahife).
 Abselâmovnın eh sevgen mevzusı — Qırım tabiatı edi («Qırım gecesi», 1958; «Qırım selbileri», 1958; «Gurzuf», 1980; «Tan», 1983; «Sonki ışıq», 1984; «Bahar», 1985).
 Qırım manzaralarını ressam ta 30-ncı senelerde tasvirlep başladı («Yanı Üsküt», 1936).
-Onın peyzajları acayip nazm ile ayırılıp turalar: olar kolorit cehetinden yarıq ve nazik olmaqnen beraber tek Oırım tabiatının güzelligini değil, aynı vaqıtta muellifnin sevgisini ve ayretini ifadeleyler.
+Onın peyzajları acayip nazm ile ayırılıp turalar: olar kolorit cehetinden yarıq ve nazik olmaqnen beraber tek Oırım tabiatınıñ güzelligini değil, aynı vaqıtta muellifnin sevgisini ve ayretini ifadeleyler.
 Farit İlyasov (1915-1944?) Başqırtıstanda doğup östü.
- lâkin onın taliyi de qırımtatarlarnıh facialı taliyi kibi oldı.
+ lâkin onın taliyi de qırımtatarlarnıñ facialı taliyi kibi oldı.
 F. İlyasov Oazan ressamlıq oquv yurtum bitirdi (1934), Tataristan ASSRnin Sovet ressamları birliğini meydanğa ketirüvde faal iştirak etti, 1936 senesinden şu Birlik reisinin birinci muavini olıp çalıştı.(205.225-nci sahife).
 Ressamnın Qazanda yaşağan devirine ait tek kataloglardaki anmalar qaldı (grafika tabaqları, cümleden — bestekâr N.Jiganovnın portreti).
 1940 senesi ötkerilgen «Sovet Qırımı 20 yaşında» adlı yübiley sergisinde onın «Gorkiy «Teselli»de» resimi nümayiş etildi (248.101-nci sahife), bundan ğayrı, onın «Tatar köyünde Qızıl Orduğa özğaruv» adlı resimi anıla.
 Ressam eki kere yaqalana — başta Qazanda (tezden azat oluna), sonra 1944 senesi Qırımda.
 Bundan son ressamnın izleri coyula.
-Qırımnın cenk arfesi yıllarındaki medeniy ömüri haqqında biz esasen qırımlı sanatşınas ve muzey hadimi A.Polkanovnın faaliyeti sayesinde bilemiz.
+Qırımnıñ cenk arfesi yıllarındaki medeniy ömüri haqqında biz esasen qırımlı sanatşınas ve muzey hadimi A.Polkanovnın faaliyeti sayesinde bilemiz.
 Rus ve ukrain sanatşınaslarınen birlikte o da mecmua ve gazetalarda maqaleler bastırıp, qırımtatar ressamları haqqında defalarca yazdı, öz maqalelerinde qırımtatar ressamlarının tuvğan topraqnı, tuvğan tabiatnı nasıl sevgenlerini qayd etti.
 Qırım medeniyetine ait olıp, yoq olunuvğa hüküm etilgen bediiy kollektsiyalarnın saqlanıp qalmasında A.Polkanovnın hizmeti büyüktir.
 Ressam Şamil Muratov haqqında biz tek bir şeyni, yani 1944 senesi halq sürgün etilgen vaqıtta onın Qırımda olmağanını ve bu ressam bir sıra cumhuriyet hem de bütünittifaq sergilerinde iştirak etkenini bilemiz.(205.227-nci sahife).
