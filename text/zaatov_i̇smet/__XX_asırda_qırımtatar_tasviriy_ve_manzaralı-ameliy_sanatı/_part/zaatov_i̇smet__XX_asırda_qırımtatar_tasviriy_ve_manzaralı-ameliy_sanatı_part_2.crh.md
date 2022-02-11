@@ -1,4 +1,4 @@
-## ÛIRIMTATARLARNIN XX ASIRDAKİ TASVİRİY SANATI: İNKİŞAFNIN MEYİLLERİ VE ESAS MUAMMALARI
+## ÛIRIMTATARLARNIN XX ASIRDAKİ TASVİRİY SANATI: İNKİŞAFNIÑ MEYİLLERİ VE ESAS MUAMMALARI
 
 XIX asırnıñ soñlarına, XXI asırnıñ başlarına ait qırımtatar tasviriy sanatı inkişafnın üç esas basqıçını keçti ki, bu basqıçlar doğrudan-doğru halqnıñ siyasiy ve etnik tarihi ile bağlıdırlar:
 - 1895 senesinden 1944 senesine qadar olğan devirde.
@@ -36,67 +36,67 @@ Bu şey ahır-sonu qırımtatar milleti içün ödelmez ğayıplarğa alıp keld
 Medeniyeti ve sanatının tarihi bu derecede facialı vaqialarğa tolup-taşqan daha bir halqnı tapmaq küçtir.
 Qırımtatarlarnıñ sürgünlikten evelki sanatı bir taraftan aydın, özgün sanat olıp, ekinci taraftan — o ğayet az ögrenilgen bir körüniş edi.
 Bunıñ sebebi şunda ki, Qırımnıñ asıl halqınıñ sürgünlikten evelki medeniyeti hususında cenkten sofi da onlarnen yıllar devamında ağız açılmadı.
-XX asırda yaşap icat etken qırımtatar ressamlarının birinci nesili öz faaliyetini ta inqilâptan evel başlağan, rus akademik sanatının an aneleri esasında terbiyelengen, tahsilni Oırımdan tışta alğan edi.
-Aynı vaqıtta bu nesil adamları kendi halqının tamırlarını hiç bir vaqıt coymadılar, kendi medeniy asabalığını unutmadılar.
+XX asırda yaşap icat etken qırımtatar ressamlarınıñ birinci nesili öz faaliyetini ta inqilâptan evel başlağan, rus akademik sanatınıñ an aneleri esasında terbiyelengen, tahsilni Qırımdan tışta alğan edi.
+Aynı vaqıtta bu nesil adamları kendi halqınıñ tamırlarını hiç bir vaqıt coymadılar, kendi medeniy asabalığını unutmadılar.
 Olar oqumış, zengin bilgilerge malik adamlar ediler ki, istidatları icatnın pek çoq sahalarında aks oluna edi.
-İşte, bu nesilge ait eh aydın vekillernin birisi i.Boraganskiydir.
+İşte, bu nesilge ait eh aydın vekillerniñ birisi i.Boraganskiydir.
 Ilyas mirza Boraganskiy (1852 senesi Bağçasarayda doğdı, 1924 senesi Sterlitamaq şeherinde vefat etti) — meşhur qırımtatar maarifperveri, naşiri, şarqşınas alimidir.
-1866 senesinden 1874 senesine qadar İstanbulda tahsil alıp, anda şarq kalligrafiyası ve örnekçiliginin sırlarını öğrendi.
-Oırımğa qaytıp kelgen son qırımtatar örneklerini işlev sahasında öz tecribesini mükemmelleştirerek, Peterburgdaki kendi matbaasında neşir ettiği çeşit türlü kitaplarnı bediiy cehetten bezetti.(248.63-64-nci sahifeler).
-O öz matbaasında qırımtatar kitaplarından ğayrı bütün diğer türkiy tillerde, arap, fars tillerinde kitaplar çıqardı, aynı vaqıtta Sankt-Peterburg universitetinde ocalıq yaptı, Oırımdan ve Rusiye imperiyasının başqa türk-musülman regionlarından oqumağa kelgen iqtidarlı gençlerni oqutıp, olarnı işnen teminleyerek, keniş pedagogik ve hayriye faaliyetinen meşğul oldı.
+1866 senesinden 1874 senesine qadar İstanbulda tahsil alıp, anda şarq kalligrafiyası ve örnekçiliginiñ sırlarını öğrendi.
+Qırımğa qaytıp kelgen son qırımtatar örneklerini işlev sahasında öz tecribesini mükemmelleştirerek, Peterburgdaki kendi matbaasında neşir ettiği çeşit türlü kitaplarnı bediiy cehetten bezetti.(248.63-64-nci sahifeler).
+O öz matbaasında qırımtatar kitaplarından ğayrı bütün diğer türkiy tillerde, arap, fars tillerinde kitaplar çıqardı, aynı vaqıtta Sankt-Peterburg universitetinde ocalıq yaptı, Qırımdan ve Rusiye imperiyasının başqa türk-musülman regionlarından oqumağa kelgen iqtidarlı gençlerni oqutıp, olarnı işnen teminleyerek, keniş pedagogik ve hayriye faaliyetinen meşğul oldı.
 Körümü qırımtatar yazıcısı, alimi ve pedagogı Osman Aqçoqraqlı da şu nesilge mensüptir.
-Onın babası namlı hattat olğan, öz bilgilerini oğluna bergen, sonundan Osman da babası kibi, meşhur hattalardan biri sayılğan.
+Onıñ babası namlı hattat olğan, öz bilgilerini oğluna bergen, sonundan Osman da babası kibi, meşhur hattalardan biri sayılğan.
 Tolu olmağan orta malûmatlı Osman Aqçoqraqlı (o, Bağçasaray medresesinde tahsil aldı) öz devirinin eh oqumış adamlarından birine çevirilip (Peterburg universitetinin şarq filleri fakultetinde talebelerge hattatlıq sırlarını ögretken, belli bir vaqıt İ.Boraganskiynin matbaasında kitaplarını bezetken), «Rusiyede eh yahşi musülman hattatı» sayılğan, Oırım pedagogika institutında türk ve arap fillerinden ders bergen.
-Sankt-Peterburg camisindeki ve Hansaraydaki örnekler ve Ouran ayetlerinden ibaret yazılar, işte, onın qolunen yapılğandır.
-O. Aqçoqraqlı Oırımdaki bir çoq epigrafik abidelerni (baştaşlardaki yazılarnı ve ilâhre) oqup, ilmiy qullanuvğa kirsetken edi.
+Sankt-Peterburg camisindeki ve Hansaraydaki örnekler ve Quran ayetlerinden ibaret yazılar, işte, onıñ qolunen yapılğandır.
+O. Aqçoqraqlı Qırımdaki bir çoq epigrafik abidelerni (baştaşlardaki yazılarnı ve ilâhre) oqup, ilmiy qullanuvğa kirsetken edi.
 Lâkin ustanın istidatına inkişaf etmek imkânını bermediler — biraz vaqıt keçken son hattatlıq yabaniy grafika, dep tanıla ve o bediiy icat sahasından bütünley çıqarıla, uzaq-uzaq yıllarğa unutıla.
-Hem mesele tek Oırımda qullanılğan arap elifbesinin yerine başta latin elifbesi, daha sonra ise kirillik elifbe kelgeninde değil, mesele Oırımnın bütün islâm medeniyeti yoqqa çıqarılğanında, bunınnen beraber ise hattatlıq kibi fenomennin de yoq etilgenindedir.
-Aqçokraqlımn özü ise pantürkizmde qabaatlanıp, repressiyağa oğratılğan ve 1938 senesi atıp öldürilgen edi.(184.29-ncı sahife).
-Moskvadaki Stroganov adına resaamlıq-tehnika oquv yurtunda tahsil alğan U.Bodaninskiy, A.Abiyev, A.Lâtif-zade tezya sanatı sahasında professional negizde çalışqan qırımtatar ressamlarının birinci nesiline mensüp ediler.
+Hem mesele tek Qırımda qullanılğan arap elifbesinin yerine başta latin elifbesi, daha sonra ise kirillik elifbe kelgeninde değil, mesele Qırımnın bütün islâm medeniyeti yoqqa çıqarılğanında, bunınnen beraber ise hattatlıq kibi fenomennin de yoq etilgenindedir.
+Aqçokraqlınıñ özü ise pantürkizmde qabaatlanıp, repressiyağa oğratılğan ve 1938 senesi atıp öldürilgen edi.(184.29-ncı sahife).
+Moskvadaki Stroganov adına resaamlıq-tehnika oquv yurtunda tahsil alğan U.Bodaninskiy, A.Abiyev, A.Lâtif-zade tezya sanatı sahasında professional negizde çalışqan qırımtatar ressamlarınıñ birinci nesiline mensüp ediler.
 Olar qırımtatar halqımn medeniy ömürinde tasviriy sanatnın zarur element sıfatında tasdiqlanmasına büyük hisse qoştılar.
-Professional esasta çalışqan ilk qırımtatar ressamlarının peyda olmasına belli bir derecede İ.Gasprinskiynin, İ.Boraganskiynin, A.Mediyevnin ve diğer qırımtatar naşirlerinin aktiv faaliyeti şiltem berdi.
- çünki olarnın neşir ettiği gazetalar, mecmualar ve kitaplarnı bediiy bezetmek içün qırımtatar halqınıh medeniyeti ve sanatını içinden bilgen, bu halq medeniyetinin taşıyıcısı sayılğan professional ressamlar hem Oırımda, hem Peterburgda talap oluna ediler.
-Türkiy halqlarnın maarifçisi İsmail Gasprinskiynin meslekdeşi ve izdeşi sayılğan, qırımtatar ilimi ve sanatının qoruyıcısı olğan polkovnik İsmail Mufti-zadenin bu esnadaki hizmetleri ğayet büyüktir.
-O, 1883 senesi «Cemiyet-i hayriye» adlı qırımtatar hayriye vaqufını amelde meydanğa ketire ve onı tek 1887 senesi resmiy surette cedvelge aldırtıp ola.
-XIX asırnın sonlarında ilk qırımtatar ressamları İ.Mufti-zadenin şahsiy paraları ve «Cemiyet-i hayriye»nin maddiy qoltutuvı sayesinde Moskvağa oqumağa yollanılıp, sonra Frantsiya, Almaniya, Türkiyede ameliyat keçtiler.(249.175-nci sahife).
-XX asırnın başlarına ait qırımtatar tasviriy sanatının eh büyük sımalarından biri Usein Bodaninskiy edi.
-Zamandaşları onı «tarihiy hatıranın bekçisi» (248.63-nci sahife), ressam, sanatşınas, etnograf sıfatında bile ediler.U. Bodaninskiy bediiy tahsilnin esaslarını Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunda aldı, anda K.A. Korovinnin elinde oqup, bezetici-ressam zenaatını menimsedi (1896-1905).
+Professional esasta çalışqan ilk qırımtatar ressamlarınıñ peyda olmasına belli bir derecede İ.Gasprinskiynin, İ.Boraganskiynin, A.Mediyevnin ve diğer qırımtatar naşirleriniñ aktiv faaliyeti şiltem berdi.
+ Çünki olarnın neşir ettiği gazetalar, mecmualar ve kitaplarnı bediiy bezetmek içün qırımtatar halqınıñ medeniyeti ve sanatını içinden bilgen, bu halq medeniyetinin taşıyıcısı sayılğan professional ressamlar hem Qırımda, hem Peterburgda talap oluna ediler.
+Türkiy halqlarnın maarifçisi İsmail Gasprinskiyniñ meslekdeşi ve izdeşi sayılğan, qırımtatar ilimi ve sanatının qoruyıcısı olğan polkovnik İsmail Mufti-zadenin bu esnadaki hizmetleri ğayet büyüktir.
+O, 1883 senesi «Cemiyet-i hayriye» adlı qırımtatar hayriye vaqufını amelde meydanğa ketire ve onı tek 1887 senesi resmiy sürette cedvelge aldırtıp ola.
+XIX asırnıñ sonlarında ilk qırımtatar ressamları İ.Mufti-zadeniñ şahsiy paraları ve «Cemiyet-i hayriye»nin maddiy qoltutuvı sayesinde Moskvağa oqumağa yollanılıp, sonra Frantsiya, Almaniya, Türkiyede ameliyat keçtiler.(249.175-nci sahife).
+XX asırnıñ başlarına ait qırımtatar tasviriy sanatının eh büyük sımalarından biri Usein Bodaninskiy edi.
+Zamandaşları onı «tarihiy hatıranın bekçisi» (248.63-nci sahife), ressam, sanatşınas, etnograf sıfatında bile ediler.U. Bodaninskiy bediiy tahsilniñ esaslarını Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunda aldı, anda K.A. Korovinnin elinde oqup, bezetici-ressam zenaatını menimsedi (1896-1905).
 1905 senesinden 1907 senesine qadar Aqmescitteki Kommertsiya oquv yurtunda grafika sanatı boyunca ders berdi.
 Tahsilini İtaliyada, Frantsiya, Türkiyede devam ettirdi.
-Onın özü yazğanı kibi, 1907-1909 seneleri İstanbulda, Parijde, Münhende ve Drezdende çalışqan, 1912 senesi ise İtaliyağa barıp, anda Uyanuv devirinin monumental ressamlığını ögrengen.
-Bundan son onın icadiy faaliyeti kene Moskva ve Sankt-Peterburgnen bağlı ola — Bodaninskiy Stroganov adına oquv yurtunın filialında ders bere, filialnın ressamlıq-sanayı mektebine yolbaşçılıq yapa, belli mimar İ.A. Fominnen beraber bezetici ressam olıp çalışa.
-1910 senesi U.Bodaninskiy Moskvadaki Ticaret bankının binasındaki plafonlarnı süslendire, Ya.V. Ratkov-Rojnovmn, S.S. Abamelek-Lazarevnin ve digerlernin evlerini bezete.
-1917 senesi Oırımğa qaytıp kele.
-Almaniyalı tedqiqatçı Ediğe Oırımal özünin «Oırım türklerinih milliy mücadelesi» adlı kitabında U.Bodaninskiy ve A.Abiyev haqqında böyle yaza:«Bular — Oırımnın asıl halqı içinden çıqmış istidatlı ressamlardır ki, olar kendi bilgilerini İtalyan ve transız ressamlıq mekteplerinde mukemmelleştirgenler».(250).
-20-nci senelernin milliy uyanuv dalğasında U.Bodaninskiy bediiy-pedagogik faaliyetke berilip, halq esnaflarını canlandıruvnen, 1924-29 seneleri Qırq-Azizlerde, Eski Yurtta, Eski Oırımda, Çufut-Oalede, şimaliy Oırımda etnografiya ekspeditsiyaları ötkerüvnen meşğül ola, aynı vaqıtta ressamlıqsanayı tehnikumında ders bere, orta asırlarğa ait ve zemaneviy qırımtatar sanatı haqqında lektsiyalar oquy...
-Bodaninskiy Oırım tarihında birinci kere, Yalta kinostudiyasında yaratılğan «Alim» bediiy filminin ressamı da ola.
-Biraz vaqıttan son om Bağçasaraydaki saray-muzeynin direktorı olaraq tayinleyler ve bu muzey Bodaninskiy devirinde qırımtatar sanatının ilmiy-tedqiqat merkezine çevirile.
+Onıñ özü yazğanı kibi, 1907-1909 seneleri İstanbulda, Parijde, Münhende ve Drezdende çalışqan, 1912 senesi ise İtaliyağa barıp, anda Uyanuv devirinin monumental ressamlığını ögrengen.
+Bundan soñ onın icadiy faaliyeti kene Moskva ve Sankt-Peterburgnen bağlı ola — Bodaninskiy Stroganov adına oquv yurtunın filialında ders bere, filialnın ressamlıq-sanayı mektebine yolbaşçılıq yapa, belli mimar İ.A. Fominnen beraber bezetici ressam olıp çalışa.
+1910 senesi U.Bodaninskiy Moskvadaki Ticaret bankınıñ binasındaki plafonlarnı süslendire, Ya.V. Ratkov-Rojnovmn, S.S. Abamelek-Lazarevnin ve digerlerniñ evlerini bezete.
+1917 senesi Qırımğa qaytıp kele.
+Almaniyalı tedqiqatçı Ediğe Qırımal özünin «Qırım türklerinih milliy mücadelesi» adlı kitabında U.Bodaninskiy ve A.Abiyev haqqında böyle yaza:«Bular — Qırımnın asıl halqı içinden çıqmış istidatlı ressamlardır ki, olar kendi bilgilerini İtalyan ve transız ressamlıq mekteplerinde mukemmelleştirgenler».(250).
+20-nci senelerniñ milliy uyanuv dalğasında U.Bodaninskiy bediiy-pedagogik faaliyetke berilip, halq esnaflarını canlandıruvnen, 1924-29 seneleri Qırq-Azizlerde, Eski Yurtta, Eski Qırımda, Çufut-Qalede, şimaliy Qırımda etnografiya ekspeditsiyaları ötkerüvnen meşğül ola, aynı vaqıtta ressamlıqsanayı tehnikumında ders bere, orta asırlarğa ait ve zemaneviy qırımtatar sanatı haqqında lektsiyalar oquy...
+Bodaninskiy Qırım tarihında birinci kere, Yalta kinostudiyasında yaratılğan «Alim» bediiy filminiñ ressamı da ola.
+Biraz vaqıttan son om Bağçasaraydaki saray-muzeynin direktorı olaraq tayinleyler ve bu muzey Bodaninskiy devirinde qırımtatar sanatınıñ ilmiy-tedqiqat merkezine çevirile.
 Teessüf ki, onın bediiy icadını aydınlatqan numüneler saqlanıp qalmadı — Bodaninskiynin elinen yaratılğan bütün eserler alim 1938 senesi atıp öldürilgen son maqsadkârlıq ile yoq etildiler.
 Onın eserleri haqqında faqat bazı bir malûmatlar mevcut.
-Meselâ, Bodaninskiy Peterburgda «Ay yarıq gecede» adlı akvarel resim (1910) yapqan, bundan gayrı 1909 senesi Moskvadaki ressamlar şirketinin 17-nci sergisinde iştirak etken, Moskva mimarcılar cemiyetinin ve Peterburgdaki Mimar-ressamlar cemiyetinin faaliyetlerine qatılğan.
-Oırımmh aq gvardiyacılardan azat olunğanının 10 yıllığına bağışlanğan yübiley sergisinde (1930) onın «Pionerler» adlı resimi nümayiş etilgen;U. Bodaninskiy Aqmescitteki Oırımtatar teatrinde sanalaştırılğan «Bağçasaray çeşmesi» (1927) baleti içün kostümlernin eskizlerini yarattı.(205.220-nci sahife).
-Bunınnen birlikte 20-nci senelerde neşir olunğan bir sıra kitaplarğa U.Bodaninskiynin illüstratsiyaları da saqlanıp qalğan.
-Meselâ, P.Nikolskiynin «Bağçasaray çeşmesi» kitabını Bodaninskiynin elinen yapılğan örnekler ve vinyetkalar yaraştıralar, hem bu bezetmeler ressamnı an'aneviy örneklerni yahşi bilgen usta sıfatında köstereler.
-İcatçının sağlanıp qalğan süjetli eserleri cümlesine tatarlarnın turmuşı ve icadiyatı mevzusında yapılğan grafikası — «Kiyiz işlev», «Baqırcı ustahanesi» kibi resim taslaqları kireler.(205.221-nci sahife).
+Meselâ, Bodaninskiy Peterburgda «Ay yarıq gecede» adlı akvarel resim (1910) yapqan, bundan gayrı 1909 senesi Moskvadaki ressamlar şirketiniñ 17-nci sergisinde iştirak etken, Moskva mimarcılar cemiyetinin ve Peterburgdaki Mimar-ressamlar cemiyetinin faaliyetlerine qatılğan.
+Qırımnıñ aq gvardiyacılardan azat olunğanınıñ 10 yıllığına bağışlanğan yübiley sergisinde (1930) onıñ «Pionerler» adlı resimi nümayiş etilgen;U. Bodaninskiy Aqmescitteki Qırımtatar teatrinde sanalaştırılğan «Bağçasaray çeşmesi» (1927) baleti içün kostümlerniñ eskizlerini yarattı.(205.220-nci sahife).
+Bunıñnen birlikte 20-nci senelerde neşir olunğan bir sıra kitaplarğa U.Bodaninskiynin illüstratsiyaları da saqlanıp qalğan.
+Meselâ, P.Nikolskiynin «Bağçasaray çeşmesi» kitabını Bodaninskiyniñ elinen yapılğan örnekler ve vinyetkalar yaraştıralar, hem bu bezetmeler ressamnı an'aneviy örneklerni yahşi bilgen usta sıfatında köstereler.
+İcatçınıñ sağlanıp qalğan süjetli eserleri cümlesine tatarlarnın turmuşı ve icadiyatı mevzusında yapılğan grafikası — «Kiyiz işlev», «Baqırcı ustahanesi» kibi resim taslaqları kireler.(205.221-nci sahife).
 Abdurefi Abiyev (1879-1938) haqqında malûmat pek az.
 1906 senesi o, Stroganov adına oquv yurtunı bitire, sonra oquvını Parijde devam ettire.
 Belli bir vaqıt devamında Rostovdaki mebel fabrikasında modelci olıp çalışa (1908-1910).
-20-nci senelernin sonlarında Bağçasaray ressamlıq-sanayı tehnikumının direktorı ola, 30-ncı senelerde Aqmescit ressamlıq tehnikumında ocalıq yapa.
-Onın mına bu eserleri haqqında az-buçuq malûmat bar: «Oadınımnın portreti», «Mimarcılıq peyzajı», «Evnin interyeri».(248.13-nci sahife).
-Bir çoq ressamlarnın taqdiri kibi, onın taqdiri de facialı oldı — qanlı repressiyalarda saq qalğanlar az edi.
-Öz halqının ömürini bütün çeşitliliği ile aks ettirmeğe ıntıluv ilk nesil qırımtatar ressamlarının harakterli bir çizgisi oldı.
-Tasviratnın realistik, konkret-plastik usulı olar içün birinci yerde tura edi.
+20-nci senelerniñ sonlarında Bağçasaray ressamlıq-sanayı tehnikumınıñ direktorı ola, 30-ncı senelerde Aqmescit ressamlıq tehnikumında ocalıq yapa.
+Onıñ mına bu eserleri haqqında az-buçuq malûmat bar: «Qadınımnıñ portreti», «Mimarcılıq peyzajı», «Evnin interyeri».(248.13-nci sahife).
+Bir çoq ressamlarnıñ taqdiri kibi, onın taqdiri de facialı oldı — qanlı repressiyalarda saq qalğanlar az edi.
+Öz halqınıñ ömürini bütün çeşitliliği ile aks ettirmeğe ıntıluv ilk nesil qırımtatar ressamlarınıñ harakterli bir çizgisi oldı.
+Tasviratnıñ realistik, konkret-plastik usulı olar içün birinci yerde tura edi.
 Ressamlıgta peyzaj, portret, turmuş levhası kibi janrlar ileriley.
-Mahalliy halqnın turmuşına has olğan tafsilâtlarnı aks ettirüvge ayrıca emiyet berile.
-Ressamlarnı insan, onın emeği, etnografik hususiyetleri, kiyimi ve turmuş vaziyetinin dülberligi meraqlandıra edi.
+Mahalliy halqnıñ turmuşına has olğan tafsilâtlarnı aks ettirüvge ayrıca emiyet berile.
+Ressamlarnı insan, onın emeği, etnografik hususiyetleri, kiyimi ve turmuş vaziyetiniñ dülberligi meraqlandıra edi.
 O devirde yarıtılğan peyzaj resimleri yarıqnen, ava ve hayatnen aşlanğanlar.
 Bu basqıçta bütün sovet memleketinde hüküm sürgen realizm usulı qırımtatar ressamları içün nasıldır sınırlayıcı vasta olmadı — olar yalınız realistik ressamlıqmn imkânlarını öğrendiler, öz resimlerinde kendi toprağını, kendi halqını tasvirlemege, ömürni olğanı kibi aks ettirmeğe tırıştılar.
-Şusı meraqlı ki, XX asımın birinci yarısında Oırımda heppeyi inkişaf etken rus ressamlıq sanatı professional qırımtatar tasviratına amelde Ulunmadı.
-Deyik, Oırımda birinci olıp meydanğa ketirilgen (1923) Sevastopol Ressamlar assotsiatsiyasınnın erkânında qırımtatar icadiy ziyalılarının bir vekili bile yoq edi.
-Lâkin bunınnen birlikte şum da qayd etmeli ki, Oırımğa daimiy yaşamağa köçüp kelgen ressamlar Ya.P. Birzgal, N.S. Samokiş, yazıcı M.Voloşin eki medeniyetnin biri-birine yaqınlaşması içün bayağı iş yaptılar.(205.215-217-nci sahifeler).
+Şusı meraqlı ki, XX asımın birinci yarısında Qırımda heppeyi inkişaf etken rus ressamlıq sanatı professional qırımtatar tasviratına amelde Ulunmadı.
+Deyik, Qırımda birinci olıp meydanğa ketirilgen (1923) Sevastopol Ressamlar assotsiatsiyasınnıñ erkânında qırımtatar icadiy ziyalılarının bir vekili bile yoq edi.
+Lâkin bunınnen birlikte şum da qayd etmeli ki, Qırımğa daimiy yaşamağa köçüp kelgen ressamlar Ya.P. Birzgal, N.S. Samokiş, yazıcı M.Voloşin eki medeniyetnin biri-birine yaqınlaşması içün bayağı iş yaptılar.(205.215-217-nci sahifeler).
 Yuqarıda adları anılğan ustalar qırımtatar ressamlarının birinci dalğasını teşkil eteler.
 Şubhesiz, asılında olar çoqça ediler.
-Meselâ, elimizge daha yaqın keçmişte tüşken «Terciman» gazetasının toplamında kezlevli Ğafar Şemsi Alâdinovnın adını rastketirdik.
+Meselâ, elimizge daha yaqın keçmişte tüşken «Terciman» gazetasının toplamında kezlevli Ğafar Şemsi Alâdinovnıñ adını rastketirdik.
 Gazetanın 1914 senesi iyün 10-da çıqqan sanında bu ressam haqqında söz yürütilip, o 1914 senesi Odessadaki ressamlıq mektebini bitirgeni ve elde ettiği muvafaqiyetleri sayesinde oquvını devam etttirmek içün Moskvağa yollanılğanı hususında yazıla.
 Oırımtatar ressamlarının nevbetteki gruppasını içtimaiy ve professional cehetten artıq başqa olğan icatçılar teşkil eteler.
 Bu adamlar haqqında biz qırımlı sanatşınas ve muzey hadimi A.Polkanovmn 1935 senesi «Literatura i iskusstvo Krıma» mecmuasında dere ettirgen maqalelerinden oqup bildik.
