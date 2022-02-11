@@ -1,6 +1,6 @@
 ## ÛIRIMTATARLARNIN XX ASIRDAKİ TASVİRİY SANATI: İNKİŞAFNIN MEYİLLERİ VE ESAS MUAMMALARI
 
-XIX asımın sonlarına, XXI asırnın başlarına ait qırımtatar tasviriy sanatı inkişafnın üç esas basqıçını keçti ki, bu basqıçlar doğrudan-doğru halqnın siyasiy ve etnik tarihi ile bağlıdırlar:
+XIX asırnıñ soñlarına, XXI asırnın başlarına ait qırımtatar tasviriy sanatı inkişafnın üç esas basqıçını keçti ki, bu basqıçlar doğrudan-doğru halqnın siyasiy ve etnik tarihi ile bağlıdırlar:
 - 1895 senesinden 1944 senesine qadar olğan devirde.
 Rusienin ve ğarbiy Avropanın akademik merkezlerinde ilk professional qırımtatar ressamlarının oqup başlağan vaqtından sürgünlikke qadar 
 - qırımtatar halqı Rusiyenin şimaliy rayonlarına, Orta Asiyağa, Qazahistanğa zorbalıqnen sürgün etilip, dağınıq halda yerleştirilgen devirge (1944-1989 seneleri) ait tasviriy sanat.
