@@ -3,7 +3,7 @@
 
 ## Kiriş
 Qırımtatarlarnıñ yigirminci asırğa ait tasviriy ve manzaralı-ameliy sanatı asılında tedqiq etilmegen mevzu olıp, o mahsus ögrenilüvge muhtacdır.
-Bumn sebeplerini zemaneviy qırımtatar tarihında yüz bergen facialı vaqialarnen anlatmaq mümkün.
+Bunıñ sebeplerini zemaneviy qırımtatar tarihında yüz bergen facialı vaqialarnen anlatmaq mümkün.
 1918-1921 senelerinin qızıl ve aq terrorı, 19211922 seneleri aselet teşkilâtlandırılan kütleviy açlıq, halqnın intellektual elitası yoq etilgen 1928, 1937-1938 senelerinin repressiyaları, qırımtatarlar öz Vatanından sürgün etilip, çeşit ülkelerge dağıtılğan 1944 senesinin zorbalıqlı deportatsiyası, halqnın çoq yıllar devamında diskriminatsiyağa oğratılması, onın medeniy yenişleri devlet tarafından inkâr etilip, yoqqa çıqarılması milliy medeniyet ve sanat içün facialı ve ödetmez ğayıplarğa alıp keldi.
 Soñki onyıllıqnıñ vaqiaları, yani qırımtatar halqının öz tuvğan toprağına qaytıp başlaması, medeniy ananelernin ğayrıdan tiklenilmesi, Çırımdaki zemaneviy bediiy yaratıcılıqnıñ faalleşmesi mezkûr mevzunın aktualligini arttıralar, om öğrenmek imkânını bereler.
 Qırım yarımadasınıñ territoriyasında binlernen yıllar zuur etken devamlı etnik ceryan yigirminci asımın başlarında üç Qırım etnosının şekillenmesinen yekünlendi.
