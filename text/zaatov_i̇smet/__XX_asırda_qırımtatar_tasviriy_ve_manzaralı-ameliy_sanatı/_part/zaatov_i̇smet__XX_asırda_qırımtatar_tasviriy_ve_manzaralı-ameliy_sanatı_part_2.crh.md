@@ -20,22 +20,22 @@ Qırımnıñ medeniy renessansı ancaq beş yıl devam etti (1923-1927 seneleri)
 1928 senesiniñ yanvar ayında ise qırımtatar ziyalılarına qarşı repressiyalarnıñ birinci dalğası koterile.(183.5-nci sahife).
 Qırımtatar medeniyetinin o yıllardaki inkişafı mürekkep, zıddiyetli keçti.
 Bir taraftan, muayen ösüv körünip turğanı halda, diğer taraftan — medeniyetni gizliden yoq etmeğe tırışıldı.
-Ebet, XX asırnıñ başlarında medeniyette qırımtatar halq ananeleri daha saqlanılğan ediler, lâkin Oırımdaki medeniy zeminniri özgünligi sovet hakimiyeti yıllarında bütünley yoq etildi.
-An'aneviy bediiy asabalıqnın belli parçaları (bazı bir esnaflar, mimarcılıq, kitap miniatürası, monumental süslev) ğayıp etilmesinen birge Oırımda qırımtatar halqı içün yanı sanat şekilleri — tezya ressamlığı, grafika, eykelciliknıri ayaqqa turması içün şaraitler yaratıla.
-Teraqqiyperver başlanğıçlar çoqusı cehetten içtimaiy-siyasiy vaziyet ile bağlı ediler.
-Yanı sovet hakimiyeti çar hükümetinin diğer milletlerni eziyetlevge doğrultılğan siyasetine qarşılıq olaraq milletlemin kendi muqadderatını kendi tayin ete bilüv, serbestlik, birlik, qardaşlıq siyasetini qoydı.
+Ebet, XX asırnıñ başlarında medeniyette qırımtatar halq ananeleri daha saqlanılğan ediler, lâkin Qırımdaki medeniy zeminniri özgünligi sovet hakimiyeti yıllarında bütünley yoq etildi.
+Ananeviy bediiy asabalıqnıñ belli parçaları (bazı bir esnaflar, mimarcılıq, kitap miniatürası, monumental süslev) ğayıp etilmesinen birge Oırımda qırımtatar halqı içün yañı sanat şekilleri — tezya ressamlığı, grafika, eykelciliknıri ayaqqa turması içün şaraitler yaratıla.
+Teraqqiy perver başlanğıçlar çoqusı cehetten içtimaiy-siyasiy vaziyet ile bağlı ediler.
+Yañı sovet hakimiyeti çar hükümetiniñ diğer milletlerni eziyetlevge doğrultılğan siyasetine qarşılıq olaraq milletleniñ kendi muqadderatını kendi tayin ete bilüv, serbestlik, birlik, qardaşlıq siyasetini qoydı.
 Rusiyede yüz bergen inqilâbiy denişmeler bir çoq kenar mintaqalarda milliy azatlıq hareketlerini qozğadılar.
 Bu esnada yarımadadaki asıl halqnıh medeniy inkişafında muayen yılışuv közetile.
-Oırım muhtariyet huquqını ala, qırımtatarlar Oırımnın asıl halqı sıfatında fanilalar, qırımtatar tili ise devlet statusına malik ola.
-1923 senesi partiyanın baş yolu, dep ilân etilgen tamırlaştıruv siyaseti neticesinde qırımtatarlarğa hakimiyet organlarında, oquv yurtlarında ve istihsalda keniş kvotalar berildi.(183.5-nci sahife).
-Böyleliknen, milliy tahsil sistemasını qaytadan teşkilâtlandıruv, yanı medeniy muessiselerni meydanğa ketirüv ceryam başlana; bir sıra medeniyet erbaplarının, şu cümleden qırımtatar ressamlarının peyda olması içün şaraitler doğa.
-20-30-ncı seneler devamında an'aneviy esnaflarnı canlandıruv boyunca iş alınıp barıla (Bağçasarayda sonundan Oırım oblast tatar sanayı-ressamlıq mektebi, dep adlandırılğan tatar ressamlıq-sanayı tehnikumı çalışıp başlay).
+Qırım muhtariyet huquqını ala, qırımtatarlar Qırımnın asıl halqı sıfatında fanilalar, qırımtatar tili ise devlet statusına malik ola.
+1923 senesi partiyanıñ baş yolu, dep ilân etilgen tamırlaştıruv siyaseti neticesinde qırımtatarlarğa hakimiyet organlarında, oquv yurtlarında ve istihsalda keniş kvotalar berildi.(183.5-nci sahife).
+Böyleliknen, milliy tahsil sistemasını qaytadan teşkilâtlandıruv, yanı medeniy muessiselerni meydanğa ketirüv ceryam başlana; bir sıra medeniyet erbaplarınıñ, şu cümleden qırımtatar ressamlarınıñ peyda olması içün şaraitler doğa.
+20-30-ncı seneler devamında ananeviy esnaflarnı canlandıruv boyunca iş alınıp barıla (Bağçasarayda sonundan Qırım oblast tatar sanayı-ressamlıq mektebi, dep adlandırılğan tatar ressamlıq-sanayı tehnikumı çalışıp başlay).
 Amma böyle vaziyet çoqqa sürmedi.
-Regionlarnın öz mustaqilligini böyle gür nümayiş etmesinen Sovet hakimiyeti razılaşıp olamay edi.
+Regionlarnıñ öz mustaqilligini böyle gür nümayiş etmesinen Sovet hakimiyeti razılaşıp olamay edi.
 Bu şey ahır-sonu qırımtatar milleti içün ödelmez ğayıplarğa alıp keldi.
 Medeniyeti ve sanatının tarihi bu derecede facialı vaqialarğa tolup-taşqan daha bir halqnı tapmaq küçtir.
-Oırımtatarlarmh sürgünlikten evelki sanatı bir taraftan aydın, özgün sanat olıp, ekinci taraftan — o ğayet az ögrenilgen bir körüniş edi.
-Bunıfı sebebi şunda ki, Oırımnıh asıl halqımn sürgünlikten evelki medeniyeti hususında cenkten sofi da onlarnen yıllar devamında ağız açılmadı.
+Qırımtatarlarnıñ sürgünlikten evelki sanatı bir taraftan aydın, özgün sanat olıp, ekinci taraftan — o ğayet az ögrenilgen bir körüniş edi.
+Bunıñ sebebi şunda ki, Qırımnıñ asıl halqınıñ sürgünlikten evelki medeniyeti hususında cenkten sofi da onlarnen yıllar devamında ağız açılmadı.
 XX asırda yaşap icat etken qırımtatar ressamlarının birinci nesili öz faaliyetini ta inqilâptan evel başlağan, rus akademik sanatının an aneleri esasında terbiyelengen, tahsilni Oırımdan tışta alğan edi.
 Aynı vaqıtta bu nesil adamları kendi halqının tamırlarını hiç bir vaqıt coymadılar, kendi medeniy asabalığını unutmadılar.
 Olar oqumış, zengin bilgilerge malik adamlar ediler ki, istidatları icatnın pek çoq sahalarında aks oluna edi.
