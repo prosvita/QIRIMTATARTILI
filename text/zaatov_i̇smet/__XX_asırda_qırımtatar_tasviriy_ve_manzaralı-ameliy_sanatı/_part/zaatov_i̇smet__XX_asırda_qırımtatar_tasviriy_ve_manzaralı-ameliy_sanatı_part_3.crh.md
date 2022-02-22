@@ -176,26 +176,26 @@ Meselâ, Oırımda milliy quyumcılıq sanatını Ayder Asanov, izzet ve Enver A
 Qırımtatar manzaralı-ameliy sanatının qalğan çeşitleri para ve mütehassıs olmağanı sebebinden ale daha tiklenmeyler.
 Halqımıznıh manzaralı-ameliy sanatının esas çeşitlerini canlandıruv işine Türkiye, Almaniya, Romaniya, Gollandiya ve AOŞta yaşağan qırımtatar diasporası, Türkiye ve Ukrainanıh hükümet ve cemaatçılıq teşkilâtları büyük yardım köstereler.
 Qırımda qırımtatar manzaralı-ameliy sanatının esas merkezleri sıfatında bugünde-bugün Aqmescit, Qarasuvbazar, Bağçasaray, Kezlev şeherlerini, Kokköz, Taraqtaş, Bağay köylerini köstermek mümkün.
-Yarım asırlıq sürgünlikten son qaytıp keleyatqan qırımtatarlar şimdi misilsiz zorluqlarnı yenerek, Vatanda kendi fillerini, kendi medeniyetlerini canlandırmağa çalışalar, halqmn tekrarlanmaz özgün sanatını kelecek nesillernih variyetine çevirmeğe tırışalar.
+Yarım asırlıq sürgünlikten son qaytıp keleyatqan qırımtatarlar şimdi misilsiz zorluqlarnı yenerek, Vatanda kendi fillerini, kendi medeniyetlerini canlandırmağa çalışalar.
+ Halqmn tekrarlanmaz özgün sanatını kelecek nesillernih variyetine çevirmeğe tırışalar.
 Bu esnada qırımtatar halqımn maddiy medeniyetine ait abidelerni, manzaralı-ameliy sanatının numünelerini toplav ve saqlap qaluvğa ayrıca emiyet berile.
 Bu maqsadnen Qırımda Cumhuriyet qırımtatar sanatı müzeyi meydanğa ketirildi.
-
 Bu muzey tarihinin esabı 1992 senesinden başlay.
-Eger biz şimdinin özünde qırımtatar milliy sanatının abidelerini toplav ve saqlavnen keniş miqyasta ve keçiktirmeden oğraşıp başlamasaq, tezden toplamağa ve saqlamağa şey qalmaycaq, vaqıt ve sonki imkânlar elden qaçırılacaq.
-Şunıri içün de qırımtatarlarnıri maddiy medeniyetine ve sanatına ait olıp, çeşit vaqıtlarda yarımadadan çıqarılğan numüneler ve eserlerni Oırımğa qaytarıp ketirüv meselesine büyük diqqat ayınla.
+Eger biz şimdinin özünde qırımtatar milliy sanatının abidelerini toplav ve saqlavnen keniş miqyasta ve keçiktirmeden oğraşıp başlamasaq, tezden toplamağa ve saqlamağa şey qalmaycaq.
+%Vaqıt  elden qaçırılacaq.
+Şunıri içün de qırımtatarlarnıri maddiy medeniyetine ve sanatına ait olıp, çeşit vaqıtlarda yarımadadan çıqarılğan numüneler ve eserlerni Qırımğa qaytarıp ketirüv meselesine büyük diqqat ayınla.
 Orta Asiya memleketlerinde, Romaniya, Bulğaristan, Türkiyede qırımtatarlar toplu yaşağan yerlerge ekspeditsiyalar teşkilâtlandırıldı ve ileride de teşkilâtlandırılacaq, hem böyle işni qırımtatar diasporasınen birlikte alıp barmaq qararlaştırıla.
-Oırımdan tışta yaşağan qırımtatarlar Vatanımızda muzey teşkil olunğanını eşitken son özleri bizge müracaat etip, ta baba-dedelerinden qalğan aileviy yadikârlıqlarnı bağışlaylar.
-Meselâ, Romaniyada yaşağan qırımtatarlarnıh delegatsiyası 1998 senesinin avgust ayında Oırımnı ziyaret etken vaqıtta muzeyimizge qırımtatar manzaralı-ameliy sanatının numünelerinden ibaret bütün bir kollektsiyanı hediye etti.
+Qırımdan tışta yaşağan qırımtatarlar Vatanımızda muzey teşkil olunğanını eşitken son özleri bizge müracaat etip, ta baba-dedelerinden qalğan aileviy yadikârlıqlarnı bağışlaylar.
+Meselâ, Romaniyada yaşağan qırımtatarlarnıh delegatsiyası 1998 senesinin avgust ayında Qırımnı ziyaret etken vaqıtta muzeyimizge qırımtatar manzaralı-ameliy sanatının numünelerinden ibaret bütün bir kollektsiyanı hediye etti.
 1999 senesinin dekabrinde muzey Romaniyanın Köstence şeherinden 56 dane acayip işleme aldı, bu şeylerni 1850 senesinden 1950 senesine qadar olğan devirde Oırımda ve Dobrucada yaşağan çeşit qırımtatar qadınları yapqanlar, Kemâl Musuret değen fedaiy bir adam ise olarnı toplağan.
-
 1999 senesi qırımtatar sanatşınaslığı iliminiri tarihında ilk sefer qırımtatarlar toplu yaşağan Dobrucağa (Romaniya) ekspeditsiya yollanıldı, om Cumhuriyet qırımtatar sanat müzeyi ve Romaniya Demokratik Türk-Tatar birliği teşkil ettiler.
 Oırımtatarlar bayağı sayıda olğan Köstence şeherindeki (Romaniya) Halq sanatı muzeyinifi fondlarında qırımtatar ameliy sanatı boyunca unikal kollektsiya (sırğa ve küpeler, gerdanlıq ve boyuncaqlar, quşaqlar, baş ilvanları, torevtika, urbalar, altın nağışlı tikişler, işlemeler) saqlanıla.
 Muzey fondlarında XVIII-XX asırlarğa ait qırımtatar manzaralı-ameliy sanatına mensüp 2500-den ziyade numüne bar.
 Muzey yanında tamirlev ustahanesi çalışa.
 Muzeynin emanethaneleri en zemaneviy donatmalarnen tekmillengenler.
 Bazı esnaf çeşitlerine has an aneler (eh evelâ, kilim toquv ve işlemeler) andaki qırımtatarlar arasında şimdi de yaşaylar.
-
-Bin yazıq ki, bizim memleketimizde qırımtatar sanatı eserlerinin hâl etici çoqluğı bütünley ğayıp etildi, şu sebepten Cumhuriyet qırımtatar sanatı muzeyinin fondları şimdilik ancaq bihge yaqın unikal eksponattan ibaret olıp, olarnin da ekseryieti Oırımdan tışta toplanıldı.
+Bin yazıq ki, bizim memleketimizde qırımtatar sanatı eserlerinin hâl etici çoqluğı bütünley ğayıp etildi, şu sebepten Cumhuriyet qırımtatar sanatı muzeyinin fondları şimdilik ancaq bihge yaqın unikal eksponattan ibaret olıp.
+Olarnin da ekseryieti Qırımdan tışta toplanıldı.
 
 ### 3.2. Bediiy işlengen maden, quyumcılıq sanatı
 
@@ -207,7 +207,7 @@ Oırımtatar ustalarının qolu astından çıqqan maden eşyalar öz şekilleri
 Şeherlernin hep ösmesi, madenden faydalanğan sahalarnm hep kenişlemesi ise kütleviy esnaf istihsalinin inkişafına şiltem berdiler.
 Aynı vaqıtta Oırımda mevcut olğan demir külçe yataqları hem de diğer ülkelerden ğayet büyük miqdarda ketirilgen baqır külçe ve diğer renkli madenler de bediiy maden esnaflarının ayaqqa turmasına sebepçi oldı.
 
-Oapı rezelerine, örnekli dögme ve qaplamalı baqır bezeklerge, sarı baqırdan yasalğan olıp, ince oyma örnekli tögerek kilitlerge, Bağçasaray, Kezlev ya da Oarasuvbazamıh eski evlerinde şimdi de rastkelingen demir çilterlerge baqıp, madenni bediiy işlev sanatı Oırımda ne qadar ken tarqalğanım bilmek mümkün.
+Qapı rezelerine, örnekli dögme ve qaplamalı baqır bezeklerge, sarı baqırdan yasalğan olıp, ince oyma örnekli tögerek kilitlerge, Bağçasaray, Kezlev ya da Oarasuvbazamıh eski evlerinde şimdi de rastkelingen demir çilterlerge baqıp, madenni bediiy işlev sanatı Oırımda ne qadar ken tarqalğanım bilmek mümkün.
 Ya, demirden, çöyün yahut baqırdan yasalğan avizelerni, lampad ve fenerlerni, meselâ, Hansaray camisindeki «Mihari Süleyman» fenerini ya da Kezlevniri Şukurla efendi camisindeki fenerni nasıl anmazsın?» (47.
 226-ncı sahife)
 
