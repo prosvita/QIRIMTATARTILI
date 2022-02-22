@@ -4,24 +4,17 @@
 
 XX asırnın başlarına kelip, qırımtatarlarnın manzaralı-ameliy sanatı inqirazğa oğrasa da, umumen alğanda özünin yüksek prossional seviyesini ve asriy an anelerini saqlap qalğan edi.
 İşte, XIX asımın sonlarında qırımtatar ustalarının yasamaları diqqatlı tedqiqat obyektine çevirilip, antiqa sevdalarının, kollektsioner ve qırımşınas alimlernin merağını celp etip başlağanı tesadüf değildir.
-Aveskâr kollektsiyalar ve toplamlar arasında belli qırımşınas A. A. Bertye-Delagardnın (Yalta) ve Aqmescitteki Tavriya ilmiy arhiv komissiyasınıh kollektsiyaları, Svişçevnin hususiy gimnaziyasında saqlanılğan numüneler ğayet mot edi; Oırımdan tışta bulunğan kollektsiyalar cümlesine ise Peterburgdaki Rus muzeyinih (Millernin kollektsiyası) ve Moskvadaki sabıq Rumyantsev — şimdiki Halqşınaslıq muzeyinin (Yanjulnın kollektsiyası) etnografiya bölüklerinde saqlanılğan toplamlar kireler (196. 103-nci sahife).
+Aveskâr kollektsiyalar ve toplamlar arasında belli qırımşınas A. A. Bertye-Delagardnın (Yalta) ve Aqmescitteki Tavriya ilmiy arhiv komissiyasınıh kollektsiyaları, Svişçevnin hususiy gimnaziyasında saqlanılğan numüneler ğayet mot edi; Qırımdan tışta bulunğan kollektsiyalar cümlesine ise Peterburgdaki Rus muzeyinih (Millernin kollektsiyası) ve Moskvadaki sabıq Rumyantsev — şimdiki Halqşınaslıq muzeyinin (Yanjulnın kollektsiyası) etnografiya bölüklerinde saqlanılğan toplamlar kireler (196. 103-nci sahife).
 Bu kollektsiyalarnın negizini işleme ve toqumalar, bediiy işlenilgen maden, quyumcıiıq eşyaları teşkil eteler; kiramet ve taş hem de ağaç oymacılığına ait numüneler ise ğayet zayıf taqdim etilgen.
-Bunı anlatmaq qıyın değil — toplanılğan eksponatlar XIX asımın sonlarında — XX asırnın başlarında esnafçılıqta meydanğa kelgen real vaziyetni aks ettireler.
-
-1880-90-ncı senelerde qırımtatar örneklerine bağışlanğan ilk tedqiqatlar peyda oldı.
-Olarnı belli etnograf N.
-Haruzin yaptı.
+Bunı anlatmaq qıyın değil.
+ Toplanılğan eksponatlar XIX asımın sonlarında — XX asırnın başlarında esnafçılıqta meydanğa kelgen real vaziyetni aks ettireler.
+1880-90-ncı senelerde qırımtatar örneklerine bağışlanğan ilk tedqiqatlar peyda oldı, olarnı belli etnograf N.Haruzin yaptı.
 1920-nci senelerde qırımtatarlarnın ameliy sanatına ait bütün numüneler sistemli surette toplanıp başlana.
 Bahçasaraydaki saray-muzey halqnın maddiy medeniyetini ögrenüv merkezine çevirile.
-Oırımtatar esnafçılığının canlanmasına öz vaqtında Hansaray muzeyine mudirlik yapqan meşhur qırımtatar sanatşınası, muzeyşınası, ressamı U.
-Bodaninskiy büyük hisse qoştı.
+Qırımtatar esnafçılığının canlanmasına öz vaqtında Hansaray muzeyine mudirlik yapqan meşhur qırımtatar sanatşınası, muzeyşınası, ressamı U.Bodaninskiy büyük hisse qoştı.
 Memleket içün ğayet müşkül yıllarda o, halqnm medeniy baylığını saqlap qaluv boyunca ciddiy iş başladı.
-Bodaninskiynin faaliyeti sayesinde «Bağçasaray muzeyinde toplanğan ilmiy baylıq hep artmaqta», — dep qayd etken edi 1921 senesi Oırımnı ziyaret etken akademik Kraçkovskiy.
-(184.
-67-nci sahife).
-Muzey bediiy-esnafçılıq, etnografiya ve arheologiya bölüklerinden hem de qırımtatar edebiyatı kütüphanesinden ibaret edi.
-(184.
-30-ncı sahife).1925 senesi U.
+Bodaninskiynin faaliyeti sayesinde «Bağçasaray muzeyinde toplanğan ilmiy baylıq hep artmaqta», — dep qayd etken edi 1921 senesi Oırımnı ziyaret etken akademik Kraçkovskiy.(184.67-nci sahife).
+Muzey bediiy-esnafçılıq, etnografiya ve arheologiya bölüklerinden hem de qırımtatar edebiyatı kütüphanesinden ibaret edi.(184.30-ncı sahife).1925 senesi U.
 Bodaninskiy qırımtatar medeniyeti ve sanatını her taraflı öğrenmek içün arheologiya-etnografiya ekspeditsiyasını teşkil ete ve onın yolbaşçılığında çalışqan mezkûr ekspeditsiya sonundan muzey kollektsiyasını tekmillegen bir çoq unikal turmuş eşyaları topladı.
 1929 senesine qadar ekspeditsiya azaları Qırq Azizler, Eski Yurt, Eski Qırım, Çufut-Qale, Bay Qazaq kibi yerlerni tedqiq ettiler.
 (184.
