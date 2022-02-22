@@ -165,30 +165,22 @@ Yalınız, onın meşhur mirzalar tevabasından olğanını,
 Bağçasaray şeherindeki «İlk adım» değen birinci kooperativ şirkette instruktor olıp çalışqanı, çeber elli usta, örnekler ve tikiş tehnikasınıiî bilmiri olğanı malümdir.
 1930 senesi Esma Mansurskayanın tırışuvları sayesinde Oırımnın sanayi matlubat cemiyetleri meydanğa ketirgen işleme-toqumacılıq şirketleri içün instruktor-tehniklerni hazırlav boyunca ilk kurslar teşkilâtlandırıldı.
 Kurslarda oquv üç ay devam etip, ihtisastı mütehassıslar çıqarıla ediler.
-
-Oırımtatar halqınıh taliyi sonundan bu qadar facialı olmağan olsa, XX asırnın başlarında halq manzaralı-ameliy sanatının bütün sahalarını qavrap alğan ve Oırımda esnafçılıqnın berbat etilmesine alıp kelgen inqiraz, belki de, bitirilir edi.
+Qırımtatar halqınıh taliyi sonundan bu qadar facialı olmağan olsa, XX asırnın başlarında halq manzaralı-ameliy sanatının bütün sahalarını qavrap alğan.
+Qırımda esnafçılıqnın berbat etilmesine alıp kelgen inqiraz, belki de, bitirilir edi.
 Teessüf ki, 1944 senesi qırımtatarlar bir qalmadan sürgün etilgenleri neticesinde halq icadiyatının an'aneleri amelde bütünley unutıldılar.
-
 Sabıq SSSRnin çeşit ülkeleri boylap dağıtılğan qırımtatarlar hakimiyetnih taqiplerine baqmadan, sürgünlikte aileviy yadikârlıq olıp qalğan, cenkten evel Oırımdaki yaşayışm hatırlatıp turğan ameliy sanat numünelerini köz bebeği kibi saqladılar.
-Oırımda doğğan, asriy halq an'aneleri esasında terbiyelengen ve ecdatlarnın medeniyeti, turmuş tarzı haqqındaki hatıranı coymağan üyken nesil vekilleri halqmn turmuş ve medeniyet an'anelerini
-
-aybetlep, qırımtatar sanatının bazı bir çeşitlerini, meselâ, kilim toquv, işlemeler yapuv alışqanlıqlarını saqlap qaluvda (Ozbekistannın Palvantaş koyu) büyük röl oynadılar.
-
+Qırımda doğğan, asriy halq ananeleri esasında terbiyelengen ve ecdatlarnın medeniyeti, turmuş tarzı haqqındaki hatıranı coymağan üyken nesil vekilleri halqmn turmuş ve medeniyet ananelerini aybetlep, qırımtatar sanatının bazı bir çeşitlerini, meselâ, kilim toquv, işlemeler yapuv alışqanlıqlarını saqlap qaluvda (Ozbekistannın Palvantaş koyu) büyük röl oynadılar.
 Bugünde-bugün Oırımda manzaralı-ameliy sanatnı canlandıruv ceryanı pek büyük meşaqatlarnen, işsizlik, iqtisadiy buhran kibi ağırdan-ağır içtimaiy şaraitlerde keçe.
-Oırımğa ayrı ustalar qayttılar.
-Bular esasen endi çoqtan rahmetli olğan eski ustalarnın balaları ya da şegirtleridir.
+Qırımğa ayrı ustalar qayttılar, bular esasen endi çoqtan rahmetli olğan eski ustalarnın balaları ya da şegirtleridir.
 Meselâ, Oırımda milliy quyumcılıq sanatını Ayder Asanov, izzet ve Enver Ablayevler; qaqma sanatını Asan Galimov, kiramet ve ufaq şekiller plastikasını Fevzi Seithalilov, Abdül Seit-Ametov, Rustem Yaqubov, Rustem Skibin, Şamil İlyasov, Mamut Çurlu ve diğerleri canlandıralar; taşm işlev sanatınen Ayder Aliyev, İlmi Ametov; havlı maqat toquvnen Zeynep Musayeva, Gülnara Asanova, Reyan ve Ediye Bekirovalar; kilim toquvnen Arzı Patel, Mamut Çurlu, Sabriye Eyüpova ve diğerleri; altın ve örnekli işlemelernen Elmira Muratova, Elvira Osmanova, Elmira Çalbaşova, Tamara Klüçkina ve Ayşe Osmanova oğraşalar.
-Oırımtatar manzaralı-ameliy sanatının qalğan çeşitleri para ve mütehassıs olmağanı sebebinden ale daha tiklenmeyler.
-
+Qırımtatar manzaralı-ameliy sanatının qalğan çeşitleri para ve mütehassıs olmağanı sebebinden ale daha tiklenmeyler.
 Halqımıznıh manzaralı-ameliy sanatının esas çeşitlerini canlandıruv işine Türkiye, Almaniya, Romaniya, Gollandiya ve AOŞta yaşağan qırımtatar diasporası, Türkiye ve Ukrainanıh hükümet ve cemaatçılıq teşkilâtları büyük yardım köstereler.
-
-Oırımda qırımtatar manzaralı-ameliy sanatının esas merkezleri sıfatında bugünde-bugün Aqmescit, Oarasuvbazar, Bağçasaray, Kezlev şeherlerini, Kokköz, Taraqtaş, Bağay köylerini köstermek mümkün.
-
+Qırımda qırımtatar manzaralı-ameliy sanatının esas merkezleri sıfatında bugünde-bugün Aqmescit, Qarasuvbazar, Bağçasaray, Kezlev şeherlerini, Kokköz, Taraqtaş, Bağay köylerini köstermek mümkün.
 Yarım asırlıq sürgünlikten son qaytıp keleyatqan qırımtatarlar şimdi misilsiz zorluqlarnı yenerek, Vatanda kendi fillerini, kendi medeniyetlerini canlandırmağa çalışalar, halqmn tekrarlanmaz özgün sanatını kelecek nesillernih variyetine çevirmeğe tırışalar.
 Bu esnada qırımtatar halqımn maddiy medeniyetine ait abidelerni, manzaralı-ameliy sanatının numünelerini toplav ve saqlap qaluvğa ayrıca emiyet berile.
-Bu maqsadnen Oırımda Cumhuriyet qırımtatar sanatı müzeyi meydanğa ketirildi.
-Bu muzey tarihinin esabı 1992 senesinden başlay.
+Bu maqsadnen Qırımda Cumhuriyet qırımtatar sanatı müzeyi meydanğa ketirildi.
 
+Bu muzey tarihinin esabı 1992 senesinden başlay.
 Eger biz şimdinin özünde qırımtatar milliy sanatının abidelerini toplav ve saqlavnen keniş miqyasta ve keçiktirmeden oğraşıp başlamasaq, tezden toplamağa ve saqlamağa şey qalmaycaq, vaqıt ve sonki imkânlar elden qaçırılacaq.
 Şunıri içün de qırımtatarlarnıri maddiy medeniyetine ve sanatına ait olıp, çeşit vaqıtlarda yarımadadan çıqarılğan numüneler ve eserlerni Oırımğa qaytarıp ketirüv meselesine büyük diqqat ayınla.
 Orta Asiya memleketlerinde, Romaniya, Bulğaristan, Türkiyede qırımtatarlar toplu yaşağan yerlerge ekspeditsiyalar teşkilâtlandırıldı ve ileride de teşkilâtlandırılacaq, hem böyle işni qırımtatar diasporasınen birlikte alıp barmaq qararlaştırıla.
