@@ -4,27 +4,28 @@ TOM presented himself before Aunt Polly, who was sitting by an open window in a 
 The balmy summer air, the restful quiet, the odor of the flowers, and the drowsing murmur of the bees had had their effect, and she was nodding over her knitting—for she had no company but the cat, and it was asleep in her lap.
 Her spectacles were propped up on her gray head for safety.
 She had thought that of course Tom had deserted long ago, and she wondered at seeing him place himself in her power again in this intrepid way.
-He said:
+%He came in and said:
 
 "Mayn't I go and play now, aunt?"
 
-"What, a'ready?
+%Have you already done what I said?
 How much have you done?"
 
 "It's all done, aunt."
 
 "Tom, don't lie to me—I can't bear it."
 
-"I ain't, aunt; it IS all done."
+"I ain't, aunt;
+it IS all done."
 
-Aunt Polly placed small trust in such evidence.
-She went out to see for herself; and she would have been content to find twenty per cent.
-of Tom's statement true.
+%Aunt Polly didn't trust him.
+She went out to see for herself; and she would have been content to find twenty per cent of Tom's statement true.
 When she found the entire fence white-washed, and not only whitewashed but elaborately coated and recoated, and even a streak added to the ground, her astonishment was almost unspeakable.
-She said:
 
-"Well, I never!
-There's no getting round it, you can work when you're a mind to, Tom." And then she diluted the compliment by adding, "But it's powerful seldom you're a mind to, I'm bound to say.
+She said: "Well, I never!
+
+There's no getting round it, you can work when you're a mind to, Tom.
+" And then she diluted the compliment by adding, "But it's powerful seldom you're a mind to, I'm bound to say.
 Well, go 'long and play; but mind you get back some time in a week, or I'll tan you."
 
 She was so overcome by the splendor of his achievement that she took him into the closet and selected a choice apple and delivered it to him, along with an improving lecture upon the added value and flavor a treat took to itself when it came without sin through virtuous effort.
