@@ -235,12 +235,12 @@ Sinilemin şekili ve nağışları da çeşit türlüdir: olar hem oval, hem dö
 «Meryem ana qazanı»nıh kelip çıqması yalıboylu ve dağlı qırımtatarlarnın hristian keçmişinen bağlıdır.
 Bu savuttan loqsalarğa aş ve suv ketirmek içün faydalanılğan.
 «Meryem ana qazanı» — alçaq, kenarları biraz qaytarılğan, ösümlik ve geometrik örneklemen hem de nazariıq işaretlerinen bezetilgen tsilindr şekilindeki savuttır.
-Oırımtatar tarihi ve medeniyetinin belli tedqiqatçısı Refat Ourtiyev böyle savutlarnın birisinde qadimiy türklernin analıq ilâhesi Umaynıh adını oquya bilgen.
+Qırımtatar tarihi ve medeniyetinin belli tedqiqatçısı Refat Ourtiyev böyle savutlarnın birisinde qadimiy türklernin analıq ilâhesi Umaynıh adını oquya bilgen.
 Baqır — qırımtatarlarnın sevip qullandığı material edi.
 Baqırdan savutsaba, şamdan ve qandiller, hammam taqımları yasala turğan.
 Baqır sıcaqnı yahşi keçirgeni içün ondan çeşit türlü qazanlar da yapılıp, bu qazanlarnıfi içi, kimerde ise tışı da mıtlaqa qalaylana edi.
-Qırımtatarlarnın kündelik ömürinde veya merasimlerinde işletilgen baqır yahut, cez eşyalar ohaytlı ve saf olmaqnen birge, ucuz da ola ediler.
-Şu sebepten böyle savutnı ehalinin aşağı ve orta qatlamları da satın ala bile ediler.
+%Savutni yerge qaqilgan uzun qaziqlar ustune qalaylaganlar.
+Qırımtatarlarnın kündelik ömürinde veya merasimlerinde işletilgen baqır yahut, cez eşyalar ohaytlı ve saf olmaqnen birge, ucuz da ola ediler, Şu sebepten böyle savutnı ehalinin aşağı ve orta qatlamları da satın ala bile ediler.
 Tatar zadekânları ise kümüş eşyalardan faydalana turğanlar.
 %Qırımtatarlarnıh madenden yasalğan savutları özlerinin funktsionalligi ve dülber tışqı körünişinen ayırılıp tura ediler.
 Qaqmalar, oymalı resimler ve ince çilterli oyma örnekler — qırımtatar bezetmelerinin an'aneviy çeşitleridir.
