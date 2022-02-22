@@ -14,31 +14,19 @@ Bahçasaraydaki saray-muzey halqnın maddiy medeniyetini ögrenüv merkezine çe
 Qırımtatar esnafçılığının canlanmasına öz vaqtında Hansaray muzeyine mudirlik yapqan meşhur qırımtatar sanatşınası, muzeyşınası, ressamı U.Bodaninskiy büyük hisse qoştı.
 Memleket içün ğayet müşkül yıllarda o, halqnm medeniy baylığını saqlap qaluv boyunca ciddiy iş başladı.
 Bodaninskiynin faaliyeti sayesinde «Bağçasaray muzeyinde toplanğan ilmiy baylıq hep artmaqta», — dep qayd etken edi 1921 senesi Oırımnı ziyaret etken akademik Kraçkovskiy.(184.67-nci sahife).
-Muzey bediiy-esnafçılıq, etnografiya ve arheologiya bölüklerinden hem de qırımtatar edebiyatı kütüphanesinden ibaret edi.(184.30-ncı sahife).1925 senesi U.
-Bodaninskiy qırımtatar medeniyeti ve sanatını her taraflı öğrenmek içün arheologiya-etnografiya ekspeditsiyasını teşkil ete ve onın yolbaşçılığında çalışqan mezkûr ekspeditsiya sonundan muzey kollektsiyasını tekmillegen bir çoq unikal turmuş eşyaları topladı.
-1929 senesine qadar ekspeditsiya azaları Qırq Azizler, Eski Yurt, Eski Qırım, Çufut-Qale, Bay Qazaq kibi yerlerni tedqiq ettiler.
-(184.
-60-ncı sahife).
-Bodaninskiy teşviqat işlerik nen beraber ilmiy işnen de oğraştı — o, qırımtatarlarnın sanatı boyunca pek çoq lektsiyalar oqudı, halqnın maddiy medeniyetinin tarihi boyunca maqaleler yazdı.
-(30-32-nci sahıfeler).
-Onın ğayretleri sayesinde qırımtatar halq sanatına ait eksponatlar (erkek ve qadın-qızlarnıh kiyimleri, qaqma ve işlemeler) 1925 senesi Parijde ötkerilgen manzaralı sanat ve sanayi boyunca Halqara sergige yollanılıp, anda kümüş medalnen taqdirlengen (U.
-Bodaninskiynin malûmatlarına köre, qırımtatar işlemelerine tunç medal berilgen edi — 26-ncı sahife), 1927 senesi ise Moskvadaki Bütünittifaq sergisine yollan ılğan ediler.
-
+Muzey bediiy-esnafçılıq, etnografiya ve arheologiya bölüklerinden hem de qırımtatar edebiyatı kütüphanesinden ibaret edi.(184.30-ncı sahife).
+1925 senesi U.Bodaninskiy qırımtatar medeniyeti ve sanatını her taraflı öğrenmek içün arheologiya-etnografiya ekspeditsiyasını teşkil ete ve onın yolbaşçılığında çalışqan mezkûr ekspeditsiya sonundan muzey kollektsiyasını tekmillegen bir çoq unikal turmuş eşyaları topladı.
+1929 senesine qadar ekspeditsiya azaları Qırq Azizler, Eski Yurt, Eski Qırım, Çufut-Qale, Bay Qazaq kibi yerlerni tedqiq ettiler.(184.60-ncı sahife).
+Bodaninskiy teşviqat işlerik nen beraber ilmiy işnen de oğraştı — o, qırımtatarlarnın sanatı boyunca pek çoq lektsiyalar oqudı, halqnın maddiy medeniyetinin tarihi boyunca maqaleler yazdı.(30-32-nci sahıfeler).
+Onın ğayretleri sayesinde qırımtatar halq sanatına ait eksponatlar (erkek ve qadın-qızlarnıh kiyimleri, qaqma ve işlemeler) 1925 senesi Parijde ötkerilgen manzaralı sanat ve sanayi boyunca Halqara sergige yollanılıp, anda kümüş medalnen taqdirlengen (U.Bodaninskiynin malûmatlarına köre, qırımtatar işlemelerine tunç medal berilgen edi — 26-ncı sahife), 1927 senesi ise Moskvadaki Bütün ittifaq sergisine yollan ılğan ediler.
+%Qırimtatar ustalarınıñ ustalığı cian miqyasında tanıldı.
 Buhara emirinin Yaltada müsadere etilgen sarayında yerleşken Şarq müzeyi qırımtatar sanatını ögrenüv boyunca diğer bir merkezge çevirildi.
 Muzeyge istanbulda, Beyrutta ve Moskvadaki Lazarev adına şarq tilleri institutında tahsil alğan (1913-1914) yüksek ihtisaslı mütehassıs, 1917 senesi Zincirli medrese negizinde meydanğa ketirilgen Menli Geray han saniy I adına İnstitutnın rektorı (1917 senesinden 1925 senesine qadar), Şarq tarihi ve medeniyetinin bilmiri Yaqub Kemâl mudirlik yaptı.
-Bu ulu adam sonundan yaqalanıp (1934) atılgan edi.
-(184.
-225-nci sahife).
-Ya.
-Kemâl an'aneviy qırımtatar esnafları haqqında «Oırım hanlığındaki seleflernin vesiqalı tarihi» kitabını yazğan edi.
-Onın yolbaşçılığında çalışqan muzey yalıboylu qınmtatarlarnın hem de «öz vaqtında qırımtatar sanatına o ya da bu derecede tesir köstergen Şarq halqlarının» esnafçılıq eşyalarını toplav, ögrenüv ve nümayiş etüvnen meşğül edi.
-(183. 31-nci sahife).
-
+Bu ulu adam sonundan yaqalanıp (1934) atılgan edi.(184.225-nci sahife).
+Ya.Kemâl an'aneviy qırımtatar esnafları haqqında «Qırım hanlığındaki seleflernin vesiqalı tarihi» kitabını yazğan edi.
+Onın yolbaşçılığında çalışqan muzey yalıboylu qınmtatarlarnın hem de «öz vaqtında qırımtatar sanatına o ya da bu derecede tesir köstergen Şarq halqlarının» esnafçılıq eşyalarını toplav, ögrenüv ve nümayiş etüvnen meşğül edi.(183. 31-nci sahife).
 Oz nevbetinde, Kezlevdeki etnografiya müzeyi karaimlernin ve çöl taraflı qırımtatarlarnın sanatını öğrenip, ona Polina Yakovlevna Çepurina yolbaşçılıq yapa edi.
-
-P.
-Ya.
-Çepurinanm faaliyetini ayrıca qayd etmeli.
+P.Ya.Çepurinanm faaliyetini ayrıca qayd etmeli.
 O, 1882 senesi Kiyevde doğdı, Peterburgdaki arheologiya institutını bitirdi, lâkin bütün ömürini Oırımnen bağladı.
 P. Çepurina — Oırımnıh ameliy sanatı boyunca çoqtançoq maqalelernih müellifi, tedqiqatçı alim, Oırımda bediiy-esnafçılıq şirketlerinin teşkilâtçısıdır.
 Onın maqaleleri sanatşınaslarnın şimdiki nesili içün de ğayet aktualler.
