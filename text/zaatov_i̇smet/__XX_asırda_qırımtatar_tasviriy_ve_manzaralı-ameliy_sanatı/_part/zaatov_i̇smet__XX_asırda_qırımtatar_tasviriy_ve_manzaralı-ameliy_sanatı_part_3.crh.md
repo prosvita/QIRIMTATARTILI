@@ -146,23 +146,18 @@ Z. Bekirova 1913 senesi Or qapı uyezdinin Mollalar köyünde doğdı,
  1936 senesi tehnikumnı bitirgen son 1940 senesine qadar Moskva bediiy sanayi institutında çalıştı.
 Z. Bekirova Oazahistan, Türkmenistan, Şimaliy Osetiya ve diğer bir sıra cumhuriyetlernin kilim istihsalları içün milliy örneklernih eskizlerini yarattı.
 Onın eskizleri esasında, cümleden, 1939 senesi New-Yorkta ötkerilgen Bütüncihan sergisi içün «Develer» adlı, 1951 senesi ise «Osetiya» adlı havlı kilimler toquldı.
-ittifaq cumhuriyetlerindeki kilim fabrikaları içün eskizler yaratqan Z.
-Bekirova milliy örneklerni büyük diqqat ile öğrendi.
+ittifaq cumhuriyetlerindeki kilim fabrikaları içün eskizler yaratqan Z.Bekirova milliy örneklerni büyük diqqat ile öğrendi.
 İşte, böyle maqsadnen Orta Asiyağa ve Oazahistanğa ekspeditsiyalar teşkilâtlandırdı.
-1940 senesinden 1948 senesine qadar Moskva ameliy ve manzaralı sanat institutında oqudı, anda V.S.
-Kondratyev ve B.
-Yu.
-Lange kibi meşhur mütehassıslardan ders aldı, institutnı bitirgen son 1948 senesinden 1968 senesine qadar Moskva ressamlıq-sanayı tehnikumında mahsus fenler ocası olıp çalıştı, ilmiy işnen oğraştı (turkmen kilimlerini öğrendi), kimerde ressamlıq yaptı.
-
+1940 senesinden 1948 senesine qadar Moskva ameliy ve manzaralı sanat institutında oqudı.
+Аnda V.S.Kondratyev ve B.Yu.Lange kibi meşhur mütehassıslardan ders aldı,
+ institutnı bitirgen son 1948 senesinden 1968 senesine qadar Moskva ressamlıq-sanayı tehnikumında mahsus fenler ocası olıp çalıştı, ilmiy işnen oğraştı (turkmen kilimlerini öğrendi), kimerde ressamlıq yaptı.
 1937 senesinden başlap bütünittifaq ve halqara sergilerde, meselâ, 1939 senesi New-Yorkta ötkerilgen, 1939 senesi Kiyevde olıp keçken sergi lerde iştirak etti.
-Onın eserleri Oırım, Moskva, Sankt-Peterburg, Saransk, Aşhabadnın muzey kollektsiyalarında buluna.
+Onın eserleri Qırım, Moskva, Sankt-Peterburg, Saransk, Aşhabadnın muzey kollektsiyalarında buluna.
 Rahatlıqqa çıqqan son ise gobelen sanatına berilip, «Bahar kele», «Emek», «Aydınlıq», «Küz.
 Gençlik», «Fişenk», «Ay ile natürmort» kibi gobelen kompoziyatsiyalarını yarattı.
-
-Zuleyha Bekirova 1990 senesi Oırımtatar medeniyetini canlandıruv boyunca koordinatsion merkeznin davetinen Moskvadan Aqmescitke kelip, mahsus kurslar alıp bardı, qırımtatar qızlarına an'aneviy qırımtatar işlemelerini ve basma toquvnı öğretti.
+Zuleyha Bekirova 1990 senesi Qırımtatar medeniyetini canlandıruv boyunca koordinatsion merkeznin davetinen Moskvadan Aqmescitke kelip,mahsus kurslar alıp bardı, qırımtatar qızlarına ananeviy qırımtatar işlemelerini ve basma toquvnı öğretti.
 Ömürinin sonki yıllarında ğayrıdan tikleneyatqan qırımtatar havlı kilim toqumacılığı içün örnek motivleri ve kompozitsiyalarını yaratuv üzerinde çalıştı.
-1998 senesi Aqmescitte Oırımtatar sanatı müzeyi Oırım etnografiya muzeyinen birlikte Z.
-Bekirovamh 85 yıllığına bağışlap, onın şahsiy sergisini ötkerdiler.
+1998 senesi Aqmescitte Oırımtatar sanatı müzeyi Oırım etnografiya muzeyinen birlikte Z.Bekirovamh 85 yıllığına bağışlap, onın şahsiy sergisini ötkerdiler.
 Z. Bekirova 1999 senesi Moskvada vefat etti.
 
 Elimizde Esma Mansurskaya haqqında tafsilâtlı malûmatlar yoqtır.
