@@ -242,23 +242,19 @@ Baqır sıcaqnı yahşi keçirgeni içün ondan çeşit türlü qazanlar da yap�
 Qırımtatarlarnın kündelik ömürinde veya merasimlerinde işletilgen baqır yahut, cez eşyalar ohaytlı ve saf olmaqnen birge, ucuz da ola ediler.
 Şu sebepten böyle savutnı ehalinin aşağı ve orta qatlamları da satın ala bile ediler.
 Tatar zadekânları ise kümüş eşyalardan faydalana turğanlar.
-Lâkin nasıl olmasın, qırımtatarlarnıh madenden yasalğan savutları özlerinin funktsionalligi ve dülber tışqı körünişinen ayırılıp tura ediler.
+%Qırımtatarlarnıh madenden yasalğan savutları özlerinin funktsionalligi ve dülber tışqı körünişinen ayırılıp tura ediler.
 Qaqmalar, oymalı resimler ve ince çilterli oyma örnekler — qırımtatar bezetmelerinin an'aneviy çeşitleridir.
 Örnekler ile zengin bezetilgen eşyalar inter'yerni yaraştırmaqnen bir sırada eşya sahibinin eyiallılığım da kösterip tura edi.
-
 Qaqma — bezetüvnin en mürekkep çeşiti sayıla, çünki bu usulnen çalışqan usta resimni de, relyefni de, fakturanı da doğrudan-doğru iş ceryanında yarata.
 Örnekler çöküç ve mahsus qalem yardımınen çekile.
-
 Qaqma usulı bazıda ince çilterli oyma usulınen biriktirile.
 ince oyma örneklernin negizini üçköşelikler, romblar, daireler teşkil ete ve olar tabaqlarnın, pek büyük olmağan vazalarnın kenarlarını yaraştıraraq, bu eşyalarğa tekrarlanmaz letafet ve muhteşemlik bağışlaylar.
 Çilterli oyma örnekler hususan nurlı yerde elverişli körüneler, şunın içün de ustalar qandil, şamdanlar yasağanda esasen bu usulnı qullanğanlar.
-XVII asırnın türk seyahatçısı Evliya Çelebi qırımtatar dürbelerinin içki yaraşığını tabir eterek, böyle dep yaza: «Her bir qubbe astında...
-dersin, nur oynay.
+XVII asırnın türk seyahatçısı Evliya Çelebi qırımtatar dürbelerinin içki yaraşığını tabir eterek, böyle dep yaza: «Her bir qubbe astında...dersin, nur oynay.
 Bu qubbeler yüz çeşit qandillernen, güzel qoqu saçqan buhurdanlarnen, altın ve kümüş şamdanlarnen bezetilgenler».
 
 Madenni bediiy işlevde oymalı resim çeküv tehnikası da keniş tarqalğan edi.
 Bu usulnen yapılğan aydın, ince örnekler yaqın baqışta hususan güzel körüneler, şu sebepten oymalı resimlemen ekseriyette savut-saba ve quyumcılıq eşyaları bezetilgen.
-
 Savut-sabadan bilhassa siniler zengin nağışlanğan.
 Kilim ve minderler üstünde oturmağa alışqan qırımtatarlar sinilerni açılıp qapalğan kürsüçikler üstüne qoyup, olarnı masa sıfatında da qullana ediler.
 
