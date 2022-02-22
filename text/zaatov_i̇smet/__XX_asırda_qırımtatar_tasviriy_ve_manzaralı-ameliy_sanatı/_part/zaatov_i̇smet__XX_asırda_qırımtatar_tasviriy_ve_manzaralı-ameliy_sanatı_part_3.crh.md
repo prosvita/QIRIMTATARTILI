@@ -161,7 +161,8 @@ Zuleyha Bekirova 1990 senesi Qırımtatar medeniyetini canlandıruv boyunca koor
 Z. Bekirova 1999 senesi Moskvada vefat etti.
 
 Elimizde Esma Mansurskaya haqqında tafsilâtlı malûmatlar yoqtır.
-Yalınız, onın meşhur mirzalar tevabasından olğanını, Bağçasaray şeherindeki «İlk adım» değen birinci kooperativ şirkette instruktor olıp çalışqanı, çeber elli usta, örnekler ve tikiş tehnikasınıiî bilmiri olğanı malümdir.
+Yalınız, onın meşhur mirzalar tevabasından olğanını,
+Bağçasaray şeherindeki «İlk adım» değen birinci kooperativ şirkette instruktor olıp çalışqanı, çeber elli usta, örnekler ve tikiş tehnikasınıiî bilmiri olğanı malümdir.
 1930 senesi Esma Mansurskayanın tırışuvları sayesinde Oırımnın sanayi matlubat cemiyetleri meydanğa ketirgen işleme-toqumacılıq şirketleri içün instruktor-tehniklerni hazırlav boyunca ilk kurslar teşkilâtlandırıldı.
 Kurslarda oquv üç ay devam etip, ihtisastı mütehassıslar çıqarıla ediler.
 
