@@ -64,7 +64,6 @@ Bu şirkette instruktor olıp halq ustası Esma Mansurskaya çalışa edi.
 Lâkin qısqa bir vaqıttan son (1932) oqutılğanlarnıh sayısı yeterlik olmağam sebebinden şirketnih toquv ustahaneleri qapatılıp, tek nağış işlev ustahaneleri qala.
 1930 senesi Kezlevde P.Çepurinanın yolbaşçılığı altında «Eski örnek» adlı meşhur bediiy-esnafçılıq şirketi teşkil oluna.
 1935 senesi mayıs 25-te Moskvadaki Şarq medeniyetleri muzeyinde «Eski örnek»nin hazırladığı materiallardan qırımtatar basmaları ve işlemelerinin sergisi ötkerile.
-
 Bağçasarayda «İleri» adlı bediiy şirket meydanğa ketirilip, onda istekliler çölmekçilik sanatını menimsey ediler.
 Şirkette çalışqan ustalar şekilce çeşit türlü suvlamalı savutlar yasay.
  Оlarnı qırımtatar nağışlı işlemelerinden köçürip alınğan an'aneviy örneklemen bezete ediler.
@@ -75,29 +74,22 @@ Orneklernin ifade qudretini olarnin qabarıqlığı qayd ete (böylece, orta as�
 XX asırğa ait halq manzaralı-ameliy sanatının inkişafında bir qaç mürekkep basqıçnı qayd etmek zarur.
 Orta asırlarda olğanı kibi, esnafçılıq XIX asımın sonlarında — XX asırnın başlarında da öz qanun-qaideleri esasında çalışqan qaviy bir sistem edi.
 Bir de-bir zenaat sahibi olğan ustalar birleşip, olarğa usta başı reberlik yapa edi.
-Böyle birleşmelerge adiy ustalar, qalafalar, şegirtler de kire ve anda kimnin kimge boysunğanı, kim kimni ögretkeni tam belgilene, işçi bir seviyeden diğer, yüksekçe seviyege keçkende, yahut birleşmenin yolbaşçıları saylanğanda an'aneviy merasimler ötkerile edi.
-Birleşmenin ve onın azalarının faaliyeti mahsus ustavlarselefnameler esasında idare etile edi.
-(80.
-40-nci sahife).
-
-XIX asırnın sonlarına — XX asımın başlarına ait devir qırımtatar manzaralı-ameliy sanatının inkişafındaki sonki nurlarnen qayd oluna, lâkin biraz vaqıt keçip, bu nurlar da soneler.
-Bunıfi sebebi pek çoq.
+Böyle birleşmelerge adiy ustalar, qalafalar, şegirtler de kire. 
+ %Anda kimnin kimge boysunğanı, kim kimni ögretkeni tam belgilene, işçi bir seviyeden diğer, yüksekçe seviyege keçkende, yahut birleşmenin yolbaşçıları saylanğanda ananeviy merasimler ötkerile edi.
+Birleşmenin ve onın azalarının faaliyeti mahsus ustavlar selefnameler esasında idare etile edi.(80.40-nci sahife).
+XIX asırnın sonlarına — XX asımın başlarına ait devir qırımtatar manzaralı-ameliy sanatının inkişafındaki sonki nurlarnen qayd oluna.
+ Lâkin biraz vaqıt keçip, bu nurlar da soneler.
+Bunıñ sebebi pek çoq.
 Obyektiv sebepler sırasında an'aneviy esnaflarnın umumiy inqirazını anmaq mümkün, çünki yigirminci asımın başlarında cemiyet ömürinde yüz bergen içtimaiy-iqtisadiy ve siyasiy denişmeler, halqmn ömürine soqulıp kirgen ğarbiy Avropa medeniyeti esnaflarnın faaliyetini yoqqa çıqarıp başladılar.
-Olarnin yasağan şeylerini sanayi işhanelerinde kütleviy surette yapılğan ve şunın içün de ucuz olğan mallar sıqıp çıqardılar.
-Esnaflarnın hazırladığı mallarmfi körünişi de denişti.
-Evel-ezelden yüksek qıymetlengen an'aneviy örnekler yerine import basmalarnın ya da tabaqlarnın örnekleri qullanılıp başlandı.
+Olarnin yasağan şeylerini sanayi işhanelerinde kütleviy surette yapılğan ve şunın içün de ucuz olğan mallar sıqıp çıqardılar.
+Esnaflarnıñ hazırladığı mallarnıki körünişi de denişti, еvel-ezelden yüksek qıymetlengen ananeviy örnekler yerine import basmalarnın ya da tabaqlarnın örnekleri qullanılıp başlandı.
 Ornamentikağa çevredeki ömürden, sonra sovet hayatından alınğan süjetli levhalar kirsetildi.
 Bu ise, şekilnen manzaralı bezetme arasındaki uyğunlıqnı boza edi.
-
 Böyleliknen yigirminci asırnın başlarına kelip, beyaz silâh istihsali, taş ve ağaç üstünde oyuv kibi esnaflar tamamile coyulalar.
-Oırımtatar esnaflarının eh büyük merkezlerinden biri olğan Bağçasarayda ve diğer şeherlerde «evelden gür inkişaf etken esnaflar çabik sür’at ile sönüp başladılar: baqır savut, fereceler, atlar içün yem torbaları, quyumcılıq eşyaları deyerlik yapılmay, sahtiyandan ayaqqap tiküv istihsali bütünley toqtadı».
-(226.
-89-ncı sahife).
+Qırımtatar esnaflarının eh büyük merkezlerinden biri olğan Bağçasarayda ve diğer şeherlerde «evelden gür inkişaf etken esnaflar çabik sür’at ile sönüp başladılar: baqır savut, fereceler, atlar içün yem torbaları, quyumcılıq eşyaları deyerlik yapılmay, sahtiyandan ayaqqap tiküv istihsali bütünley toqtadı».(226.89-ncı sahife).
 Eh adiy, örneksiz, sırmalarsız çerepler seviyesine tüşken kiramet istihsali da yoq olmaq arfesinde edi.
-«Daha yaqın vaqıtlarda, imperialist cenki başlanmazdan evel Bağçasaraydaki esnafçılıq ve alış-veriş qaynaq çoqraq kibi olıp, yabaniylerni mallarnın dülberligi ve originalliginen şaşırta ediler», — dep yaza P.V.
-Nikolskiy, — Şehernin tar soqçıqlarında sesler tolup-taşa: pencereleri soqaqqa baqıp turğan ustahanelerden taşırdı ve şıqırtı, satıcılarnın çağıruvları, seyyar aşhanelerde çeşit türlü qavaltılar ve milliy yemekler hazırlap satqan adamlarnın yanğıravuq sedaları eşitile — cemi seslerden yekâne birgurülti asıl ola...» (226.
-86-nci sahife).
-
+«Daha yaqın vaqıtlarda, imperialist cenki başlanmazdan evel Bağçasaraydaki esnafçılıq ve alış-veriş qaynaq çoqraq kibi olıp, yabaniylerni mallarnın dülberligi ve originalliginen şaşırta ediler», — dep yaza P.V.Nikolskiy,
+ Şehernin tar soqçıqlarında sesler tolup-taşa: pencereleri soqaqqa baqıp turğan ustahanelerden taşırdı ve şıqırtı, satıcılarnın çağıruvları, seyyar aşhanelerde çeşit türlü qavaltılar ve milliy yemekler hazırlap satqan adamlarnın yanğıravuq sedaları eşitile — cemi seslerden yekâne birgurülti asıl ola...» (226.86-nci sahife).
 Lâkin, hepisi bir, asır başında «medeniyet nimetleri» daha yetip barmağan avlaq rayonlarda tabanacılıq, göncilik, baqır savutçılıq, quyumcılıq, toqumacılıq, şu cümleden kilim toquv, işlemecilik kibi istihsallar daha hareket etmekte ediler.
 
 iç bir hışımğa qatlanmağan, kendi icadiy faaliyetini toqtatmağan az sayılı professional ustalamın gayretleri sayesinde halqnın an'ane tamırları qurumadı.
