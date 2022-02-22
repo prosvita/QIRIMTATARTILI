@@ -122,40 +122,28 @@ Umumen, babası halq sanatına yüksek qıymet kesken, qızınıh oquması içü
 1930 senesi şirket hadimi ola (200, 108-nci sahife), sonra ise «Eski örnek» şirketinde işlemeler boyunca instruktor olıp çalışa.
 A. Efendiyeva istihsalğa 200-den ziyade örnek tadbiq ete, onın bu eserleri çöl taraflı qırımtatarlarnıh örnek sanatını olduqça aydın aks ettireler.
 Efendiyevanm örnek resimleri birinci kere 1935 senesi qırımtatar ve karaim halq sanatı ustalarının Moskvada ötkerilgen sergisinde hem de tasviriy sanat aveskârlarının Birinci Bütünrusiye sergisinde nümayiş etile.
-
-1930-1937 seneleri zarfında Efendiyeva yüzlernen örnek kompozitsiyaları yarattı ki, olardan Oırımmh bütün şirketleri faydalandılar.
-Efendiyevanın resimleri esasında eksport mahsulatları işlep çıqarıldı, onın örneklerinen bezetilgen mallar Avropada ve Amerikada nümayiş etildi.
-Resimnin aydın ve tertipli, umumen kompozitsiyanın özgün olması — Efendiyevanın icadına has olğan çizgilerdir.
-Bunı biz onın dilpuş içün işleme eskizi (1930) misalinde köre bilemiz.
+1930-1937 seneleri zarfında Efendiyeva yüzlernen örnek kompozitsiyaları yarattı ki, olardan Qırımnıñ bütün şirketleri faydalandılar.
+Efendiyevanın resimleri esasında eksport mahsulatları işlep çıqarıldı.
+Onın örneklerinen bezetilgen mallar Avropada ve Amerikada nümayiş etildi.
+Resimnin aydın ve tertipli, umumen kompozitsiyanın özgün olması — Efendiyevanın icadına has olğan çizgilerdir, bunı biz onın dilpuş içün işleme eskizi (1930) misalinde köre bilemiz.
 Resim özünin klassik aydınlığınen, narin şekillernin lakonizmi ve uyğunlığınen ayırılıp tura.
 Eskiz vazağa qoyulğan çeçekni tasvirleyici klassik kompozitsiya tarzında yapılğan.
 Vazanın özü bizge qırımtatar gügüumini, onın içindeki çeçek ise uzun ince saq ucunda ana-mına açılacaq iri, lâkin nazik ğonceni andıra.
+%Ğönceniñ etrafında, suv üstündeki tögerekler kibi, dekorativ elementler - alqalar, ğönce ve kertikli yapraqlarnı eki tarafından sarıp alğan yarımay şekilleri yerleşkenler.
 Resim seyircini şekilnin temizliği ve sadeliginen meftün ete.
 A. Efendiyeva öz kompozitsiyaları haqqında laf açılğanda «Menim örneklerim — menim fikirlerimdir» — dey edi.
-
-A.
-Efendiyeva 1944 senesi sürgünliknin azap-uqubetlerine dayanamay, Samarqand civarlarında vefat etti.
-(88.
-58-nci sahife).
-
+A.Efendiyeva 1944 senesi sürgünliknin azap-uqubetlerine dayanamay, Samarqand civarlarında vefat etti.(88.58-nci sahife).
 Belli qırımtatar dramaturgı ve cemaat erbabı Seid-Abdulla Ozenbaşlı (1867), zamandaşlarınm aytqanlarına köre, işleme sanatını yahşi bilgen eh qart ve mahir ustalardan biri olğan.
-Bundan ğayrı, S-A.
-Ozenbaşlı acayip çalğıcı ve şair olaraq da tanılğan.
+Bundan ğayrı, S-A.Ozenbaşlı acayip çalğıcı ve şair olaraq da tanılğan.
 Teessüf ki, biz bu adamnıh nağışlı işlemeleri haqqında hiç bir şey bilmeymiz.
-S-A.
-Ozenbaşlı 1924 senesi vefat
-
-0
-etti.
+S-A.Ozenbaşlı 1924 senesi vefat etti.
 Mezkûr kitabımızda qırımtatar matbaacılığının atası sıfatında anılğan IIyas mirza Boraganskiy de acaip nağışçı olğan eken.
-
-An'aneviy qırımtatar esnaflarını canlandıruv işine milliy toqumacılıq ve qırımtatarlarmh an'aneviy işlemeleri boyunca belli mütehassıs sayılğan Zuleyha Bekirova büyük hisse qoştı.
-Z. Bekirova 1913 senesi Or qapı uyezdinin Mollalar köyünde doğdı, iptidaiy mektepni bitirgen son Kezlevde yaşağan tizesi Adaviye Efendiyevanın yanına barıp, anda «Eski örnek» şirketine çalışmağa kirdi.
-1930-1932 seneleri devamında Zuleyhağa A.
-Efendiyevadan ğayrı, belli usta K.
-Ya.
-Rıbalskaya da ustazlıq yapıp, an'aneviy işlemenin sırlarını öğrettiler.
-1932 senesi Zuleyha şirketnin yollanmasınen Moskvadaki ressamlıq-sanayı tehnikumına oqumağa kire ve 1936 senesi tehnikumnı bitirgen son 1940 senesine qadar Moskva bediiy sanayi institutında çalıştı.
+Anаneviy qırımtatar esnaflarını canlandıruv işine milliy toqumacılıq ve qırımtatarlarmh an'aneviy işlemeleri boyunca belli mütehassıs sayılğan Zuleyha Bekirova büyük hisse qoştı.
+Z. Bekirova 1913 senesi Or qapı uyezdinin Mollalar köyünde doğdı,
+ Iptidaiy mektepni bitirgen son Kezlevde yaşağan tizesi Adaviye Efendiyevanın yanına barıp, anda «Eski örnek» şirketine çalışmağa kirdi.
+1930-1932 seneleri devamında Zuleyhağa A.Efendiyevadan ğayrı, belli usta K.Ya.Rıbalskaya da ustazlıq yapıp, an'aneviy işlemenin sırlarını öğrettiler.
+1932 senesi Zuleyha şirketnin yollanmasınen Moskvadaki ressamlıq-sanayı tehnikumına oqumağa kire.
+ 1936 senesi tehnikumnı bitirgen son 1940 senesine qadar Moskva bediiy sanayi institutında çalıştı.
 Z. Bekirova Oazahistan, Türkmenistan, Şimaliy Osetiya ve diğer bir sıra cumhuriyetlernin kilim istihsalları içün milliy örneklernih eskizlerini yarattı.
 Onın eskizleri esasında, cümleden, 1939 senesi New-Yorkta ötkerilgen Bütüncihan sergisi içün «Develer» adlı, 1951 senesi ise «Osetiya» adlı havlı kilimler toquldı.
 ittifaq cumhuriyetlerindeki kilim fabrikaları içün eskizler yaratqan Z.
