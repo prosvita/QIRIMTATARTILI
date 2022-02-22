@@ -25,67 +25,51 @@ Muzeyge istanbulda, Beyrutta ve Moskvadaki Lazarev adına şarq tilleri institut
 Bu ulu adam sonundan yaqalanıp (1934) atılgan edi.(184.225-nci sahife).
 Ya.Kemâl an'aneviy qırımtatar esnafları haqqında «Qırım hanlığındaki seleflernin vesiqalı tarihi» kitabını yazğan edi.
 Onın yolbaşçılığında çalışqan muzey yalıboylu qınmtatarlarnın hem de «öz vaqtında qırımtatar sanatına o ya da bu derecede tesir köstergen Şarq halqlarının» esnafçılıq eşyalarını toplav, ögrenüv ve nümayiş etüvnen meşğül edi.(183. 31-nci sahife).
-Oz nevbetinde, Kezlevdeki etnografiya müzeyi karaimlernin ve çöl taraflı qırımtatarlarnın sanatını öğrenip, ona Polina Yakovlevna Çepurina yolbaşçılıq yapa edi.
+Oz nevbetinde, Kezlevdeki etnografiya müzeyi karaimlernin ve çöl taraflı qırımtatarlarnın sanatını öğrenip.
+ Ona Polina Yakovlevna Çepurina yolbaşçılıq yapa edi.
 P.Ya.Çepurinanm faaliyetini ayrıca qayd etmeli.
 O, 1882 senesi Kiyevde doğdı, Peterburgdaki arheologiya institutını bitirdi, lâkin bütün ömürini Oırımnen bağladı.
 P. Çepurina — Oırımnıh ameliy sanatı boyunca çoqtançoq maqalelernih müellifi, tedqiqatçı alim, Oırımda bediiy-esnafçılıq şirketlerinin teşkilâtçısıdır.
 Onın maqaleleri sanatşınaslarnın şimdiki nesili içün de ğayet aktualler.
-Oırımtatar esnafçılığını ögrenüv işine onı ustalarnen bivasta qonuşuv mecbur etti.
-Çepurina «1917 senesi Kefe yanındaki Otuz köyünde yaşağan halq ustası, çeber elli Ayşe Mambetovanen tesadüfen körüşken ve şu qadınmn işini közetken son, turmuş sanatının bu çeşiti nasıl peyda olğanınen meraqlanıp başlay».
-(198.
-103-nci sahife).
+Qırımtatar esnafçılığını ögrenüv işine onı ustalarnen bivasta qonuşuv mecbur etti.
+Çepurina «1917 senesi Kefe yanındaki Otuz köyünde yaşağan halq ustası, çeber elli Ayşe Mambetovanen tesadüfen körüşken ve şu qadınmn işini közetken son, turmuş sanatının bu çeşiti nasıl peyda olğanınen meraqlanıp başlay».(198.103-nci sahife).
 1910 senesinden 1915 senesine qadar olğan devirde Çepurina Oırımnın dağlı reyonlarının bütün şarqiy qısımını ve qısmen yalıboyu qısımını (Kefe, Sudaq mintaqaları) tedqiq etip çıqa.
-Cenübiy-şarqiy Oırımnın avlaq dağ köylerinde (Ay-Serez, Arpat, Oapsıhor) «toquma ve işlemelernin örnek, renk ve tehnika cehetinden şaşılacaq derecede dülber numünelerini» araştırıp tapa.
-(198.
-105-nci sahife).
+Cenübiy-şarqiy Oırımnın avlaq dağ köylerinde (Ay-Serez, Arpat, Oapsıhor) «toquma ve işlemelernin örnek, renk ve tehnika cehetinden şaşılacaq derecede dülber numünelerini» araştırıp tapa.(198.105-nci sahife).
 Bularnın cümlesinde İtalyan gemisi tasvirlengen Sudaq işlemesi (XVII—XVIII asırlarğa ait), hayat teregi tasvirlengen Koktebel işlemesi (XVIII asır) bar edi.
+%Tedqiqatçı karaim nağışlarınıñ ögrenüvine de buyük emiyet berdi.
 Çepurina «tek ilmiy-tedqiqat işlerinen sınırlanmaq olmaz.
 Böyle örnekler materialını istihsalğa tadbiq etmek zarur.
-Eger şay yapılsa, çiniy-mayolika istihsalına da, Şarq örneklerine pek zar olğan toqumacılıq istisalımızğa da taze ğıda berilir».
-(198.
-108-nci sahife) dep qayd ete edi.
+Eger şay yapılsa, çiniy-mayolika istihsalına da, Şarq örneklerine pek zar olğan toqumacılıq istisalımızğa da taze ğıda berilir».(198.108-nci sahife) dep qayd ete edi.
 Çepurina özünin çoq yıllıq tedqiqat işleri neticesinde qırımtatar nağışlı işlemelerinin, tikişler çeşitlerinin bütün türlerini taariflep, olarnın yaratıluvım hem de tarihiy inkişafını kosterdi.
-
-Ûırımtatar sanatının ilk tedqiqatçıları tarafından büyük sevgi ile toplanılğan muzey kollektsiyalarının taqdiri facialı olıp çıqtı.
-Oırımtatarlarnıh öz toprağında yaşağanlarından delâlet berici her hangi maddiy deliller 1944 senesinin sürgünliginden son yoq etildiler.
-Bahçasaraydaki saray-muzeynin, Yaltadaki birleştirilgen tarihiy-edebiy muzeynin, Oırım cumhuriyet ülkeşınaslıq muzeyinih unikal kollektsiyaları tek nasıldır mucize ile saqlanıp qaldılar.
+Qırımtatar sanatının ilk tedqiqatçıları tarafından büyük sevgi ile toplanılğan muzey kollektsiyalarının taqdiri facialı olıp çıqtı.
+Qırımtatarlarnıh öz toprağında yaşağanlarından delâlet berici her hangi maddiy deliller 1944 senesinin sürgünliginden son yoq etildiler.
+Bahçasaraydaki saray-muzeynin, Yaltadaki birleştirilgen tarihiy-edebiy muzeynin, Qırım cumhuriyet ülkeşınaslıq muzeyinih unikal kollektsiyaları tek nasıldır mucize ile saqlanıp qaldılar.
 işlemeler, toqumalar ve urbalardan ibaret olğan bu kollektsiyalar 19931995 seneleri Kiyevde, Aluştada, Yaltada, 1996 senesi Aqmescitte ve 2000 senesi Moskvada nümayiş etildiler.
 Buna sonki 4-5 yıl içinde Cumhuriyet qırımtatar sanatı müzeyi hadimleri tarafından toplanılğan keniş kollektsiyanı da qoşmaq mümkün.
-Çeteldeki muzeylerden Rusiye etnografiya müzeyi (Sankt-Peterburg), Şarq halqlarının Rusiye müzeyi (Moskva), Rusiye tarihi devlet müzeyi (Moskva), Kremi tarihiy-mimarcılıq zapovedniginin Silâhlar
-
-palatası (Moskva), Berlin etnografiya müzeyi (Almaniya), GOHRANnın qıymetli taş ve madenler müzeyi (Taşkent, Özbekistan), Topqapu saray-muzeyi (İstanbul, Türkiye), Etnografiya müzeyi (Ankara, Türkiye), Halq sanatı
-
-müzeyi (Köstence, Romaniya) hem de Venanın (Avstriya), Tula şeherinin (Rusiye), Samarqand ve Buhara şeherlerinih (Özbekistan) muzeyleri bugünde-bugün qırımtatar manzaralı-ameliy sanatına ait eşyalarnın ğayet zengin kollektsiyalarına malikler.
-
-XX asımın başlarında Oırımda zuur etken içtimaiy-siyasiy vaziyet, 1921-1922 senelerinin deşetli açlığı neticesinde an'aneviy esnaflar ciddiy inqirazğa oğradılar.
-(32.
-23-nci sahife).
+Çeteldeki muzeylerden Rusiye etnografiya müzeyi (Sankt-Peterburg), Şarq halqlarının Rusiye müzeyi (Moskva), Rusiye tarihi devlet müzeyi (Moskva), Kremi tarihiy-mimarcılıq zapovedniginin Silâhlar palatası (Moskva), Berlin etnografiya müzeyi (Almaniya), GOHRANnın qıymetli taş ve madenler müzeyi (Taşkent, Özbekistan), Topqapu saray-muzeyi (İstanbul, Türkiye), Etnografiya müzeyi (Ankara, Türkiye), Halq sanatımüzeyi (Köstence, Romaniya) hem de Venanın (Avstriya), Tula şeherinin (Rusiye), Samarqand ve Buhara şeherlerinih (Özbekistan) muzeyleri bugünde-bugün qırımtatar manzaralı-ameliy sanatına ait eşyalarnın ğayet zengin kollektsiyalarına malikler.
+XX asımın başlarında Qırımda zuur etken içtimaiy-siyasiy vaziyet, 1921-1922 senelerinin deşetli açlığı neticesinde an'aneviy esnaflar ciddiy inqirazğa oğradılar.(32.23-nci sahife).
 Esnaflarnıh sayısı keskin eksildi.
 Halq hocalığını tiklevge doğrultılğan umumiy siyaset çerçivesinde an'aneviy esnafçılıqnı canlandıruv da aktual vazifege çevirildi.
 Böyleliknen, ehali arasında, şu cümleden, ustalar arasında aydınlatuv işleri başlandı.
-
-Oırımda milliy esnafçılıqnıh merkezi olaraq Bağçasaray tanılğan edi.
-
+Qırımda milliy esnafçılıqnıh merkezi olaraq Bağçasaray tanılğan edi.
 1920-nci senelerde mında Şarq halqlarımn esnafçılıq-sanayı tehnikumı açıldı ve anda tek qırımtatarlar değil, qazantatarlar, azerbaycanlar, özbekler, Astrahan tatarları, Kavkaz dağlıları (cümleden, Dağıstandaki meşhur Kubaçi köyünden) ve diğerleri (cemi 22 millet vekili) oquy ediler.
 Tehnikumnın kilim toquv, nağışlav, himiya-boyalav ve dülgerlik boyunca dört oquv ustahanesi olıp, mında talebeler 5 yıl devamında zenaat ögrene ediler.
 Tehnikumda 140-qa yaqın talebe tahsil ala, 20-ge yaqın oca ve instruktor çalışa edi.
 Mezkûr oquv yurtunın meydanğa ketirilmesinden közde tutulğan maqsad «evelki esnaflar yerine yanı ihtisaslı esnaflarnı ve Şarq bediiy sanatının hadimlerini azırlamaq»tan (1929 senesinin qılavuzından, Aqmescit, Oırım devlet neşriyatı, 92-nci sahife), esnafçılıq istihsalim ratsionallaştırmaq ve mehanizmleştirmekten ibaret edi.
 1929-30 senelerinin oquv yılı başlanacaqta Bağçasarayda guya oquv odaları yetişmegeni manaçığınen tehnikum Kefe şeherine avuştırılğan ve ahır-sonu qapatılğan edi.
-
-30-ncı senelerde Oırımda (Kezlev, Bağçasaray, Oarasuvbazar ve diğer şeherler) an'aneviy mahsulat (esasen işleme ve toqumalar) işlep çıqarğan bediiy-esnafçılıq şirketleri çalışıp başladılar.
+30-ncı senelerde Qırımda (Kezlev, Bağçasaray, Qarasuvbazar ve diğer şeherler) an'aneviy mahsulat (esasen işleme ve toqumalar) işlep çıqarğan bediiy-esnafçılıq şirketleri çalışıp başladılar.
 Bütün bu şirketler mahsulatnı esasen eksportqa yollay ediler.
 1930 senesi Bağçasarayda qırımtatar halq işlemelerini yapqan ilk kooperativ şirket meydanğa ketirile ve oha «İlk adım» adı berile.
 Bu şirkette instruktor olıp halq ustası Esma Mansurskaya çalışa edi.
 Lâkin qısqa bir vaqıttan son (1932) oqutılğanlarnıh sayısı yeterlik olmağam sebebinden şirketnih toquv ustahaneleri qapatılıp, tek nağış işlev ustahaneleri qala.
-1930 senesi Kezlevde P.
-Çepurinanın yolbaşçılığı altında «Eski örnek» adlı meşhur bediiy-esnafçılıq şirketi teşkil oluna.
+1930 senesi Kezlevde P.Çepurinanın yolbaşçılığı altında «Eski örnek» adlı meşhur bediiy-esnafçılıq şirketi teşkil oluna.
 1935 senesi mayıs 25-te Moskvadaki Şarq medeniyetleri muzeyinde «Eski örnek»nin hazırladığı materiallardan qırımtatar basmaları ve işlemelerinin sergisi ötkerile.
 
 Bağçasarayda «İleri» adlı bediiy şirket meydanğa ketirilip, onda istekliler çölmekçilik sanatını menimsey ediler.
-Şirkette çalışqan ustalar şekilce
-
-çeşit türlü suvlamalı savutlar yasay, olarnı qırımtatar nağışlı işlemelerinden köçürip alınğan an'aneviy örneklemen bezete ediler.
-Orneklernin ifade qudretini olarnin qabarıqlığı qayd ete (böylece, orta asırlardaki qırımtatar mimarcılığına has olğan qabarıq bezetmeler yapuv usulından faydalanıldı), koloritinde yeşil, sarı, qaverenki tüsler üstün tura edi.
+Şirkette çalışqan ustalar şekilce çeşit türlü suvlamalı savutlar yasay.
+ Оlarnı qırımtatar nağışlı işlemelerinden köçürip alınğan an'aneviy örneklemen bezete ediler.
+Orneklernin ifade qudretini olarnin qabarıqlığı qayd ete (böylece, orta asırlardaki qırımtatar mimarcılığına has olğan qabarıq bezetmeler yapuv usulından faydalanıldı).
+ Koloritinde yeşil, sarı, qaverenki tüsler üstün tura edi.
 «ileri» şirketinde yasalğan gügüm ve bardaqlar bu künge qadar saqlanıp qaldılar ve olarnin bazıları şimdi Sankt-Peterburg, Aqmescit, Yalta muzeylerinde, cümleden Cumhuriyet qırımtatar sanatı muzeyinde nümayiş etileler.
 
 XX asırğa ait halq manzaralı-ameliy sanatının inkişafında bir qaç mürekkep basqıçnı qayd etmek zarur.
