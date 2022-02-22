@@ -1,6 +1,6 @@
 ## OIRIMTATAR HALOININ MANZARALI-AMELİY SANATI
 
-### 3.1. İnkişafmn esas basqıçları, ilk ustalar
+### 3.1. İnkişafnıñ esas basqıçları, ilk ustalar
 
 XX asırnın başlarına kelip, qırımtatarlarnın manzaralı-ameliy sanatı inqirazğa oğrasa da, umumen alğanda özünin yüksek prossional seviyesini ve asriy an anelerini saqlap qalğan edi.
 İşte, XIX asımın sonlarında qırımtatar ustalarının yasamaları diqqatlı tedqiqat obyektine çevirilip, antiqa sevdalarının, kollektsioner ve qırımşınas alimlernin merağını celp etip başlağanı tesadüf değildir.
@@ -91,33 +91,27 @@ Eh adiy, örneksiz, sırmalarsız çerepler seviyesine tüşken kiramet istihsal
 «Daha yaqın vaqıtlarda, imperialist cenki başlanmazdan evel Bağçasaraydaki esnafçılıq ve alış-veriş qaynaq çoqraq kibi olıp, yabaniylerni mallarnın dülberligi ve originalliginen şaşırta ediler», — dep yaza P.V.Nikolskiy,
  Şehernin tar soqçıqlarında sesler tolup-taşa: pencereleri soqaqqa baqıp turğan ustahanelerden taşırdı ve şıqırtı, satıcılarnın çağıruvları, seyyar aşhanelerde çeşit türlü qavaltılar ve milliy yemekler hazırlap satqan adamlarnın yanğıravuq sedaları eşitile — cemi seslerden yekâne birgurülti asıl ola...» (226.86-nci sahife).
 Lâkin, hepisi bir, asır başında «medeniyet nimetleri» daha yetip barmağan avlaq rayonlarda tabanacılıq, göncilik, baqır savutçılıq, quyumcılıq, toqumacılıq, şu cümleden kilim toquv, işlemecilik kibi istihsallar daha hareket etmekte ediler.
-
 iç bir hışımğa qatlanmağan, kendi icadiy faaliyetini toqtatmağan az sayılı professional ustalamın gayretleri sayesinde halqnın an'ane tamırları qurumadı.
-Böyle fedaiy ustalar cümlesinde tüfekçi usta, quyumcı, meşhur qırımtatar nağışçısı, Oırımnın ameliy sanatında tekrarlanmaz sıma sayılğan Amet ûalafatovm (1860-1942) anmalı.
+Böyle fedaiy ustalar cümlesinde tüfekçi usta, quyumcı, meşhur qırımtatar nağışçısı, Qırımnın ameliy sanatında tekrarlanmaz sıma sayılğan Amet ûalafatovm (1860-1942) anmalı.
 Bu usta divar süslemeleri, toqumalar, işlemeler, qaqmalar, kitap ve mecmualar içün yüksek bediiy seviyede pek çoq original örnekler yarattı.
-
-A.
-Oalafatov ta balalıq çağında örnekler sızıp, olarnı nağışçı qadınlarğa bağışlay turğan.
-Emek faaliyetini çilengirlikten başlağan Amet sonundan qaqmacı, tüfekçi zenaatlarını da menimsep, av tüfekleri, pıştavlar, pıçaqlar yasadı.
+A.Qalafatov ta balalıq çağında örnekler sızıp, olarnı nağışçı qadınlarğa bağışlay turğan.
+Emek faaliyetini çilengirlikten başladi.
+Amet sonundan qaqmacı, tüfekçi zenaatlarını da menimsep, av tüfekleri, pıştavlar, pıçaqlar yasadı.
 Qaqma örneklemen bezetilgen bu şeyler bediiylik cehetinden kâmil olıp, pek çoq sorala ediler.
-
-Eh taaciplisi şunda ki, A.
-Oalafatov 70 yaşını atlap, artıq işlerden vazgeçken son, onın örnekçi ressam istidatı özüni bir daha kosterdi.
-Künlernin birinde Amet usta evelleri maden üstünde ştihelnen oyup, ekşiliknen ayarladığı ve tap sonunda qalıplap çıqardığı örneklerni qarandaşnen kâğıt üstünde yapıp baqa.
-(201.
-13-nci sahife).
-Böyleliknen, qart usta kene örnek sanatına müracaat ete, eki yıl içinde qalem, çin merekebi, adiy ve renkli qarandaşlarnen üç yüzge yaqın örnekli kompozitsiyalar yarata.
-Onın Avropa sanatından alıp, kendi icadında qullandığı usullar sırasına rakurstan faydalanuv, çeçek şekilinin dörtte üç qısımını tasvirlev (an'aneviy musülman sanatında çeçeknin ya üst körünişi ya da onın uzunlama kesme körünişi tasvirlene turğan) usulını qoşmaq mümkün, ûalafatovmn örnekleri qırımtatar sanatına has olğan eski örnekler esasında, Anadolu, acem sanatlarının elementlerinden faydalanılğanı halda yaratılğandır.
-
-Amet Oalafatov 1925 senesi Parijde olıp keçken halq manzaralı-ameliy sanatı boyunca Bütüncihan sergisinde, 1939 senesi Moskvada olıp keçken Bütünittifaq sergisinde ve 1937-1938 seneleri devamında Oırımda olıp keçken bir sıra sergilerde iştirak etti.
+Eñ taaciplisi şunda ki, A.Qalafatov 70 yaşını atlap, artıq işlerden vazgeçken son, onın örnekçi ressam istidatı özüni bir daha kosterdi.
+Künlernin birinde Amet usta evelleri maden üstünde ştihelnen oyup, ekşiliknen ayarladığı ve tap sonunda qalıplap çıqardığı örneklerni qarandaşnen kâğıt üstünde yapıp baqa.(201.13-nci sahife).
+Böyleliknen, qart usta kene örnek sanatına müracaat ete.
+ Еki yıl içinde qalem, çin merekebi, adiy ve renkli qarandaşlarnen üç yüzge yaqın örnekli kompozitsiyalar yarata.
+Onın Avropa sanatından alıp, kendi icadında qullandığı usullar sırasına rakurstan faydalanuv, çeçek şekilinin dörtte üç qısımını tasvirlev (an'aneviy musülman sanatında çeçeknin ya üst körünişi ya da onın uzunlama kesme körünişi tasvirlene turğan) usulını qoşmaq mümkün.
+ Qalafatovmn örnekleri qırımtatar sanatına has olğan eski örnekler esasında, Anadolu, acem sanatlarının elementlerinden faydalanılğanı halda yaratılğandır.
+Amet Qalafatov 1925 senesi Parijde olıp keçken halq manzaralı-ameliy sanatı boyunca Bütüncihan sergisinde, 1939 senesi Moskvada olıp keçken Bütünittifaq sergisinde ve 1937-1938 seneleri devamında Qırımda olıp keçken bir sıra sergilerde iştirak etti.
 1930-ncı senelernin sonlarında onın icadı hususan mahsuldar oldı.
 A. Oalafatovmn qolu astından çıqqan örneklerden Oırımnın aveskâr ressamları, şirketlernin ustaları, toqumacılar ve evde çalışqan işlemeciler keniş faydalandılar.
 1940 senesi 80 yaşına kirgen Amet Oalafatov Oırım ASSR Ressamlar birliğine aza olaraq qabul olundı ve oha «Oırımnın halq örnekçisi» unvanı berildi.
-Onın elinen yapılğan örnek kompozitsiyaları hal-azırda Rusiye Etnografiya muzeyinde (sabıq SSSR Haclarının etnografiya müzeyi), Aqmescitteki Cumhuriyet ülkeşınaslıq muzeyinde, Yaltadaki devlet Birleştirilgen tarihiy-edebiy muzeyde (88.
-29-nci sahife), Aqmescitteki Cumhuriyet qırımtatar sanatı muzeyinde, Parij, London, Pekin, Moskva, Peterburgdaki büyük muzeylerde saqlı turalar.
-
+Onın elinen yapılğan örnek kompozitsiyaları hal-azırda Rusiye Etnografiya muzeyinde (sabıq SSSR Haclarının etnografiya müzeyi), Aqmescitteki Cumhuriyet ülkeşınaslıq muzeyinde, Yaltadaki devlet Birleştirilgen tarihiy-edebiy muzeyde (88.29-nci sahife), Aqmescitteki Cumhuriyet qırımtatar sanatı muzeyinde, Parij, London, Pekin, Moskva, Peterburgdaki büyük muzeylerde saqlı turalar.
 Adaviye Efendiyeva (1879-1944) qırımtatar örneklerini pek yahşi bilgen usta işlemeci edi.
-O, Kezlev şeherinde doğdı, örnekler yaratuv sırlarını istidatlı ve çeber elli nağışçı sayılğan qartanasından öğrendi.
+O, Kezlev şeherinde doğdı.
+ örnekler yaratuv sırlarını istidatlı ve çeber elli nağışçı sayılğan qartanasından öğrendi.
 Söz kelimi, Adaviyelernih evindeki bütün işlemelerni qartanası yapqan eken.
 Adaviye dört yaşında qızçıq ekende qartanasının yanına oturıp, toqumacılıq ve işleme sırlarını yavaş-yavaş öğrenip başlay.
 12 yaşında ekende ilk kere tezya başına keçip otura.
