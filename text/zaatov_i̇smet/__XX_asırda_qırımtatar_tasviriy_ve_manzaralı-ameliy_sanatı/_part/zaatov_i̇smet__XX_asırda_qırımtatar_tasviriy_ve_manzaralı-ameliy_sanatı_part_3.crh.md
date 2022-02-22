@@ -203,47 +203,34 @@ Maden aqlı surette manzaralı-ameliy sanatnın klassik materialı hesaplana.
 Savut-saba, merasim eşyaları yahut kündelik turmuş eşyaları, silâh, quyumcılıq yasamaları yapılğanda madennih yerini başqa hiç bir şey bastırıp olamay.
 
 Esnaflar inkişaf etip başlanğan devirlerden itibaren qırımtatarlarnıh madenni bediiy işlev sanatı da kendi an'anelerine, kendi muvafaqiyetlerine malik oldı.
-Oırımtatar ustalarının qolu astından çıqqan maden eşyalar öz şekillerinin çeşitliliği ve originalliginen, mahsulatnın yüksek keyfiyetti olmasınen ayırılıp tura ve bunıfi sayesinde eksport malı sıfatında hem şarq, hem ğarp memleketlerine yollanıla ediler.
+Qırımtatar ustalarının qolu astından çıqqan maden eşyalar öz şekillerinin çeşitliliği ve originalliginen, mahsulatnın yüksek keyfiyetti olmasınen ayırılıp tura ve bunıfi sayesinde eksport malı sıfatında hem şarq, hem ğarp memleketlerine yollanıla ediler.
 Şeherlernin hep ösmesi, madenden faydalanğan sahalarnm hep kenişlemesi ise kütleviy esnaf istihsalinin inkişafına şiltem berdiler.
-Aynı vaqıtta Oırımda mevcut olğan demir külçe yataqları hem de diğer ülkelerden ğayet büyük miqdarda ketirilgen baqır külçe ve diğer renkli madenler de bediiy maden esnaflarının ayaqqa turmasına sebepçi oldı.
+Aynı vaqıtta Qırımda mevcut olğan demir külçe yataqları hem de diğer ülkelerden ğayet büyük miqdarda ketirilgen baqır külçe ve diğer renkli madenler de bediiy maden esnaflarının ayaqqa turmasına sebepçi oldı.
 
-Qapı rezelerine, örnekli dögme ve qaplamalı baqır bezeklerge, sarı baqırdan yasalğan olıp, ince oyma örnekli tögerek kilitlerge, Bağçasaray, Kezlev ya da Oarasuvbazamıh eski evlerinde şimdi de rastkelingen demir çilterlerge baqıp, madenni bediiy işlev sanatı Oırımda ne qadar ken tarqalğanım bilmek mümkün.
-Ya, demirden, çöyün yahut baqırdan yasalğan avizelerni, lampad ve fenerlerni, meselâ, Hansaray camisindeki «Mihari Süleyman» fenerini ya da Kezlevniri Şukurla efendi camisindeki fenerni nasıl anmazsın?» (47.
-226-ncı sahife)
-
-XVII asırnın ortalarında Oırımnı ziyaret etken türk seyahatçısı Evliya Çelebi Aqmescit yanındaki Çöyünçi koyu (şimdi Simferopol rayonının Urojaynoye koyu) haqqında hikâye eter eken, «Balh, Buhara, Samarqand, Luristan ve Multanda bile tanılğan tökme demir qazanlarnı, işte, şu köyde yasaylar...
-Böyle qazanlar yapmaq içün kerek olğan külçe Oırımnın Çatırdağında qazılıp alına» dep yazğan edi.
-
-Oarasuvbazar, Bağçasaray şeherleri Oırımda böyle soy esnafçılıqnın en büyük merkezleri olğan ediler.
+Qapı rezelerine, örnekli dögme ve qaplamalı baqır bezeklerge, sarı baqırdan yasalğan olıp, ince oyma örnekli tögerek kilitlerge, Bağçasaray, Kezlev ya da Qarasuvbazamıh eski evlerinde şimdi de rastkelingen demir çilterlerge baqıp, madenni bediiy işlev sanatı Qırımda ne qadar ken tarqalğanım bilmek mümkün.
+Ya, demirden, çöyün yahut baqırdan yasalğan avizelerni, lampad ve fenerlerni, meselâ, Hansaray camisindeki «Mihari Süleyman» fenerini ya da Kezlevniri Şukurla efendi camisindeki fenerni nasıl anmazsın?» (47.226-ncı sahife)
+XVII asırnın ortalarında Oırımnı ziyaret etken türk seyahatçısı Evliya Çelebi Aqmescit yanındaki Çöyünçi koyu (şimdi Simferopol rayonının Urojaynoye koyu) haqqında hikâye eter eken, «Balh, Buhara, Samarqand, Luristan ve Multanda bile tanılğan tökme demir qazanlarnı, işte, şu köyde yasaylar; böyle qazanlar yapmaq içün kerek olğan külçe Qırımnın Çatırdağında qazılıp alına» dep yazğan edi.
+Qarasuvbazar, Bağçasaray şeherleri Qırımda böyle soy esnafçılıqnın en büyük merkezleri olğan ediler.
 XIX asırda şu eki şeherni ziyaret etken rus seyahatçısı Kondarakinin qayd etkeni kibi, qılıç, tüfek, pıçaq ve baqır savut yaşağan ustalar esnaflar arasında en zengin ve en bahtlı insan sayıla ediler.
 
 Esnaf birleşmeleri tar ihtisaslı ediler.
 Meselâ, ayrıca tüfekçiler, ayrıca çilengirler, ayrıca baqırcı ve qalaycılar çalışa ediler.
-
 Başlanğıç materialnın tabiiy hususiyetlerini yahşi bilgen qırımtatar ustaları onı qayta işlevnih en kelişikli usullarından faydalana ve bu materialnın funktsional hem de estetik imkânlarını olduqça tolu açıp kostere ediler.
 Ustalar nağışlav vastalarından aqılane faydalanğanları, madennin türlütürlücesine işlengen yüzüni adden tış bir tarzda muqayese etkenleri sayesinde şekil ve siluetnin ifade qudreti daha ziyade quvetlene edi.
-
-Oırımtatarlarnıh madenden yasalğan eşyaları şekil ve tayin cehetinden çeşit türlüler.
-Misal olaraq leğenler, tekneler.
-tabaqlar, tepsiler, çanaqlar, filcanlar, qadeler, meşrebeler, tavalar, sılapçınlar, mangallar, saanler, siniler ve sairelerni ketirmek mümkün.
+Qırımtatarlarnıh madenden yasalğan eşyaları şekil ve tayin cehetinden çeşit türlüler, misal olaraq leğenler, tekneler, tabaqlar, tepsiler, çanaqlar, filcanlar, qadeler, meşrebeler, tavalar, sılapçınlar, mangallar, saanler, siniler ve sairelerni ketirmek mümkün.
 
 Güğümler — keniş tarqalğan eşya çeşiti ediler.
-Olarnı hususan Oırımmh dağlı rayonlarında yaşağan ehali çoq qullana edi.
+Olarnı hususan Qırımmh dağlı rayonlarında yaşağan ehali çoq qullana edi.
 Gügümlernin ken, yerge qoymaq içün qararlaştırılğan tübü ve onaytlı qulubı ola turğan.
 Güğüm şekilce konusnı andıra ve onın mıtlaqa yüksek qapağı ola.
-Ustalar öz güğümlerini quş, balıqlarnıh (postvizantiya tesiri), selbi ve çeçeklerniri kompozitsion tasvirleri çekilgen qaqmalı örneklemen bezete ediler.
 Umumen alğanda, hususiy ve muzey kollektsiyalarında gügümlernin pek çoq çeşitleri sağlamla.
-
-Cumhuriyet qırımtatar sanatı muzeyinde ibadet savutları — qumanlar mevcut.
-Olar esasen baqırdan ya da baqırnın tsink ile qarışması olmuş cezden yasalğanlar.
+Ustalar öz güğümlerini quş, balıqlarnıh (postvizantiya tesiri), selbi ve çeçeklerniri kompozitsion tasvirleri çekilgen qaqmalı örneklemen bezete ediler.
+Cumhuriyet qırımtatar sanatı muzeyinde ibadet savutları — qumanlar mevcutб оlar esasen baqırdan ya da baqırnın tsink ile qarışması olmuş cezden yasalğanlar.
 Altın-sarı tüslü cez, temiz baqırnıh hususiyetlerini saqlap qalaraq, daha qaviyce ola.
 işte, qave pişirmek içün qararlaştırğan savut-saba — qave değirmenler, cezveler, yıbrıqlar da cezden yasala turğan.
-
 Yıbrıq şekilce türk stakanını (armut şekilinde) tekrarlay.
 Böyle şekilli savutqa qoyulğan sıcaq qave tez suvumay, özünin lezetini coymay.
-
-Sinilemin şekili ve nağışları da çeşit türlüdir.
-Olar hem oval, hem dörtköşe şekilinde, qıyıq köşeli, tüz kenarlı ya da yarıdaireli ola bileler.
+Sinilemin şekili ve nağışları da çeşit türlüdir: olar hem oval, hem dörtköşe şekilinde, qıyıq köşeli, tüz kenarlı ya da yarıdaireli ola bileler.
 
 «Meryem ana qazanı»nıh kelip çıqması yalıboylu ve dağlı qırımtatarlarnın hristian keçmişinen bağlıdır.
 Bu savuttan loqsalarğa aş ve suv ketirmek içün faydalanılğan.
@@ -252,12 +239,10 @@ Oırımtatar tarihi ve medeniyetinin belli tedqiqatçısı Refat Ourtiyev böyle
 Baqır — qırımtatarlarnın sevip qullandığı material edi.
 Baqırdan savutsaba, şamdan ve qandiller, hammam taqımları yasala turğan.
 Baqır sıcaqnı yahşi keçirgeni içün ondan çeşit türlü qazanlar da yapılıp, bu qazanlarnıfi içi, kimerde ise tışı da mıtlaqa qalaylana edi.
-
-Oırımtatarlarnın kündelik ömürinde veya merasimlerinde işletilgen baqır yahut, cez eşyalar ohaytlı ve saf olmaqnen birge, ucuz da ola ediler.
+Qırımtatarlarnın kündelik ömürinde veya merasimlerinde işletilgen baqır yahut, cez eşyalar ohaytlı ve saf olmaqnen birge, ucuz da ola ediler.
 Şu sebepten böyle savutnı ehalinin aşağı ve orta qatlamları da satın ala bile ediler.
 Tatar zadekânları ise kümüş eşyalardan faydalana turğanlar.
 Lâkin nasıl olmasın, qırımtatarlarnıh madenden yasalğan savutları özlerinin funktsionalligi ve dülber tışqı körünişinen ayırılıp tura ediler.
-
 Qaqmalar, oymalı resimler ve ince çilterli oyma örnekler — qırımtatar bezetmelerinin an'aneviy çeşitleridir.
 Örnekler ile zengin bezetilgen eşyalar inter'yerni yaraştırmaqnen bir sırada eşya sahibinin eyiallılığım da kösterip tura edi.
 
