@@ -444,26 +444,26 @@ A. Galimov qırımtatar ressamlarınıfi sergilerinde muntazam iştirak ete.
  özünin örnekli baqır savutlarını (cezve, çığırıq ve saireler), savatlamalı quyumcılıq eşyalarından quşaq toğaları, bilezlikler, yüzük ve sırğalarını nümayiş ete.
 Galimov bütünlikli şekillerni ve kolemlerni seve.
 Usta yipiş tehnikasından da ziyade qaqmacılıqnen oğraşa.
+%Esyalarnin tegiz ustunde basma ornekler pek yahsi koruneler.
 Ananeviy eşyalamın şekillerinden faydalanıp, olarnin esasında yanı örnek kompozitsiyaları yarata, kimerde bir sadef, smâlta, camnen çalışa.
 Ustanın eserleri klassik qaqmacılıq numüneleri kibi mükemmel değiller, olar usta eski şekillerni ve tehnologiyalarnı menimsev basqıçında bulunhayatqanından delâlet bereler.
-Lâkin nasıl olmasın, bu ustanın icadı Oırımda an'aneviy qaqmacılıqnı ğayrıdan tiklemek ve inkişaf ettirmek içün istiqballer aça.
+Lâkin nasıl olmasın, bu ustanın icadı Qırımda ananeviy qaqmacılıqnı ğayrıdan tiklemek ve inkişaf ettirmek içün istiqballer aça.
 
 Zemaneviy ustalardan en büyük quyumcı olaraq tanılğan İzzet Ablayev «İzzet usta» değen şerefli ad taşıy.
-O, 1940 senesi Bağça-Eli köyünde doğdı, 4 yaşlı bala ekende Rusiyenin Perm oblastına sürgün etildi, 1962 senesi Taşkentke avuştı.
-
-İ. Ablayev Taşkentteki Toqumacılar medeniyet sarayı yanındaki tasviriy sanat tögeregini bitirdi, 1971 senesi Taşkent şeherindeki ameliy sanat boyunca tecribe-icadiyat kombinatına işke kirdi.
+O, 1940 senesi Bağça-Eli köyünde doğdı.
+ 4 yaşlı bala ekende Rusiyenin Perm oblastına sürgün etildi.
+1962 senesi Taşkentke avuştı.
+İ. Ablayev Taşkentteki Toqumacılar medeniyet sarayı yanındaki tasviriy sanat tögeregini bitirdi.
+1971 senesi Taşkent şeherindeki ameliy sanat boyunca tecribe-icadiyat kombinatına işke kirdi.
 Quyumcılıq sanatınen 1972 senesi oğraşıp başladı, lâkin o yıllarda onın icadında yetekçi yemi kiramet sanatı tuta edi.
-
 1990 senelernin başlarında Ablayev Oırımğa köçüp keldi.
 Köçüv onın tek tercimeiyhalında değil, icadında da yanı bir basqıç oldı.
 İ. Ablayev qarasuvbazarlı ustalar sülâlesindendir.
 Onın qartbabası da, babası da belli quyumcılar olğanlar.
-Nesillerniri devamiyligini saqlap qalmağa tırışqan i.
-Ablayev bütün küç-quvetini qırımtatar quyumcılıq sanatının yariıdan tiklenmesine sarf ete.
+Nesillerniri devamiyligini saqlap qalmağa tırışqan i.Ablayev bütün küç-quvetini qırımtatar quyumcılıq sanatının yariıdan tiklenmesine sarf ete.
 Böylece, o qırımtatar quyumcı ustalarının an'aneviy ve sevimli usulına — yipiş usulına müracaat ete.
 Belli ki, icatçıdan pek çoq küç ve ğayret talap etken yipiş tehnikası tek büyük ustağa boysuna.
-işte, İ.
-Ablayevniri eserlerini bediiy ve tehnikiy kâmillik numüneleri, demek mümkün.
+işte, İ.Ablayevniri eserlerini bediiy ve tehnikiy kâmillik numüneleri, demek mümkün.
 Usta özünin kümüş ve savatlama kümüş bilezliklerinden, küpe ve gerdanlıqlarından, quşaq toğalarından zarif garniturlar yarata.
 Olarnin nazmiy adları tek funktsional vazifeni beyan etip qalmadan, mucessemleştirdigi fikirni ve muellifniri ilhamını da ifade eteler («ince bel», «Bağça-Eli», «Zera», «Leylâ»),
 
