@@ -201,7 +201,6 @@ Olarnin da ekseryieti Qırımdan tışta toplanıldı.
 
 Maden aqlı surette manzaralı-ameliy sanatnın klassik materialı hesaplana.
 Savut-saba, merasim eşyaları yahut kündelik turmuş eşyaları, silâh, quyumcılıq yasamaları yapılğanda madennih yerini başqa hiç bir şey bastırıp olamay.
-
 Esnaflar inkişaf etip başlanğan devirlerden itibaren qırımtatarlarnıh madenni bediiy işlev sanatı da kendi an'anelerine, kendi muvafaqiyetlerine malik oldı.
 Qırımtatar ustalarının qolu astından çıqqan maden eşyalar öz şekillerinin çeşitliliği ve originalliginen, mahsulatnın yüksek keyfiyetti olmasınen ayırılıp tura ve bunıfi sayesinde eksport malı sıfatında hem şarq, hem ğarp memleketlerine yollanıla ediler.
 Şeherlernin hep ösmesi, madenden faydalanğan sahalarnm hep kenişlemesi ise kütleviy esnaf istihsalinin inkişafına şiltem berdiler.
@@ -257,7 +256,6 @@ Madenni bediiy işlevde oymalı resim çeküv tehnikası da keniş tarqalğan ed
 Bu usulnen yapılğan aydın, ince örnekler yaqın baqışta hususan güzel körüneler, şu sebepten oymalı resimlemen ekseriyette savut-saba ve quyumcılıq eşyaları bezetilgen.
 Savut-sabadan bilhassa siniler zengin nağışlanğan.
 Kilim ve minderler üstünde oturmağa alışqan qırımtatarlar sinilerni açılıp qapalğan kürsüçikler üstüne qoyup, olarnı masa sıfatında da qullana ediler.
-
 Savatlama tehnikası kümüş eşyalarnın tüm-tüz ve oyma örnekli yüzlerini zarafet ile qayd ete.
 Tonuq balqıldağan savatlama eşyağa ayrıca zariflik ve tekmillik bağışlay.
 Cumhuriyet qırımtatar sanatı muzeyinde savatlav usulınen süslendirilgen bir qaç eksponat saqlanıla.
@@ -269,13 +267,11 @@ Kertme usulı XVII—XVIII asırlarda eşyalarnı bezetüvnin en sevilgen usulı
 Kertme sanatı o qadar ken yayılğan edi ki, altın yahut kümüş yipişlernen hatta kündelik turmuş eşyaları (meselâ, ayaqqap kiymek içün qaşıq) bile süslendirile ediler.
 Bağçasaraydaki tarihiy-medeniy muzey-zapovedniknih fondlarında ağır şamdanlar saqlı tura.
 Lâkin ösümlik örneklerinen kertme usulında bezetilgen bu şamdanlarnın ağırlığı duyulmay, aksine olar yengil, nazik olıp körüneler.
-
 Rusiye, Poloniya, Türkiye, Frantsiya kibi memleketlerge, Kavkazğa alıp ketilgen silâhlar — pıçaq, qılıç, tüfekler qırımtatar ustaları tarafından hususan zengin bezetilip, bu iş de esasen kertme usulında yapıla edi.
 Silâh sanatı çeçeklenmesinen renkli madenlerni süslev kölemi de kenişledi, bu ise öz nevbetinde silâhmn bediiy değerliğini arttıra edi.
 Ustalar süslemeni kunesuv vastasınen ya da madenni yaldızlı altınnen qaplav usulınen yapa ediler.
 Esnaflar mezkûr usulnı öyle mahirlik ile qullana ediler ki, olarnin yaptığı şeylerni asıl altın ya da kümüş şeylerden ayırmaq pek zor edi.
-
-Oırımtatarlarmh silâh sanatı halqnın tarihi ve medeniyetinde parlaq bir sahifeni teşkil ete.
+Qırımtatarlarmh silâh sanatı halqnın tarihi ve medeniyetinde parlaq bir sahifeni teşkil ete.
 Sıq-sıq olıp turğan cenkler, hanlıqnıh sınırlarında yüz bergen toqnaşuvlar bu soy istihsalnın inkişafına şiltem berdiler.
 Silâh sanatı qırımtatarlarnıh turmuş tarzınen de sıq bağlı edi.
  çünki at minmek, silâhtan faydalana bilmek mehareti ta balalıqtan aşlana edi.
@@ -330,39 +326,31 @@ Bediiy madenni yaraştırğan örnek motivlerinde qırımtatar etnosının şeki
 Oymacılar, qaqmacılar «lâle», «gül ğoncesi», «qaranfil», «gülçerep» kibi ösümlik motivlerinden defalarca faydalandılar.
 Bütün bu motivler temsiliy mana taşıy ve pek qolay telqin etileler.
 
-Oırımda yaşağan ve qırımtatar halqının etnogenezinde «substrat» olğan türkiy qabilelernin totemik tasavurları halqnıh anına teren singen ve İslâm mefküresi bu tasavurlarnı heppeyi vaqıtqace silip olamağan edi.
+Oırımda yaşağan ve qırımtatar halqının etnogenezinde «substrat» olğan türkiy qabilelernin totemik tasavurları halqnıh anına teren singen.
+ İslâm mefküresi bu tasavurlarnı heppeyi vaqıtqace silip olamağan edi.
 Qırımtatar manzaralı-ameliy sanatına ait eserlerde türklernin muqaddes hayvanı ve amayılı sayılğan qoçqar başı ya da qoçqar boynuzı bayağı vaqıtqace tasvirlenip keldi.
-Erkeklernih beden küçünin remzi olğan buğa, tabiattaki yarıq ve qara quvetlerni temsil etken sığın ve bars obrazları da muqaddeslik manasını taşıdılar.
-
+Erkeklernih beden küçünin remzi olğan buğa, tabiattaki yarıq ve qara quvetlerni temsil etken.
+ Sığın ve bars obrazları da muqaddeslik manasını taşıdılar.
 Maden eşyalarnı bezetüvde bütün musülman sanatının harakterli çizgisi olğan epigrafik örnekler keniş qullanıldı.
 Yazılarnm mundericesi çeşit türlü: usta adının birinci harifleri, eşyanın yapılğan yeri ve vaqıtını (söz kelimi, ğayet emiyetli şey) kösterici yazılardan tutıp, sağlıq, baylıq tileklerine, çeşit türlü şiirler ve Ouran ayetlerine barğance, ola edi.
 Bazıda örneklernin umumiy zıhına çeşit körünişli medalyonlar ve geraldika işaretleri kirsetile turğan.
-
-Oırımtatar quyumcılıq sanatının inkişafını közeterek, cihandaki bir çoq halqlarda olğanı kibi, qırımtatarlarnıh erte zaman «ilvanları» da qatien utilitar vazifelerni eda ete (urbanı dögmeley, saçnı tutıp tura); sonra devamlı tarihiy inkişaf ceryamnda apotropeik mana taşıy, yani merasimlerde qullanıla ve nazarlıq rölüni icra ete ve, nihaet, XX asırda ilvanlarnın dekorativ hususiyetleri ög sırağa çıqqan edi.
+Qırımtatar quyumcılıq sanatının inkişafını közeterek, cihandaki bir çoq halqlarda olğanı kibi, qırımtatarlarnıh erte zaman «ilvanları» da qatien utilitar vazifelerni eda ete (urbanı dögmeley, saçnı tutıp tura); sonra devamlı tarihiy inkişaf ceryamnda apotropeik mana taşıy, yani merasimlerde qullanıla ve nazarlıq rölüni icra ete ve, nihaet, XX asırda ilvanlarnın dekorativ hususiyetleri ög sırağa çıqqan edi.
 Şimdige qadar saqlanıp qalğan qırımtatar quyumcılıq ziynetleri pek azdır.
 Böyle şeyler başqalarına baqqanda çoqça hırsızlana turğan, şu sebepten biz öz tedqiqatlarımızda vesiqalarğa, fotoresimlerge, ağzaviy materialğa ve pek az sayıda saqlanıp qalğan numünelerge bazandıq.
-
-Oırımtatar quyumcılıq eşyalarının harakterine eh büyük tesirni Mısır, Yunanistan, Roma, Vizantiyadan kelip kirgen an aneler kosterdiler, lâkin bu eşyalarmh şekilinde, üslübi ve bezetilüvinde musülman Şarqına mensüp medeniyetnin tesiri açıq-aydın körünip tura.
-An'aneviy esnaflar sırasında quyumcılar ayrıca yer tuta ediler.
+Qırımtatar quyumcılıq eşyalarının harakterine eh büyük tesirni Mısır, Yunanistan, Roma, Vizantiyadan kelip kirgen an aneler kosterdiler, lâkin bu eşyalarmh şekilinde, üslübi ve bezetilüvinde musülman Şarqına mensüp medeniyetnin tesiri açıq-aydın körünip tura.
+Ananeviy esnaflar sırasında quyumcılar ayrıca yer tuta ediler.
 Olarnın tükânları her vaqıt şeher merkezinde ya da eh zengin mahallelerde yerleştirile edi.
-
 XIII—XV asırlarğa ait hâzinelerden elde etilgen tapılmalar Oırımmh quyumcılıq sanatı ta qadim zamanlarda meydanğa kelgeninden delâlet bere ler.
 Orta asırlarda ve hatta yigirminci asırnın başlarında Oırımnın quyumcılıq merkezi olaraq Bağçasaray tanılğan edi.
-Oırımlı quyumcılar eri ziyade kümüşnen çalışa ediler, çünki «bu madennin Aynen tılsımlı bağı bar, şunın içün ay kibi yıltıray» dep tüşüne ediler.
+Qırımlı quyumcılar eri ziyade kümüşnen çalışa ediler, çünki «bu madennin Aynen tılsımlı bağı bar, şunın içün ay kibi yıltıray» dep tüşüne ediler.
 Altınnen çalışqan ustalarğa ise «altıncı» değenler.
-
-U.
-Bodaninskiynin fikirince, qırımlı quyumcı ve altıncılarnın kelip çıquvı Hindistannen bağlıdır, çünki mında quyumcılıqnen qırımtatarlardan ğayrı çingeneler de meşğül olıp, olar özlerini Hindistandan çıqqan ariyler, dep hesaplay ediler.
-(30.
-27-nci sahife).
+U.Bodaninskiynin fikirince, qırımlı quyumcı ve altıncılarnın kelip çıquvı Hindistannen bağlıdır.
+çünki mında quyumcılıqnen qırımtatarlardan ğayrı çingeneler de meşğül olıp, olar özlerini Hindistandan çıqqan ariyler, dep hesaplay ediler.(30.27-nci sahife).
 Bes-belli, Hindistan hatıraları olarnin aqılında qalsa da, yasadıqları şeylerinin üslübine köre, quyumcılıq zenaatına has meharetlerni İranda elde etkendirler.
 Acem quyumcılıq sanatının qırımtatar quyumcılıq sanatına köstergen böyle büyük tesiri — asılında umumqırım quyumcılıq sanatının ulu acem sanatının daimiy tesiri altında devamlı inkişaf etmesinin neticesidir.
-Bu ceryan ta şimaliy ve şarqiy acem qabilelerinin, Oırımda uzun devirler devamında yaşağan ve kimersi soyları yarımadada oturıp qalıp, sonundan yalıboylu ve dağlı qırımtatarlarmn etnogenezinde iştirak etken kimmeriyler, skifler, skolotlar, sarmatlar, acem tilli aslar, alanlar ve got-alanlamıri sanatlarına ait quyumcılıq eşyalarından başlana.
-Quyumcılıq an'anelerinifi saqlanıp qalmasına orta asırlardaki esnaf birleşmelerinin sert qanun-qaideleri yardım ettiler.
-(30.
-28-nci sahife).
-
-Oırımtatarlarnın quyumcılıq eşyaları her vaqıt qadın urbasının ve bazıda erkek urbasının da ayırılmaz terkibiy qısımı olıp keldiler.
+Bu ceryan ta şimaliy ve şarqiy acem qabilelerinin, Qırımda uzun devirler devamında yaşağan ve kimersi soyları yarımadada oturıp qalıp, sonundan yalıboylu ve dağlı qırımtatarlarmn etnogenezinde iştirak etken kimmeriyler, skifler, skolotlar, sarmatlar, acem tilli aslar, alanlar ve got-alanlamıri sanatlarına ait quyumcılıq eşyalarından başlana.
+Quyumcılıq an'anelerinifi saqlanıp qalmasına orta asırlardaki esnaf birleşmelerinin sert qanun-qaideleri yardım ettiler.(30.28-nci sahife).
+Qırımtatarlarnın quyumcılıq eşyaları her vaqıt qadın urbasının ve bazıda erkek urbasının da ayırılmaz terkibiy qısımı olıp keldiler.
 Bütün bu ziynetlerni üç esas gruppağa bölmek mümkün: başqa taqılğan, boyunğa taqılğan, qolğa taqılğan ilvanlar hem de quşaqlarnı, nazarlıqlarnı bezetmege qararlaştırılğan ziynetler.
 
 Oırımtatar qadınları başlarına fes kiye ediler.
@@ -372,20 +360,18 @@ Oırımtatar fesini onın tögerek tübü ve qalın qasnağı teşkil eteler.
 Fesnin qasnağı pullarnen, tübü ise kümüş ya da altından yapılğan töpeliknen bezetile.
 Töpelikni qırımtatarlarnın quyumcılıq sanatında mot olğan örnek motivleri — çeçek ya da yıldızpiçim tepsi teşkil ete.
 işte, başnı gülçembernen yaraştıruv an anesi de keçmiş zamanlarnın terenliginden kelip çıqa.
-
-Oırımtatarlarnın manlay ilvanına «baş altın» derler.
+Qırımtatarlarnın manlay ilvanına «baş altın» derler.
 Bu ilvan festen biraz aşağı pekitile ve o şekilce qabarıq örneklernin, gülçembernin yahut da yıldız ve çoqtan-çoq iri asmalarnın bütünlikli bir kombinatsiyasını teşkil ete.
 «Baş altın» ilvanı qadın kişinin hangi içtimaiy tabaqağa mensüp olğanını, onın ne derecede zengin ekenini kösterip tura.
 Evli qadınlar zülüflerini «zülüf-asqı»larnen ziynetlegenler.
 Böyle ziynetler feske pekitile ve şekillernin çeşitliliginen ayırılıp tura ediler.
 Esasen kümüşten yapılğan «zülüf-asqı»lar şekilce örnekli oymalar ve taşçıqlarnen, ya da yipişnen bezetilgen levhalarnı andıralar.
-ûırımtatar qadınlarının fesleri qulaqlamı qapatmay, şunın içün sırğalar, kupelerge ve çeşit türlü asmalarğa büyük emiyet berile turğan.
+Qırımtatar qadınlarının fesleri qulaqlamı qapatmay, şunın içün sırğalar, kupelerge ve çeşit türlü asmalarğa büyük emiyet berile turğan.
 Küpeler konuş ya da kvadrat şekilinde, burmalı ola ediler, lâkin en ken tarqalğan soyu yarım ay şekilinde edi.
 Oırımnın çöl tarafında qadınlar uzundan-uzun sırğalar taqqan ve bu sırğalarnı biri-birine köstekler vastası ile bağlanğanlar.
 
 Gerdanlıq ya da başqaca etip aytqanda, köküslikler anternin ögden açıq yerini örtüp tura ve kostümge yaraşıqlı qoşma olaraq hizmet eteler.
 Gerdanlıq, değende biz yipişli plastinalar, pullar, qıymetli taşçıqlar ve kösteklerden ibaret ilvannı közde tutamız.
-
 Toğalı quşaq qırımtatarlarnın en sevimli ziynetlerinden birisidir.
 Ouşaqlarnı er kişiler de, qadın-qızlar da, balalar da taqqanlar.
 Ouşaqlar madenden, gönden, telli qumaçtan, qadifeden yapıla turğan.
@@ -396,26 +382,18 @@ Adeti üzre, toğa şekilinin negizine biri-birini tekrarlağan eki yüzüm yapr
 Neticede kolemli, üç qatlı yipişli kompozitsiya asıl ola ve onın çekisi kimerde 400 grammğa bara.
 Yipişli quşaqlarnen bir sırada oyma örneklemen bezetilip, kösteği olğan küçücik hancerçiklernen pekitilgen salmaqlı qaqma toğalar da rastkelineler.
 Cumhuriyet qırımtatar sanatı muzeyinde qırımtatar quşaqlarımn 30-ğa yaqın nüshadan ibaret unikal kollektsiyası mevcut.
-
 Dualıqlar qırımtatar milliy urbasının mühim bir qoşması olmaqnen birge urbanın bezeği de ediler.
 Şekilce çeşit türlü — dörtkoşeli, üçkoşeli, boru şekilinde olğan dualıqlarnın içi boş ola ve anda dualar yazılıp qoyula edi.
-Oırımtatar sanatı muzeyinde yipiş tehnikasında yapılğan boru şekilli dualıq bar.
+Qırımtatar sanatı muzeyinde yipiş tehnikasında yapılğan boru şekilli dualıq bar.
 Diğer bir dualıqmn dörtköşe şekilini ösümlik örneklerinin yuvarlaq sızıları hem de qadife tüslü savatlama yımşatalar, bu ise kümüşnin boz-kok tüslü yüzünde ayrıca dülber körüne.
-Madenden yasalğan dualıqlar qadınlarnın saçlarına köstekler ya da ince telçikler vastasınen pekitile ve «saçqaside» dep adlandırıla ediler.
-(160.
-40-42-nci sahifeler).
-
-ûırımtatar quyumcıları madenni bediiy bezetüvnin türlü usullarından faydalana, lâkin üstünlikni «çilter» tehnikasına bere ediler.
+Madenden yasalğan dualıqlar qadınlarnın saçlarına köstekler ya da ince telçikler vastasınen pekitile ve «saçqaside» dep adlandırıla ediler.(160.40-42-nci sahifeler).
+Qırımtatar quyumcıları madenni bediiy bezetüvnin türlü usullarından faydalana, lâkin üstünlikni «çilter» tehnikasına bere ediler.
 Bunda çilternin esasen eki çeşiti qullanıla edi: birincisi — fonlı çilter, yani örnek endi hazır plastinağa yapıştırıla; ekinci çeşit ise — ince işlengen çilter olıp, türlü qalınlıqtaki tegiz ve burma teller delme örneklerni teşkil eteler.
 Yipiş kompozitsiyalarını ufaçıq maden topuzçıqları tekmilley ve örneknin esas bağlanmalarını qayd etip ya da bezekni büs-bütün qaplap, ışıq ve kölge oyunını yarata ediler.
-
 Quyumcılıq eşyalarının ösümlik motivleri yipişli ya da oymalı örneknin negizini teşkil etip qalmadan, bezeknin şekilini de belgiley ediler — misal olaraq, quşaqlarnın çeçek, yüzüm yaprağı ya da badem şekilli toğalarını ketirmek mümkün.
-Semaiy motivlerni teşkil etken yıldız, küneş, ay örnekleri de qırımtatarlarnın quyumcılıq sanatında büyük ustalıq ile işletile ve, böylece, tek manzaralı-estetik hususiyetlernen sınırlanmayıp, nazarlıq vazifesini de eda ete
-
-ediler.
+Semaiy motivlerni teşkil etken yıldız, küneş, ay örnekleri de qırımtatarlarnın quyumcılıq sanatında büyük ustalıq ile işletile ve, böylece, tek manzaralı-estetik hususiyetlernen sınırlanmayıp, nazarlıq vazifesini de eda ete ediler.
 
 Quyumcılıq eşyalarının ğayet çoq şekilde olması, olarnın temsiliyliknen beraberlikte qatiy funktsional vazifelerge boysunması, parlaq körünişi, her bir soy eşyağa has ferdiy variantlarnın çoqluğı hem de ilvan taquvnın asırlar devamında mükemmelleşip kelgen medeniyeti qırımtatar ameliy sanatının bu çeşiti teren an'anelerge malik olğanından delâlet bereler.
-
 XIX asırnın sonlarına — XX asımın başlarına ait quyumcılıq numüneleri qırımtatar ustalarının yüksek professional seviyesini ve yüksek bediiy didini tasdiqlaylar.
 Lâkin endi 1920-nci senelernin sonlarında — 30-ncı senelernin başlarında eski an'aneler yoq olıp başlağanı, ömür şaraitleri dehişkeni, turmuş hep sovetleşkeni munasebetinen quyumcılıq eşyalarına hem de bediiy işlengen madennin diğer çeşitlerine olğan ihtiyaç keskin eksildi.
 Eger, meselâ, asır başında kelin ciyezinde dögme baqır savut, madenden yasalğan ziynetlernin ve ilâhrelernin olması şart olsa, 30-ncı senelerge kelip nikâh merasimi bayağı sadeleşip, kimerde yalınız nikâhm ZAGSta qayd etüvnen sınırlandı.
@@ -424,11 +402,8 @@ Quşaqlar, zülüflik ve gerdanlıq ilvanlar, dualıqlar istihsali amelde toqtad
 Oıymetli madennen çalışmaq imkânının olmağanı da quyumcı zenaatının yoq olmasına alıp keldi.
 
 Yigirminci asımın ortalarına kelip, an'aneviy quyumcılıq eşyalarını yasav bütünley toqtay, qırımtatar quyumcılarının evelki şuretini tek XIX asırnın sonlarında — XX asırnın başlarında yaşap, icat etken ustalarnın acayip eserleri hatırlatıp turalar.
-Az sayıda qalğan ustalarnın özleri ise yafiı ömür şeraitlerine uyaraq, «sovet emblemaları» istihsalına keçtiler.
-(30.
-28-nci sahife).
-
-Halq sürgün etilgen son qaqmacı ustalardan ya da quyumcılardan Qırımda bir adam bile qalmadı, madenni bediiy işlev sahası sanat olaraq amelde öldi.
+Az sayıda qalğan ustalarnın özleri ise yafiı ömür şeraitlerine uyaraq, «sovet emblemaları» istihsalına keçtiler.(30.28-nci sahife).
+Halqsürgün etilgen son qaqmacı ustalardan ya da quyumcılardan Qırımda bir adam bile qalmadı, madenni bediiy işlev sahası sanat olaraq amelde öldi.
 Hal-azırda bu sanatnı tiklemek oğrunda daha ilk adımlar atıla.
 Onın taqdiri öz işine sınırsız sadıq olğan bir qaç icatçının qoiundadır.
 Teessüf ki, böyle adamlar çoq değiller.
@@ -438,18 +413,13 @@ Ayder bir qaç nesil erkekleri madenni bediiy işlevnen oğraşqan qorantada do�
 Onın babası Bağçasarayda quyumcılıq tükânı tutqan, sonra «Ouyumcı» şirketinde çalışqan edi.
 Ayder 9 yaşından itibaren babasına yardım etip başladı, quyumcılıq sanatının sırlarını adım-adım öğrendi, ata-dede an'anelerini devam ettirdi.
 Lâkin 1944 senesi oğlannın ömürini kesen-kes deniştirdi.
-
-A.
-Asanov 1956 senesi Moskva elektrotehnika tehnikumının filialını bitirip, suvuq madenni işlev boyunca mütehassıs oldı.
+A.Asanov 1956 senesi Moskva elektrotehnika tehnikumının filialını bitirip, suvuq madenni işlev boyunca mütehassıs oldı.
 Onın bundan sonki bütün ömüri başta Taşkentteki elektrotehnika zavodınen, sonra Gülistandaki tamir-mehanika zavodınen bağlandı.
-Lâkin A.
-Asanov bu dünyağa ne içün kelgenini ve balalıqta alğan derslerini hiç bir vaqıt unutmadı.
+Lâkin A.Asanov bu dünyağa ne içün kelgenini ve balalıqta alğan derslerini hiç bir vaqıt unutmadı.
 Ozbekistanda yaşar eken, elinden kelgeni qadar quyumcılıq sanatınen meşğül olıp, yüzükler, bilezlikler, küpeler, dualıqlar yarattı.
 Ebet, bu şeyler sergi içün qararlaştırılğan nefis numüneler değil de, şımarış boyunca yapılğan eşyalar ediler.
 Lâkin bu iş ustağa tehnikiy meharet ve ameliy pişkinlik bağışladı.
-
-1990 senesi A.
-Asanov Oırımğa köçüp kele.
+1990 senesi A.Asanov Oırımğa köçüp kele.
 Ömürinin on yılını ev quruvğa, iş qıdıruvğa bere.
 Nihaet, 2000 senesi tuvğan Bağçasarayında «Qırımnın ğayrıdan tiklenüvi» fondu tarafından halq esnaflarını canlandıruv boyunca merkez açıla ve A.
 Asanov şu merkezde çalışıp başlay.
