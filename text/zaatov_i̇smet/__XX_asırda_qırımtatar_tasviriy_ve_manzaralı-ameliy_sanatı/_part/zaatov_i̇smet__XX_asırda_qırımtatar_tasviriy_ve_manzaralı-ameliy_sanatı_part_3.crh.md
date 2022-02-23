@@ -466,27 +466,18 @@ Belli ki, icatçıdan pek çoq küç ve ğayret talap etken yipiş tehnikası te
 işte, İ.Ablayevniri eserlerini bediiy ve tehnikiy kâmillik numüneleri, demek mümkün.
 Usta özünin kümüş ve savatlama kümüş bilezliklerinden, küpe ve gerdanlıqlarından, quşaq toğalarından zarif garniturlar yarata.
 Olarnin nazmiy adları tek funktsional vazifeni beyan etip qalmadan, mucessemleştirdigi fikirni ve muellifniri ilhamını da ifade eteler («ince bel», «Bağça-Eli», «Zera», «Leylâ»),
-
-i.
-Ablayev çeçek tepsileri, sarmalpiçim filisler şekilindeki an'aneviy örnek motivlerini tazertmek içün kendi örneklerini de qoşa.
-Bazı bir ilvanlarğa, deyik, «Bağçasaray çeşmesi»niri mevzularını qata.
-Böylece, közni temsil etici mavi renkli parlaq taşnen süslendirilgen daire şekilli ve közyaşnı temsil etici asqılı sırğa peyda ola.
-
-i.
-Ablayevnin icadında dualıqlar ayrıca yer futalar.
+i.Ablayev çeçek tepsileri, sarmalpiçim filisler şekilindeki ananeviy örnek motivlerini tazertmek içün kendi örneklerini de qoşa.
+Bazı bir ilvanlarğa, deyik, «Bağçasaray çeşmesi»niri mevzularını qata.Böylece, közni temsil etici mavi renkli parlaq taşnen süslendirilgen daire şekilli ve közyaşnı temsil etici asqılı sırğa peyda ola.
+i.Ablayevnin icadında dualıqlar ayrıca yer futalar.
 Bir vaqıtlarda qırımtatar urbasının mühim qısımı olğan dualıqlar quyumcımıznın ğayretleri sayesinde kene halq turmuşına qaytmaqtalar.
-I. Ablayevnin bir talay eserlerini Oırım cumhuriyet ülkeşınaslıq müzeyi, Cumhuriyet qırımtatar sanatı müzeyi, Berlindeki Cihan halqlarının medeniyeti müzeyi satın aldılar.
-
+I. Ablayevnin bir talay eserlerini Qırım cumhuriyet ülkeşınaslıq müzeyi, Cumhuriyet qırımtatar sanatı müzeyi, Berlindeki Cihan halqlarının medeniyeti müzeyi satın aldılar.
 I. Ablayevnin 2000 senesi Aqmescitte olıp keçken şahsiy sergisinin ekspozitsiyasında seyircilernin diqqatını yipiş usulınen yapılğan ufaçıq «Altın beşik» kompozitsiyası celp etti.
 Mezkûr eser temsiliy mana taşıy.
 «Altın beşik» — muellifnin eski qırımtatar efsanesi esasında yarattığı eser olıp qalmadan, o aynı vaqıtta yanıdan doğayatqan, Vatanğa qaytıp kelgen halqnm özüni kostere bilmesi içün zarur olğan yanı medeniyetnin obrazıdır.
+Qırımtatar esnaflarının evel-ezelden devam etip kelgen adetlerine köre, usta özünden sofi şegirtini qaldırıp ketmek kerek.
+işte, i.Ablayevnin işini devam ettirecek şegirtleri de, oğlu da bar.
 
-Oırımtatar esnaflarının evel-ezelden devam etip kelgen adetlerine köre, usta özünden sofi şegirtini qaldırıp ketmek kerek.
-işte, i.
-Ablayevnin işini devam ettirecek şegirtleri de, oğlu da bar.
-
-Enver Ablayev (1973 senesi doğdı) P.
-Benkov adına cumhuriyet ressamla oquv yurtunın kirametçilik bölügini bitirdi, şimdi Oırım etnografiya muzeyinde maden restavratorı olıp çalışa.
+Enver Ablayev (1973 senesi doğdı) P.Benkov adına cumhuriyet ressamla oquv yurtunın kirametçilik bölügini bitirdi, şimdi Oırım etnografiya muzeyinde maden restavratorı olıp çalışa.
 Enver Ablayevnin 2000 senesi mayıs ayında olıp keçken şahsiy sergisi Enver tek aileviy an'anelemin devamcısı olıp qalmadan, aynı vaqıtta mustaqil iş körgen professional quyumcı olğanını da kosterdi.
 
 E.
@@ -559,9 +550,7 @@ Ya.
 
 — «Bükme işleme) — qalın basma üzerinde altın, kümüş şnurlarnen, kimerde ise renkli yipek şnurlarnen tikiş.
 
-— «Qasnaq işleme» — daire şekilli qasnaqqa çekilgen basma üzerinde
-
-tikiş.
+— «Qasnaq işleme» — daire şekilli qasnaqqa çekilgen basma üzerinde tikiş.
 
 — Applikatsiyalı işleme (onın qırımtatarca adı belli değil).
 
@@ -569,9 +558,7 @@ tikiş.
 
 — İncilernen işleme.
 
-— Cevherlernen işleme.
-(200.
-5-nci sahife).
+— Cevherlernen işleme.(200.5-nci sahife).
 
 işlemelernin bütün bu çeşitleri yigirminci asımın başlarına qadar saqlanıp qalğan ediler.
 Basmağa örnek çeküv tehnologiyası asırlar devamında denişmedi.
@@ -1199,9 +1186,7 @@ M. Çurlu bu altı yıl içinde büyük zorluqlarnen olsa da, defalarca ekspedit
 Belli ki, daha 1990-ncı senelernin başlarında oquyıcılarnın keniş kütlesi böyle maqalelernen tanış olmaq imkânından mahrum edi.
 Taşkentteki P.
 Benkov adına ressamlıq oquv yurtum bitirgen, ihtisaslığı boyunca grafikacı sayılğan Arzı Useinova (Patel) (1975 senesi doğdı) an'aneviy toqumacılıq sahasında çalışa.
-Belli ressamlar A.
-Useinov ve Z.
-Trasinovanın qızı olğan Arzı qırımtatar örneklerinin motivleri esasında toqulğan kilimler ve namazlıqlar seriyasının müellifidir.
+Belli ressamlar A.Useinov ve Z.Trasinovanın qızı olğan Arzı qırımtatar örneklerinin motivleri esasında toqulğan kilimler ve namazlıqlar seriyasının müellifidir.
 
 Zemaneviy manzaralı-ameliy sanat çeşitleri arasında toqumacılıqnıh qırımtatarlarğa has olmağan türleri — gobelen ve makrame sanatı da inkişaf ettiler.
 
@@ -1221,11 +1206,9 @@ icatçı bu usulnen bir çoq süjetli eserler yarattı ki, olar açıq-aydın ma
 Çurlu material sıfatında qınaptan da sıq faydalana, ondan büyük kolemli dülber kompozitsiyalar, hem de kündelik turmuşta qullanmaq mümkün olğan eşyalar — örme qutuçıqlar, vazalar yarata.
 Materialnen tecribeler ötkergeni, yani culhirs (uzun havlı Özbek kilimleri) usulını çiyden toquv usulınen biriktirgeni sayesinde ümüt etilmegen bediiy-plastik ve obrazlı-emotsional neticelerge irişti.
 1980 senesi Taşkentte olıp keçken Bütünittifaq sergide nümayiş etilgen «Alanlıq» kompozitsiyası, işte, şöyle qarışıq usulnen yaratılğandır.
-M. Çurlunın bir sıra eserleri (meselâ, «Yaz», «Belbağ», «Nazarlıq», «Turna») «halq işlemelerinen, süzanelernin zengin ve toq renkler gammasınen, olardaki örneklernin debdebesi, muhteşemliginen açıq-açıqtan bağlı olğanını körmek mümkün».
-(193. 120-nci sahife).
+M. Çurlunın bir sıra eserleri (meselâ, «Yaz», «Belbağ», «Nazarlıq», «Turna») «halq işlemelerinen, süzanelernin zengin ve toq renkler gammasınen, olardaki örneklernin debdebesi, muhteşemliginen açıq-açıqtan bağlı olğanını körmek mümkün».(193. 120-nci sahife).
 
-Sanatşınas A.
-Hakimov semetdeşimiznin Özbekistandaki icadına qıymet keserek, böyle yazğan edi: «Özbekistannın gobelen icadiyatı umumiy durğunlıqqa oğrağan bir zamanda Mamut Çurlunın icadı en hareketçen ve istiqballi körüne».
+Sanatşınas A.Hakimov semetdeşimiznin Özbekistandaki icadına qıymet keserek, böyle yazğan edi: «Özbekistannın gobelen icadiyatı umumiy durğunlıqqa oğrağan bir zamanda Mamut Çurlunın icadı en hareketçen ve istiqballi körüne».
 (193. 121-nci sahife).
 M. Çurlu Oırımğa koçken son kilim eserlerinen bir sırada işleme, applikatsiya usullarında da örnekli kompozitsiyalar yarata, hem olarnı örneknifi tınıqlığı, renk birikmelerinin yanğıravuq kontrastı ayırıp turalar («Üç quş», 1999; «Dualar — alsuv», 1999).
 
@@ -1307,11 +1290,7 @@ Quş resimleri olğan böyle örneklerni İznik (evelki Nikeya, Türkiye) kirame
 Bu erte osmanlı kirameti «Milet eşyaları» adınen bellidir.
 (F. Zare. Keramika islamskih vremyön iz Mileta. İslamskiy Milet. Berlin, 1935, t. 3. 69-ncı sahife).
 Bu eşyalardaki quşlar uçqan halda, yahut yüvada oturğan, yüzüm yapraqları arasında, bir-birine qarşı oturğan halda tasvirlengenler.
-işbu üslüp XIII ve XIV asırlarga ait Vizantiya kirametinde tasvirlengen quş şekillerinden büs-bütün, şu cümleden, renk cehetinden de farq ete.
-(D.
-Talbot Rays.
-Vizantiyskaya keramika.
-Oksford, 1930, 88-nci sahife).
+işbu üslüp XIII ve XIV asırlarga ait Vizantiya kirametinde tasvirlengen quş şekillerinden büs-bütün, şu cümleden, renk cehetinden de farq ete.(D.Talbot Rays.Vizantiyskaya keramika.Oksford, 1930, 88-nci sahife).
 Söz kelimi, Cumhuriyet qırımtatar sanatı muzeyinin ekspeditsiyası Dobrucadan ketirgen XVI11—XIX asır işlemelerinde de quşlar tasvirine çoq rastkeline.
 Quş tasvirleri qırımtatar torevtikasında da rastkele (Oırımtatar sanatı muzeyinin fondlarında üstlerinde quş ve balıqlarnın siluetleri oyulğan gügümler saqlanmaqta).
 
@@ -1452,8 +1431,7 @@ Seitmemet Yaqubov professional kirametçiler cumlesindendir.
 O, 1938 senesi Oırımnıh dağlıq tarafında doğdı.
 1944 senesi olarnin qorantası Kostroma vilâyetine sürgün olundı.
 Sonra 1956 senesi Özbekistanğa köçti.
-Yaqubov P.
-Benkov adına cumhuriyet ressamlıq oquv yurtum, 1978 senesi ise A.
+Yaqubov P.Benkov adına cumhuriyet ressamlıq oquv yurtum, 1978 senesi ise A.
 N. Ostrovskiy adına teatr-ressamlıq institutının bediiy kiramet bölügini bitirdi.
 1990 senesinden berli Oırımda yaşay ve icat ete.
 
