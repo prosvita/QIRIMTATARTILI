@@ -493,9 +493,8 @@ Sürgünlik vaqtında qırımtatarlarnıh bütün maden ziynetleri, şu cümlede
 Qırım muzeylerinde saqlı turğan quyumcılıq kollektsiyalarının taqdiri de acınıqlı olıp çıqtı.
 1944 senesinden son Yalta tarih muzeyindeki ve Bağçasaraynm muzey-sarayındaki qırımtatar quyumcılıq sanatına ait unikal toplamlar bellisiz ğayıp oldı.
 Ananeviy halq sanatının eh ziyade saqlanıp qalğan çeşitlerinden birisi — halq toqumacılığı numüneleridir.
-Bunın sebebini anlatmaq qıyın değil, çünki sanatnın bu çeşiti halq arasında keniş tarqalğan edi.Bundan da ğayrı toqumacılıq numünelerini saqlamaq içün alelhusus şaraitler kerekmey edi.
-Qırımtatar toqumacılığınıh numüneleri sabıq SSSRnih pek çoq muzeylerinde mevcut.
-Olar bu muzeylerge çeşit türlü yollarnen — qırımtatar sanatını açıq-açıqtan ve maqsadkârlıq ile ögrengen ekspeditsiyalar neticesinde ya da yuqarıdan berilgen emir esasında Qırım muzeylerinin fondlarından alınıp, başqa muzeylerge, esasen Moskva ve Leningrad muzeylerine taqsimlengeni neticesinde barıp tüştiler.
+Bunın sebebini anlatmaq qıyın değil, çünki sanatnın bu çeşiti halq arasında keniş tarqalğan edi, bundan da ğayrı toqumacılıq numünelerini saqlamaq içün alelhusus şaraitler kerekmey edi.
+Qırımtatar toqumacılığınıh numüneleri sabıq SSSRnih pek çoq muzeylerinde mevcut, оlar bu muzeylerge çeşit türlü yollarnen — qırımtatar sanatını açıq-açıqtan ve maqsadkârlıq ile ögrengen ekspeditsiyalar neticesinde ya da yuqarıdan berilgen emir esasında Qırım muzeylerinin fondlarından alınıp, başqa muzeylerge, esasen Moskva ve Leningrad muzeylerine taqsimlengeni neticesinde barıp tüştiler.
 Qırımtatarlarnın maddiy medeniyetine ait diğer numüneler kibi, toqumacılıq numüneleri de çoq yıllar devamında muzeylernin emanethanelerinde, seyirci közünden uzaqça yerde saqlı tutuldılar.
 Lâkin bir baqıştan yasaq muhirleri alınıp taşlanğan bugünki künde bile bu numünelerni közden keçirmek imkânı olmay, çünki maddiy zorluqqa qalğan tedqiqatçılar mezkûr problemni tolusınen, ilmiy cehetten öğrenmek içün icadiy komandirovkalarğa çıqıp olamaylar.
 
@@ -518,52 +517,41 @@ Bu basmalarnı tamırları ta ceneviz, got ve yunanlarğa barıp çıqqan qırı
 Hem olarnin eserlerinde Vizantiya medeniyetine has çizgiler sezilip tura.
 Toqumacılıq ve işleme an'anelerinin saqlanıp qalmasının sebebi şunda edi ki, örneklengen toquma eşyaları kündelik turmuşnın, milliy urbanın ve diniy merasimlernih ayırılmaz bir qısımı olıp keldiler (nişan, toy ve saireler).
 Bundan da ğayrı, üykenler öz alışqanlıqlarını, umumen halq an'anelerini küçüklerge aşlay ediler: yaşlar qartanalarından asabalıq olıp qalğan eşyalarnın örneklerini endi öz eserlerinde tekrarlay ediler.
-
 Böyleliknen, yigirminci asımın toqumacılığı ve işlemelerinde an'aneviy çizgiler, an'aneviy tehnologiyalar, asırlar zarfında yaratılıp, nesilden nesilge keçken kompozitsiya çeşitleri ve örnekler saqlanıp keldiler.
 
 Sanayi istihsalında işlep çıqarılğan basmalarnın keniş satılıp başlanması ise milliy toqumacılıqnın beline urdı, eşyalarnın keyfiyetini ve bediiy değerliğini eksiltti.
-
 İşlemeler (örnekli bezler, paçavralar, urba elementleri ve ilâhre) baştaları evde toqulğan pamuq basma üzerinde, sonra ise ketirilme basmalar — qadife, atlas üzerinde yipek, yün yiplernen, kimerde altın ya da kümüş tellemen yahut da fabrikada yapılğan altın şnurlarnen yapıla turğan.
-
-Oırımtatar işleme sanatında örnekli işlemelernin 10 çeşiti olıp, olarnın altısı esas çeşit, dörtü ise yardımcı çeşit sayıla.
-Oırımtatar toqumacılığının yorulmaq bilmegen tedqiqatçısı P.
-Ya.
-Çepurina bu çeşitlemin hepisini birley-birley tafsilâtlı surette taarif etken edi:
-
+Qırımtatar işleme sanatında örnekli işlemelernin 10 çeşiti olıp, olarnın altısı esas çeşit, dörtü ise yardımcı çeşit sayıla.
+Qırımtatar toqumacılığının yorulmaq bilmegen tedqiqatçısı P.Ya.Çepurina bu çeşitlemin hepisini birley-birley tafsilâtlı surette taarif etken edi:
 — «Tatar işlemesi» — töşemesiz basma üzerinde eki taraflama tikiş.
-
 — «Hesap işleme» ya da «Osmanlı işleme» — eki taraflama açıq ince çilter tikişi.
-
+%Halq arasinda ona "esap isleme", mutehassilar ise — "osmanli isleme" deyler;
 — «Telli işleme» — ince yalpaq şekilli yaldızlı plastinkalar ile tikiş.
-
-— «Mıqlama işleme» (Oarasuvbazarda böyle işlemeğe «Sımakeç» değenler) -töşemeli qalın basma üzerinde altın, kümüş yiplernen tikiş.
-
+%Olarnin cevre-ceti islemenin ywrine kore, cesit ola;
+— «Mıqlama işleme» (Qarasuvbazarda böyle işlemeğe «Sımakeç» değenler) -töşemeli qalın basma üzerinde altın, kümüş yiplernen tikiş.
+%Tek Qarasuvbazarda ve onin etraflarinda ona "simakec" deyler;
 — «Bükme işleme) — qalın basma üzerinde altın, kümüş şnurlarnen, kimerde ise renkli yipek şnurlarnen tikiş.
-
 — «Qasnaq işleme» — daire şekilli qasnaqqa çekilgen basma üzerinde tikiş.
-
+%XIX asirnin sonunace mahsus masinalar peyda olganga qadar Yaqin Sarqta nagisnin bu cesiti qasnaq ustunde islengen.
 — Applikatsiyalı işleme (onın qırımtatarca adı belli değil).
-
 — «Pullı işleme».
-
 — İncilernen işleme.
-
 — Cevherlernen işleme.(200.5-nci sahife).
-
 işlemelernin bütün bu çeşitleri yigirminci asımın başlarına qadar saqlanıp qalğan ediler.
 Basmağa örnek çeküv tehnologiyası asırlar devamında denişmedi.
 Her bir köyde, her bir şeherde örnek resimi yapqan qadınlar çalışa ve olar kendi resimlerinen etraftaki bütün koylerni teminley ediler.
-Böyle usta qadınlar haqiqiy professionallar ediler, çünki an'aneviy örneklerni yahşi bilmeknen bir sırada, renklerni yahşi his ete, işleme tehnikasını da yahşi bile ediler.
+
+Böyle usta qadınlar haqiqiy professionallar ediler, çünki ananeviy örneklerni yahşi bilmeknen bir sırada, renklerni yahşi his ete, işleme tehnikasını da yahşi bile ediler.
 Örneknin resimi sımarışçının isteğine köre yaratıla edi.
 Resim basmağa keçirilmezden evel, esas motiv ve sızıqlarnın şekilleri boyunca qattı karton kâğıttan resim qalıbı yapıla, sonra ise bu qalıp basmanın örnek çekilecek yerine qoyula ve etrafı qarandaşnen sızılıp çıqıla, tek şundan son bivasta örnek işlevge kirişile edi.
 Böyle usul işleme örneğinde yapılabilgen yanlışlardan qaçınmaq, basma yüzünen işleme arasındaki nisbetni hesaplap çıqmaq imkânını bere edi.
 
-XIX asırnın sonlarında — XX asırnın başlarında yapılğan toquma ve işlemeler tehnika hem de icracılıq cehetinden türlü-türlü olsalar da, ekseriyette şeherlerde keniş yayılğan örnekli toqumacılıq ve işleme sanatı, hususan yipişli ve cevherli işleme sanatı inkişafnın yüksek noqtasında bulunğanlarından delâlet bereler.
 
+
+XIX asırnın sonlarında — XX asırnın başlarında yapılğan toquma ve işlemeler tehnika hem de icracılıq cehetinden türlü-türlü olsalar da, ekseriyette şeherlerde keniş yayılğan örnekli toqumacılıq ve işleme sanatı, hususan yipişli ve cevherli işleme sanatı inkişafnın yüksek noqtasında bulunğanlarından delâlet bereler.
 Qırımtatarlarnıh nikâh merasimlerinde işlemelerge ayrıca emiyet berilgen.
 Meselâ, kelin tarafı hazırlağan nişan boğçasında kelin öz qolunen işlegen uçqur, tizbez, eki kise, kümüş yiplernen ve nusfisnen nağışlanğan küçük kise, kiyev mendilleri, çorapbavlar olmaq kerek edi.
-Ebet, böyle şeylernin sayısı çoqça da ola bile edi.
-Boğçadaki şeylerge, meselâ, yipek kölmekler, çegre kölmek, çoraplar, saat qapı, işlemeli divar yastıq qapları qoşula edi.(68.229-ncı sahife).
+Ebet, böyle şeylernin sayısı çoqça da ola bile edi.Boğçadaki şeylerge, meselâ, yipek kölmekler, çegre kölmek, çoraplar, saat qapı, işlemeli divar yastıq qapları qoşula edi.(68.229-ncı sahife).
 Kelinnin işlemeleri hem yanı tuvğanlarğa, hem saygılı musafirlerge, hem toy munasebetinen teşkilâtlandırılan qoşu ve kureş ğaliplerine bağışlamla turğan.
 Toy arfesinde çalğı-çağananen kelin ciyezini nümayiş etüv merasimi ötkerilgen: kelin odasının ortasında tavanğa mahsus bir halqa pekitilip, ondan çeşit tarafqa yipler çektirilgen ve bu yiplerge kelinnin ciyezi asılğan.
 Sonra bütün bu şeyler köşeleri kümüşnen işlengen boğçalarğa sarılğan.
@@ -583,14 +571,11 @@ Kimerde resim tasvirlerinde asıl çeçeklerni, meselâ qaranfilni, gülni, zamb
 Çeçekler çerep içinde turğan kibi, yalıda ösken kibi ya da dualıqnı sarıp alğan kibi tasvirlengenler.
 Umumen, çeçeklernin, ince dallarnın, yengilden sarılğan yapraqlarnın çoqluğı qırımtatar işlemelerine tekrarlanmaz zariflik ve letafet bağışlaylar.
 
-Bazı bir tedqiqatçılarnın qayd etkenleri kibi, işlemelerde meyva ve yemiş motivlerinin (orta asırlarda Oırımnın özünde yetiştirilgen ya da tıştan ketirilgen armut, kestane, pomidor, badiç, kiraz, soğan, qabaq, ananas motivleri) peyda olması — şubhesiz, an'aneviy ösümlik örneklerinin heppeyi keç devirlerde denişmesinin neticesidir.
-(170.39^0-ncı sahifeler).
+Bazı bir tedqiqatçılarnın qayd etkenleri kibi, işlemelerde meyva ve yemiş motivlerinin (orta asırlarda Oırımnın özünde yetiştirilgen ya da tıştan ketirilgen armut, kestane, pomidor, badiç, kiraz, soğan, qabaq, ananas motivleri) peyda olması — şubhesiz, an'aneviy ösümlik örneklerinin heppeyi keç devirlerde denişmesinin neticesidir.(170.39^0-ncı sahifeler).
 Halq ustaları tıştan ketirilme basma ya da kilimlerde «körüp qalğan>> abstraktlı ösümlik motivini ifade etmeğe tırışıp, sonundan şu «kelmeşek» şekilni özlerine yahşi tanış olğan konkret predmetnin şekilinen bağlağanlar.
-Böyleliknen.
-sarmallı motivler badiçlerge oşatıla, acem ve türk kilimleri yahut basmalarına has olğan iri çeçek palmettleri ise resimnin sadeleşkeni neticesinde kesilgen pomidor ya da qabaqqa çevirile...
+Böyleliknen, sarmallı motivler badiçlerge oşatıla, acem ve türk kilimleri yahut basmalarına has olğan iri çeçek palmettleri ise resimnin sadeleşkeni neticesinde kesilgen pomidor ya da qabaqqa çevirile...
 Böyle «köçebe» motivlernin denişmesini közetmek ğayet meraqlıdır.
-Spasskayanın fikirince, onın kendisi andığı badiçler — «haçlanğan qılıç ya da hancerlernin» biraz dehiştirilgen tasviridir.
-(170.40-ncı sahife).
+Spasskayanın fikirince, onın kendisi andığı badiçler — «haçlanğan qılıç ya da hancerlernin» biraz dehiştirilgen tasviridir(170.40-ncı sahife).
 Lâkin türk basmalarında da rastkelingen bu örnek başqalarından alınma örnektir.
 Mezkûr örneknin negizinde acem kilimlerinde ve basmalarında keniş qullanılğan «islimi» motivi tura.
 Ve o şekilce kerçekten de eğri qılıçnın tasvirini andıra.
@@ -630,9 +615,7 @@ Arhetiplerni saqlap qalğan örnekler yanıdan telqin etilseler de, asılında q
 Oırımtatar toqumacılığı ve işlemelerinde sıq rastkelingen motivlernin daha birisi — üçkoşeliktir.
 Bu şekil rombnıh töremesi olıp (eki üçkoşe bir rombnı teşkil ete), erkek ve qadın başlanğıçlarının, umumen alğanda ise — yemin bereket berici quvetlerinin temsili olaraq hizmet ete.
 Yaramay nazarlardan qorçalağan dualıqlarmn an'aneviy şekili de üçkoşe şekilinde ola turğan.
-Kelin ciyezi sarıldığı boğçalarnın kenarlarında yapılğan işlemelernin
-
-üçkoşe şekilde olması da tesadüf değildir.
+Kelin ciyezi sarıldığı boğçalarnın kenarlarında yapılğan işlemelernin üçkoşe şekilde olması da tesadüf değildir.
 
 Örnekli toqumacılıqta doğru, yantayıq, dolandaçlı sızıqlardan keniş faydalanılğan.
 Aynı vaqıtta ta antik devirlerden belli olğan «meandr» motivi de pek sıq qullanılğan.
@@ -640,31 +623,21 @@ Oırımtatarlar bu örnekni «aylanma suv» dep adlandırğanlar ve oha bipayanl
 
 Köçebe çöl medeniyeti çerçivesine tamğa elementleri de kire edi.
 Daha yaqın keçmişte tamğalardan bir de-bir tevabamh hayvanlarını diğer tevabanıfı hayvanlarından ayırmaq maqsadınen faydalanıla edi.
-«Bazı bir tamğalar O.
-Aqçoqralı 1926 senesi dere ettirdiği qırımtatar tamğalarına hem de orta asırlardaki Oırım tamğalarına oşap keteler».
-(141.
-33-nci sahife).
+«Bazı bir tamğalar O.Aqçoqralı 1926 senesi dere ettirdiği qırımtatar tamğalarına hem de orta asırlardaki Oırım tamğalarına oşap keteler».(141.33-nci sahife).
 Böyle tamğalar ekseriyette pek sade olıp, hayvanasravcılarnın turmuşına ait predmetlerni — nal, yaynı andıra ediler.
 Amma işlemelerde ise tamğalar özlerinin qabile belgisi sıfatındaki manalarını coyup, artıq nazarlıq manasını taşıy ediler.
 Qadim zamanlarda usta öz yasamalarını örneklemen nağışlar eken, örneklernin manasına ayrıca emiyet bere edi, çünki tevaba, aile azalarının onaruvı, eyihallılığı, sağlığı şu temsillernen bağlana edi.
 Zamanlar deniştikçe, örneklernin burunğı manası öz emiyetini coya ve toqumacılar kendi örneklerine bazıda şaqalı, lâkin yerli adlar bere ediler, meselâ: «tavuq ayağı», «yılan izi», «horaz kekiregi», «sıçan tişi».
 
 Nihaet, işlemelerde rastkelingen epigrafik örneklerni de anmalı.
-Bular — ekseriyette mahsus ayırılğan medalyonlar ya da zıhlar içine alınğan Ouran ayetleri, şiiriy mısralar, tilekler («Maşalla», «inşalla», «Hayırlı olsun») edi.
-(170.
-45-nci sahife).
+Bular — ekseriyette mahsus ayırılğan medalyonlar ya da zıhlar içine alınğan Ouran ayetleri, şiiriy mısralar, tilekler («Maşalla», «inşalla», «Hayırlı olsun») edi.(170.45-nci sahife).
 
-Ameliy sanat eşyalarına yazılar çeküv an anesi ta IX—XI asırlarğa ait acem kirametlerinden başlana.
-(216.
-19-ncı sahife).
+Ameliy sanat eşyalarına yazılar çeküv an anesi ta IX—XI asırlarğa ait acem kirametlerinden başlana.(216.19-ncı sahife).
 İşte, yazılarnın qırımtatar işlemelerinde de peyda olmasını acem sanatının tesiri, dep bilmek kerektir.
 Arap urufatımh «nash» üslübinde yapılğan işlemeli yazılar ösümlik örneklerinden farq etmeyler — olarnı tumtaraqlı, egriltik sızıqlar birleştireler.
 Lâkin yazılar her vaqıt öz renkinen ayırılıp turdılar.
-Olarnın bazıları oqula.
-bazıları oqulmay.
-Oqulğan soylarını, bes-belli, er kişiler qalemnen yazğandırlar.
-(170.
-45-nci sahife), sonra üstünden qadınlar ya da ösmür qızlar yiplernen işlegendirler.
+Olarnın bazıları oqula.bazıları oqulmay.
+Oqulğan soylarını, bes-belli, er kişiler qalemnen yazğandırlar.(170.45-nci sahife), sonra üstünden qadınlar ya da ösmür qızlar yiplernen işlegendirler.
 Oqulmağan yazılarnı (olarnın harifleri, esreleri qaçırılğan, umumen, yanlış yazılğanlar) ise, şubhesiz, oqumağa-yazmağa bilmegen qadınlar işlegendirler.
 Böyle yazılarnın manası, şubhesiz, coyula ve olar sadece örnekke çevirileler.
 
@@ -673,31 +646,19 @@ Mesele şunda ki, arap urufatında yapılğan yazılardan mimarcılıqta.
 kilim toqumacılığında, kirametçilikte faydalanılır eken, olar vaqıt keçmesinen stilizatsiyalı ve bundan ötrü oqulmaz bir harakterge malik ola ediler.
 Kerçek, böyle yazılarnı oqumaq da şart değil edi, çünki «tilge baqqanda yazuv heppeyi salmaqlıca bir körüniş sayıla...
 arap yazuvınıh işaret funktsiyaları yalınız konkret mananı yetkizmek vazifesinen smırlanmay, arap yazuvı aynı vaqıtta bayağı mühim olğan başqa bir vazifeni de eda ete — o, Quran-ı Kerimnin sözlerinde mucessemleşken açıqlamalarnı ifade ete.
-Aynı arap urufatı, cümleden, onın formal hasiyetleri oquyıcını ya da adiy seyircini tek yazı mundericesine değil de, yazı manasından da keniş olğan degerliklerge diqqat ettire».
-(218.
-22-nci sahife).
-Mimarcılıq bezetmelerindeki yazılar kibi, qırımtatar işlemelerindeki yazılar da, kendi mundericelerinden qatiy nazar, aynı vaqıta hem bezek rölüni oynay, hem «Mezkûr eserlernih o ya da bu musülman cemiyetine aitligini kösterip tura ediler».
-(218.
-22-nci sahife).
+Aynı arap urufatı, cümleden, onın formal hasiyetleri oquyıcını ya da adiy seyircini tek yazı mundericesine değil de, yazı manasından da keniş olğan degerliklerge diqqat ettire».(218.22-nci sahife).
+Mimarcılıq bezetmelerindeki yazılar kibi, qırımtatar işlemelerindeki yazılar da, kendi mundericelerinden qatiy nazar, aynı vaqıta hem bezek rölüni oynay, hem «Mezkûr eserlernih o ya da bu musülman cemiyetine aitligini kösterip tura ediler».(218.22-nci sahife).
 
 Bazıda yazılar açıq-aydın faş etici mizacda ola ediler.
-Meselâ, E.
-Spasskaya kimersi bezlerdeki yazılarnı ketire: «Cahil, ahmaq, ekiyüzlü adam tek tışqı körünişni beğenir», «Aqıl parçası olğan biz, qadınlarnı, insan yerine körmeysiniz», «Bar, seni ahmaq ve cahil beğensin, bütün barlığınnı oha ber, hep bir ahlamaz».
-(170.
-46-ncı sahife).
+Meselâ, E.Spasskaya kimersi bezlerdeki yazılarnı ketire: «Cahil, ahmaq, ekiyüzlü adam tek tışqı körünişni beğenir», «Aqıl parçası olğan biz, qadınlarnı, insan yerine körmeysiniz», «Bar, seni ahmaq ve cahil beğensin, bütün barlığınnı oha ber, hep bir ahlamaz».(170.46-ncı sahife).
 Böyle yazılar tek musülman sanatına mensüplikten delalet berip qalmadan, qadın-qızlarmn cemiyetteki yerini de ayan eteler.
 Bes-belli, olarnı oqumış şeherli qadınlar yapqandırlar, çünki koy yerlerinde böyle şeylerni tasavur etmek bile küç.
 
 Kolorit, yani işleme örneklerinin renki esernin ne vaqıt yapılğanını işançlı tarzda tasdiqlay.
-Meselâ, mavi, sarı, beyaz renkler birikmesi XVIII asırda yaratılğan işlemelerge; mavi, sarı, qırmızı renkler birikmesi XVIIIXIX asırlarda yapılğan işlemelerge; qırmızı, sarı, qara renkler birikmesi ise XIX asırnın ekinci yarasında yapılğan işlemelerge has ediler.
-(201.
-105-nci sahife).
+Meselâ, mavi, sarı, beyaz renkler birikmesi XVIII asırda yaratılğan işlemelerge; mavi, sarı, qırmızı renkler birikmesi XVIIIXIX asırlarda yapılğan işlemelerge; qırmızı, sarı, qara renkler birikmesi ise XIX asırnın ekinci yarasında yapılğan işlemelerge has ediler.(201.105-nci sahife).
 
-Bunmnen birlikte, E.
-Spasskayanın fikirince, «tatar qadınları öz işlemelerinde nazik çeçeklernin açıq, gülgüli-yeşil, mavımsı-sarıca tüslerini eh çoq qullana turğanlar; boğuq, sönük tüslerden de faydalanğanlar, lâkin olarnı mıtlaqa yarıq renklemen hem de altın ve kümüş yiplernen yımşatqanlar...
-Örneknin ayrı elementi bir ya da bir qaç tüsnen yapıla bile, meselâ, bir çeçeknin muayen yaprağı bir tüste, diğer yapraqları ise bam-başqa tüste ola bile edi».
-(170.
-33-nci sahife).
+Bunmnen birlikte, E.Spasskayanın fikirince, «tatar qadınları öz işlemelerinde nazik çeçeklernin açıq, gülgüli-yeşil, mavımsı-sarıca tüslerini eh çoq qullana turğanlar; boğuq, sönük tüslerden de faydalanğanlar, lâkin olarnı mıtlaqa yarıq renklemen hem de altın ve kümüş yiplernen yımşatqanlar...
+Örneknin ayrı elementi bir ya da bir qaç tüsnen yapıla bile, meselâ, bir çeçeknin muayen yaprağı bir tüste, diğer yapraqları ise bam-başqa tüste ola bile edi».(170.33-nci sahife).
 Tedqiqatçınıh bu fikiri qırımtatar işlemelerinin renk harakteristikaları sınırsız olğanını ve qırımtatar ustaları mustaqil icatnen oğraşqanlarını, tecribeler yapıp, renklerni kendi didlerine köre seçip alğanlarını, şubhesiz, bu saadaki qaidelerge de riayet etkenlerini bir daha isbatlay.
 
 Qırımtatar işlemelerinin eh mühim estetik değerliğini kolorit teşkil ete.
