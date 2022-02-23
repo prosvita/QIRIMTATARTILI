@@ -1,4 +1,4 @@
-## OIRIMTATAR HALOININ MANZARALI-AMELİY SANATI
+## QIRIMTATAR HALOININ MANZARALI-AMELİY SANATI
 
 ### 3.1. İnkişafnıñ esas basqıçları, ilk ustalar
 
