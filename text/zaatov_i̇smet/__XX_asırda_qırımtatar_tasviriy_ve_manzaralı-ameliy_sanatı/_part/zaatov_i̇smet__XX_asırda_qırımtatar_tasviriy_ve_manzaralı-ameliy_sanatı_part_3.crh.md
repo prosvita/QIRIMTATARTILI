@@ -421,43 +421,30 @@ Ebet, bu şeyler sergi içün qararlaştırılğan nefis numüneler değil de, �
 Lâkin bu iş ustağa tehnikiy meharet ve ameliy pişkinlik bağışladı.
 1990 senesi A.Asanov Oırımğa köçüp kele.
 Ömürinin on yılını ev quruvğa, iş qıdıruvğa bere.
-Nihaet, 2000 senesi tuvğan Bağçasarayında «Qırımnın ğayrıdan tiklenüvi» fondu tarafından halq esnaflarını canlandıruv boyunca merkez açıla ve A.
-Asanov şu merkezde çalışıp başlay.
+Nihaet, 2000 senesi tuvğan Bağçasarayında «Qırımnın ğayrıdan tiklenüvi» fondu tarafından halq esnaflarını canlandıruv boyunca merkez açıla ve A.Asanov şu merkezde çalışıp başlay.
 Şimdi onın evi de, işi de bar, o, balaçıqlarımızğa quyumcılıq sırlarını ögrete ve bu soy sanatımıznm an aneleri bir kün ola mıtlaqa tiklenecegine ümüt ete.
-
-A.
-Asanov ve onın şegirtleri yapqan quşaqlar, dualıqlar, töpelikler — qırımtatar turmuşına has olğan an'aneviy eşyalardır.
+A.Asanov ve onın şegirtleri yapqan quşaqlar, dualıqlar, töpelikler — qırımtatar turmuşına has olğan an'aneviy eşyalardır.
 Asanovnın talebeleri yipiş tehnikasında çalışalar, faqat kümüş ve savatlı kümüş yerine şimdilik baqır telden faydalanalar.
 Şubhesiz, halq esnaflarnı ğayrıdan tiklev boyunca merkez daha yaş, onda uner ögreneyatqanlar da yaşlar, olar sanatta öz sözüni daha aytacaqlar.
-
-t •
-
-Asan Galimov 1951 senesi Ozbekistannın Gülistan şeherinde doğdı, şimdi Aqmescit şeherinde yaşay.
-Oırım Ressamlar birliğinin azası.
+Asan Galimov 1951 senesi Ozbekistannın Gülistan şeherinde doğdı, şimdi Aqmescit şeherinde yaşay, Qırım Ressamlar birliğinin azası.
 A. Galimov Taşkentteki irrigatsiya institutını bitirse de, onın qaqmacılıq ve quyumcılıqqa olğan avesi ket-kete ömür manasına çevirildi.
-Çünki meşhur qırımf •
-
-tatar ustası A.
-Oalafatovnıh torum, Ozbekistanda cınıslı ağaçtan mebel yasavda belli usta sayılğan Enver Galimovnın oğlu olğan Asan, ebet, sanat yoluna minmege borçlu edi.
-
+Çünki meşhur qırım tatar ustası A.Qalafatovnıh torum, Ozbekistanda cınıslı ağaçtan mebel yasavda belli usta sayılğan Enver Galimovnın oğlu olğan Asan, ebet, sanat yoluna minmege borçlu edi.
 1970-nci senelerde Galimov örnekler sanatını öğrenip başladı.
 Onın ilk kompozitsiyaları drantahta üzerinde guaş boyalarnen yapılğan örneklerden ibaret ediler.
 Bu örneklerde Galimov keçmiş devirlerdeki şarq bezeticilerinin tecribesinden ve yenişlerinden faydalana ve ancaq qırımtatar sanatına has olğan motivlerni, şekillerni araştıra.
 Vaqıt keçtikçe, örnek kompozitsiyalarımn üslübi mukemmelleşe.
 Galimov öz eserlerinde fonnı büs-bütün qaplağan ösümlik örneklerini; «gülçerep» adlı klassik kompozitsiyanı; zıh içine alınğan medalonlarnı qullana.
-Daha sonra ressam real çeçeklerni (lâleler, qaranfiller, papadiyeler) tasvirlevden vazgeçip, abstraktlı sızıqlar sıza, iri çeçek motivleri yerine yipişke benzep ketken örnekler yapa, örnek strukturasını daha tertipli, daha ziyade tüşünilip taşınılğan bir alğa ketire.
+Daha sonra ressam real çeçeklerni (lâleler, qaranfiller, papadiyeler) tasvirlevden vazgeçip, abstraktlı sızıqlar sıza.
+ Іri çeçek motivleri yerine yipişke benzep ketken örnekler yapa, örnek strukturasını daha tertipli, daha ziyade tüşünilip taşınılğan bir alğa ketire.
 Eserlerinin yetekçi elementi olaraq çeçek tepsisi ve örkenli filisni belgiley.
-1991 senesi A.
-Galimov kesen-kes bir qararğa kelip, «Feniks» firması (Taşkent) yanındaki ressamlıq-bezetüv kurslarında oquy, Özbekistan Ressamlar birliğinin ustahanesinde belli heykeltraş qaqmacı O.
-Azizovmh elinde ameliyat keçip, «quyumcı» mütehassıslığı boyunca oquv yurtum bitire.
-
-1995 senesi Oırımğa köçüp kele.
-Mında qartbabasınıh evinde Oalafatovlar sülâlesinin an'anelerini tiklemek maqsadınen mektep-studiya aça.
-
-A. Galimov qırımtatar ressamlarınıfi sergilerinde muntazam iştirak ete, özünin örnekli baqır savutlarını (cezve, çığırıq ve saireler), savatlamalı quyumcılıq eşyalarından quşaq toğaları, bilezlikler, yüzük ve sırğalarını nümayiş ete.
+1991 senesi A.Galimov kesen-kes bir qararğa kelip, «Feniks» firması (Taşkent) yanındaki ressamlıq-bezetüv kurslarında oquy, Özbekistan Ressamlar birliğinin ustahanesinde belli heykeltraş qaqmacı O.Azizovmh elinde ameliyat keçip, «quyumcı» mütehassıslığı boyunca oquv yurtum bitire.
+1995 senesi Qırımğa köçüp kele.
+Mında qartbabasınıh evinde Qalafatovlar sülâlesinin an'anelerini tiklemek maqsadınen mektep-studiya aça.
+A. Galimov qırımtatar ressamlarınıfi sergilerinde muntazam iştirak ete.
+ özünin örnekli baqır savutlarını (cezve, çığırıq ve saireler), savatlamalı quyumcılıq eşyalarından quşaq toğaları, bilezlikler, yüzük ve sırğalarını nümayiş ete.
 Galimov bütünlikli şekillerni ve kolemlerni seve.
 Usta yipiş tehnikasından da ziyade qaqmacılıqnen oğraşa.
-An'aneviy eşyalamın şekillerinden faydalanıp, olarnin esasında yanı örnek kompozitsiyaları yarata, kimerde bir sadef, smâlta, camnen çalışa.
+Ananeviy eşyalamın şekillerinden faydalanıp, olarnin esasında yanı örnek kompozitsiyaları yarata, kimerde bir sadef, smâlta, camnen çalışa.
 Ustanın eserleri klassik qaqmacılıq numüneleri kibi mükemmel değiller, olar usta eski şekillerni ve tehnologiyalarnı menimsev basqıçında bulunhayatqanından delâlet bereler.
 Lâkin nasıl olmasın, bu ustanın icadı Oırımda an'aneviy qaqmacılıqnı ğayrıdan tiklemek ve inkişaf ettirmek içün istiqballer aça.
 
