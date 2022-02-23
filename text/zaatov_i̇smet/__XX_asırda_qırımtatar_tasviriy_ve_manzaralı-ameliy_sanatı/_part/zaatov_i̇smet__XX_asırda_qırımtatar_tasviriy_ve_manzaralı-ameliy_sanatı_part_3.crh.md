@@ -539,15 +539,15 @@ Qırımtatar toqumacılığının yorulmaq bilmegen tedqiqatçısı P.Ya.Çepuri
 — Cevherlernen işleme.(200.5-nci sahife).
 işlemelernin bütün bu çeşitleri yigirminci asımın başlarına qadar saqlanıp qalğan ediler.
 Basmağa örnek çeküv tehnologiyası asırlar devamında denişmedi.
-Her bir köyde, her bir şeherde örnek resimi yapqan qadınlar çalışa ve olar kendi resimlerinen etraftaki bütün koylerni teminley ediler.
-
+Her bir köyde, her bir şeherde örnek resimi yapqan qadınlar çalışa.
+olar kendi resimlerinen etraftaki bütün koylerni teminley ediler.
 Böyle usta qadınlar haqiqiy professionallar ediler, çünki ananeviy örneklerni yahşi bilmeknen bir sırada, renklerni yahşi his ete, işleme tehnikasını da yahşi bile ediler.
 Örneknin resimi sımarışçının isteğine köre yaratıla edi.
-Resim basmağa keçirilmezden evel, esas motiv ve sızıqlarnın şekilleri boyunca qattı karton kâğıttan resim qalıbı yapıla, sonra ise bu qalıp basmanın örnek çekilecek yerine qoyula ve etrafı qarandaşnen sızılıp çıqıla, tek şundan son bivasta örnek işlevge kirişile edi.
-Böyle usul işleme örneğinde yapılabilgen yanlışlardan qaçınmaq, basma yüzünen işleme arasındaki nisbetni hesaplap çıqmaq imkânını bere edi.
+Resim basmağa keçirilmezden evel, esas motiv ve sızıqlarnın şekilleri boyunca qattı karton kâğıttan resim qalıbı yapıla.
+ Sonra ise bu qalıp basmanın örnek çekilecek yerine qoyula ve etrafı qarandaşnen sızılıp çıqıla,
+tek şundan son bivasta örnek işlevge kirişile edi.
 
-
-
+Böyle usul işleme örneğinde yapılabilgen yanlışlardan qaçınmaq,basma yüzünen işleme arasındaki nisbetni hesaplap çıqmaq imkânını bere edi.
 XIX asırnın sonlarında — XX asırnın başlarında yapılğan toquma ve işlemeler tehnika hem de icracılıq cehetinden türlü-türlü olsalar da, ekseriyette şeherlerde keniş yayılğan örnekli toqumacılıq ve işleme sanatı, hususan yipişli ve cevherli işleme sanatı inkişafnın yüksek noqtasında bulunğanlarından delâlet bereler.
 Qırımtatarlarnıh nikâh merasimlerinde işlemelerge ayrıca emiyet berilgen.
 Meselâ, kelin tarafı hazırlağan nişan boğçasında kelin öz qolunen işlegen uçqur, tizbez, eki kise, kümüş yiplernen ve nusfisnen nağışlanğan küçük kise, kiyev mendilleri, çorapbavlar olmaq kerek edi.
