@@ -25,20 +25,26 @@ When she found the entire fence white-washed, and not only whitewashed but elabo
 She said: "Well, I never!
 
 There's no getting round it, you can work when you're a mind to, Tom.
-" And then she diluted the compliment by adding, "But it's powerful seldom you're a mind to, I'm bound to say.
+" And then she diluted the compliment by adding,
+ "But it's powerful seldom you're a mind to, I'm bound to say.
 Well, go 'long and play; but mind you get back some time in a week, or I'll tan you."
 
-She was so overcome by the splendor of his achievement that she took him into the closet and selected a choice apple and delivered it to him, along with an improving lecture upon the added value and flavor a treat took to itself when it came without sin through virtuous effort.
+She was so overcome by the splendor of his achievement that she took him into the closet and selected a choice apple and delivered it to him.
+Along with an improving lecture upon the added value and flavor a treat took to itself when it came without sin through virtuous effort.
 And while she closed with a happy Scriptural flourish, he "hooked" a doughnut.
 
-Then he skipped out, and saw Sid just starting up the outside stairway that led to the back rooms on the second floor.
-Clods were handy and the air was full of them in a twinkling.
-They raged around Sid like a hail-storm; and before Aunt Polly could collect her surprised faculties and sally to the rescue, six or seven clods had taken personal effect, and Tom was over the fence and gone.
-There was a gate, but as a general thing he was too crowded for time to make use of it.
+Then he skipped out, and saw Sidjust starting up the outside stairway that led to the back rooms on the second floor.
+Clods were handy and the air was full of them in a twinkling.They raged around Sid like a hail-storm;
+ Before Aunt Polly could collect her surprised faculties and sally to the rescue, six or seven clods had taken personal effect.
+And Tom was over the fence and gone.
+There was a gate.
+ But as a general thing he was too crowded for time to make use of it.
 His soul was at peace, now that he had settled with Sid for calling attention to his black thread and getting him into trouble.
 
 Tom skirted the block, and came round into a muddy alley that led by the back of his aunt's cow-stable.
-He presently got safely beyond the reach of capture and punishment, and hastened toward the public square of the village, where two "military" companies of boys had met for conflict, according to previous appointment.
+He presently got safely beyond the reach of capture and punishment,
+ and hastened toward the public square of the village,
+ where two "military" companies of boys had met for conflict, according to previous appointment.
 Tom was General of one of these armies, Joe Harper (a bosom friend) General of the other.
 These two great commanders did not condescend to fight in person—that being better suited to the still smaller fry—but sat together on an eminence and conducted the field operations by orders delivered through aides-de-camp.
 Tom's army won a great victory, after a long and hard-fought battle.
