@@ -277,21 +277,21 @@ Esnaflar mezkûr usulnı öyle mahirlik ile qullana ediler ki, olarnin yaptığ�
 
 Oırımtatarlarmh silâh sanatı halqnın tarihi ve medeniyetinde parlaq bir sahifeni teşkil ete.
 Sıq-sıq olıp turğan cenkler, hanlıqnıh sınırlarında yüz bergen toqnaşuvlar bu soy istihsalnın inkişafına şiltem berdiler.
-Silâh sanatı qırımtatarlarnıh turmuş tarzınen de sıq bağlı edi, çünki at minmek, silâhtan faydalana bilmek mehareti ta balalıqtan aşlana edi.
+Silâh sanatı qırımtatarlarnıh turmuş tarzınen de sıq bağlı edi.
+ çünki at minmek, silâhtan faydalana bilmek mehareti ta balalıqtan aşlana edi.
 Yahşi at ve keyfiyetli silâh sahibi olğan yigitnin değerliği yüksek olıp, bular onın ömürde nege irişe bileceğini de belgiley ediler.
 Hanlar sarayında ötkerilip turğan resmiy merasimlerni, meselâ, çetelli elçilerni qarşılap aluv, askerlerni közden keçirüv, av merasimlerini yaraştıruvda silâh kimerde pek büyük röl oynay edi.
-
 Silâh yasavnen esasen şeherlerde oğraşa ediler.
 Bu esnada ta evelezelden hanlıqnıh iqtisadiy ve esnafçılıq merkezleri sayılğan Bağçasaray ve Oarasuvbazar şeherleri tanılğan ediler.
 
-Oırımtatarlarmh beyaz silâhı hususan büyük şuret qazandı.
-Bütün şarq memleketlerinde belli olğan qırımtatar pıçaqları, qama ve hançerlerini Moskva da satın ala edi; Oırımdan yılda 400 bin danege yaqın beyaz silâh yollanıla edi.
+Qırımtatarlarmh beyaz silâhı hususan büyük şuret qazandı.
+Bütün şarq memleketlerinde belli olğan qırımtatar pıçaqları, qama ve hançerlerini Moskva da satın ala edi; Qırımdan yılda 400 bin danege yaqın beyaz silâh yollanıla edi.
 Bilgen adamlar qırımtatarlarnıri beyaz silâhını, başta bir, demimin alâ tavlandırılğanı ve dülber şekilde olğanı, meşhur Şam bolatından yapılğam içün begene ediler.
 Aynı vaqıtta silâhmn bezetilmesine de diqqat etile edi.
-Oırımtatar ustaları silâh sapını morj kemiğinden yapılğan mıqlamalarnen, silâh demirini ise altın ve kümüş kertmelernen süslendire ediler.
+Qırımtatar ustaları silâh sapını morj kemiğinden yapılğan mıqlamalarnen, silâh demirini ise altın ve kümüş kertmelernen süslendire ediler.
 Böyle silâh Avropada, bilhassa Frantsiyada çoq satıla edi.
-İstanbulda ise hatta sahte silâh istihsali teşkil etilip, anda çıqarılğan mahsulatqa Bağçasaray ya da Oarasuvbazar ustalarının tamğalarını qoya, bundan son silâhmn fiyatı bir kereden arta edi.
-
+İstanbulda ise hatta sahte silâh istihsali teşkil etilip, anda çıqarılğan mahsulatqa Bağçasaray ya da Qarasuvbazar ustalarının tamğalarını qoya, bundan son silâhmn fiyatı bir kereden arta edi.
+%Esyalarnin demir qismi mesur damassk bolatindan yasala edi.
 Cumhuriyet qırımtatar sanatı muzeyinin fondlarında bulunğan pıçaq — özünde hem funktsional, hem estetik hasiyetlerni mucessemleştirgen qırımtatar silâhının parlaq numünesidir.
 Pıçaqmn demiri ve sapı nazik, hatta zarif bir şekilde, yüzü ise oymalı örnekler ve savatlamanen süslendirilgen.
 Pıçaqnı közden keçirir ekensin, om silâh sıfatında değil, milliy urbanın dülber qoşması ya da tatar maişetinin nefis bir tafsilâtı, dep bilesin.
@@ -304,37 +304,29 @@ Sap cülâlanıp, örnekli kertmelemen bezetilgen.
 Onın yuqarı qısımı eki balaban qulağı olğan başnı andırğanı içün böyle pıçaqlarğa «qaraqulaq» değenler.
 «Qaraqulaq» pıçaqlarnı esasen odamanlar qullanğanlar.
 Yalıboyu rayonlarında yaşağan qırımtatarlar «çızma» pıçaqlarnı da işletkenler.
-Böyle pıçaqlarnın sapları çızma şekilinde olğanı içün şöyle ad alğanlar.
-Pıçaq sapları boynuzlardan, kemiklerden, bazıda bütünley tunç ya da Afrikadan ketirilgen fil kemiğinden yapılğan.
-
-Oırımtatarlarnın qılıçları Oırımdan tışta da belli ediler.
+Böyle pıçaqlarnın sapları çızma şekilinde olğanı içün şöyle ad alğanlar, pıçaq sapları boynuzlardan, kemiklerden, bazıda bütünley tunç ya da Afrikadan ketirilgen fil kemiğinden yapılğan.
+Qırımtatarlarnın qılıçları Qırımdan tışta da belli ediler.
 Hem kesmeğe, hem tilmege, hem türtmege yahşi kelişken bu qılıçlar ğayet yengil olmaqnen ağır qılıçlardan üstün tura ediler.
-
 Ay baltalar, yani uzun saplı kerî baltalar — qırımtatar askerlerinin qoşma silâhı olaraq hizmet ete ediler.
 Olar ay şekilinde olıp, bazıda örnek ve yazılarnen bezetile turğanlar.
 Kimerde ise eki ağızlı olğanlar.
-
-Oırım ustaları qurşunlı silâh da yasağanlar.
-Meselâ, Bağçasarayda böyle soy silâh hazırlağan onlarnen ustahaneler çalışa edi.
+Qırım ustaları qurşunlı silâh da yasağanlar.
+Bağçasarayda böyle soy silâh hazırlağan onlarnen ustahaneler çalışa edi.
 Mında yasalğan pıştav ve tüfekler ğayet dülber, alıp yurmek içün onaytlı ve, eh mühimi, yahşi ata ediler.
 Oıymetli ağaçtan yapılğan tüfek qundaqları zengin bezetile turğan.
 Çaqmaqlı tüfeklernih namluları Şam bolatından yapıla, haneli ya da tögerek, tüz ya da yivli ola, dayanıqlığınen ayırılıp tura, şunın içün de pek çoq memleketlerde isteknen satın alına edi.
 Qısqa namlulı qırımtatar karabinlerine de yüksek qıymet kesile edi.
 Meselâ, XIX asırnın sonlarında — XX asırnın başlarında Bağçasarayda yasalğan bir dane karabinnin fiyatı altı yahşi atnın fiyatına doğru kele edi.
 Yuqarıda qayd etkenimiz kibi, qurşunlı silâh Oırımmh eksport malı esaplanaraq, mından yılda 2000 danege yaqın silâh alınıp ketile edi.
-
 Siyasetnen, qırımtatarlarnıh hocalıq çevirüvinen ve umumen turmuş tarzınen sıqı bağlı olğan silâh sanatı, ameliy sanatnın diğer çeşitleri kibi, yarımadada yüz bergen siyasiy, iqtisadiy dehişmelernih tesirini sezmey qalmadı.
 XIX asımın sonlarına — XX asırnın başlarına kelip, silâh ustaları qırımtatar silâhına şuret ketirgen fazilet ve an'anelerni saqlap qalmağa tırışsalar da, olarnın mahsulatı artıq tek manzaralı maqsadlarğa hizmet ete edi.
 O devirge ait tüfek, qılıç, pıçaqlar av ya da maişet içün, qıymetli bahşiş yahut yadikârlıq sıfatında yasaldılar.
 Kütleviy silâh istihsali yoq olıp, tek siyrek-sepelek hususiy şımarışlar qaldı.
-
 Özünin asıl tayinini coyğan silâhlar çeşit türlü muzeylerge, şahsiy kollektsiyalarğa tüşip başladılar.
 Bugünde-bugün qırımtatar silâh sanatının numüneleri Bağçasaraydaki tarihiy-medeniy zapovedniknin muzeyinde, Rusiye etnografiya muzeyindeki toplamlarda buluna, ayrı numüneler ise Moskva «remlinin Silâh palatasında, şarqiy Avropa, Türkiye muzeylerinde saqlı tura.
 Silâh ustalarının bir çoq eserleri Oırımdan tışqa çıqarılıp, bellisiz ğayıp oldılar.
-
 Saqlanıp qalğan numüneler qırımtatar ustalarının kâmil menimsedikleri usullarnın, yani örnekli oyma, qaqma, altın ve kümüş kertme, sadet ve kemiknen mıqlama, savatlama, yaldızlama usullarının keniş qullanılmasınen ayırılıp turalar.
 Bediiy madenni yaraştırğan örnek motivlerinde qırımtatar etnosının şekillenmesine asırlar devamında tesir köstergen ve biri-birinih yerine kelgen çeşit qabilelernin qadimiy diniy obrazları öz ifadesini tapqanlar.
-
 Oymacılar, qaqmacılar «lâle», «gül ğoncesi», «qaranfil», «gülçerep» kibi ösümlik motivlerinden defalarca faydalandılar.
 Bütün bu motivler temsiliy mana taşıy ve pek qolay telqin etileler.
 
