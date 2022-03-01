@@ -67,7 +67,7 @@ Özüm de bilmeyim. – Endi keri qaytam.
 
 — Afu etiñiz, – Georgios elindeki gazetanı krovat üstüne bıraqıp, kevdesini doğrulttı. – Banadan beri sizge baqam... tanış kişime beñzeysiñiz.
 Elbet, pek tanış kişime...
-Siz Fener Burunda yaşamağanmı ediñiz?
+– Siz Fener Burunda yaşamağanmı ediñiz?
 
 Laqırdımız artıq eki yaqlap bağlanıp ketken soñ, Georgios azar-azar töküne berdi.
 Men diñledim, tek suallerine cevap berdim... cevap bermegenlerim de oldı.
