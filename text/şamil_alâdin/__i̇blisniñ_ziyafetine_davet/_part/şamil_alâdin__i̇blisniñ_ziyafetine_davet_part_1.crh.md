@@ -235,6 +235,7 @@ Böyle degen vaqtımda idare reberi üyken ilmiy hadimge şaşqın nazar tas
 Öyle köy yoq... dedim.
 Kişi inanmay.
 Özüñiz, İlya İsaakoviç, añlatıñız!
+
 Pavel Tarasoviçniñ, aramızda olıp keçken subetni Şabşalğa naql etüvi kinayeli olıp çıqsa da, tarih fenleri namzeti onı sabırnen diñledi.
 Laf soñuna yaqınlağanda, özü farqına barmayıp, sağ eliniñ üç parmağını toplay berip, sol avuçı içine urdı.
 
