@@ -48,17 +48,17 @@ He presently got safely beyond the reach of capture and punishment,
 Tom was General of one of these armies, Joe Harper (a bosom friend) General of the other.
 These two great commanders did not condescend to fight in person—that being better suited to the still smaller fry—but sat together on an eminence and conducted the field operations by orders delivered through aides-de-camp.
 Tom's army won a great victory, after a long and hard-fought battle.
-Then the dead were counted, prisoners exchanged, the terms of the next disagreement agreed upon, and the day for the necessary battle appointed;
-after which the armies fell into line and marched away, and Tom turned homeward alone.
-
+Then the dead were counted, prisoners exchanged, the terms of the next disagreement agreed upon, and the day for the necessary battle appointed;after which the armies fell into line and marched away, and Tom turned homeward alone.
 As he was passing by the house where Jeff Thatcher lived, he saw a new girl in the garden—a lovely little blue-eyed creature with yellow hair plaited into two long-tails, white summer frock and embroidered pantalettes.
 The fresh-crowned hero fell without firing a shot.
 A certain Amy Lawrence vanished out of his heart and left not even a memory of herself behind.
 He had thought he loved her to distraction; he had regarded his passion as adoration; and behold it was only a poor little evanescent partiality.
-He had been months winning her; she had confessed hardly a week ago; he had been the happiest and the proudest boy in the world only seven short days, and here in one instant of time she had gone out of his heart like a casual stranger whose visit is done.
+He had been months winning her;she had confessed hardly a week ago;
+ he had been the happiest and the proudest boy in the world only seven short days, and here in one instant of time she had gone out of his heart like a casual stranger whose visit is done.
 
-He worshipped this new angel with furtive eye, till he saw that she had discovered him; then he pretended he did not know she was present, and began to "show off" in all sorts of absurd boyish ways, in order to win her admiration.
-He kept up this grotesque foolishness for some time; but by-and-by, while he was in the midst of some dangerous gymnastic performances, he glanced aside and saw that the little girl was wending her way toward the house.
+He worshipped this new angel with furtive eye, till he saw that she had discovered him;
+then he pretended he did not know she was present, and began to "show off" in all sorts of absurd boyish ways, in order to win her admiration.
+He kept up this grotesque foolishness for some time; but by-and-by, while he was in the midst of some dangerous gymnastic performances, he glanced aside and saw that the little girl was wending her way toward the house.
 Tom came up to the fence and leaned on it, grieving, and hoping she would tarry yet awhile longer.
 She halted a moment on the steps and then moved toward the door.
 Tom heaved a great sigh as she put her foot on the threshold.
