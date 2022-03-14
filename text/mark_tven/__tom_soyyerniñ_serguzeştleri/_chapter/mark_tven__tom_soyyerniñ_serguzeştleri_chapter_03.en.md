@@ -86,8 +86,8 @@ Presently she stepped into the kitchen, and Sid, happy in his immunity, reached 
 
 But Sid's fingers slipped and the bowl dropped and broke.
 Tom was in ecstasies.In such ecstasies that he even controlled his tongue and was silent.
-He said to himself that he would not speak a word, even when his aunt came in, but would sit perfectly still till she asked who did the mischief;
- and then he would tell, and there would be nothing so good in the world as to see that pet model "catch it."
+He said to himself that he would not speak a word, even when his aunt came in, but would sit perfectly still till she asked who did the mischief.
+ And then he would tell, and there would be nothing so good in the world as to see that pet model "catch it."
 
 He was so brimful of exultation that he could hardly hold himself when the old lady came back and stood above the wreck discharging lightnings of wrath from over her spectacles.
 He said to himself, "Now it's coming!" And the next instant he was sprawling on the floor!
