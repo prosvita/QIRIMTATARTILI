@@ -88,24 +88,29 @@ But Sid's fingers slipped and the bowl dropped and broke.
 Tom was in ecstasies.In such ecstasies that he even controlled his tongue and was silent.
 He said to himself that he would not speak a word, even when his aunt came in, but would sit perfectly still till she asked who did the mischief.
  And then he would tell, and there would be nothing so good in the world as to see that pet model "catch it."
-
+ % It couldn't be better!
 He was so brimful of exultation that he could hardly hold himself when the old lady came back and stood above the wreck discharging lightnings of wrath from over her spectacles.
-He said to himself, "Now it's coming!" And the next instant he was sprawling on the floor!
+He said to himself,
+"Now it's coming!"
+ And the next instant he was sprawling on the floor!
 The potent palm was uplifted to strike again when Tom cried out:
 
 "Hold on, now, what 'er you belting ME for?—Sid broke it!"
 
-Aunt Polly paused, perplexed, and Tom looked for healing pity.
+Aunt Polly paused, perplexed,
+ Аnd Tom looked for healing pity.
 But when she got her tongue again, she only said:
 
 "Umf!
 Well, you didn't get a lick amiss, I reckon.
 You been into some other audacious mischief when I wasn't around, like enough."
 
-Then her conscience reproached her, and she yearned to say something kind and loving; but she judged that this would be construed into a confession that she had been in the wrong, and discipline forbade that.
+Then her conscience reproached her, and she yearned to say something kind and loving.
+But she judged that this would be construed into a confession that she had been in the wrong, and discipline forbade that.
 So she kept silence, and went about her affairs with a troubled heart.
 Tom sulked in a corner and exalted his woes.
-He knew that in her heart his aunt was on her knees to him, and he was morosely gratified by the consciousness of it.
+He knew that in her heart his aunt was on her knees to him.
+And he was morosely gratified by the consciousness of it.
 He would hang out no signals, he would take notice of none.
 He knew that a yearning glance fell upon him, now and then, through a film of tears, but he refused recognition of it.
 He pictured himself lying sick unto death and his aunt bending over him beseeching one little forgiving word, but he would turn his face to the wall, and die with that word unsaid.
@@ -114,30 +119,32 @@ And he pictured himself brought home from the river, dead, with his curls all we
 How she would throw herself upon him, and how her tears would fall like rain, and her lips pray God to give her back her boy and she would never, never abuse him any more!
 But he would lie there cold and white and make no sign—a poor little sufferer, whose griefs were at an end.
 He so worked upon his feelings with the pathos of these dreams, that he had to keep swallowing, he was so like to choke; and his eyes swam in a blur of water, which overflowed when he winked, and ran down and trickled from the end of his nose.
-And such a luxury to him was this petting of his sorrows, that he could not bear to have any worldly cheeriness or any grating delight intrude upon it; it was too sacred for such contact; and so, presently, when his cousin Mary danced in, all alive with the joy of seeing home again after an age-long visit of one week to the country, he got up and moved in clouds and darkness out at one door as she brought song and sunshine in at the other.
+And such a luxury to him was this petting of his sorrows, that he could not bear to have any worldly cheeriness or any grating delight intrude upon it; it was too sacred for such contact;
+ And so, presently, when his cousin Mary danced in, all alive with the joy of seeing home again after an age-long visit of one week to the country, he got up and moved in clouds and darkness out at one door as she brought song and sunshine in at the other.
 
 He wandered far from the accustomed haunts of boys, and sought desolate places that were in harmony with his spirit.
 A log raft in the river invited him, and he seated himself on its outer edge and contemplated the dreary vastness of the stream, wishing, the while, that he could only be drowned, all at once and unconsciously, without undergoing the uncomfortable routine devised by nature.
-Then he thought of his flower.
-He got it out, rumpled and wilted, and it mightily increased his dismal felicity.
+
+Then he thought of his flower.He got it out, rumpled and wilted, and it mightily increased his dismal felicity.
 He wondered if she would pity him if she knew?
 Would she cry, and wish that she had a right to put her arms around his neck and comfort him?
 Or would she turn coldly away like all the hollow world?
 This picture brought such an agony of pleasurable suffering that he worked it over and over again in his mind and set it up in new and varied lights, till he wore it threadbare.
 At last he rose up sighing and departed in the darkness.
 
-About half-past nine or ten o'clock he came along the deserted street to where the Adored Unknown lived; he paused a moment; no sound fell upon his listening ear; a candle was casting a dull glow upon the curtain of a second-story window.
+About half-past nine or ten o'clock he came along the deserted street to where the Adored Unknown lived;
+ he paused a moment; no sound fell upon his listening ear; a candle was casting a dull glow upon the curtain of a second-story window.
 Was the sacred presence there?
 He climbed the fence, threaded his stealthy way through the plants, till he stood under that window; he looked up at it long, and with emotion; then he laid him down on the ground under it, disposing himself upon his back, with his hands clasped upon his breast and holding his poor wilted flower.
 And thus he would die—out in the cold world, with no shelter over his homeless head, no friendly hand to wipe the death-damps from his brow, no loving face to bend pityingly over him when the great agony came.
-And thus SHE would see him when she looked out upon the glad morning, and oh!
-would she drop one little tear upon his poor, lifeless form, would she heave one little sigh to see a bright young life so rudely blighted, so untimely cut down?
+And thus SHE would see him when she looked out upon the glad morning, and oh! would she drop one little tear upon his poor, lifeless form, would she heave one little sigh to see a bright young life so rudely blighted, so untimely cut down?
 
 The window went up, a maid-servant's discordant voice profaned the holy calm, and a deluge of water drenched the prone martyr's remains!
 
 The strangling hero sprang up with a relieving snort.
 There was a whiz as of a missile in the air, mingled with the murmur of a curse, a sound as of shivering glass followed, and a small, vague form went over the fence and shot away in the gloom.
 
-Not long after, as Tom, all undressed for bed, was surveying his drenched garments by the light of a tallow dip, Sid woke up; but if he had any dim idea of making any "references to allusions," he thought better of it and held his peace, for there was danger in Tom's eye.
+Not long after, as Tom, all undressed for bed, was surveying his drenched garments by the light of a tallow dip, Sid woke up.
+But if he had any dim idea of making any "references to allusions," he thought better of it and held his peace, for there was danger in Tom's eye.
 
 Tom turned in without the added vexation of prayers, and Sid made mental note of the omission.
