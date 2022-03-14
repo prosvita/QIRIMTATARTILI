@@ -66,25 +66,28 @@ But his face lit up, right away, for she tossed a pansy over the fence a moment 
 
 The boy ran around and stopped within a foot or two of the flower, and then shaded his eyes with his hand and began to look down street as if he had discovered something of interest going on in that direction.
 Presently he picked up a straw and began trying to balance it on his nose, with his head tilted far back; and as he moved from side to side, in his efforts, he edged nearer and nearer toward the pansy; finally his bare foot rested upon it, his pliant toes closed upon it, and he hopped away with the treasure and disappeared round the corner.
+
 But only for a minute—only while he could button the flower inside his jacket, next his heart—or next his stomach, possibly, for he was not much posted in anatomy, and not hypercritical, anyway.
 
-He returned, now, and hung about the fence till nightfall, "showing off," as before; but the girl never exhibited herself again, though Tom comforted himself a little with the hope that she had been near some window, meantime, and been aware of his attentions.
+He returned, now, and hung about the fence till nightfall, "showing off," as before;
+but the girl never exhibited herself again, though Tom comforted himself a little with the hope that she had been near some window, meantime, and been aware of his attentions.
 Finally he strode home reluctantly, with his poor head full of visions.
 
-All through supper his spirits were so high that his aunt wondered "what had got into the child." He took a good scolding about clodding Sid, and did not seem to mind it in the least.
+All through supper his spirits were so high that his aunt wondered "what had got into the child."
+ He took a good scolding about clodding Sid, and did not seem to mind it in the least.
 He tried to steal sugar under his aunt's very nose, and got his knuckles rapped for it.
-He said:
 
-"Aunt, you don't whack Sid when he takes it."
+He said:"Aunt, you don't whack Sid when he takes it."
 
 "Well, Sid don't torment a body the way you do.
 You'd be always into that sugar if I warn't watching you."
 
 Presently she stepped into the kitchen, and Sid, happy in his immunity, reached for the sugar-bowl—a sort of glorying over Tom which was wellnigh unbearable.
+
 But Sid's fingers slipped and the bowl dropped and broke.
-Tom was in ecstasies.
-In such ecstasies that he even controlled his tongue and was silent.
-He said to himself that he would not speak a word, even when his aunt came in, but would sit perfectly still till she asked who did the mischief; and then he would tell, and there would be nothing so good in the world as to see that pet model "catch it."
+Tom was in ecstasies.In such ecstasies that he even controlled his tongue and was silent.
+He said to himself that he would not speak a word, even when his aunt came in, but would sit perfectly still till she asked who did the mischief;
+ and then he would tell, and there would be nothing so good in the world as to see that pet model "catch it."
 
 He was so brimful of exultation that he could hardly hold himself when the old lady came back and stood above the wreck discharging lightnings of wrath from over her spectacles.
 He said to himself, "Now it's coming!" And the next instant he was sprawling on the floor!
