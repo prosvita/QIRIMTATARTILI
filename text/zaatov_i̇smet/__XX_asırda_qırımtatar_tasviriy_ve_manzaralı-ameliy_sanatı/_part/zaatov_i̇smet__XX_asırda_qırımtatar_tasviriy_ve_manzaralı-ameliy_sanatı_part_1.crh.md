@@ -2,50 +2,30 @@
 
 ### 1.1. Oırımnın qadimiy polietnik medeniyetinin fenomeni
 
-Qırım medeniyeti — cihan miqyasındaki fenomendir.
-Onın unikalligi kolemce pek büyük olmağan yarımada territoriyasında biri-birini asırlar devamında deniştirgen çoqtan-çoq etnoslarnıri misilsiz qarışuvından kelip çıqa.
-Tarih iliminde Oırım yarımadasına «insaniıq tarihındaki tecribe meydanı» — Şarq ve Garp arasındaki sınır mintaqası, qatıluv zonası, çeşit tsivilizatsiyalarnıri rastkelişken yeri sıfatında qıymet kesilgeni tesadüf değildir.
-(41. 4-nci sahife).
-Mındaki medeniyetke has olğan hususiy alâmetlerniri şekillenmesinde Oırımnıh coğrafik cehetten yerleşüvi de büyük röl oynağandır.
-M. Voloşin tabir etkeni kibi, «...
-qaynap taşqan insan aqıntılarının ayrı aqımçıqları mında burulıp, bu yerdeki tınç limanda, suvu durğun çekmelerde toqtala, öz layım saylıqlarda qatlam-qatlam qaldıra, sonra bu qatlamlar biri-birinen tabiiy surette qarışa ediler».
-(44.
-55-nci sahife).
+%Qırım medeniyeti — cian kölemindeki bir fenomendir.
+%Onıñ unikalligi territoriya ceetinden deyerlik büyük olmağan yarımadanıñ sıñırları çerçivesinde asırlar devamında mında biri-biri artından kelip-ketken çoqtan-çoq etnoslarnıñ qarışmasınen belgilengendir.
+%Tarih iliminde Qırım yarımadası aqqında Şarq ve Ğarbnıñ sıñırındaki alâqalar zonası, çeşit-türlü tsivilizatsiyalarnıñ körüşüv yeri olğan "insanlıq tarihınıñ tecribe tarlası" degen fikir tesadufen pekinip qalmağandır.
+%Qırımnıñ coğrafik vaziyeti, onıñ ana-qıtadan yarımada şekilinde ayrı bulunması maalliy medeniyetniñ spetsifik qurulışında az rol oynamağandır.
+%M. Voloşinniñ obrazlı etip aytqanı kibi, "...mında tolup-taşqan insanlıq aqımlarınıñ ayrı irmaçıqları aqıp kele, sakin ve çıqımı olmağan limanlarda qatıp qala, olarnıñ sazlığına öz balçığını qoya, biri-biriniñ üstüne qat-qat yata, soñra ise tabiiy sürette biri-birinen qarışa ediler".
 
-Tarihçılarnın tarazlarına köre, özünin ziyade kelişikli, onaytlı iqlimiy şaraitlerinen ayırılıp turğan Oırım toprağı insanlıqmn, zemaneviy tsivilizatsiyanıfi eh qadimiy beşiklerinden biri olıp kelgendir.
-(41. 15-nci sahife).
-Arheologlarnıh araştırmaları sayesinde mında ta aşağı paleolit devirinde yaşağan adamlarnın duraqları tapıldı.
-Zuya özeninin vadiysinde, Aqmescitten 25 km avlaqta yerleşken Oızıl qoba (aşağı paleolit, bundan 100 bin yıl evelsi) Oırımdaki eh qadimiy yurtluqtır.
-Bağçasaray rayonındaki Salaçıq koyu yanında tapılğan neandertalliler durağı ve Aqmescitteki Küçük Salğırnın sol yalısında yerleşken Çuqurça qobasında tapılğan kromanonlılar durağı, kene de kromanonlılarnın Oarasuvbazar yanındaki Aq qaya durağı (orta paleolit, bundan 50-40 bin yıl evelsi) devirine aittir.
-Yuqarı paleolit (bundan 3510 bin yıl evelsi) devirini ise Belbek özeni vadiysindeki Süren durağı, Burulça özeni vadiysindeki Boran qaya qobası, Acı qoba ve başqaları temsil eteler.
-Oırımda tapılğan abidelerni Şimaliy Qara dehizboyu ve Kavkaznın Qara deniz yalısında tapılğan abidelernen birleştirgen pek çoq umumiylikler mevcuttır.
-Taş devirinin başlanuvına kelip, mında ayrı eşyalar peyda ola ki, olarda bediiy icat elementlerinin başlanğıçlarını körmek mümkün.
-Bular — kemik ve boynuzlardan yasalıp, kertme ve oymalı nağışlarnen bezetilgen eşyalar ediler.
-Bundan ğayrı, tapılğan ve tantiminen, aqılane yapılğanı körünip turğan qaşağalar, disk şekilindeki kedikler yerli adamlarnın taş, teri, ağaçnı işlev alışqanlıqları inkişaf etkeninden delâlet bereler.
-Çorğuna özeni vadiysindeki Süren-2, Şan qoba, Fatma qoba, Mirza qoba duraqları, maddiy medeniyet tapılmaları pek çoq olğan Boran qobanın yuqarı gorizontı mezolit (bundan 14-7 bin yıl evelsi) devirine aitler.
+%Tarihçılarnıñ tahminlerine köre, eyi tesirli iqlim şaraitlerinen ayrılıp turğan Qırım toprağı beşeriyetniñ, zemaneviy tsivilizatsiyanıñ qadimiy beşiklerinden biridir.
+%Arheologlarnıñ tedqiqatları sayesinde mında aşağı paleolitten başlap, insan duraqları tapıldı.
+%Simferopolden şimalge 25 kilometr avlaqta Zuya özeniniñ vadiysinde yerleşken Kiyik-Qoba qobası (aşağı paleolit, 100 biñ yıl evelsi) Qırımda eñ qadimiy duraqlardan biri sayıla.
+%Orta paleolit deviri (50-40 biñ yıl evelsi) neandertaletslerniñ Salaçıq köyünde (Bağçasaray rayonı), kromanyonlarnıñ Simferopol şeerindeki (Küçük Salğır özeniniñ sol yalısındaki Çuqurça qobası), Belogorsk rayonındaki (evelki Qarasuvbazar — Aq-Qaya) duraqları ile taqdim olunğandır.
+%Yuqarı paleolit (35-10 biñ yıl evelsi) ise abidelerniñ keniş gruppasınen taqdim olunğandır (Belbek özeniniñ vadiysindeki Süren durağı, Burulça özeniniñ vadiysindeki Burun-Qaya qobası, Acı-Qoba qobası ve ilh.).
+%Olar Şimaliy Qaradeñizboyu ve Qara deñizniñ Kavkaz yalısındaki abidelernen bir çoq beñzerlikke malikler.
+%İlk eşyalarnıñ peyda oluvı taş deviriniñ başlarına doğru kele, meselâ kemik ve boynuzdan yasalğan oyma ve kertiklernen bezetilgen bu eşyalarda endi bediiy yaratıcılıqnıñ iptidaiy elementleri közge çarpıp başlaylar.
+%Bu devirde taşnı, terini, ağaçnı ğayrıdan işlev melekeleri inkişaf ete, aqılane ve tantiminen yasalğan qırğıçlar, disk şekilindeki aletler bundan delâlet bermekteler.
+%Maddiy medeniyet tapılmalarınen zengin olğan Çernaya (Çorğuna) özeniniñ vadiysindeki Süren-2, Şan-Qoba, Fatma-Qoba, Murzaq-Qoba, Boran-Qobanıñ Yuqarı qatlamı mezolit (14-7 biñ yıl evelsi) devirine aitler.
 
-Oırım tarihinin eh qadimki deviri tolusınen tedqiq etilmegeni halda, biz neolit deviri (6-3 bin yıl evelsi) haqqında bayağı malümatlarğa malikmiz.
-O devir ta inqilâptan evel çalışqan alimler K.
-S. Merejkovskiy, N.
-N. Klepinin, A.
-S. Moiseyev kibi rus alimleri tarafından ögrenilgen edi (Çatırdağdaki qobalar, Binbaş qoba, Suvuq qoba, Süren ve Pıçqı yanındaki, Sarıgöl ve Üçqoştaki duraqlar).
-Şimdilikte biz Oırımda qadimiy adamlar yaşağan yerlerden qararnen 150-sini bilemiz.
+%Qırım tarihınıñ qadimiy deviri yeterlik derecede tolu tedqiq etilmegen, biz neolit (milâdiyden 6-3 biñ yıl evelsi) deviri aqqında bayağı çoq malümatlarğa malikmiz.
+%Bu devir inqilâbdan evel K. S. Merejkovskiy, N. N. Klepinin, A. S. Moiseyev kibi alimler tarafından ögrenilgen edi.
+%Olarnıñ Çatırdağ qobaları, Biñbaş-Qoba, Suuq-Qoba, Pıçqı ve Süren köyleri, Sarıgol gölü yanındaki duraqlar, Gurzuf davanındaki duraq, Üç-Qoş durağı boyunca yapqan tedqiqatları buña misal ola bilir.
+%Qırımda qadimiy sakinler yaşağan 150-ge yaqın duraq bellidir.
 
-Oırım keramikasının eh qadimiy numüneleri de neolit devirine aitler.
-Eh erte tapılmalar balçıqtan yapılıp, ateşte yaqtırılğan, şekilleri cehetinden türlü-türlü, «kimerde yapıluv tehnikası ve örnekleri cehetinden zengin olğan» (Başkirov) savut-sabadan ibarettir.
-Böyle tapılmalar Bağçasaray yanındaki Qaya arası ve Aqmescit yanındaki Atbaş duraqlarında elde etilgen ediler.
+%Qırım kirametiniñ qadimiy nümüneleri ta neolit devirinden bellidir.
 
-Eneolit deviri (eramızdan 3 bin yıl evelsi) maddiy ve maneviy medeniyetnin inkişafında yüz bergen sezilirli teraqqiyatnen ayırılıp tura.
-O devirde madenden yasalğan ilk ilvanlar — bilezlik ve baqır gerdanlıqlar keniş tarqalıp başlay.
 
-Eneolit devirinin sonuna kelip Oırım sanatı keyfiyetçe yanı basamaqqa adım ata — ilk qaya resimleri peyda olalar.
-Olarnin vaqıt diapazom eramızdan evelki XX asırdan VIII asırğa qadar uzana (Bağçasaray yanındaki Taş ayır deresi.
-Bağça eli koyu, Beşqurtqa koyu yanındaki Sarı qaya).
-Oayalardaki resimlerde hem uruv tamğaları, solâr ve semaiy temsiller, hem çoq figuralı kompozitsiyalar (av levhaları — atlar, silâhlı atlılar, oqçılar) tasvirlengen.
-Oırımda (Avropada ilk olaraq) çoq renkli resimler peyda olalar.
-Antropomorfik abidelernin, cümleden, insan kevdesini andırğan taş stelalarnın peyda olması (Bağçasaray rayonındaki Büyük Özenbaş ve Kokköz köyleri yanında) da tunç devirnen bağlıdır.
-Böyle taşlarnı tiklev bütün Oara denizboyu regionına ve Kavkazğa has edi.
-Ourğanlar (mezar obaları), kromlehler kibi monumental diniy inşaatlar (Oırımdaki eh büyük kromlehlernin birisi Aqmescit civarlarında yerleşken ve bu yerde suv anbarı qurulğan son suv astında qalğan edi) mında mimarcılıqnıh başlanğıçı mevcut olğanından delâlet bereler.
 Belli ki, qomşu territoriyalarnın medeniyetlerinde de böyle şeyler bar edi.
 
 Bütün bular «tunç deviri yerli qabilelernin ömür faaliyeti tek aktivleşmesinen değil, aynı zamanda olarnin Oadimiy Şarq, Aq deniz etrafındaki, Kavkaz artındaki tsivilizatsiyalarnen sıq qonuşmalarınen de qayd oluna» demeğe esas bereler.
