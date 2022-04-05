@@ -1,6 +1,6 @@
 ## OIRIMTATAR MANZARALI-AMELİY VE TASVİRİY SANATININ XX ASIRĞA QADAR ŞEKİLLENMESİ VE İNKİŞAF ETMESİ
 
-### 1.1. Oırımnın qadimiy polietnik medeniyetinin fenomeni
+### 1.1. Qırımnın qadimiy polietnik medeniyetinin fenomeni
 
 %Qırım medeniyeti — cian kölemindeki bir fenomendir.
 %Onıñ unikalligi territoriya ceetinden deyerlik büyük olmağan yarımadanıñ sıñırları çerçivesinde asırlar devamında mında biri-biri artından kelip-ketken çoqtan-çoq etnoslarnıñ qarışmasınen belgilengendir.
