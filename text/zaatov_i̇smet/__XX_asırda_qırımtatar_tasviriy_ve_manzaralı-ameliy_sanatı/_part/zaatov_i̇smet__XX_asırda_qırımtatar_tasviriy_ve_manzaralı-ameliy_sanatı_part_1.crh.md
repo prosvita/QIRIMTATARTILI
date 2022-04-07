@@ -110,6 +110,124 @@
 %Rumlar tavrlarnıñ mabudesi olğan Orhilohqa tabına ediler.
 %Diger taraftan, tavrlarnıñ sanatı rum mifologiyasınıñ obrazlarınen, plastikasınen toldurıla, tavrlarnıñ sanatı antik eykelik tesiriniñ altında qala.
 
+%Tavrlarnıñ kiramet sanatı keniş taqdim olunğandır.
+%Savut-sabalar küneş nişanlarınen, semaviy temsillernen süslendirilgendir, bu nişan ve temsiller qomşu halqlarnıñ sanatında da keniş tarqalğandır — Hersonesniñ ellinistik qatlamlarında pek çoq kiramet eşyaları tapıldı, olarnıñ tutqıçları üstünde ustalarnıñ adlarınen yan-yanaşa "tavr" etnonimi de yazılğandır.
+
+%Bu devir Qırım medeniyetiniñ genezisi içün ğayet nümünelidir: bu devir ellin ve Rim tesiri altında alıp ketirilgen skif dominantası olğan maalliy tavr elementleriniñ sintezinen qayd etilgendir.
+%Bundan da ğayrı, milâdiyden evel VI-V aa. ait skif kurganlarında tapılğan İran importınıñ eşyaları maalliy medeniyetlerniñ Ulu İrannıñ mirasınen tanış olğanları ve alâqalarda bulunğanları aqqında delâlet bermekte.
+%Bu sintez ondan soñki devirlerde inkişaf etken qırımtatar medeniyetiniñ temelini teşkil etti.
+
+%Skiflerniñ özleri (Gerodotnıñ qayd etkenine köre, mında çar skifleri yaşaganlar) Qırımda aman-aman 1000 yıl, yani got qabileleri olarnı tar-mar etkenge qadar yaşadılar, vaqıt keçtikçe otraq ziratçılıqqa keçtiler ve şimdiki Simferopolniñ civarında paytahtı Neapol-Skifskiyde (milâdiyden evel ІІ-ІІІ a.) — soñradan alğan adı Kermençik (qırımtatarcada "qale" — devlet qurdılar).
+%Bu ellin mabudeleri ve qaramanlarınıñ, skif daiyleriniñ eykelleri yerleştirilgen soqaqları, freskalarnen süslendirilgen cemaat ve mesken binaları olğan tipik antik bir şeer edi.
+%Skiflerniñ Şimaliy Qaradeñizboyundaki qomşu antik şeerlernen alâqalarda bulunganları bellidir.
+
+%Bu devirniñ maddiy medeniyeti maalliy ealiniñ çoqçeşitli medeniy alâqaları aqqında delâlet bergen ameliy sanat eşyalarınıñ keniş diapozonı ile taqdim etilgendir.
+%Mında em skiflerniñ "ayvan üslübine" harakterli olğan eşyalarnı, em ellinlerniñ qaraşekilli ve qızılşekilli vazalarını, şekilli tutquçları olğan İran küzgülerini, İnd okeanından alınğan mercanlardan yasalgan bezeklerni de rastketirmek mümkün.
+%Skif eşyalarında bediiy ğayelerniñ biri-birine yapqan tesirlerini körmek mümkün.
+%Antik örneklernen, selena ve satirlerniñ, Meduza Gorgonanıñ resimlerinen süslendirilgen eşyalarda bu daa ziyade körüne.
+%Skif sanatına İran sanatında ğayet populâr olğan polimorf mevcutatlar — sfinksler ve grifonlarnıñ obrazları da kirip keleler.
+%Skiflerniñ köçebe müiti diger medeniyetlerden olğan alıntılarğa ğayet tesirçen, açıq ve areketçen olğanını qayd etmeli.
+
+%Ellin-skif medeniyetiniñ sintezi bir çoq unikal sanat yadikârlıqlarınıñ peyda olmasına alıp keldi, meselâ Neapol-Skifskiyniñ civarındaki nağışlarnen (atlılar ve çalğıcılar), ağaç skulpturalarnen (sfinksler ve grifonlarnıñ şekillerinen) süslendirilgen nekropol bu cümledendir.
+%Bunıñ kibi de mında antik kiramet, quyumcılıq eşyalarınıñ nümüneleri saqlanıp qalğandır.
+
+%Vaqıt keçtikçe skifler maalliy zalite qarışıp, yoq olıp kettiler.
+%Skiflernen bir vaqıtta, yani milâdiyden evel 7 asırda peyda olğan ellin kolonistleriniñ medeniyetlerine kelgende ise şunı ayta bilemiz: olarnıñ medeniyeti Qırımnıñ medeniy tarihında eñ ziyade ögrenilgen bir medeniyettir.
+%Ebet, bu medeniyet Qırımda Yunanistan ve Küçük Asiyadaki kibi inkişaf etmedi.
+%Yarımadanıñ ğarbında yerleşken Hersones, şarqta Bospor çarlığınıñ paytahtlarından biri olğan Pantikapey (Kerç), milâdiyden evel 6 asırda meydanğa ketirilgen Feodosiya, şimdiki Yevpatoriya bulunğan yerdeki Kerkinitida Qırımda ellin medeniyetiniñ yetekçi merkezleri ediler.
+%Bospor çarlığı Qırımda ellin medeniyetini numayış etken eñ aydın bir misaldir.
+%Mitridat Yevpator devirinde qocaman qudret ve mühteşemlikke irişken Bospor çarlığı 800 yıl turdı.
+%Bospor çarlığındaki ealiniñ etnik erkânı ilmiy edebiyatta çoq vaqıtlar devamında munaqaşalarğa sebep olıp keldi.
+%Tedqiqatçılarnıñ ekseriyeti mında esasen ellin ve sarmat medeniyetleriniñ elementlerini menimsegen skifler yaşağan ediler, degen fikirge keleler.
+%Başqa bir noqtaiy-nazarğa köre, mında ealiniñ esas qısımını ellinler teşkil etkenler.
+
+%Qırım medeniyeti inkişafınıñ bir sıra hususiyetleri Feodosiyanıñ — tavrlarda — Ardabda, türk menbalarında Aradayda — tarihınen bağlıdır.
+%Ellin kolonistleri tarafından meydanğa ketirilgen bu şeer bir çoq asır keçken soñ Qaradeñizboyunıñ eñ iri ticaret ve medeniy merkezlerinden biri olğan Kefe ceneviz qalesine çevirile.
+%Türk istilâsı yıllarında Qırım yarımadasında osmanlı medeniyetiniñ merkezi olğan Küçük İstanbul adınen añıla.
+
+%Coğrafik ceetten antik tsivilizatsiyanıñ diger şeerlerine yaqın turğan Hersones ta orta asırlarğace Qırımda ellin ana-qıta medeniyetiniñ forpostı olıp keldi.
+%Hersoneste milâdiyden evel ІІІ-ІІ asırlarda maalliy koroplast-eykeltıraşlar tarafından yasalğan antik skulpturalarnıñ fragmentleri bizim künümizgece yetip keldirler.
+%Bu fragmentlerde antik Hersoneste populâr olğan ilâhlar — Deva ve Gerakl, Appolon ve Dionis ve onıñ etrafında bulunğan kimseler, Kibela ve Afrodita resimleriniñ tasvirleri mevcut.
+%Bu tasvirlerde Skopasnıñ, Praksitelniñ, Lisippniñ tesirleri közge çarpa.
+%Korolastika sanatınıñ çeçeklenmesi em ibadet ihtiyaclarına, em de ilkingi material olğanına (mermer ve güzel keyfiyetli balçıq olmağanına) bağlıdır.
+%Şeerde terrakot eykellerini yasağan bir qaç ustahane bar edi.
+%Orta asırlarda Hersones Qırımda ve Ğarbiy Avropada bizans medeniyeti ve hristiancılıqnıñ translâtorına çevirile.
+
+%Böyleliknen, antik medeniyet (Qırımnıñ yalı boyları) ve tavr-skif qabileleriniñ medeniyetleri (Qırımnıñ çöl ve dağlıq rayonları) daimiy özara alâqalarda buluna edi.
+%İcadiy alâqalar, çetten kelgen ananeler neticesinde qırımlı ustalar klassik eykeltıraşlıq ve mimarcılıqnen, orderli sistemanen tanış olalar, qurucılıqnıñ yañı usul ve melekelerini menimseyler, esnafçılıqnıñ yañı çeşitlerinen tanış olalar, meselâ, pencere camları ve polihrom savutlar istisalını menimseyler.
+%Rimde ğayet populâr ölgan mozaika camlarını (millifiore) istisalı keniş darqamağa başlay.
+
+%Antik Qırımnıñ kirametçiligi antik urkçülikniñ tolusınen menimsenilgenini numayış ete.
+%Antik ürkçülikniñ ananeleri mında em import eşyalarnen, em de ellin kolonistleriniñ yasağan mallarınen kirip keleler.
+%Ürk ustaları tarafından maalliy balçıqtan yasalğan qızıl laklı, qızıl balçıqlı, külrenk balçıqlı yapma eşyalar bular cümlesindendir.
+%Aşhane savutları arasında antik Ortadeñizboyunda keniş darqağan şekillerdeki amforalar, pifoslar, qadeler, çanaqlar, şamdanlar, tepsilerniñ keniş assortimenti mevcuttır.
+
+%Tovretika ve quyumcılıq sanatına ait eşyalar — acayip nefis kümüşler, tunçtan ve demirden bütün quyulğan bilezlikler, ayvan ya da yılanlarnıñ başlarına beñzegen açıq, uclu bilezlikler, bazıda ise gemmalı, yani oyma taşlı yüzüklerde em ellin tesirini, em de çöl alemi sanatınıñ tesirini körmek mümkün.
+
+%Tapılmalar arasında taqdir ilâhı Tiha, Nika, Demetranıñ tasvirleri olğan gemmalar da sıq rastkele.
+%Bu gemmalar yarımadada işlep çıqarılğan mallardır, çünki mevcut menbalarğa köre Bosporda taş kesüv ustahanesi bar edi.
+%Lâkin çetten ketirilgen mallar da — ilmekler, toqalar, dügmeler keniş darqagan edi.
+
+%Bularnıñ episi antik Qırımnıñ büyük şeerlerinde medeniyet quvetli ellin tesiri altında inkişaf etkeni aqqında delâlet bermekteler.
+%Amma eramıznıñ IV asırında türkiy qabilelerniñ erte-garb birligi olğan hunlarnıñ seferleri Qırımda antik tsivilizatsiyanıñ izlerini silip atalar, ve bizans tesiri endi antik ananeler unutılğan devirde kirip kelmege başlay.
+
+%### 1.2. ORTA ASIRLARDA QIRIMDA ETNOMEDENİYETNİÑ SİNTEZİ VE ONIÑ ESASINDA QIRIM HANLIĞINDA UMUMQIRIM MEDENİYETİNİÑ ŞEKİLLENMESİ
+%(qırımtatarlarnıñ etnogenezi misalinde)
+
+%Vizantiya quvetke kirip başlağan soñ Qırım (esasen onıñ yalıboyu qısımı) hristian pravoslaviyesiniñ tesirine oğrağan memleketler dairesinde buluna ve erte orta asır devirine kire.
+%Hristianlıqnıñ ğayeleri, başta bir, mimarcılıqta körüle.
+%Kilseler ve ibadethaneler, qobalarda ibadethaneler, bazilikler, rotondalar, çasovnâlarnıñ qurucılığı başlay.
+%Roman mimarcılığınıñ çeşitlerinden biri olğan rotonda yañı din içün qurban ketken şeitlerniñ qabirleri üstünde qurulğan, tsentrik qubbeli ibadethane — soñradan musulman mimarcılığında inkişaf etmege başlay.
+%Bu — meşur insanlarnıñ, zengin kişilerniñ mavzoley-türbeleridir.
+%Hristianlıqnıñ tarqaması freska boyalı resim çızuv sanatınıñ peyda olmasına sebep ola.
+%Bu sanatnıñ eñ eski nümüneleri HIII-HV asırlarğa aittir.
+%Qırımda ikonalar, haçlar, cemali haçlar, ilâhlarnıñ relyefli figuraçıqları keniş darqağan edi.
+%Medeniyet ve sanatnıñ diger çeşitlerine kelgende ise, mında bizans medeniyetiniñ tesiri çoq körülmey.
+%Esnafçılıqnıñ yetekçi çeşitlerinden biri sayılğan madenni bediiy ceetten ğayrıdan işlev esnafçılığında maalliy medeniyetleriniñ ananeleri inkişaf ettiler.
+%Çöl madenciliginiñ saqlanıp qalmasına Qırımğa yañı-yañı köçebe qabilelerniñ, bu cümleden türkiy tilli qabilelerniñ kelip yerleşmesi yardım etti.
+%Qırımğa moğol-tatar orduları bastırıp kirmezlerinden evel yarımadağa bir çoq türkiy tilli qabileler kelip ketkendirler.
+%Bu ise ket-kete yarımadada türkiy tilli ealiniñ çoqlaşmasına alıp keldi.
+%Orta asırlarda yaşağan qırım türkleriniñ bir qısımı proto-qırımtatarlar qomşularından hristian dinini alalar, olarnıñ nesilleri — greko-tatarlar, yani grek (pravoslav) dinini qabul eteler ve orta asırlardaki Qırımnıñ türk-hristian ealisini teşkil eteler.
+
+%R.Qurtiyevniñ fikirince, hunlar kelgen soñ (IV asırnıñ soñki çerigi — VI asırnıñ otuzıncı seneleri) köçebe türkiy qabilelerniñ Qırımnıñ türkiy olmağan ealisinen ilk etnosiyasiy alâqaları yüz berdi.
+%Neticede Qırımda iran qabileleriniñ (kimmeriyler, skifler, sarmatlar ve ilâhrileri) biñyıllıq ükümdarlığınıñ yerine kelgen türk tarihına temel qoyula.
+
+%Qırımtatar halqınıñ avtohtonlığına dair problema, ve onıñ medeniyetiniñ mında inkişaf etken tavr ve skif tsivilizatsiyalarnı meydanğa ketirgen qabilelerniñ medeniyetleriniñ varisi olğanı aqqındaki mesele bugün-de-bugün ilimde ve cemiyette eñ aktual meselelerden biridir.
+%Qırımtatar milliy areketiniñ liderleri ve Rusiye, Ukraina, Avropa ve Amerikanıñ bir sıra alimleri qırımtatar medeniyeti kelmeşek harakterini taşıy degen fikirge qarşı çıqalar ve şu pozitsiyalarda turalar.
+%Bu ğaye siyasiy küreşte qullanılğan boş ideologik şiar degil, aksine Qırımda milliy küreş keskinleşmesinden bayağı evel postulat olaraq belgilengen, ilmiy esaslandırılğan fakttır.
+
+%Daa XX asırnıñ başlarında alimler qırımtatarlar tavr medeniyetiniñ doğrudan-doğru varisi olğanı aqqındaki gipotezanı ögge sürgen ediler.
+%Rusiye iliminde Qırımnı tedqiq etken alimler arasında birinci olıp Petr Keppen: "Tapılmalarğa zengin olğan aman-aman bütün dolmenler (taş qobalar) sakinleriniñ damarlarında şimdi de qadimiy dolmen qurucılarınıñ qanı aqa, dep belleyim" dep yazğan edi.
+%Rus alimi, antropolog YE. Jirov kendi fikirini bayağı açıqça beyan etken edi.
+%O, Eski-Kermenni tedqiq etken ve bu aqta: "Dağlı Qırımnıñ orta asırlardaki ealisiniñ ekseriyeti qadimiy aborigenler — tavrlarnıñ nesilleri degil ekenlermi...
+%Asılında alacaq olsaq — tavrlar qayda ğayıp olıp kettiler.
+%Tarih nasıldır bir köçmenler aqqında iç bir şey aytmay", dep yazğan edi.
+
+%Keçenlerde dünya yüzü körgen "Qırımtatarlarnıñ tarihiy taqdirleri" ("İstoriçeskiye sudbı krımskih tatar") kitapbında, onıñ müellifi, Qırım medeniyeti ve tarihınıñ tedqiqatçısı V. Vozgrin qırımtatar sanatınıñ tarihı tavrlar sanatından kelip çıqqanını, esaslandıraraq, tasdiqlay.
+
+%Meraqlı yeri şunda ki, V. Vozgrin orta asırlarda qırımtatarlar aqqında yazğan bazı bir müelliflerniñ malümatlarını misal olaraq ketire: "tatarlar... özleriniñ qadimiy skif tamırlarınen ğururlanalar".
+%Qadimiy skifler ve tavrlarnıñ istiqamet yerleri orta asırlarda menimsenilgen medeniyet merkezleri olaraq öz emiyetlerini saqlap qalalar.
+%Bular — Eski-Kermen (Çerkes-Kirman köyü civarındaki qale), Manğup, Qız-Kermen, Tepe-Kermen, Baqla, Çufut-Qale ve saireleridir.
+
+%Amma qırımtatarlarnıñ tamırları yalıñız tavrlar ve ya skiflernen bağlı degil, qırımlılar — öz içine otuzğa yaqın qabile ve halqlarnı qavrap alğan mürekkep etnik mahsulattır.
+%Avrasiya çöllerinden ve Küçük Asiyadan Qırımğa biri digeri artından yetip kelgen türkiy tilli halqlarnıñ (hunlar, dürk-alanlar, protobulğarlar, hazarlar, peçenegler, qıpçaqlar, selcuklerniñ) migratsion dalğalarınıñ tesiri altında maalliy medeniyette türkiy komponent üstün turmağa başlay, ve neticede yañı etnos — türkiy tilde laqırdı etken qırımtatar halqı şekillene.
+
+%Qırımtatar halqınıñ etnogenezine dair kontseptsiyalarnıñ müelliflerinden biri R. Qurtiyev şöyle dep yaza: "Qırımlılarnıñ etnogenezleriniñ acayip hususiyetlerinden biri bu biri digerinden tübü-temelinden farq etken etnik komponentlerniñ: türkiy olmağan avtohton otraq qabileler ve köçebe türkiy qabilelerniñ sintezidir.
+%Mezkür sintez neticesinde sayı ceetinden üstün turğan birinci komponent yavaş-yavaş türkleştirilgen ve musulmanlaştırılğan edi, yani o medeniy assimilâtsiyağa oğratılğan edi...
+%ІV-VІІ asırlarda çeşit-türlü türkiy qabileler intensiv sürette migratsiya yapqanlarına baqmadan, çöl rayonlarında yaşağan qırımlılarnıñ negizini qıpçaqlar teşkil ettiler.
+%Buña etnik fenomen demek mümkün".
+%Coğrafik müit ve maalliy landşaft şu müitke eñ ziyade alışqan tipniñ şekillenmesine yardım etti.
+%Bir çoq etnik gruppalarnıñ varisi olğan yekâne halqnıñ şekillenmesi, işte, böyle başlandı.
+
+%Orta asırlarnıñ başındaki Qırımnıñ çoq çizgili sanatı polietnik cemiyetniñ ideallarını aks ettire.
+%Tavrlar ve ellin-kolonistlerden ğayrı mında skolot-skifleri, sarmatlar, türk-alanlar, soñradan ise hazarlar, Nahiçevan ermenileri, Skandinaviyadan kelgen ve mında öz devletini qurğan gottlar assimilâtsiyağa oğratıldılar.
+%Er bir etnos Qırım medeniyetine öz ananelerini, öz dünyaañlayışını, estetik ideallar aqqında öz tasavurlarını qoştı.
+%Öz içinde em İran, em Orta Asiya, em türk-çöl sanatınıñ elementlerini taşığan İran-sasanid sanatınıñ tesirleri Qırımğa yetip keldiler (157, s.225).
+
+%VIII asırda Qırım Vizantiya ve Türk Kaganatınıñ varisi olğan hazarlar arasındaki küreşniñ tamam kesişken yerinde buluna.
+%Bunıñ neticesinde Hersones Vizantiyağa keçe, bütün Şarqiy Qırım ve yarımada ğarbındaki çöller Hazariyada qala.
+%Hazarlarnen beraber mında yalıñız teñricilik degil, iudaizm de kirip kele.
+Soñradan Qırım Hazariyadan ayırıla ve Vizantiyanıñ tesiri altında qala.
 
 
 
@@ -163,17 +281,31 @@
 
 
 
-Erte orta asırlarğa ait Oırımnın çoq çerçiveli sanatı polietnik cemiyetnin ideallarını aks ettire.
-Mında tavrlar ve kolonist yunanlardan ğayrı skolot-skifler, sarmatlar, türkiy alanlar, sonundan ise hazarlar, Nahiçevan ermenileri, gotlar, Skandinaviyadan kelgen qabileler tamir attılar.
-Bu etnoslarnın her biri Oırım medeniyetine öz an'anelerini, öz dünyabaqışını, estetik ideal haqqındaki tasavurlarını bağışladı.
-Sasanid Irannın tesiri de Oırımğa yetip kelir eken, o özünen beraber hem acem, hem Orta Asiya, hem türkiy deşt sanatının elementlerini ketire edi.
-(157.
-225-nci sahife).
 
-VIII asırda Oırım Vizantiyanen Türk Kağanlığının varisleri olmuş hazarlar arasındaki kureş meyanında qaldı.
-Neticede Hersones Vizantiyanın himayesine, bütün Şarqiy Oırım ve yarımadanın ğarp qısımındaki çöller ise Hazariyanın himayesine keçtiler.
-Hazarlarnen beraber Oırımğa tenricilik ve yehudiy dinleri kele.
-Devirler keçe, Oırım Hazariyanın tesirinden çıqıp, Vizantiyanın tesirine tüşe.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+ 
+ 
+ 
+ 
 Orta asırlarda Oırımğa peçeneglernin (IX—XI asırlar), qıpçaqlarmn (X-XI asırlar), slavyanlarnın (X-XI asırlarda Kerç qadimiy rus Tmutarakan knyazlığının erkânına kire edi) qabileleri kelip yerleşeler.
 Nihaet, XIII asırda Oırımda türk-oğuz qabilelerinin konglomeratı sayılıp, Orta Asiyadan Küçük Asiyağa taba, andan da Balkanğa taba yılışqan selcuklar peyda olalar.
 Olarnen beraber yarımadada İslâm dini yayıla.
