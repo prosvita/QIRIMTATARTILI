@@ -519,13 +519,15 @@ Ameliy sanatlarda bundan evelki devir ananeleriniñ inkişafı devam etmekte.
 Taş üstünde oyuv sanatı evelki kibi, baştaşlarda taqdim oluna.
 Büyük muqaytlıqle işlengen qabir taşları aqiqiy sanat eserleridir.
 Baştaşlarnıñ umum kompozitsion çeziminde mimarcılıq elementleri işletile, bunıñ neticesinde qabir taşı merhumnıñ soñki mekânı, "evi" olaraq qabul oluna.
-Olarnıñ sırasına kemer, küçük qubbeler, frontonlar, zemin qatı; dekorda ise — hattat yazıları ile yaraştırılğan oymalı geometrik ve ösümlik örnekleri, tasviriy elementler kireler.
+Olarnıñ sırasına kemer, küçük qubbeler, frontonlar, zemin qatı;
+dekorda ise — hattat yazıları ile yaraştırılğan oymalı geometrik ve ösümlik örnekleri, tasviriy elementler kireler.
 Metinler şiiriy harakterde olıp, seyircige köterinki ruh ve felsefiy fikirler bağışlar, ya da merhum aqqında konkret informatsiya bergenler.
 Yazılarnıñ üslübi örnekli dekornıñ üslübini tekrarlar eken, bunıñ neticesinde uyğun bütün birdemlik yaratılğan.
 
 Tedqiqatçılar, qabir taşlarnı yerleştirüv ve yaraştıruv ananeleri bir sıra Şarq memleketlerinde böyle abidelerniñ keniş dairesi ile umumiy geneziske malik ve aynı bir usullar olğanına baqmadan, Qırım baştaşlarınıñ özlerine has ayrı hususiyetleri barlığını qayd eteler.
 Olar kompozitsion ceetten çezimniñ çoq çeşitliginde ifade olalar.
-Olarnıñ arasında — "em dört köşe, em çoqköşe şekilindeki ustunlar, em ucu qubbenen yekünlengen tögerek direkler, em tabanğa (ya da tabansız) yerleştirilgen tegiz stela, biri-birine parallel yerleştirilgen eki steladan ibaret deyerlik mürekkep konstruktsiya (yüksek krovatnıñ başlarına beñzey, olarnıñ arasında qabir yerleşken), stelalar biri-digerinen zıncır ya da qoranen pekitilgen, em çeşit lâatlar... er alda (diger musulman regionlarında, bizim fikirimizce, aqılğa bile kelmeycek) ressamnıñ ğayet serbestligi sezilmekte...".
+Olarnıñ arasında — "em dört köşe, em çoqköşe şekilindeki ustunlar, em ucu qubbenen yekünlengen tögerek direkler, em tabanğa (ya da tabansız) yerleştirilgen tegiz stela, biri-birine parallel yerleştirilgen eki steladan ibaret deyerlik mürekkep konstruktsiya (yüksek krovatnıñ başlarına beñzey, olarnıñ arasında qabir yerleşken), stelalar biri-digerinen zıncır ya da qoranen pekitilgen, em çeşit lâatlar...
+er alda (diger musulman regionlarında, bizim fikirimizce, aqılğa bile kelmeycek) ressamnıñ ğayet serbestligi sezilmekte...".
 Taacipli yeri şu ki, qanunlarğa ziyade riayet etken esnaf çeşiti sayılğan baştaşlar azırlavda, ustalar öz-özlerini ifade etüv serbestligine, öriginal şekiller araştıruvına ıntılğanlar.
 
 Buña sebep çoq olğan.
@@ -586,7 +588,8 @@ Buña baqmadan, yaşayışnıñ ağırdan-ağır aqibetlerinde bile qırımtatar
 Bu devir devamında qırımtatarlarnıñ ananeviy mesken mimarcılığı ileriley, az da olsa yañı camiler qurula, baştaş abidelerini tiklev anananeleri devam ettirile, bu ise öz nevbetinde taş üstüne nağış oyuv ananeleriniñ saqlanıp qalmasına yardım ete.
 Orta asırlarda tsehcilik şekilinde teşkilâtlandırıluv qaideleri sayesinde qadimiy esnaflardan toqumacılıq, tikicilik, quyumcılıq sanatı, kirametçilik kibi esnaflar inkişaf ettirileler.
 Zaten, o devirde işlep çıqarılgan mahsulat özüniñ yüksek estetik keyfiyetinen ayrılıp tura ediler (şu devirniñ eşyaları müzey kollektsiyalarınıñ esaslarını teşkil eteler).
-Bunıñnen birlikte meseleniñ negativ taraflarını da qayd etip keçmek kerekmiz: Qırımğa alıp kelingen sanayı malları — basmalar, maşinalarda toqulğan kilimler kör-körane taqdir içün bir nümüne olalar.
+Bunıñnen birlikte meseleniñ negativ taraflarını da qayd etip keçmek kerekmiz.
+ Qırımğa alıp kelingen sanayı malları — basmalar, maşinalarda toqulğan kilimler kör-körane taqdir içün bir nümüne olalar.
 Anananeviy eşyalardaki resimler "barbarlaştırıla, bazıda ise vahşiylercesine karrikaturlaştırıla".
 "Anilin boyalayıcılar ve fabrikalarda işlep çıqarılğan yiplerniñ ketirilmesi de halq esnafçılıq mallarınıñ keyfiyetlerine zarar ketire, yiplerni boyalavda qullanılğan eski sırlar coyula, boya ve renklerniñ nazik gammasınıñ yerini yarmalıq çubarlığı ala".
 
@@ -618,10 +621,6 @@ Qırımtatar tasviriy sanatı XIX asırnıñ soñu ve XX asırnıñ başlarında
 - 1895 senesinden 1944 senesinece olğan devirdeki tasviriy sanatnıñ inkişafı: bu devir ilki qırımtatar professional ressamlarınıñ Rusiye ve Ğarbiy Avropanıñ akademik merkezlerinde oqup başlağan devirden 1944 senesiniñ sürgüninece olğan devirni qavrap ala;
 - sürgünlik devirindeki (1944-1989 ss.) tasviriy sanat: bu devir qırımtatar halqı Orta Asiyağa, Qazahistanğa ve Rusiyeniñ şimaliy vilâyetlerine zorbalıqnen sürgün etilgen ve dispersion yerleşüvge oğratılğan devirni qavrap ala;
 - qırımtatar tasviriy sanatınıñ tarihiy vatanda ğayrıdan canlanuv deviri: bu devir (1989-2002 ss.) qırımtatarlarnıñ Qırımga alâ bu kün devam eteyatqan avdeti ve yerleşüvi devirini qavrap ala.
-
-
-
-
 
 
 
