@@ -70,6 +70,7 @@
 %Tavrlar aqqındaki soñki malümatlar eramıznıñ X asırına aittir.
 %Biz tavrlar aqqındaki malümatlarnı bizans menbalarında da bula bilemiz, bu menbalarda söz hristian missonerleriniñ Qırımğa yollanılmaları aqqında kete.
 %Müellifniñ fikirince, Küçük Asiyanıñ cenübiy-ğarbından Qırımnıñ cenübiy yalısına kelgen rum kolonistleri Küçük Asiyanıñ cenübindeki Tavros dağlarınıñ Qırım dağlarına beñzegeni içün olarnı Tavros dağları dep adlandırğandırlar, bundan kelip çıqıp, şu dağlarda yaşağan sakinler de "tavroyos", yani tavrlar ekzoetnonimini alğandırlar.
+
 %Qadimiy rumlar Küçük Asiyadaki Tavros dağlarında yaşağan hetlerniñ medeniyetinen (meselâ, divarlarnı tiklevde qullanılğan quru qalav printsipi) Qırım sakinleriniñ medeniyeti arasında nasıldır bir beñzerlikni köre ediler.
 
 %Elde etilgen çoqtan-çoq deliller tavrlar medeniyetiniñ olardan evel kelgen qabileler medeniyetleriniñ varisligi aqqında aytmaqtalar.
