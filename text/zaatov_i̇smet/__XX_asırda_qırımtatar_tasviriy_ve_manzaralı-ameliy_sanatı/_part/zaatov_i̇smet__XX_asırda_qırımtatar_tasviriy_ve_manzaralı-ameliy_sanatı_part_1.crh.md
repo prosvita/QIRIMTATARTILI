@@ -497,29 +497,127 @@ XX asırnıñ başına kelip caminiñ dekorativ süslenüvinden tek parçalar ve
 
 %Ömer şarq örnekleriniñ zengin palitrasını menimserek, er keresi tekrarlanmağan kompozitsiyalar yaratqan.
 O, aqiqiy universal-ressam, fırçı ve qalemden ustalıq ile faydalanğan, Şarq musulmanları ressamlarınıñ vekillerinden biri olğan.
+%Örnekli resimlerge tabiiy kirsetilgen yazılar Ömer yahşı hattat olğanından delâlet bereler.
+%Resimler arasına kirsetilgen şiiriy satırlarnıñ müellifi de Ömer olğanını inkâr etmek mümkün degil.
+%M. Ya. Ginzburg Ömerni bediiy söz ve hattatlıqnı ustalıqnen menimsegen hattat-ressam, universallar sırasına kirsete.
+%Olarnıñ özleri em şiirler yaza, soñra özleri de örnekli resimlerni hattat yazılarınen yaraştıra ediler.
+%Hattatlar tek şiirler yazmaqnen sıñırlanmaylar, sarayda çeşit mektüp ve yollanmalarnıñ müellifleri olaraq da hızmet ete turğanlar.
+%Böyle ustalar ayrıca ürmetke malik olıp, sanat mühlisleri imayecileri olğan ükümdarlarnıñ yaqınları olğanlar.
 
+Ömerniñ daa bir tahminiy eseri — Hansarayda Altın kabinetniñ süslenüvidir.
+Bütün tavan Vizantiya örmesi şekilindeki geometrik örmesi ile qapatılğan.
+Bu örnek Qırımdaki evlerniñ interyerinde sıq rastkele.
+Tegiz resimler kene alebastradan yasalğan qabarıq silmeler ile yaraştırılğan (kabinet divarlarınıñ yuqarısındaki perimetr boylap meyva ve çeçekler), olar divarlardaki kök-kümüş renkli resimlerge, cam üstündeki çoq tüslü örneklerge pek kelişeler.
 
+Ömerden ğayrı Qırımda — Bağçasaray, Qarasuvbazar, Kezlevde yüzlernen başqa ustalar da çalışqanlar, yazıq ki, olarnıñ adları bizim künge qadar saqlanıp qalmadı.
+"ХVІІ-ХVІІІ asırlarda tatar, karaim asılzadeleri yaşağan evler saqlanğan.
+Olar ağaçnen culâlanğan, oyma, altınsuv ve resimlernen büyük ustalıq ve bediiy duyğular ile işlengenler.
+(Qarasuvbazarda yaşağan grajdanin Bakşi eviniñ unikal emiyetke malik odalarından biriniñ donatmaları...
+Bağçasaray müzeyine avuştırıldı)".
 
+Ameliy sanatlarda bundan evelki devir ananeleriniñ inkişafı devam etmekte.
+Taş üstünde oyuv sanatı evelki kibi, baştaşlarda taqdim oluna.
+Büyük muqaytlıqle işlengen qabir taşları aqiqiy sanat eserleridir.
+Baştaşlarnıñ umum kompozitsion çeziminde mimarcılıq elementleri işletile, bunıñ neticesinde qabir taşı merhumnıñ soñki mekânı, "evi" olaraq qabul oluna.
+Olarnıñ sırasına kemer, küçük qubbeler, frontonlar, zemin qatı; dekorda ise — hattat yazıları ile yaraştırılğan oymalı geometrik ve ösümlik örnekleri, tasviriy elementler kireler.
+Metinler şiiriy harakterde olıp, seyircige köterinki ruh ve felsefiy fikirler bağışlar, ya da merhum aqqında konkret informatsiya bergenler.
+Yazılarnıñ üslübi örnekli dekornıñ üslübini tekrarlar eken, bunıñ neticesinde uyğun bütün birdemlik yaratılğan.
 
+Tedqiqatçılar, qabir taşlarnı yerleştirüv ve yaraştıruv ananeleri bir sıra Şarq memleketlerinde böyle abidelerniñ keniş dairesi ile umumiy geneziske malik ve aynı bir usullar olğanına baqmadan, Qırım baştaşlarınıñ özlerine has ayrı hususiyetleri barlığını qayd eteler.
+Olar kompozitsion ceetten çezimniñ çoq çeşitliginde ifade olalar.
+Olarnıñ arasında — "em dört köşe, em çoqköşe şekilindeki ustunlar, em ucu qubbenen yekünlengen tögerek direkler, em tabanğa (ya da tabansız) yerleştirilgen tegiz stela, biri-birine parallel yerleştirilgen eki steladan ibaret deyerlik mürekkep konstruktsiya (yüksek krovatnıñ başlarına beñzey, olarnıñ arasında qabir yerleşken), stelalar biri-digerinen zıncır ya da qoranen pekitilgen, em çeşit lâatlar... er alda (diger musulman regionlarında, bizim fikirimizce, aqılğa bile kelmeycek) ressamnıñ ğayet serbestligi sezilmekte...".
+Taacipli yeri şu ki, qanunlarğa ziyade riayet etken esnaf çeşiti sayılğan baştaşlar azırlavda, ustalar öz-özlerini ifade etüv serbestligine, öriginal şekiller araştıruvına ıntılğanlar.
 
+Buña sebep çoq olğan.
+Bu — Qırımda mevcut, iş içün kelişken materialnıñ çoqluğı (kireç taşı, qabırçaq taşı, mermer, granit), bu baylıq ustadan er sefer individual yanaşuv talap etken.
+Sebeplerden daa birisi — qırımtatar ustalarınıñ fikir yürsetüv hususiyetleri, olar dogmatik qanunlar ile qaviy bağlı olmağanlar, çünki olar asırlar devamında çoqtan-çoq ve çeşit-türlü tesirlerge oğratılğan müitte terbiyelengenler.
+Buña baqmadan, ustalarnıñ bu işke yanaşuvı ne qadar individual ve icadiy olsa da, baştaşlarda qırımlılarnıñ tarihiy hatırasında saqlanıp qalğan, qadimiy balballarnıñ çizgileri körülmekteler.
+İnsan qiyafetini tasvirlemek, onıñ mezarına eykel qoymaq imkânlarından marum olğan ustalar taşqa antropomorfik qiyafetke tek oşatuv bere ediler, üstüne sarıq (erkek kişi kömülgen alda), ya da fes (qadın kişi olsa) yasay ediler.
+Ustanıñda ustalığı, sıñırsız potentsialı, işte, böyle ufaq-tüfek şeylerde ifade ola edi.
 
+Taş üstüne oyuv sanatı inkişafınıñ yönelişini, XVII asırdan XVIII asırğa taba umumiy tendentsiyanı közeterek, tedqiqatçılar "onıñ zenginlik ceetten ösüvini qayd eteler.
+Abidelerniñ metn ve şekilleri mürekkepçe, ünerli, ğayet süslendirilgen, örnekli hattat yazıları ile toldurılğan", bu alnı sanatta müelliflik başlanuvı ve qanunlarnıñ zayıflaşqanınen bağlamaq mümkün.
 
+Qırımda kirametçilik türk kirametçiliginiñ belli bir tesiri altında inkişaf ete.
+İşbu devirde Qırımğa Türkiyeden pek çoq kirametten yasalğan savut-saba ketirilgen.
+Bu al ise türk şekillerini qabul ettirmey qalmay.
+Türk kirametiniñ parçaları Eski-Kermen ve Kalamite, Manğup ve Çufut-Qalede, Eski-Qırım ve Kefede tapılğandır.
 
+1951-52 seneleri qazılmalar devamında eski Kefeniñ qalesinde "XVI asırnıñ birinci yarısına ait iznik eşyalarınıñ parçaları — çanaq kenarları, bardaq sapları, başqa savutlarnıñ parçaları ve ilâhre" tapıldı.
+Eski Qırımda, paytaht şeer emiyetini coyğanına baqmadan, beyaz zemin üstünde kobalt ile örneklengen qırılğan kiramet çanaq ve başqa şeylerniñ parçaları tapıldı.
+Tegiz qırımızı zeminde beyaz-mavı tüslernen arabesk örnegi — süslendirüvniñ ğayet siyrek rastkelgen usulı — işlengen parçalar da tapıldı.
+Manğup qazılmaları ise türk kirametiniñ ğayet zengin materialını berdiler.
+Bu al mında türk kiramet eşyaları muntazam ve keniş kölemde ketirilgeninden delâlet bere.
+Örneklerniñ esas çeşitleri — ösümlik, çeçek örnekleri, burumlı çeçek bezekleri, dalğalı şeritler.
 
+XVII asırğa ait türk kirametiniñ tapılğan parçaları kiramet qaba, resimler perişan işlengen, resimniñ çetleri qara qalın sızıqlı, örnekniñ manası sade olğanını körsete.
+Bu — XVII asırnıñ ekinci yarısında iznik kirametiniñ umumiy zayıflaşqanını harakterizley.
+Biz baqqan devirde Qadıköyde, Eski Qırımda, Üskütte ve yalıboyunıñ bir sıra yerlerinde çölmekçilik istisalı da öz işini devam ete.
+Amma hanlıqnıñ çölmekçilik merkezi Cenübiy-Ğarp Qırımnıñ qadimiy dağlı köyleri — Bağatır, Fotisalağa avuşa, mında ev savutlarından başlap, ta 200 — 250 litrlik aciminde balaban pifaslarğa barğance, kiramet eşyaları çıqaralar.
 
+XVIII asırnıñ soñu Qırımnıñ tarihında Rusiye imperiyasına qoşuluvınen (1783 s.) bellidir.
+Bu formal olsa da mustaqillikni ğayıp etüvnen birlikte, medeniy ömür saasında da büyük ğayıplar ile bağlıdır.
+Etnik ve konfessional ceetten yaqın devlet, Türkiyege tabilik Qırımnıñ halqara alâqalarnıñ keniş dairesine kirmesine hızmet etken ise, Rusiye istilâsı devirinde Qırım başqa din, yat medeniyet inkişaf etken ve şunıñ içün de ğayıp olunması talap etilgen, uzaq provintsiyağa çevirile.
 
+Qırımnı işğal etüvde Rusiyeniñ birinci adımları tınç yaşağan ealini talamaq, ortalıqnı yaqıpyıqmaq, ulu mimarcılıq abidelerini, qırımtatar halqı medeniyetiniñ qıymetlerini gayıp etüvnen başlandı.
+1736 senesi Qırım yarımadasınıñ çöl beti feldmarşal Minih yolbaşçılıq yapqan rus ordusı tarafından vahşiylerce bozuldı, 1771 senesi Dolgorukovnıñ ordusı o tarafnı ateşnen yaqıp, qılıçnen kesip çıqtı.
+Olar bir maqsadnı közde tuta ediler: "...qırımtatarlarnı birini qaldırmay öldürmek, topraqlarını tutıp almaq, ne kâr, ne fayda ketirmegen bu halqnı yoq etmek" maqsadını küte ediler.
 
+Qırım basıp alınğan soñ çar Rusiyesi qırımtatarlarnı ğayrıdinli olğanları ve olarnı "varvar"lar diye tarih saifelerinden silip atmaq içün kütleviy sürgünlerge oğrata.
+Qırımtatarlarnı sürgün etüv siyaseti aman-aman bir buçuq asır devamında alınıp barıla.
+Bu yıllar içinde qırımtatarlarnı tuvğan topraqlarından zorbalıqnen kettirilmeleri üç kere, yani 1783, 1860 senelerinde, ve XX asırnıñ başlarında öz kulminatsiyasına yetkizilgen edi.
+Eger XVIII asırnıñ soñlarında yarımada ealisiniñ arasında rumlar, ermeniler, gürciler, slavânlar, karaimler, qırımçaqlar ve urumlar da olğanını esapqa alacaq olsaq, ve atta rus hristianlarını Qırımdan Azavboylarına sürgün etkenlerinden soñ bile qırımtatarlar ealiniñ 95 fayızını teşkil etken olsalar, 1917 senesine kelip qırımtatarlar öz vatanlarında milliy azlıqqa çevirildiler.
+Yalıñız qırımtatar halqı degil, onıñ cemi tarihı, bu topraqlarda qaldırgan terenden-teren izleri bile ğayıp etile edi.
 
+Birinci nevbette din ile baglı abideler — camiler, medreseler, mezarlıqlar yoq etile.
+Maddiy ve maneviy zenginlikler yoq etile.
+Kitaphanelerde saqlanıp qalğan elyazmalar — tarihiy traktatlar, hronikalar, nazm eserler 1833 senesinde yalıñız bir maqsadnen — yaqıp-yoq etmek maqsadınen bir yerge toplanılgan ediler.
+V. YE. Vozgrin: "... işte, mına böyle aktsiya neticesinde halq medeniyetiniñ terkibiy qısımı olğan fikri zihniyesi, maneviyat tecribeleri, milliy tarihı yoq etildi.
+Bu vaqia müstemlekecilik tarihında ayrıca turğan, unikal bir vaqiadır", dep yazğan edi.
+Yoq etip yetiştirilmegen şeyler ise unutıluvğa, tabiiy yoq olıp ketüvge mahküm etilgen edi.
 
+Qırımtatarlar sürgün etilgen soñ şu medeniyetni taşıyıcılarnıñ sayısı da eksile, ananeler unutıla, medeniy teraqqiyat bütünley toqtap qala, "halq icadiyatı saasında paraliç" yüz bere.
+Başta bir Türkiye ile ananeviy tışqı alâqalarnıñ üzülmesi, uzaq devir devamında Qırım medeniyetindeki icadiy impulslarnıñ toqtaması, turmuş tarzınıñ bozulması, qırımtatarlarnıñ ömür tarzlarınıñ sarsılması, islâm dininiñ faaliyet day resiniñ tarlaşması, qırımtatar tili ve yazınıñ rolüniñ eksiltilmesi qırımtatar zalisini kelmeşekler medeniyetiniñ uquqsız bir parçasına çevire.
 
+Meselâ, ulu Ömerniñ nağışlarınen süslendirilgen unikal abide — Yeşil-Cami XX asırnıñ başlarına kelip aman-aman ğayıp etilgen edi.
+Ömerniñ Han-Camideki nağışları ise bina kosmetik tamir etilgen soñ yoq etildi.
 
+Buña baqmadan, yaşayışnıñ ağırdan-ağır aqibetlerinde bile qırımtatar medeniyetiniñ inkişafı toqtap qalmay.
+Bu devir devamında qırımtatarlarnıñ ananeviy mesken mimarcılığı ileriley, az da olsa yañı camiler qurula, baştaş abidelerini tiklev anananeleri devam ettirile, bu ise öz nevbetinde taş üstüne nağış oyuv ananeleriniñ saqlanıp qalmasına yardım ete.
+Orta asırlarda tsehcilik şekilinde teşkilâtlandırıluv qaideleri sayesinde qadimiy esnaflardan toqumacılıq, tikicilik, quyumcılıq sanatı, kirametçilik kibi esnaflar inkişaf ettirileler.
+Zaten, o devirde işlep çıqarılgan mahsulat özüniñ yüksek estetik keyfiyetinen ayrılıp tura ediler (şu devirniñ eşyaları müzey kollektsiyalarınıñ esaslarını teşkil eteler).
+Bunıñnen birlikte meseleniñ negativ taraflarını da qayd etip keçmek kerekmiz: Qırımğa alıp kelingen sanayı malları — basmalar, maşinalarda toqulğan kilimler kör-körane taqdir içün bir nümüne olalar.
+Anananeviy eşyalardaki resimler "barbarlaştırıla, bazıda ise vahşiylercesine karrikaturlaştırıla".
+"Anilin boyalayıcılar ve fabrikalarda işlep çıqarılğan yiplerniñ ketirilmesi de halq esnafçılıq mallarınıñ keyfiyetlerine zarar ketire, yiplerni boyalavda qullanılğan eski sırlar coyula, boya ve renklerniñ nazik gammasınıñ yerini yarmalıq çubarlığı ala".
 
+Çar Rusiyesiniñ Qırımğa bastırıp kirmesiniñ daa bir tarafı mevcuttır: mında müstemlekecilik tertip-nizamlarınen beraber ileri rus demokratik medeniyeti de kirip kele, bu medeniyet tatarlarnıñ nefaset alemini zenginleştire, onı yañı medeniy zenginliklerge celp ete.
+Meselâ, rus mimarcılığında üküm sürgen klassitsizm XIX asırda qurulğan musulman camilerine şekil pakligi, aydınlığı ve tüzgünligini bere.
+Qırımnıñ icadiy ziyalıları tasviriy sanatnıñ Avropa medeniyetine has olğan tasvirat, eykeltıraşlıq kibi yañı çeşitlerinen tanış olalar.
 
+Böyleliknen, Rusiye Qırımnı basıp alğan soñ, başqa medeniyetlerniñ, rus ve Avropa medeniyetleriniñ tesirleri Rusiye metropoliyaları, bu cümleden Orta Asiya içün harakterli olğan shema boyunca keçe, maalliy medeniyet total-sürette diskriminatsiya yapıla, aqibette onıñ inkişafında yañı tendentsiyalar şekillene.
 
+XIX asırnıñ soñlarında ve XX asırnıñ başlarında mimarcılıqta endi Qırımda öz pomestiyalarını qurğan rus zenginleri esas sımarışçılar olalar.
+Ananeviy musulman mimarcılığınıñ belli bir elementleri alına, binalarğa şarq romantizmi ve ekzotikası berille.
+Bazıda böyle eklektik qarışuv qaba olıp körüne, bazıda ise içeriki takt ve qararlılıqnen tolu özgün ürünler bere.
+Mimar N. P. Krasnovnıñ Yusupov sarayı kompleksniy qurğanda ananeviy şarq mimarcılığından ğayet büyük ustalıqnen faydalanğan edi.
+Neticede, milliy romantizm üslübindeki inşaatlar peyda oldılar.
+Böyle şedevrlerden biri saraydan biraz avlaqta qurulğan Yusupov camisidir (Sokoloniye köyü, evelki Kokköz).
+Caminiñ leyhası o devirde qurulğan camiler içün tipiktir — caminiñ dört aqabalı dam astında qurulğan zalı, mihrabı bar, lâkin onıñ bir sıra hususiyetleri onı diger böyle inşaatlardan ayırıp turalar, ve bunıñnen oña mühteşemlik ve öriginallik bağışlay.
+Bu pencerelerniñ çabaqlı kemerleri, yüksek tavanı, portalnen birikip ketken, pıçma kireçtaştan yasalğan tüzgün bağanalar üstünde turğan galereyadır.
+Cami binası bütün perimetri boyunca şerit kibi tartılğan oyma örnekli ornamental friznen süslendirilgendir.
+Ğarbiy portalı ve pencereler arasındaki friz perimetri boylap kalligrafik oyma örneklernen yaraştırılğan.
+Yerli sakinlerniñ aytqanlarına köre, taş üstünde örnekler yasağan ustanıñ adı — Üsein Tohtarğazı.
+Bu kişi aynı vaqıtta oca ve şair olğan.
 
+Maalliy medeniyet başqalarnıñ yat medeniyetleriniñ tesirlerine qarşı turaraq, kendi-kendisine sarılıp qala, öz-özüni saqlap qalmağa ıntıla, atta ananeviy sanatnıñ qanunlarını konservatsiya yapa, aqibette bularnıñ episi onı durğunlıq uçurımınıñ başına alıp kele.
 
+Umumen alğanda ХІХ-ХХ asırnıñ başlarında Qırım sanatı çeşit-türlü tesirlerge oğray.
+"Zan etsek, Qırımnıñ medeniyet zemini kendi qatlamında pek çoq qatlamlarğa malik olaraq, kendi tarihiy taqdirine saip olaraq, Ğarp ve Şarq arasında tutqan coğrafik vaziyetke, bütün deñiz ve çöl yellerine açıq olaraq böyle müitniñ şekillenmesine sebepçi olğandır, böyle müitte qırımtatarlarnıñ yañı devirdeki sanatı qattı normativ estetika ve qanunlarğa tabi olıp, "öz içine qapalıp qalğan" şey degil de, aksine cian nefaset ceryanına yengil ve tabiiy sürette qoşula bilgen, çeşit-türlü esintilerni siñirmege ve beklenilmegen sürprizler ketire bilgen "açıq sistemadır".
 
-
+Qırımtatar tasviriy sanatı XIX asırnıñ soñu ve XX asırnıñ başlarında öz inkişafında halqnıñ siyasiy ve etnik tarihınen sıqı bağlı olğan üç esas basqıçnı keçti:
+- 1895 senesinden 1944 senesinece olğan devirdeki tasviriy sanatnıñ inkişafı: bu devir ilki qırımtatar professional ressamlarınıñ Rusiye ve Ğarbiy Avropanıñ akademik merkezlerinde oqup başlağan devirden 1944 senesiniñ sürgüninece olğan devirni qavrap ala;
+- sürgünlik devirindeki (1944-1989 ss.) tasviriy sanat: bu devir qırımtatar halqı Orta Asiyağa, Qazahistanğa ve Rusiyeniñ şimaliy vilâyetlerine zorbalıqnen sürgün etilgen ve dispersion yerleşüvge oğratılğan devirni qavrap ala;
+- qırımtatar tasviriy sanatınıñ tarihiy vatanda ğayrıdan canlanuv deviri: bu devir (1989-2002 ss.) qırımtatarlarnıñ Qırımga alâ bu kün devam eteyatqan avdeti ve yerleşüvi devirini qavrap ala.
 
 
 
