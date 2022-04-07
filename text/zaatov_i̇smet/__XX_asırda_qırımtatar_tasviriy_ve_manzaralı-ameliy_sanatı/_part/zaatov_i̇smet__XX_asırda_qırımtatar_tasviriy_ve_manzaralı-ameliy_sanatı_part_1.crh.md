@@ -81,7 +81,8 @@
 %Buña yarımadanıñ tabiatı ve landşaftınıñ özü yardımcı olğandır.
 %Mında deñizboyu tüzlükleri dağ rayonlarına birikip keteler, yarımadanıñ belli bir qısımını çelik teşkil ete.
 %Qadimiy devirlerde qabilelerniñ yarımadada yerleşmeleri o devirde üküm sürgen hocalıq usulına köre amelge keçe edi, dep qayd etmek mümkün, çünki erbir medeniyet özüne kelişken landşaft ve tabiat-iqlim zonasını seçip ala edi.
-%Bu öz nevbetinde Qırımda "üç etnik vilâyetniñ" peyda olmasına temel qoydı, ve medeniyetniñ biri-birinden farq etken özgün pıtaqları yan-yanaşa inkişaf ettiler... XV asırda yekâne Qırım devleti meydanğa kelgenge qadar biri-birilerinen qarışıp ketmediler".
+%Bu öz nevbetinde Qırımda "üç etnik vilâyetniñ" peyda olmasına temel qoydı, ve medeniyetniñ biri-birinden farq etken özgün pıtaqları yan-yanaşa inkişaf ettiler...
+ XV asırda yekâne Qırım devleti meydanğa kelgenge qadar biri-birilerinen qarışıp ketmediler".
 %Er bir qabile özüniñ ekologik yerini işğal etken edi.
 %Bu ise olarğa pek büyük olmağan territoriyanıñ sıñırları içinde muabbet yaşamağa imkân bere edi.
 %Ealiniñ hocalıq tüzümi ceetinden çeşit gruppaları özüne has bir simbioznı meydanğa ketire ediler.
