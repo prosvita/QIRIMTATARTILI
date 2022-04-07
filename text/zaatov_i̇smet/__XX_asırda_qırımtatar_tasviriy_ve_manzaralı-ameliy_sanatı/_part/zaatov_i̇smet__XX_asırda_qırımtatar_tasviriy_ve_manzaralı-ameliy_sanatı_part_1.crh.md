@@ -299,6 +299,54 @@ Soñradan Qırım Hazariyadan ayırıla ve Vizantiyanıñ tesiri altında qala.
 %O, cenevizliler ve altınordalılar arasında çeviklik köstererek, öz mustaqilligini saqlap qalmağa tırışa edi.
 %Knâzlıqnıñ merkezlerinden biri olğan Manğup qalesindeki freskalar bizans ve ceneviz ikonografik qanunları biri-birinen örülip ketken unikal abidedir.
 
+%Bu devirlerde Qırım Şarq ve Ğarbnı biri-birinen bağlağan ticaret yollarınıñ kesişken yerinde buluna edi.
+%O tranzit bir punkt edi.
+%Uzaq Şarqtan, Merkeziy Asiyadan, İndistandan, İrandan Avropağa yipek ve parça basmalar, maden savutlar, çeşit-türlü taqıncalar, qıymetbaa taşlar, tatlılıqlar alıp ketile edi, Rusiyeden Qırım vastasınen kürk, teri, bal, mum, kendir alıp ketile.
+%Bunıñnen birlikte Qırımnıñ şeerleri Yaqın Şarq memleketlerinen, Mısırnen, Ğarbiy Avropanen mustaqil ticariy alâqalarda buluna ediler.
+
+%Baqıp çıqılayatqan devirde türk-tatar sanatınen birlikte ellin, got, italyan, ermeni medeniyetleri de inkişaf ete ediler.
+
+%### 1.3. QIRIMTATAR MANZARALI-AMELİY VE TASVİRİY SANATINIÑ İRMAQ BAŞLARI VE ŞEKİLLENÜVİ
+%(qırımtatar halqınıñ medeniy genezisi köntekstinde)
+
+%Qırım terrtoriyasındaki medeniyetlerniñ qarışıqlığı ve çeşitliligine baqmadan, ХІІІ-ХІV aa.mında islâm esasındaki qırımtatar sanatı şekillenmege başlay.
+%Qırımnıñ islâm medeniyeti bundan evel kelgen devirlerdeki ananelerni yañı şaraitlerde inkişaf ettirip, ХІІІ-ХІV aa. onıñ mantıqiy ve evolütsion devamı oldı.
+%Mında tek maalliy tasviriy şekillerni printsipial süretteki yañı mesafe-vaqıt birdemine celp etüv yüz bere.
+%Bu Ög ve Orta Şarqnıñ öz vaqıtında islâmlaştırılğan bütün memleketlerine aittir.
+%Tıpqı böyle ceryan Orta Asiyada da yüz bergen edi: sanatnıñ inkişafındaki musulman deviri bundan evel kelgen devirni red etmedi, aksine onı menimsedi.
+
+%XIII asırdan başlap Qırım islâm aleminiñ yekâne medeniy alanına kire, lâkin bu nivelirleyici harakter taşımay.
+%Bu devirde Qırımnıñ Horezmnen alâqaları quvetlene, olarnıñ arasındaki medeniy alâqalar buña delâlet bermekte.
+%G. A. Fedorov-Davıdovnıñ yazğanı kibi "hanlarnıñ musulmancılıq ve ortaasiya-iran tipindeki şeer turmuşına oriyentirlengenleri sebebinden, aydın, mühteşem urbanistik şarq orta asır medeniyeti, aqıp turğan çeşmeler ve camilerdeki mozaik pannolar, arap yıldızcılarınıñ, fars şiir yazuvnıñ ve musulman maneviy iliminiñ, nazik örnekler ve hattatlıq medeniyeti dallanıp, çeçeklenip başlay".
+%Lâkin Qırım ve Merkeziy Asiya, hususan zemaneviy Özbekistannıñ territoriyası arasındaki medeniy alâqalarnıñ devamını skifler deviri bitken soñ, V-VI asırlarda Koreyadan tutıp Qırım ve Tunağace olğan territoriyada yerleşken Türk kaganatı devirinde devam etti demek daa doğru olur.
+%Türkler yalıñız Ulu Yipek yolunıñ Şimaliy trassasını nezaret ete ve qoruy ediler, şimdiki Özbekistannıñ territoriyasında bulunğan Sogdiananıñ qadimiy sakinleri — kaganatnıñ territoriyasında öz koloniyalarını meydanğa ketirgen sogdiyler tuccarlıq yapa ediler.
+%Zan etsek, Sugdak (Sudaq)nı da olar meydanğa ketirgendirler, çünki "Sugdak" sogdiylerniñ şivesinde "kiçkene Sogd" manasını añlata.
+%Şunı qayd etmek kerek ki, sogdiyler özleriniñ sogd yazısınen birlikte qadimiy türk runa yazısınen de faydalana ediler.
+%Runa yazısı ise, akademik E. Rtveladzeniñ esaplağanına köre bivasta sogd yazısınıñ tesiri altında peyda olğan.
+
+%Solhattaki (Eski Qırımdaki) Özbek camisi (XIV a.) ve onıñ yanındaki medrese selcuk tipinde kurulğan ilk inşaattır.
+%Bu kub şekilinde qurulğan monumental bir inşaattır, divarları tem-tegiz, pencereleri kiçkene, damı eki aqabalı.
+%Binanıñ ög cebhesinde portal ayrılıp tura.
+%Bina köşeleriniñ birinden uclu minare (türk tipi) kökke uzanğandır.
+%Cami dekorınıñ fragmentleri — taşlardaki oyma nağışlar ve arap usulındaki çeçekli örnekleri olğan maolika çinileri, bunıñ kibi de epigrafik dekor — portalnıñ üst kemeri üzerindeki yazılar saqlanıp qalgandırlar.
+%Portalnıñ süslendirilmesinde altın suvlar qullanılğan.
+%Bu mimarcılıqnıñ unikal bir abidesidir, onıñ aqqında pek çoq edebiyat bar (Başkirov A. S., Veymarn B. V.). Bu abide Qırımda özgün mimarcılıq mektebi şekillengeninden delâlet bermekte.
+%Onda maalliy ve selcuk ananeleri biri-birilerinen bitişip keteler.
+%Üstüne ferüze tökülgen, özleriniñ örnegi ne renkleriniñ dülberliginen ayrette qaldırğan cami çinileri yerli kiramet ustahanelerinde yasalğanları da meraqlı fakttır.
+%Müellifniñ fikirine köre, Eski Qırım çinileri öz fakturaları boyunca Horezm ve Buhara kiramet istisalınıñ çinilerine pek yaqın.
+
+%Bu devirde esnaf inkişafında belli bir ösüvni qayd etmek mümkün.
+%Qabarıq örnekli ve yaraşıqlı yerleştirilgen acayip oymalı yazıları olğan qabir taşları, örnek ve boya izleri qalğan çoqtan-çoq çini savutlarınıñ parçaları, quyumcılıq bezekleri, oymalı baqır eşyaları, örneklernen süslendirilgen elyazma kitaplar bizim künge qadar saqlanğandır.
+%"Tatar icadiyatınıñ manzaralı nümüneleri umumiy türk-moğol sanatına nisbeten özleriniñ örnek ve renkleriniñ pak qızlıq nazikliginen ayrette qaldıralar".
+
+%Mimarcılıq-plastik ananeleriniñ inkişafı aqqında delâlet bergen taş üstünde oyuv sanatı baştaşlarında ziyade ifadelengendir.
+%Musulman halqlarınıñ sanatında taş üstünde oyulğan bir qaç çeşitleri bar.
+%Bu — geometrik (girih), tasviriy (insan, ev ayvanları, turmuş eşyalarınıñ şekilleri), ösümlikler (eñ büyük gruppa), epigrafik (Qurandan parçalar, mezar kitabesi).
+%Qırımda dülber, plastik "suls" yazısınen yapılğan epigrafik dekor ziyade emiyetke maliktir.
+%Bu, esasen endi yuqarıda añılğanı kibi, Qurandan parçalar, merhum aqqında qısqa malümat ya da şiiriy mezar kitabesi.
+
+%İslâm dünyasınıñ başqa regionlarındaki baştaşlardan farqlı olaraq, Qırımdaki baştaşlar eykeltıraşlıq ve plastik şekillerine ziyade meil bergenler.
+%Keniş darqağan tasviriy mevzular sayısına şam, çıraq, altı köşeli yıldız, stilizlengen ve tabiiy çeçeklerniñ tasviri kire.
 
 
 
