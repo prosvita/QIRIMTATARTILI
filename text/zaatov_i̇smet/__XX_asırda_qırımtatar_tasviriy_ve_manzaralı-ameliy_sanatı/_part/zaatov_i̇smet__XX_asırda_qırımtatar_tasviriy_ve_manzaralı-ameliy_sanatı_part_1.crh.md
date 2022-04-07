@@ -24,120 +24,90 @@
 %Qırımda qadimiy sakinler yaşağan 150-ge yaqın duraq bellidir.
 
 %Qırım kirametiniñ qadimiy nümüneleri ta neolit devirinden bellidir.
+%Bular balçıqtan yasalğan, şekil ceetinden çeşit-türlü olğan, "bazıda tehnika ve örneklev üslübi ile zengin" (Başkirov), ateşte pişirilgen savutlardır.
+%Böyle tapılmalar Bağçasaray civarındaki Qaya-Arası ve Simferopol civarındaki At-Baş duraqlarında elde etildi.
+
+%Eneolit (milâdiyden 3 biñ yıl evelsi) deviri endi maddiy ve maneviy inkişaftaki bayağı bir teraqqiyat mevcut olmasınen taqdim olunğandır.
+%Bu devirde madenden yasalğan taqıncalar — bilezlikler ve baqır gerdanlıqlar keniş darqalıp başlaylar.
+
+%Eneolitniñ soñlarında Qırımda sanat keyfiyetçe yañı basqıçqa adım ata.
+%Soñundan keniş vaqıt diapazonını qavrap alğan (milâdiyden evel XX asırdan milâdiyden evel VIII asır) ilk qayaustü resimleri peyda olalar.
+%Buña Bağçasaray civarındaki Taş-Ayır massivindeki, Bogatoye (Bahçi-Eli), köyündeki, Vişennoye (Beş-Qurtqa) köyü yanındaki Sarı-Qaya qobasındaki qayaustü resimleri misal ola bilirler.
+%Mezkür resimler arasında çeşit-türlü qabile nişanları küneş ve yıldızlarnıñ temsillerini aks ettirgen resimler, bunıñ kibi de (başta bir av levhalarını — atlar, silâlı atlılar ve oqçularnı tasvirlegen) mürekkep ve çoqfiguralı kompozitsiyalar mevcutlar.
+%Avropada birinci olıp çoqrenkli naqşlar (divar resimleri) Qırımda peyda olalar.
+%Antropomorf, yani insan qiyafetini tasvirlegen skulpturalarnıñ, meselâ, Bağçasaray rayonındaki Sçastlivoye (Büyük-Özenbaş ve Sokolinoye (Kokköz) köyleri civarında) insan qiyafetini añdırıp turğan taş stellalarınıñ peyda olması tunç devirinen bağlıdır.
+%Böyle stellalarnı tiklemek bütün Qaradeñizboyu ve Kavkaz regionına aittir.
+%Kurganlar, kromlehler (taş isarlar) kibi monumental ibadet inşaatları mimarcılıqnıñ başlanğıçları aqqında delâlet bermekteler.
+%(Qırımdaki eñ büyük kromlehlerden biri Simferopol rayonında buluna edi, mında suv anbarı qurulğanda o suv astında qalıp ketken edi).
+%Kurganlar ve kromlehlerni qurmaq ya da tiklemek misalleri qomşu territoriyalarnıñ medeniyetlerinde de qayd etilmekte.
+
+%Bularnıñ episi tunç deviri yalıñız ayatnıñ faalleşmesinen qayd etilmegen, bu devirde maalliy qabilelerniñ Qadimiy Şarq, Aqdeñizboyu, Kavkaz artı tsivilizatsiyaları da kenişlegen, dep aytmağa esas bere.
+%Bu devirde Qırım territoriyasında (Belogorsk (Qarasuvbazar) civarındaki Kemik-Oba kurganınıñ adınen adlandırılğan) Kemik-oba medeniyeti inkişaf etken edi.
+%Bu devirde adamlar ziraatçılıq ve ayvanasravcılıqnen oğraşa ediler.
+%Bogatoye (Bahçi-Eli) köyüniñ civarındaki taş plita üstüne oyulğan tuvar ayvanınıñ şekili ve ziraatçınıñ iş aleti olğan — çapanıñ qiyafetini aks ettirgen qayaustü resimleri buña delâlet bermekteler.
+
+%Qırımnıñ qadimiy medeniyeti ananeleriniñ ilerideki inkişafı srub ve salt medeniyetlerine ait köçebe qabilelerniñ devirinen bağlıdır.
+%Mezkür qabilelerniñ yaşav arealı bütün Şimaliy Qaradeñizboyunı ve aşağı Podnestrovyeni qaplap ala edi.
+%Demir asırı başlanğan soñ olarnıñ medeniyetleriniñ yerine bazı bir malümatlarğa köre, iran tilinde laqırdı etken, tam belgili etnik identifikatsiyağa malik olğan kimmeriylerniñ (gmıri-gimeriyos, milâdiyden evel ІH-VІІ aa.) medeniyeti kirip kele.
+%İzleri Küçük Asiyada coyulıp ketken kimmeriylerniñ yaşav arealı tek Qırım yarımadasınen sıñırlanmay, o Şarqiy Avropanıñ aman-aman bütün cenübini qavrap ala edi.
+%Bu halq aqqında endi yazılı menbalarda malümatlar peyda olğan edi.
+%Olar aqqında özüniñ "Ödisseya"sında Gömer qayd etip keçe.
+%Bazı bir mütehassıslarnıñ qayd etkenlerine köre, "kimmeriyler" degen termin Qırımnıñ toponimik adlarında saqlanıp qalğan.
+
+%Kimmeriylerniñ esas meşğuliyeti yaylâ ayvanasravcılığı olğan.
+%Ayvanasravcılıqnen oğraşqan cemi qabilelerde olğanı kibi, kimmeriylerniñ arasında da madenni ğayrıdan işlev ve ondan yüksek bediiylikke malik olğan eşyalarnı azırlamaq sanatı yüksek derecede inkişaf etken edi.
+%Qadimiy tapılmalar — sapları dögme örneklernen süslendirilgen demir qılıçlar ve hancerler, dekor elementleri olğan cenkâver baltalar, spiral şekilindeki örneklernen süslendirilgen at qoşumı, örgülengen tunç bilezlikler bundan delâlet bermekteler.
+%Madenden eşyalar yapmaqnıñ asırlar devamında şekillenip kelgen ananeleri Qırımda skifler peyda olmazdan bayağı evel mında maalliy "ayvan" üslübi negizleriniñ inkişaf etip başlamasına temel qoydılar.
+
+%Eger şu adı añılğan kimmeriylerniñ medeniyeti olarnıñ yerine kelgen ve medeniyetlerini sıqıp çıqarğan köçebe skiflerniñ medeniyeti kibi, esasen yarımadanıñ çöl rayonlarında inkişaf etken köçebe ayvanasravcılar medeniyeti olğan olsa, otraq-ziraatçılar medeniyeti Qırımnıñ merkeziy, dağ etekleri, dağ ve yalıboyu rayonlarında inkişaf etkendir.
+%Söz öz adını Simferopol civarlarında yerleşken Qızıl-Qoba qobasınıñ adından alğan Qızıl-Qoba medeniyeti aqqında kete.
+%Bu yerde qadimiy insan duraqlarnıñ izleri tapılğan edi.
+%Culâlanğan, küneş nişanları şekilindeki kertikler ve oyma örneklernen süslendi-rilgen kiramet şu medeniyetniñ maddiy yadikârlıqları sayılalar.
+
+%Qızıl-Qoba medeniyetinen parallel sürette ve ya onıñ peşinden oña soydaş olğan, yarımadanıñ cenübiy qısımını qavrap alğan tavr medeniyeti inkişaf etip başlay.
+%"Tavr" etnonimi yarımadanıñ adlarından biri olğan Tavrida adında saqlanıp qalğandır.
+%Biz tavrlar aqqındaki malümatlarnı tavrlarnıñ birinci daiysi, yani yetekçisi Taos aqqında (milâdiyden evel XIII a.) yazğan "tarih atası" Gerodotta bula bilemiz.
+%Tavrlar aqqındaki soñki malümatlar eramıznıñ X asırına aittir.
+%Biz tavrlar aqqındaki malümatlarnı bizans menbalarında da bula bilemiz, bu menbalarda söz hristian missonerleriniñ Qırımğa yollanılmaları aqqında kete.
+%Müellifniñ fikirince, Küçük Asiyanıñ cenübiy-ğarbından Qırımnıñ cenübiy yalısına kelgen rum kolonistleri Küçük Asiyanıñ cenübindeki Tavros dağlarınıñ Qırım dağlarına beñzegeni içün olarnı Tavros dağları dep adlandırğandırlar, bundan kelip çıqıp, şu dağlarda yaşağan sakinler de "tavroyos", yani tavrlar ekzoetnonimini alğandırlar.
+%Qadimiy rumlar Küçük Asiyadaki Tavros dağlarında yaşağan hetlerniñ medeniyetinen (meselâ, divarlarnı tiklevde qullanılğan quru qalav printsipi) Qırım sakinleriniñ medeniyeti arasında nasıldır bir beñzerlikni köre ediler.
+
+%Elde etilgen çoqtan-çoq deliller tavrlar medeniyetiniñ olardan evel kelgen qabileler medeniyetleriniñ varisligi aqqında aytmaqtalar.
+%Söz o ve bu qabilelerde defn etüv merasimlerinde Küçük Asiyadaki hetlerde ve Ğarbiy Kavkazda yaşağan qadimiy abhazlardakine beñzegen "taş sanduqalarını" qullanğanları ve qadimiy mezarlıqlarnıñ bütün bir kompleksini teşkil etkeni, em de kurganlarnıñ üstünde monumental antropomorf eykellerni tiklev aqqında kete.
+%Kurganlar üstünde tiklenilgen insan eykellerini birinci olıp tavrlar yapıp başlağandırlar.
+
+%Böyleliknen, tunç asırınıñ soñları ve demir asırınıñ başlarından başlap Qırımda çeşit tipteki medeniyetlerniñ inkişaf etkenini, çeşit etnik gruppalarnıñ yan-yanaşa yaşağanlarını körmek mümkün.
+%Buña yarımadanıñ tabiatı ve landşaftınıñ özü yardımcı olğandır.
+%Mında deñizboyu tüzlükleri dağ rayonlarına birikip keteler, yarımadanıñ belli bir qısımını çelik teşkil ete.
+%Qadimiy devirlerde qabilelerniñ yarımadada yerleşmeleri o devirde üküm sürgen hocalıq usulına köre amelge keçe edi, dep qayd etmek mümkün, çünki erbir medeniyet özüne kelişken landşaft ve tabiat-iqlim zonasını seçip ala edi.
+%Bu öz nevbetinde Qırımda "üç etnik vilâyetniñ" peyda olmasına temel qoydı, ve medeniyetniñ biri-birinden farq etken özgün pıtaqları yan-yanaşa inkişaf ettiler... XV asırda yekâne Qırım devleti meydanğa kelgenge qadar biri-birilerinen qarışıp ketmediler".
+%Er bir qabile özüniñ ekologik yerini işğal etken edi.
+%Bu ise olarğa pek büyük olmağan territoriyanıñ sıñırları içinde muabbet yaşamağa imkân bere edi.
+%Ealiniñ hocalıq tüzümi ceetinden çeşit gruppaları özüne has bir simbioznı meydanğa ketire ediler.
+%Meselâ, muayyen bir barışıqperver munasebetler meydanğa kelgen edi, skif aleminiñ sıñırlarında bulunğan tavr köyleriniñ (Ayvazovskoye, Alma-Kermen, milâdiyden evel IV-III aa.) istihkâmlanmağanı bundan delâlet bermekteler.
+%Şu eki halqnıñ alâqaları yarımadadaki yekâne "tavr-skif" ealisi aqqında söz yürsetmege aq bere.
+
+%Skifler ve kimmeriylerniñ özara munasebetleri başqaca bir harakterde şekillene.
+%Kimmeriyler de skifler kibi, ayvanasravcılıqnen oğraşa, ve amelde aynı şu ekologik yerni işğal ete ediler.
+%Lâkin bu topraqlar skiflerniñ menfaat çerçiveleri içinde buluna edi.
+%Tarihiy çarpışmalar neticesinde skifler olarnı Küçük Asiyanıñ territoriyasına sıqıp çıqaralar, ve Qırım Avroasiya kontinentiniñ Altaydan tutıp Tunağace olğan büyük bir territoriyasında keniş darqalğan Şimaliy-İran ve Merkeziy-Asiya qabileleriniñ, keniş köçebe skif medeniyetiniñ bir qısımına çevirile.
+%Tarihta malüm ki, aynı şu devirde Asiya medeniyeti Qırımğa keniş bir miqyasta kelip kirgen, maalliy qabilelerniñ medeniyetlerinen alâqada bulunğan ve şu medeniyetlernen qarışıp ketken edi.
+
+%Böyleliknen, Qırımda tsivilizatsiyanıñ nevbetteki basqıçı, milâdiyden evel VII asırda yarımadağa kelip yerleşken skiflernen bağlı oldı.
+%Qırım skif medeniyetiniñ tarqaluv arealınıñ küçük bir qısımı olğanına baqmadan, o skiflerniñ soñki durağı oldı (mında olar milâdiyden evel III asırğace bulundılar).
+
+%Bu devir etnik alâqalarnıñ bayağı keniş tarqalmasınen qayd etile.
+%Bir taraftan, Qırımda skif medeniyeti pekinip başlay, bunı skif dünyabaqışlarınıñ, tabınuvlarınıñ, defn merasimleriniñ, sanatlarınıñ tarqaluvında körmek mümkün.
 
 
-Belli ki, qomşu territoriyalarnın medeniyetlerinde de böyle şeyler bar edi.
 
-Bütün bular «tunç deviri yerli qabilelernin ömür faaliyeti tek aktivleşmesinen değil, aynı zamanda olarnin Oadimiy Şarq, Aq deniz etrafındaki, Kavkaz artındaki tsivilizatsiyalarnen sıq qonuşmalarınen de qayd oluna» demeğe esas bereler.
-(205.
-76-ncı sahife).
-O devirde Oırımda Kemik-oba medeniyeti (bu söz Oarasuvbazar yanındaki «Kemik oba» gurğanı adından kelip çıqa) inkişaf etmekte edi.
-Hem bu medeniyet içün ziraatçılıq ve hayvanasravcılıq harakterli ediler.
-Bağça eli koyu yanında tapılğan plâki taşlarda oyulıp yapılğan resimler — tuvar hayvanlarının hem de ziraatçının iş aleti sayılğan çapalarmn tasvirleri -fikirimizni açıq-aydın isbatlaylar.
 
-Oırımnın qadimiy medeniy an anelerinin ilerideki inkişafı köçebe qabileler devirinen bağlı oldı.
-Bu qabilelernin yaşav arealı bütün Şimaliy Qara denizboyum ve aşağı Dnepr boyum qavrap alğan edi.
-Demir deviri başlanğan son köçebe qabilelernin medeniyeti yerine, bazı bir malümatlarğa köre, acem tilli kimmeriylernin (gmıri-gimeriyos, eramızdan evelki IX—VII asırlar) medeniyeti kele.
-Kimmeriylernin medeniyeti artıq açıq-aydın etnik mensüplikke malik edi.
-İzleri ta Küçük Asiyağa barıp çıqqan kimmeriyler tek Qırım yarımadasında değil, deyerlik bütün Şarqiy Avropanın cenübinde yaşay ediler.
-Bu halq haqqında yazma menbalar bar — meselâ, Gömer özünin «Odisseya>>sında bu halqnı anıp keçe.
-Bazı bir mutehassıslarnın fikirince, «kimmeriyler» termini Oırımnıh toponimik adlarında da saqlanğan.
-(58.
-213-nci sahife).
 
-Kimmeriyler esasen yaylâ hayvanasravcılığınen meşğul olğanlar.
-Her bir hayvanasravcı qabilede olğanı kibi, kimmeriyler arasında da madenni işlev ve ondan yüksek sevieli bediiy eşyalar hazırlav sanatı ğayet ilerilegen edi.
-Oadimiy tapılmalar — tunç sapları nağışlı qaqma usulında işlengen qılıç ve hançerler, nağış elementleri olğan cenkâver baltalar, dolandaçiı örneklemen bezetilgen at taqımları, burma tunç bilezlikler de bundan delâlet bereler.
-Madenden eşya yasavmn asırlarca devam etip kelgen an aneleri Oırımda skifler peyda olmazdan bayağı evelce mahalliy «canavar» üslübinin inkişaf etmesi içün negiz oldılar.
-(205.
-78-nci sahife).
 
-Kimmeriyler medeniyeti ve onın yerine Şimaliy İran territoriyasından hem de Merkeziy Asiyanın qulan çöllerinden kelgen köçebe skifler (skolotsaqlar) medeniyeti yarımadanın esasen çöl tarafında inkişaf etkenleri halda, yurtlaşqan ziraatçı qabilelernin medeniyeti Oırımnın merkeziy, dağ eteği, dağ ve yalıboyu rayonlarında inkişaf etti.
-Bu esnada laf Oızıl qoba medeniyeti haqqında kete.
-Zaten, bu medeniyet öz adını qadimiy duraqlarnın izleri tapılğan Oızıl qobanın adından ala.
-Mezkûr medeniyetke has maddiy abideler cümlesine kertmelernen ve solâr belgiler şekilindeki oymalı nağışlarnen bezetilgen cülâlı kiramet numüneleri kireler.
 
-Oızıl qoba medeniyetinen aynı bir vaqıtta ya da biraz keççe tavr medeniyeti de inkişaf etti.
-Yarımadanın cenübiy qısımını işğal etken bu medeniyet Oızıl qoba medeniyetine soydaş edi.
-(205.
-79-ncı sahife).
-«Tavrlar» etnonimi yarımadanın adlarından birinde — Tavrida sözünde saqlanıp qalğandır.
-«Tarih atası» Gerodot tavrlar haqqında hikâye eterek, olarnın birinci yetekçisi Taosnı ana (eramızdan evelki XIII asır).
-Tavrlar hususında sonki anmalar eramızmn X aşırına aittir.
-Böyle anmalarnı biz Vizantiya menbalarında oquymız ki, anda laf Oırımğa hristian missionerlerini yoilav haqqında kete.
-Muellifnin fikirince, Oırımnın yalıboyuna cenübiy-şarqiy Küçük Asiyadan kelip çıqqan ilk yunan kolonistleri Oırım dağlarını Küçük Asiyanın cenübinde yerleşken Tavros dağlarına oşatıp, olarğa da «Tavros dağları» değen ad bergenler.
-Ve tek şundan son mahalliy ehali «tavros», yani «tavrlar» ekzoetnonimini alğan.
-ûadimiy yunanlar qırımlılarnın medeniyeti Küçük Asiyadaki Tavros dağlarında yaşağan hettlernin medeniyetine benzegenini (cümleden, divarlarnı quru usulnen qalav usulı) qayd etkenler.
 
-Pek çoq tapılmalar tavrlar medeniyeti ve olardan evelki qabilelernin medeniyetleri arasında devamiylik olğanından delâlet bereler.
-Meselâ, hem tavrlar, hem olardan evelki qabileler defn merasiminde «taş qutu»lardan faydalanğanlar, obalarnın töpelerinde monumental antropomorfik heykeller tiklegenler.
-Tavrlarnın «taş qutu»ları Küçük Asiyadaki hettlernin ve Ğarbiy Kavkazdaki qadimiy abhazlarnın faydalandığı «taş qutu»larğa ziyade oşay ve mahiyetlerince burunğı mezarlıqlarnın bütün bir komplekslerini teşkil ete ediler.
-Bundan da gayrı, tavrlar başqalarına nisbeten birinci olıp insan skulpturaları yapa ve olarnı qurğanlarnın töpesine yerleştirip başladılar.
 
-Böyleliknen, tunç devir bitip, demir deviri başlanmasınen Qırımda çeşit tipteki medeniyetlernin inkişafı, çeşit etnik gruppalarnın beraberlikte yaşaması qayd oluna.
-Yarımadadaki tabiatnın özü buna qoltuta edi.
-Mındaki yalıboyu tüzemlikleri dağ rayonlarına çatışalar, yarımadanın bayağı qısımını çöller teşkil eteler.
-Eminliknen aytmaq mümkün ki, o zamanlarda qabilelernin yarımadada yerleşüvi olarnın nenen meşğul olğanlarına bağlı ola, yani her bir medeniyet özüne en ziyade kelişken yemi seçip alıp, anda yerleşe edi.
-Neticede «Oırımnıiî üç etnik vilâyeti meydanğa keldi ki, bu vilâyetlerde medeniyetnin biri-birinden farq etken özgün pıtaqları qomşulıqta yaşap, inkişaf ettiler, ...
-XV asırda yekâne Qırım devleti teşkil olunğanğa qadar biri-birinen qarışıp ketmediler».
-(90.
-6-ncı sahife).
-Her bir qabile kendi ekologik payanına malik olıp, bu hal olarğa pek büyük olmağan territoriya sınırlarında barışıqlı ömür sürmek imkânını bere edi.
-Hocalıqnı çevirüv cehetinden türlü-türlü olğan ehali gruppaları özüne has simbiozni teşkil ettiler.
-Böylece, tavrlar ve skifler arasında güzel münasebetler şekillene.
-Skiflernin territoriyasına tutaş yerde qurulğan tavr yurtluqları (Ayvazovskoedeki, Alma Kermendeki yurtluqlar, eramızdan evelki IV-III asırlar) bum pek yahşi isbatlaylar, çünki bu yurtluqlar temelli pekitilmegen ediler.
-Eki halq arasında mevcut olğan qatnaşuv hatta yekâne «tavr-skif» ehalisi haqqında laf yürütmek imkânını bere.
-(205.
-81-nci sahife).
 
-Skiflernin kimmeriylernen münasebetleri ise bam-başqa harakterde edi.
-Skifler kibi, kimmeriyler de hayvanasravcılıqnen oğraşa ve asılında skiflernin idda ettiği ekologik payannı işğal ete ediler.Tarihiy denişmeler neticesinde skifler kimmeriylerni Küçük Asiya territoriyasına sıqıp çıqaralar ve bundan son Qırım köçebe skif medeniyetini teşkil etken alemnin bir qısımına çevirileler.
-İşte, aynı o vaqıtta Qırımğa ilk kere tamamile asiyaviy medeniyet kirip kele ve bundan son onın yerli qabileler medeniyetinen sintezi yüz bere.
-Böyleliknen, Oırımdaki tsivilizatsiya inkişafının nevbetteki basqıçı eramızdan evelki VII asırda yarımadağa kelip yerleşken skiflernen bağlıdır.
-Baştaları skif medeniyeti arealının ancaq küçük bir qısımını teşkil etken Qırım sonundan skif medeniyetinin ahırki durağına çevirile (mında skifler eramızmn üçünci aşırına qadar yaşadılar).
-Bu devir etnik bağlantılarnın bayağı kenişlemesinen ayırılıp tura.
-Bir taraftan, Oırımda skif medeniyeti tasdiq oluna, yani skiflernin dünyabaqışları, ibadetleri, urf-adetleri, sanatı keniş tarqala.
-Diğer taraftan ise, Öırım medeniyetinde yunan, sonundan ellin tsivilizatsiyasının tesiri hep ziyade sezilip başlay.
-EHİnizm devirinde mında tavr medeniyetini, tavrlarnın dinini kendilerine yaqın alğan yunan kolonistlerinin ilk yurtluqları peyda ola.
-Oırımnıh bütün yalıboyum zapt etken ellinler ondan ziyade şeher-devlet teşkil ettiler, bu şeherlernifi en büyügi — Pantikapey ise Bospor saltanatının paytahtı oldı (eramızdan evelki V asır).
-
-Yunan-tavr medeniyetlerinin sintezi Oırım territoriyasında öz mahsulını bere.
-Bir taraftan, yunan aqçalarında tavr Devası tasvirlene (yunanlar tavrlarnın ana-tanrısı Orhilohqa sığına ediler).
-Diğer taraftan — tavrlarnın medeniyeti yunan mifologiyasının, plastikasının obrazlarınen zenginleşe, antik heykelcilik qaidelerinin tesirini his ete.
-
-Tavrlarnın kiramet sanatı keniş aks olunğandır.
-Olarnin savutları qomşu halqlarnın sanatlarında keniş qullanılğan solâr belgilernen, semaiy temsillernen bezetilgen — Hersonesnin ellinistik qatlamlarında ğayet çoq miqdarda kiramet numüneleri tapıldı ki, olarnin saplarında ustalarnın adları «tavr» etnoniminen birlikte yazılğan.
-(41. 31-nci sahife).
-
-Bu devir Oırım medeniyetinin genezisi noqtaiy-nazarından ğayet körümlidir: bu devir yerli tavr elementlerinin skif dominantası ile sintezinen, yunan ve rum tesirinen qayd oluna.
-Bundan da ğayrı, eramızdan evelki Vl-V asırlarğa ait olıp, Oırım territoriyasındaki skif qurğanlarında tapılğan acem eşyaları yerli medeniyetlernin Ulu Acem asabalığınen tanış olğanlarından delâlet bereler, işte, bu sintez sonundan meydanğa kelgen qırımtatar medeniyetinin inkişafı içün negiz olaraq hizmet etti.
-
-Skifler Oırımda (Gerodot olarnı «çar skifleri» dep adlandırğan edi) aman-aman 1000 yıl devamında, olarnı Ğarpqa taba yılışqan got qabileleri tar-mar etkenge qadar yaşadılar.
-Skiflernin yerine kelgen gotlar ise zamanlar deniştikçe yurtluqlı ziraatçılıqqa keçip, Skif Neapolinde (eramızdan evelki lll-ll asırlar) öz devletini qurdılar.
-Şimdiki Aqmescitnin kenarında bulunğan Skif Neapolinin keççe peyda olğan qırımtatarca adı Kermençik edi.
-Skif Neapoli — antik devirlerge has olğan tipik bir şeher olıp, onın freskalarnen bezetilgen cemaat ve mesken binaları, yunan tanrıları ve qaramanlarının, skif daiylerinin eykelleri qoyulğan soqaqları bar edi.
-Skiflernin Şimaliy Oara denizboyundaki qomşu antik şeherlernen sıq alâqada bulunğanlarını biz tarihtan yahşi bilemiz.
-
-O devimin maddiy medeniyeti ameliy harakterdeki bir çoq eşyalarnen taqdim olunğandır ki, olar yerli ehalinin çeşit medeniy alâqalarından delâlet bereler.
-Bu eşyalar cümlesine skiflernin «canavar» üslübine has olğan harakterli yasamalar, qara ve qızıl figuralı yunan vazaları, çerçivesi tunçtan yasalğan acem küzgüleri, Ind okeanından alınma mercandan yapılğan boyuncaqlar kireler.
-Bediiy ğayelernin özara qarışuvı antik örneklemen, silena ve satirlernin, Meduza Gorgonanın tasvirlerinen bezetilgen skif eşyalarında açıq-aydın aks oluna.
-Skif sanatına Acem sanatında popular olğan polimorfik mahlüqlarnın — sfinksler, grifonlarnın obrazları da kireler.
-Bu yerde şunı qayd etmeli ki, en areketçen ve en açıq muhitlerden biri sayılğan skiflemin köçebelik muhiti yabaniy menimsemelerge pek sezgir edi.
-
-Yunan-skif medeniyetinin sintezi bir çoq unikal sanat abidelerinin peyda olmasına sebepçi oldı.
-Böyle abideler sırasında Skif Neapoli yanındaki atlılar ve çalğıcılar tasvirli resimler ile, ağaç skulpturalarnen (sfinks ve grifonlarnın figuraları) ziynetlengen nekropolnı, antik kiramet, quyumcılıq numünelerini anmaq mümkün.
-
-Vaqıtlar keçip, skiflernin qalımtıları yerli ehali arasında sinip kettiler.
-Amelde skiflernen bir vaqıtta (eramızdan evelki VII asırda) Oırımda peyda olğan yunan kolonistlerinin medeniyeti haqqında aytacaq olsaq, bu — zanımızca, Oırım medeniy asabalığının eh ögrenilgen qısımıdır.
-Ebet, antik Qırım antik Yunanistan ya da antik Küçük Asiyanın iriştigi yüksekliklerge irişip olamadı.
-Ne ise de Oırımda yunan medeniyetinin merkezleri olaraq ğarpta Hersones, şarqta — Bospor saltanatının paytahtlarından biri olğan Pantikapey, eramızdan evelki VI asırda qurulğan Feodosiya, Kerkinitida (zemaneviy Evpatoriya yerinde) tanıla ediler.
-Bospor saltanatını Oırımdaki qadimiy yunan medeniyetinin eh aydın körünişi, dep saymaq mümkün.
-Bu saltanat 800 yıl yaşap, Mitridat Evpator zamanında özünin eh yüksek noqtasına çıqtı.
-Onın ehalisinin etnik erkânı hususında ilmiy edebiyatta pek çoq baaslar oldı.
-Ekseri tedqiqatçılarnın fikirince, mında esasen yunan ve sarmat medeniyetlerinin elementlerini menimsegen skifler yaşağanlar.
-Diğer baqışqa köre ise, Bospor saltanatındaki ehalinih esas qısımını yunanlar teşkil etkenler.
-(75.
-6-ncı sahife).
 
 Oırım medeniyetinin inkişafındaki bir sıra hususiyetler Feodosiyanın tarihınen bağlılar.
 Skifler bu şeherge «Ardabda» değenler, türk menbalarında ise «Aradayda» denile.
@@ -767,28 +737,5 @@ Milliy medeniyetlernih cihan haritasında an'aneviy keç orta asırlarğa ait um
 Devamlı tarihiy ceryannın yekünlemesi ve XVII—XVIII asırlarnın sınırında çeşit milliy medeniyetler meyanında özgün umumqırım türkiy medeniyetniiî peyda olması — Qırım tsivilizatsiyası inkişafının orta asır basqıçında evolütsion ceryanlar artıq toqtamasının mantıqiy neticesi oldı.
 O devirdeki umumqırım medeniyetinin negizini qırımtatarlarnıh, karaim, qırımçaq ve yunan-tatarlarnın, başqaca etip aytqanda, urumlarnın etnik medeniyetleri teşkil ettiler.
 Zanımızca, din cehetinden pravoslav hristianlar olğan, tili ise türkiy-tatar tili olğan yunan-tatarlar — yarımadada qadim zamanlarda yaşağan türkiy ehalinin nesilleridir.
-Bes-belli, olar Oırımdaki yunan koloniyaları yanında yerleşerek, qomşularının medeniyeti ve hristian dinini qabul etip alğandırlar.
-Öz vaqtında rus mitropoliti İgnatiynin Oırımnı terk etmek haqqındaki teşviqatlarına qapılıp, Rusiyege koçken ellinlerge (Oırımda oturıp qalğan asıl yunanlar), ermeni, gürci ve valahlarğa qoşulmağan, neticede Ekaterina saniy ll-nin çar hükümeti tarafından 1778 senesi zorbalıqnen Oırımdan alıp çıqılıp, Ekaterinoslav guberniyasında ve Şimaliy Qara denizboyunda yaşamağa hüküm etilgen, lâkin koçürilüvge razı olmağan, köçürmege kelgen rus askerlerine qarşılıq köstergen, köçmemek içün hatta hristian dininden vazgeçip, musülman dinine keçken urumlarnın Oırımnı terk etmeğe istemegenlerinin nasıldır genetik sebepleri bardır.
 
-Keç orta asırlardaki an'aneviy Oırım medeniyeti qomşu mintaqalarmn milliy medeniyetlerine sezilirli tesir kosterdi.
-Böyle tesirni Cenübiy Ukraina medeniyeti misalinde (meşhur Poltava süslemeleri hem de urba, toqumacılıq.
-kilimcilik), Cenübiy Rusiye medeniyeti misalinde (Don ve Kuban kazaklarının urbaları, ev cıyuv üslübi, savut-saba), Şimaliy Kavkaz medeniyeti misalinde (kabardin qadın-qızlarının baş kiyimleri, qumıq, qaraçay, balqar, noğaylarnın, çeçen ve inguşlarnın çeşit türlü eşyaları.
-Meselâ, çeçenler ve inguşlarnm Girey, Selim-Girey, Aslan-Girey kibi erkek kişi adlarında qırımtatar izini abaylamaq qıyın değil), Moldaviya ve Romaniya medeniyeti misalinde (qırımtatar medeniyetinin tesiri hususan olarnin kilim toqumacılığında közge çarpa) körmek mümkün.
-Ve aksine, yuqarıda anılğan halqlarnın qırımtatar sanatı ve medeniyetinin şekillenmesi ve inkişaf etmesine tesiri de değerli oldı (bu şey hususan qırımtatar halq avalarında, mimarcılıq ve manzaralı-ameliy sanatında yahşi körüne).
-Bu halqlarmn biri-birini medeniy cehetten zenginleştirüv ceryanına 1783 senesi, yani çar Rusiyesi Küçük-Qaynarcı anlaşmasının qaidelerini qaba surette bozup, Oırım hanlığını zorbalıq ile öz erkânına qoşqan yılda sed çekildi.
-Belli ki, 1774 senesi Türkiye ve Rusiye arasında imzalanğan Küçük-Oaynarcı anlaşması mucibi Oırım hanlığı o vaqıt mustaqil qırımtatar devleti sayıla edi.
 
-Teessüf ki, bundan son çar Rusiyesi Oırımda müstemlekecilik siyasetini keçirerek, yarımadanın asıl ehalisini tuvğan toprağından quvup başladı.
-Halbu ki, qırımtatarlarmh devleti sayılğan Oırım hanlığı öz vaqtında Oırımdaki cemi an'aneviy medeniyetlernin, cümleden, karaim, urum, qırımçaq medeniyetlerinin öz yolunen inkişaf etmelerine kefillik bere edi.
-1917-1918 seneleri qırımtatar devletçiliğinin nasıldır bir çeşitini andırıcı Oırım Halq Cumhuriyeti teşkil olunğan ğaet qısqa tarihiy devirde qırımtatar, karaim ve qırımçaq medeniyetleri belli bir derecede gür inkişaf etip aldılar.
-A. Kerenskiy yolbaşçılığındaki Rusiye Muvaqqat hükümetinin sessiz razılığı ile meydanğa ketirilgen bu özüne has qırımtatar muhtariyetinin merkeziy qanunyaratıcı, vekâletli organı sıfatında Oırım Musülman icra komiteti saylanğan ve onın Reisi olaraq Oırım Muftisi Noman Çelebicihan çalışqan edi.
-
-Mezkûr Komitet 1917 senesi sentâbr 26 künü Aqmescitte olıp keçken özünin ilk meclislerinden birinde aşağıdakiler hususında qarar çıqara:
-
-1. Hansarayda qırımtatar milliy muzeyini açmaq.
-2. Zincirli medrese kompleksinde Oırım hanı Mengli Geray I (Bağçasaray şeherini qurğan han — İ. Z.) adına darulfunun teşkil etmek.
-3. Bağçasarayda İsmail bey Gasprinskiy adına darulmuallimat (ocalar seminariyası) açmaq.
-4. «Orta medrese» kompleksinde qırımtatar bediiy-sanayı mektebini teşkil etmek.
-(101.253-nci sahife)
-
-Oırım Muhtar Sovet Sosialist Cumhuriyeti (1921-1946) çerçivesinde hareket etken qırımtatar devletçiliği devirinde Oırımnın an'aneviy medeniyetini canlandırıuvda muhayen neticelerge, hatta demek mümkün ki, muvafaqiyetlerge de irişildi, çünki muhtariyatta qırımtatar tili devlet tili olıp, hakimiyet kadrlarm tatarlaştıruv siyasetini ömürge keçire, yani aliy oquv yurtlarına studentlerni ya da devlet muessiselerine hadimlerni işke aluvda meyillik Oırımnıh tamir halq vekillerine — qırımtatarlarğa berile edi.
