@@ -100,6 +100,15 @@
 
 %Bu devir etnik alâqalarnıñ bayağı keniş tarqalmasınen qayd etile.
 %Bir taraftan, Qırımda skif medeniyeti pekinip başlay, bunı skif dünyabaqışlarınıñ, tabınuvlarınıñ, defn merasimleriniñ, sanatlarınıñ tarqaluvında körmek mümkün.
+%Diger taraftan, Qırım medeniyetinde rum, soñradan ellin tsivilizatsiyasınıñ tesiri daa ziyade sezilirli olıp başlay.
+%Ellinizm devirinde mında kendilerine yaqınca olğan tavr medeniyeti ve dinini qabul etken ilk rum kolonistleri peyda oldılar.
+%Qırımnıñ bütün yalısını öz ellerine alğan ellinler mında ondan ziyade polis-devletlerini, yani bir şeer ve onıñ civarlarından ibaret devletlerini qurdılar.
+%Olar arasında eñ büyügi Pantikapey edi, o Bospor devletiniñ paytahtı oldı (milâdiyden evel V a.).
+
+%Rum-tavr medeniyetiniñ sintezi de Qırım territoriyasında öz izlerini qaldırdı.
+%Bir taraftan, biz rum demir paralarında tavr Qızınıñ tasvirini bulamız.
+%Rumlar tavrlarnıñ mabudesi olğan Orhilohqa tabına ediler.
+%Diger taraftan, tavrlarnıñ sanatı rum mifologiyasınıñ obrazlarınen, plastikasınen toldurıla, tavrlarnıñ sanatı antik eykelik tesiriniñ altında qala.
 
 
 
@@ -111,109 +120,48 @@
 
 
 
-Oırım medeniyetinin inkişafındaki bir sıra hususiyetler Feodosiyanın tarihınen bağlılar.
-Skifler bu şeherge «Ardabda» değenler, türk menbalarında ise «Aradayda» denile.
-(227.
-1-nci sahife).
-Yunan kolonistleri tarafından qurulğan Feodosiya sonundan cenevizlernin Kafa adlı şeheri olaraq tanıla ve Oara deniz boyundaki eh büyük ticaret ve medeniyet merkezlerinden birine çevirile.
-Türk işğali yıllarında ise Kafa şeheri Oırım yarımadasındaki osmanlı medeniyetinin merkezi sayılğan Küçük İstanbul sıfatında biline.
 
-Başqalarına baqqanda antik tsivilizatsiya şeherlerine coğrafik cehetten yaqınca turğan Hersones ta orta asırlarğa qadar Oırımda yunan medeniyetinin tayanç noqtası olıp keldi.
-Hersoneste eramızdan evelki lll-ll asırlarda yerli koroplast-heykeltraşlar tarafından yapılğan antik skulpturalarnın fragmentleri bu künge qadar saqlanıp qalğanlar.
-Böyle soy skulptura antik Hersoneste populâr olğan tanrılar — Deva ve Geraklm, Apollon ve Dionisni, Kibela ve Afroditam aks ettirmeknen, olarnı tasvir etüv üslübinde Skopas, Praksitel, Lisippnin tesiri duyula.
-Koroplastika sanatının Hersoneste gür inkişaf etmesini hem diniy ihtiyaclarnen, hem mevziiy materialnen (yani mında mermernin olmağanınen ve yahşi keyfiyetti balçıqnm mevcutlığınen) anIatrnaq mümkün.
-Pişken balçıqtan skulpturalar yapuvnen şeherde bir qaç ustahane meşğül edi.
-(214.
-15-nci sahife).
-Orta asırlarda Hersones Oırımda ve Şarqiy Avropada Vizantiya medeniyeti hem de hristianlıqnı terğib etici merkezge çevirile.
-(223.
-90-91-nci sahifeler).
 
-Böyleliknen, antik medeniyet (Orımnın yalıboyu) ve tavr-skif qabilelerinin medeniyeti (Oırımnın çöl ve dağlı qısımları) mudavmet alâqada bulunğan ediler.
-İcadiy bağlantılar, başqalarından alıngan an aneler neticesinde qırımlı ustalar klassik skulptura ve mimarcılıqnen, orderler sistemasınen tanış olalar, qurucılıqnın özleri içün yanı usullarını, esnafçılıqnın yanı — pencere camı ve polihrom savut istihsalim menimseyler.
-Aynı vaqıtta rumlar arasında pek mot olğan mozaikalı cam (milliofiore) hazırlav da qulaç ala.
-(41. 102-nci sahife).
 
-Antik Oırımğa ait keramikanı öğrenir ekenmiz, yerli ustalar antik çerepçilikni tam manada menimsegenlerini körmek mümkün.
-Halbu ki, antik çerepçilik an aneleri Oırımda import numüneleri, yunan kolonistleri vastasınen tadbiq etilgen ediler.
-Antik Qırım keramikası değende biz mahalliy balçıqtan çerep tezyasında yapılğan eşyalarnı ya da yapıştırma usulnen yapılğan qızıl laklı, qızıl balçıqlı, kok balçıqlı işlemelerni közde tutamız.
-Aş-suv savutları çeşit türlü amforalar, pifoslar (kübler), bardaqlar, çanaqlar, şemdanlar, gügümlernin keniş assortimentinden ibaret olıp, olar bütün antik Aq denizboyunda nasıl şekilde yapılğan olsalar, mında da aynı şöyle şekilde ediler.
 
-Torevtika ve quyumcılıq sanatına has şeyler — bediiy cehetten acayip yapılğan kümüş eşyalar, tunç, demirden yapılğan bilezlikler, uçları ayrı olıp, ayvan ya da yılan başlarının tasvirinen nağışlanğan bilezlikler, yüzükler yapılğanda ustalar hem yunanlarnın, hem çöl qabileleri sanatının tesirinde bulunğanları sezile.
 
-Taliy tanrısı Tihe, yahut Nika, Demetra kibi tanrılar tasvirlengen gemmalar da tapıla turğan.
-Bu gemmalar da, bes-belli, Qırım territoriyasında işlengenler: menbalarğa köre, Bosporda taş kesüvnen oğraşıcı ustahane çalışqan.
-Lâkin mında ketirilme şeyler — fibulalar, toğalar, dögmeler de az değil edi.
-(112.
-75-nci sahife).
 
-Bütün bular antik Oırımnın büyük şeher merkezlerinde medeniyet yunanlarnm küçlü tesiri altında inkişaf etkeninden delâlet bereler.
-Lâkin türk qabilelerinin erte-ğarp birleşmesi sayılğan hunnlarnın eramızdaki IV asırda yapqan istilâsı neticesinde Oırımda antik tsivilizatsiyanın izleri deyerlik büsbütün siline; Vizantiya medeniyeti ise öz tesirini Oırımda antik an'aneler artıq unutılğan son keçirip başlay.
 
-### 1.2. Orta asırlarda Oırımda mevcut olğan etnomedeniyetlernin sintezi ve bu negizde Oırım hanlığı devirindeki umumqırım medeniyetinin şekillenmesi (qırımtatarlarnın etnogenezi
 
-kontekstinde)
 
-Vizantiya quvetke kirgen sayın Oırım da (esasen onın yalıboyu qısımı) hristian pravoslaviyesinin tesirine qapılğan memleketler cümlesine qoşulıp, erte orta asırlar devirine adım ata.
-Hristianlıq ğayeleri başta bir mimarcılıqta aks oluna.
-Mında kilseler ve monastırler, qoba ibadethaneleri, bazilikalar, rotondalar qurulıp başlay.
-Roman mimarcılığının türlerinden biri olğan rotonda — yanı din içün şehit ketken adamnın qabiri üzerinde qurulğan qubbeli ibadethane — sonundan musülman mimarcılığında da inkişaf ete.
-Musülman zadekânlarınm sonki yataqları olmış dürbeler — rotondanın bir çeşitidir.
-Hristianlıqnıh tarqalması neticesinde freska sanatı doğa.
-Saqlanıp qalğan freskalarnın en erte soyları XIII—XV asırlarğa aitler.
-Oırımda ikonalar, haçlar, çarmuqlar, azizlernin relyefli figuraları ken tarqalğan edi.
-(71. 4-nci sahife).
-Medeniyet ve sanatnın diğer sahalarına kelgende ise, bu esnada Vizantiya medeniyetinin tesiri tap o qadar duyulmay.
-Esnafçılıqmn yetekçi çeşitlerinden biri olğan madenni bediiy işlevde çöl medeniyetinin mahalliy an aneleri saqlanıp qalğanlar.
-Bunın sebebi Oırımğa yanı-yanı köçebe qabilelernin, bu cümleden türkiy tilli qabilelernin kelip kirmesinde edi.
-Ta monğol-tatar istilâsından evel Oırımğa türklernin bir qaç dalğası yetip kelgen edi, neticede mındaki türk tilli ehalinin sayısı ket-kete artıp barğan edi.
-Proto-qırımtatarlarnıh, yani erte orta asırlarda yaşağan qırımlı türklernin bir qısımı öz qomşularınıh dinine — hristianlıqqa keçe.
-İşte, yunan-tatarlar, yani pravoslav dininde olğan tatarlar olarnin nesilidir.
-Qırımda türkiy etnik komponent quvet alğan sayın mahalliy türk medeniyeti de ket-kete üstün seviyege koterile.
 
-R.
-Ourtiyevnin fikirince, hunnlarnın kelmesinen (IV asımın sonki çerigi — VI asımın 30-ncı seneleri) Oırımda yaşap, türklerden olmağan yurtluqlı ehalinin köçebe türkiy qabilelernen ilk etnosiyasiy kontaktı yüz bere.
-Böyleliknen Oırımnıh türklernen bağlı tarihına temel qoyulıp, o acem qabilelerinin (kimmeriyler, skifler, sarmatlar ve diğerleri) bin yıllıq tarihim deniştire.
-(95.
-20-nci sahife).
 
-Oırımtatar halqınm avtohtonlığına, demek, onın medeniyeti mında inkişaf etken tsivilizatsiyalarnı yaratqan tavrlar, skiflernin medeniyetinden kelip çıqqanına ait problem — bugünde-bugün ilim ve cemiyetnin eh aktual problemlerinden biridir.
-Oırımtatar milliy hareketinin yetekçileri ve Rusiye, Ukraina, Avropa ve Amerikadaki bir sıra alimler bu pozitsiyanı qırımtatar medeniyetinin kelmeşek harakterde olğanı hususındaki iddalarğa qarşılıq olaraq qorçalaylar.
-Bu ğaye — siyasiy kureşte qullanılğan quru mefküreviy şiar değil de, Oırımda milliy kureş keskinleşmesinden bayağı evelce ilmiy dairelerde tasdiglanğan, ilmiy cehetten esaslandırılğan fakttır.
-Daha XX asımın başlarında alimler yalıboylı ve dağlı qırımtatarlarnıft medeniyeti tavr medeniyetinden bivasta kelip çıqqanı haqqındaki gipotezanı ögge sürgen ediler.
-Rus iliminde birinciler sırasında Qırımnı öğrenip başlağan Pyotr Keppen şöyle yazğan edi: «Zanımca, dolmen tapılmalarınen zengin topraqlarda şimdi yaşağan adamlarnın damarlarında şu dolmenlerni qurğan qadimiy adamlarnın qanı aqadır».
-Rus antropolog alimi E.
-Jirov ise öz fikirini daha aydınca ifadeley.
-O, özü tedqiq etken Eski Kermen haqqında mına böyle yaza: «Aceba, orta asırlarda dağlı Oırımda yaşağan ehali esasen tavrlarnın — Oırımnın qadimiy aborigenlerinin nesili değil ekenmi...
-Kerçekten de, tavrlar qayda yoq oldılar?
-Bir de-bir koçürilgen halq haqqında tarihta bir şey aytılmay da...».
-(23.
-110-ncı sahife).
 
-Oırım tarihi ve medeniyetinin tedqiqatçısı V.
-Vozgrin özünin «Oırımtatarlarnın tarihiy taqdirleri» adlı kitabında esaslı surette qayd etkeni kibi, qırımtatar sanatının tarihi tavrlar sanatından kelip çıqa.
-(41.17-21-nci sahifeler).
 
-Şusı meraqlı ki, V.
-Vozgrin orta asırlarda qırımtatarlar haqqında yazğan bazı muelliflernin malûmatlarını misal etip ketire: «tatarlar...
-qadimiy skiflerden kelip çıqqanlarınen fahırlanalar».
-(41.57-nci sahife) Oadimiy skif-tavr yurtluqları medeniyetnin artıq abadanlaştırılğan merkezleri sıfatındaki kendi emiyetlerini bütün orta asırlar devamında saqlap keldiler.
-Buna Eski-Kermen (Çerkes-Kermen koyu yanındaki qale), Manğup, Qız-Kermen, Tepe-Kermen, Baqla, Çufut-Qale ve saireler misal ola bileler.
-(26.
-8-nci sahife).
 
-Lâkin qırımtatarlarnıh etnik tamırları tek tavrlar ve skiflernen bağlı değildir.
-Oırımtatarlar — otuzğa yaqın qabile ve halqtan asıl olğan etnik mahsuldır.
-Oırımğa Avrasiya çöllerinden ve Küçük Asiyadan ardı-sıra kirip kelgen türk tilli halqlarnın (hunnlar, türkiy alanlar, protobulğarlar, hazarlar, peçenegler, qıpçaqlar, selcuklar) migratsion dalğaları tesirinde mahalliy medeniyetteki türkiy komponent üstün çıqa ve bu negizde yanı etnosnın — türkiy tilli qırımtatar halqımn şekillenüvi yüz bere.
 
-Oırımtatar halqınıh etnogenezine ait kontseptsiyalardan birinin müellifi R.
-Ourtiyev böyle yaza: «Biri-birinden kesen-kes farq etken eki etnik komponentnin: türkiy olmağan avtohton ziraatçı qabilelernin ve köçebe türkiy gabilelemin sintezi qırımlılarnıh etnogenezinde közge çarpqan hususiyetimin birisini teşkil ete.
-Sayı cehetinden üstün turğan birinci komponent bu sintez neticesinde ket-kete türkleştirilip, islâmlaştırıla, yani medeniy assimilyatsiya yüz bere...
-IV—XVII asırlarda Oırımğa çeşit türkiy qabileler kelip qoşulğanına baqmadan, çöldeki qırımlılarmn negizini qıpçıqlar teşkil etkenini etnik fenomen dep bilmek mümkün».
-(95.
-7-nci sahife).
-Coğrafik muhit ve yerli landşaft mezkûr muhitke eh ziyade kelişken tipnin şekillenmesine yardım ettiler.
-Böyleliknen, pek çoq etnik gruppalarnın varisi olğan yekâne halqnın meydanğa kelüvi başlana.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 Erte orta asırlarğa ait Oırımnın çoq çerçiveli sanatı polietnik cemiyetnin ideallarını aks ettire.
 Mında tavrlar ve kolonist yunanlardan ğayrı skolot-skifler, sarmatlar, türkiy alanlar, sonundan ise hazarlar, Nahiçevan ermenileri, gotlar, Skandinaviyadan kelgen qabileler tamir attılar.
@@ -223,8 +171,6 @@ Sasanid Irannın tesiri de Oırımğa yetip kelir eken, o özünen beraber hem a
 225-nci sahife).
 
 VIII asırda Oırım Vizantiyanen Türk Kağanlığının varisleri olmuş hazarlar arasındaki kureş meyanında qaldı.
-(144.
-32-nci sahife).
 Neticede Hersones Vizantiyanın himayesine, bütün Şarqiy Oırım ve yarımadanın ğarp qısımındaki çöller ise Hazariyanın himayesine keçtiler.
 Hazarlarnen beraber Oırımğa tenricilik ve yehudiy dinleri kele.
 Devirler keçe, Oırım Hazariyanın tesirinden çıqıp, Vizantiyanın tesirine tüşe.
@@ -251,9 +197,6 @@ Böyleliknen, türk-tatarlardan olğan, lâkin monğol zadekânlarının yolbaş
 Demek, Oırım içün yat olğan medeniyetni aynı tatar-monğollar özlerinen ketirip, yarımadanı toldurğanları hususındaki fikir (o, ilmiy edebiyatta bayağı yıllar devamında hüküm sürüp kelgen edi) esassızdır.
 Çoq yıllar devamında ögge sürülgen, hatta hrestomatik olıp qalğan bu tikimin müellifleri A.
 L. Yakobson, P.
-Nadinskiy, V.
-E. Potehin ve diğerleri «qırımlılarnıh ecdatları — Cınğızhan ya da Batunın Ordusından çıqmış köçebe monğollar, yahut tatarlardır» dep saya ediler.
-Böyle tüşüncenin sebebi «Tatarlar» etnonimi «Oırımtatarlar» ekzoetnoniminin ekinci qısımına oşap ketkeninde, hem de çöl tarafta yaşağan qınmlılarnın hocalıq çevirüv usullarında edi.
 (95.
 15-nci sahife).
 Yanı dalğanen Oırımğa soqulıp kirgen istilâcılar tillernin soydaşlığı ve yerli halqnın medeniyeti kelmeşekler medeniyetinden bayağı yüksekçe turğanı neticesinde mahalliy ehali arasında assimilyatsiyağa oğradılar, lâkin her halda qırımtatar etnosının şekillenmesine özlerinin hisselerini qoşa bildiler.
@@ -678,66 +621,12 @@ Oırımtatarlar sürgün etilgen son aynı medeniyet taşıyıcılarının sayı
 21-nci sahife).
 An'aneviy tışqı alâqalarnın, en evelâ uzaq vaqıt devamında Oırım medeniyetinin inkişafı içün icadiy şiltem bergen Türkiyenen alâqalarnın üzülmesi, qırımtatarlarnın turmuş şaraitleri bozulması, is lâm dininin tesiri tarqalğan sahalarnın tarlaşması, qırımtatar tili, yazuvmıh rölü eksiltilmesi neticesinde qırımtatar ehalisi kelmeşekler medeniyetine huquqsız qoşavat halında qaldı.
 
-Meselâ, Umer ustanın süslemeleri olğan Yeşil cami XX asırnın başlarına kelip deyerlik tolusınen bozuldı, Hancamideki Umernin süsleri ise bina tamirlengen vaqıtta yoq etildiler.
 
-Amma buna baqmadan milliy medeniyetnin inkişafı ğayet müşkül şeraitlerde bile toqtamay.
-Cümleden, qırımtatarlarnın an'aneviy mesken mimarcılığı inkişaf ete, siyrek-sepelek olsa da, yanı camiler qurula, taş üstünde oyuv alışqanlıqlarınm saqlanıp qalmasına yardım etken baştaş qoyuv an'anesi üzülmey.
-Orta asırlardan qalma seleflernin yaşatılması sayesinde burunğı esnaflardan toqumacılıq, işleme, quyumcılıq, kirametçilik inkişaf eteler.
-Kerçek, o devirde yapılğan şeyler yüksek estetik hususiyetlerinen ayırılıp tura ediler.
-(Bugünde-bugün muzey kollektsiyalarının negizini aynı şu devirge ait eşyalar teşkil eteler).
-Bunınnen birlikte menfiy çizgilernin aks olunıp başlamasını da qayd etmemek mümkün değil.
-Oırımğa ketirilgen sanayi malları — basmalar, maşinanen toqulğan kilimler meharetsiz taqlid içün numüne olalar.
-An'aneviy eşyalardaki örnek «vahşiyleşken, kimerde ğarip bir şekilde» ola.
-(47.
-227-nci sahife).
-«Anilin boyaları ve fabrikalarda yapılğan yipler de halq icadiyatına darbe endireler, yiplerni boyalavnın eski sırları coyula...
-renkler, tüslernin nazik gamması yerine qaba yarmalıq alahbulahlığı kele».
-(47.
-227-nci sahife).
 
-Çar Rusiyesiniri Oırımğa bastırıp kirmesinin daha bir tarafı bar edi: mında, müstemleke tertibinen beraberlikte ruslarnın ileri demokratik medeniyeti de yer alıp, o qırımtatar bediiyatını zenginleştire, mahalliy medeniyetni yanı degerliklerge qavuştıra edi.
-Deyik, rus mimarcılığında hüküm sürgen klassitsizm XIX asırda qurulğan camilerde sertlik, şekillerde temizlik ve aydınlıq izini qaldırdı, Oırımnın icadiy ziyalıları tasviriy sanatnın özleri içün yanı çeşitlerinen — ressamlıq ve heykeltraşlıqnen tanış oldılar.
 
-Böyleliknen, Oırım Rusiyege qoşuılğan son yarımadada ğayrımedeniy rus ve Avropa tesirlerinin yayılması bütün rus metropoliyaları içün, şu cümleden Orta Asiya içün de harakterli olğan taslaq esasında, mahalliy medeniyetlerni tamamile inkâr etüv negizinde keçti, bu hal ise mahalliy medeniyetnin inkişafında yanı tendentsiyalarnın doğmasına alıp keldi.
 
-XIX asırnın sonlarına — XX asırnın başlarına ait mimarcılıqta rus zadekânları esas sımarışçılar oldılar, çünki olar Oırımda öz dergâhlarını qurup başlaylar.
-Bunın içün an'aneviy musülman mimarcılığından muayen elementler alına ve bu elementler yanı binalarğa şarqiy romantizm ve ekzotika ruhum bağışlaylar.
-Üslüplernin böyle eklektik qarışuvı kimerde pek qaba körünse de, bazıda içki nezaket ve lâyıqlıq ile sinirilgen özgün netice bere edi.
-Meselâ, mimar N.
-P. Krasnov Yusupov sarayını qurğanda Oırım mimarcılığının an'anelerinden ğayet meraqlı tarzda faydalanğan.
-Neticede, milliy romantizm üslübinde inşaatlar yaratılğan.
-Krasnovmfi şaheserlerinden birisi — 1910 senesi Kokközdeki saraydan tekaran çette qurulğan Yusupov camisidir.
-Caminin leyhası o vaqıtmn camileri içün tipiktir — dört yanlı çatı astında yekâne oda, mihrab.
-Lâkin bir sıra hususiyetler onı diğer camilerden ayırdı eterek, ona letafet ve originallik bereler.
-Bular — sivri kemer şekilinde yapılğan pencereler, yüksek tavan, methalge çatışqan ve kireç — taştan kesilmiş tüzgün bağanalarğa belsengen örtüli galereyadır.
-Cami binanın bütün perimetri boylap uzanğan oymalı örneklemen bezetilgen.
-Ğarp taraftaki methal ve pencereler arasındaki süs quşaqları boydan-boyğa örnekli ve kalligrafik oymalarnen bezetilgenler.
-Yerli sakinler taş üstünde oymalarnı yapqan ustanın adını unutmağanlar.
-Onın adı Usein Toqtarğazıdır.
-Biz onı şair, oca olaraq da bilemiz.
-(47.
-209-ncı sahife).
 
-Mahalliy medeniyet yabaniy medeniyetlernih tesirine qarşılıq köstererek, öz-özüni tecrit etüv, an'aneviy sanatnın qanun-qaidelerini qatien saqlap qaluv, hatta olarnı konservatsiya etüv yoluna mine, bu ise milliy sanatmn durğunlıqta qalmasına sebep ola.
 
-Umumen alğanda, Oırımmh Х1Х-ХХ asır başlarındaki sanatı çeşit türlü tesirlerge qapıluvnen qayd oluna.
-«Bes-belli, Oırımmh medeniy zemininin özü (bu zemin pek çoq ve pek çeşitli qatlamlardan ibaret edi), tarihiy taliyinin ve Ğarpnen Şarq arasında yerleşmesinin özü öyle vaziyetni meydanğa kefirdiler ki, bu vaziyette qırımtatarlarnıh yanı devir sanatı öz qabuğınen sınırlanmayıp, yani tek kendi normativ estetikası ve qaidelerine boysunmayıp, cihan bediiy ceryanına tabiiy surette, qolaylıqnen qatılğan, yanılıqlarnı sinirgen ve ümüt etilmegende sürprizler kostere bilgen haqiqiy «açıq sistema»ğa çevirildi».
-(205.
-183-184-nci sahifeler).
 
-XX asımın başında icat etken bir çoq sanatşınas alimler, şu cümleden M.
-Kiriçenko-Voloşin (44.
-50-, 59-ncı sahifeler) ve M.
-Ginzburg (47.
-207, 217-nci sahifeler) keç orta asırlarğa ait qırımtatar halq sanatında, tasviriy ve ameliy-manzaralı sanatlarda (bu sırağa, şubhesiz, muzıka sanatını da kirsetmek zarur) eklektiklikni, körüniş, janrlar ve şekiller çoqluğını qayd eteler.
-Bu şeyler, ebet, keç orta asırlardaki qırımtatar etnosınm kulturogenezinde iştirak etken erte orta asırlardaki polietnik medeniy komponentlemin çeşitliliğine belsene.
-
-Heppeyi uzun tarihiy devir zarfında Oırım yarımadasında devam etip kelgen etnik ceryan keç orta asırlarda Oırımdaki türlü türkiy tilli subetnoslarnın yekâne umumqırım etnosına birleşmesinen, yani kendi yaratqan an'aneviy umumqırım medeniyetini taşıyıcı qırımtatar halqının şekillenmesinen yekünlendi.
-Neticede bu Oırım etnosı orta asırlarda öz devletçiliğini — Oırım hanlığını qurdı, halqnm içki etnik erkânı qarışıq olğanına baqmadan, devletçilik temsilcisi olğan halqnm özü ise sonundan qırımtatarlar, değen ad aldı.
-
-Milliy medeniyetlernih cihan haritasında an'aneviy keç orta asırlarğa ait umumqırım medeniyetinin peyda olması — şimaliy-şarq Aq denizboyu, Balkan, Kavkaz, Oara deniz havzasındaki erte ve keç etnomedeniyetlernih vaqıt cehetinden bayağı çoqqa sürgen bir-birinen garışuvımh neticesidir.
-Devamlı tarihiy ceryannın yekünlemesi ve XVII—XVIII asırlarnın sınırında çeşit milliy medeniyetler meyanında özgün umumqırım türkiy medeniyetniiî peyda olması — Qırım tsivilizatsiyası inkişafının orta asır basqıçında evolütsion ceryanlar artıq toqtamasının mantıqiy neticesi oldı.
-O devirdeki umumqırım medeniyetinin negizini qırımtatarlarnıh, karaim, qırımçaq ve yunan-tatarlarnın, başqaca etip aytqanda, urumlarnın etnik medeniyetleri teşkil ettiler.
-Zanımızca, din cehetinden pravoslav hristianlar olğan, tili ise türkiy-tatar tili olğan yunan-tatarlar — yarımadada qadim zamanlarda yaşağan türkiy ehalinin nesilleridir.
 
 
