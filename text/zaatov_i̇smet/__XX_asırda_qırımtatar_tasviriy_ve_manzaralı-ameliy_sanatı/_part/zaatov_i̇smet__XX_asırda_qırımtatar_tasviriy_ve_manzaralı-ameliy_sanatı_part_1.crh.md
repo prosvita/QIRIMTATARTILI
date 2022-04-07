@@ -347,6 +347,56 @@ Soñradan Qırım Hazariyadan ayırıla ve Vizantiyanıñ tesiri altında qala.
 
 %İslâm dünyasınıñ başqa regionlarındaki baştaşlardan farqlı olaraq, Qırımdaki baştaşlar eykeltıraşlıq ve plastik şekillerine ziyade meil bergenler.
 %Keniş darqağan tasviriy mevzular sayısına şam, çıraq, altı köşeli yıldız, stilizlengen ve tabiiy çeçeklerniñ tasviri kire.
+%Er bir mevzunıñ tek özüne has ayrı manası bar.
+%Böylece, musulman sanatında şam ve çıraq o bir dünyağa keteyatqan merhumnıñ ruhunıñ yolunı aydınlatmaqnen bağlıdır, çeçekler ise — cennet bağçasınıñ temsilidir.
+
+%Bütün musulman Şarqınıñ sanatında adı taş üstünde oyulğan astronom Urus Haciniñ mezarında qoyulğan baştaş nadir yadikârlıq sayıla.
+%Taş direkniñ üstünde yazıları olğan relyefli manzaralı qasnaqlı yarımkurre yerleştirilgen.
+%Yarımkurre özüne has globustır, kök semasınıñ tasviri, onıñ üstünde oyulğan noqtalar ise kökteki yıldızlardır.
+%Bu abide — orta asırlarda Qırımda ilim yüksek inkişaf seviyesinde bulunğanınıñ isbatıdır.
+
+%Qırımnıñ territoriyasında (Hersones etraflarında, qırımtatarca adı Sarı-Kermen) esasen Küçük Asiya istisalınıñ (XIII asır) bediiy madenden yasalğan eşyaları tapıldı.
+%Şu cümleden — arslan tasvirli kepçe sapı, tunç keliler, arap yazıları olğan qalemdan.
+%Qırımlılarnıñ turmuşında bu eşyalarnıñ oluvı keniş medeniy almaşuvı mevcutlığınıñ delilidir.
+
+%XV — XVI asırlarda Qırım hanlığınıñ sanatı özüniñ yüksek seviyesinen bellidir ve Avropada Ğayrıdan canlanuv deviri kibi, ilmiy edebiyatta "musulman" deviri olaraq qayd etile.
+%Dağılğan Altın Ordadan ayırılıp, Qırım hanlığı 1475 senesi Türkiyeniñ imayesine tüşkenine qadar, öz mustaqilligini saqlap qaldı.
+%Bu Qırımnıñ tarihında müim vaqia oldı — onıñ çoq asırlıq tarihında ilk olaraq, er vaqıt ayrı yaşağan etnik provintsiyalarnı birleştirgen birdem devlet meydanğa ketirildi.
+%Bu devirniñ medeniy inkişafına nisbeten müim hulâsa V.Vozgringe aittir, o böyle yaza: "Tatarlarnıñ medeniyeti, yarımadada peyda olğan devirden berli açıq harakter taşımaqta.
+%Bu hulâsa, biz körgenimiz kibi, qırımtatar halqı tarihınıñ bütün devirleri devamında öz adaletligini saqlap qala, böyleliknen, işbu medeniyetniñ asırlar terenliginden başlap eñ soñki devirge qadar inkişafı ve saqlanıp qaluvı içün esas emiyetke malik olıp qala".
+
+%Türkiye, öz nevbetinde, ceneviz faktoriyalarını zapt etmek maqsadı ile Qırımğa ücüm etti.
+%Lâkin aynı zamanda Qırım hanlığı ile arbiy areketler olmağan — Qırım hanlığı Türkiye tabileri degil de, belki biraderleri olğandır.
+%Geraylar Osmanlı imperiyasınıñ qanunları mücibi, Osmanlar sülâlesi kesilgen alda, türk tahtına birinci nevbetteki uquqqa malikler.
+%Türkler Qırımda adiy memuriy bölünüv kirsettiler.
+%Kefede sancaq tesis etildi, Qırımnıñ dağlı tarafında ise, sabıq Feodoro knâzlığınıñ malikaneleri ve cenübiy-şarq Qırımda ceneviz müstemlekelerniñ bir qısımdan ibaret Tat-Beyligi okrugı meydanğa ketirildi.
+%Qırımda Türkiye protektoratınıñ kirsetilüvi "Qırım hanlığınıñ umumiy tarihı ve sanatı inkişafında nasıldır ağır deñişmeler demek degil de, belki de onıñ medeniyeti ögünde, XV asırnıñ ortalarından berli o ıntılğan umummusulmanlıqnıñ tiklenüvi içün keniş imkânlar açılğandır".
+
+%XV asırdan başlap qırımtatar hanlığınıñ sanatı aman-aman üç yüz yıl devam etken ösüv ve çeçeklenüv devirinde buluna.
+%Bu al Qırım yarımadasındaki çoqmilletli cemiyeti pekingen içtimaiy, siyasiy, iqtisadiy serbestlik ile añlatıla.
+%Mozaikalıgı, medeniy politsentrizmi Qırımnı bir yerge toplağan, "qoyulaştırılğan Aqdeñizboyu" olaraq qısa, lâkin doğru belgilemege imkân bereler.
+%Qırım cemaatı yüksek bilgi seviyesinen ayırılıp tura, eali arasında savatsızlıq yoq edi.
+%"Hanlar deviriniñ tatarları, — dep yaza M. Ya. Ginzburg, öz milliy ayatlarınıñ o derecede gür çeçeklenüv ve ösüv devirinde bulundılar ki, bütün bu tesirlerni (söz Türkiyeniñ ve Qırımnıñ polietnik ealisiniñ tesiri aqqında kete) tek özüne has degil de, aqiqiy mimarcılıq ve manzaralı özgünlik ile tolu, yañı mevzular ile yekâne üslüp konglomeratında toplamağa nail oldılar".
+
+%Medeniy ömürniñ canlanuvı metsenat-ükümdarlar — sanatnı añlağan, yüksek bilgili, mütefekkir insanlarnıñ peyda oluvına alıp keldi.
+%Meselâ, 49 yıl ükümranlıq yapqan meşur siyasetçi ve diplomat, alim ve şair Meñli Geray han I devirinde medeniyet körülmemiş yükseklikke irişti.
+
+%Yarımadada medeniyet inkişaf etkeniniñ şartlarından biri Geraylarnıñ çeşit dinlerge olğan sabırlı munasebetidir.
+%Olar başqa dinlerge ve medeniyetlerge de inkişaf etmege imkân berdiler, öz saraylarına çetelli ustalarnı davet ettiler.
+%Atta Kefede hannıñ sımarışı ile çıqarılğan kapiklerniñ aversinde Geraylarğa varis qalğan Çıñğızlarnıñ tamğası — "taraq" (taraq — yetekçi milliy temsil), reversinde ise katolik haçı ile cenevizler gerbi tasvirlengen.
+%İtaliyadan uzaqta italyan medeniyetniñ ocaqları Kefe, Sudaq, Balıqlava olıp qaldılar.
+%Ta XVI asırnıñ soñlarında Kefe Türkiye tarafından zabt etilip, o da türk medeniyetiniñ daa bir ocağına çevirildi.
+
+%Şarq ve ğarp dünyasınıñ çatışmasında yerleşken Qırım Avropa medeniyetiniñ bivasta tesirini sezip turdı.
+%Canlandıruv sanatınıñ vekilleri, italyan ustaları Qırım hanlarınıñ saraylarında çalıştılar.
+%Ginzburg Qırımda tatar sanatınıñ esas hususiyetlerinden biri onıñ alelhusus eklektizmi, çeşir tesirler ve qatlamlardır, dep saya.
+%İşbu tesir ve qatlamlarnıñ menbası, elbet de, birinci nevbette, Şarq Pariji — İstanbul edi.
+
+%Türkiyeniñ patronajlığı Qırımğa, Osman sanatına üstünlik berilgen ananeleriniñ ileride kirüvini belgiledi.
+%Birinci selcuk sultanları sade seyaat turmuşını begengen iseler, vaqıt keçken sayın arbiy seyaatlar ketirgen büyük kelirler insanda başqa añ şekillendirdiler.
+%Türk asılzadeleri içün baylıq içinde yaşamaq tabiiy şey olıp qaldı.
+%Mühteşem şeyler turmuşqa kirerek rafinirlengen estetik duyğularnıñ inkişafına yardım eteler.
+%Mühteşemlikke ıntıluv Qırım ükümdarları ceetten unikal medeniy abideleri ile Bağçasaray qurula.
 
 
 
