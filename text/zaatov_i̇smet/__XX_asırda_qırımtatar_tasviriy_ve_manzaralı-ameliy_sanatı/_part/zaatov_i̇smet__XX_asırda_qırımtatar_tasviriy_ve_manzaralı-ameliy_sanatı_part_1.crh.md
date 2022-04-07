@@ -469,15 +469,6 @@ Soñradan Qırım Hazariyadan ayırıla ve Vizantiyanıñ tesiri altında qala.
 
 
 
- 
- 
- 
- 
-Orta asırlarda Oırımğa peçeneglernin (IX—XI asırlar), qıpçaqlarmn (X-XI asırlar), slavyanlarnın (X-XI asırlarda Kerç qadimiy rus Tmutarakan knyazlığının erkânına kire edi) qabileleri kelip yerleşeler.
-Nihaet, XIII asırda Oırımda türk-oğuz qabilelerinin konglomeratı sayılıp, Orta Asiyadan Küçük Asiyağa taba, andan da Balkanğa taba yılışqan selcuklar peyda olalar.
-Olarnen beraber yarımadada İslâm dini yayıla.
-Oırımğa İslâm dini kelmezden bayağı evelce devirde şekillenip, tengricilik ve hristianlıq dinlerine mensüp olğan türkiy etnik substrakt XIII asırda endi hâl etici röl oynay ve böylece regionnı türk-islâm dünyasının bir qısımına çevire.
-
 İşte, orta asırlardaki Oırım sanatının inkişafını belgilegen negiznin yaratılmasına XIV asırğa qadar Küçük Asiyada hüküm sürgen Selçuk sultanlığı ve onınnen beraber Vizantiya tesir ettiler.
 Aynı selcuklar devirinde Oırım medeniyeti erte hristian tipindeki medeniyetten yanı tipteki medeniyetke — musülman medeniyetine keçti.
 
@@ -510,37 +501,6 @@ Oırımda yetiştirilgen yüzümden şarap sıquv ceryanında kerek olğan amfor
 O devimin tasviriy sanatını Eski-Kermen yanındaki kilsede (donatorlar ibadethanesi) Hristosnın tasvirleri saqlanıp qalğan divar resimleri (freskalar), İncil süjetleri boyunca resimler, donatorlarnın portretleri, ajderhanı öldüreyatqan muqaddes Georgiynin tasviri aks ettireler.
 
 Oırımdaki erte orta asırlar deviri taş mabudelernin — balballarnın peyda olmasınen qayd oluna.
-Böyle mabudeler qurğanlarnın töpelerinde, şarq taraf q a baqtırılıp yerleştirile ediler.
-Erkek ve qadın figuraları diniy emiyetke malık olıp, çoqusı hallarda yol belgileri rölüni oynay ediler.
-Oırımda qıpçaqlarnıh peyda olmasınen bağlı olğan balballar misilsiz etnografik material menbası sayılalar ve qırımtatar ustalarına şuret ketirgen taş kesüv sanatının teren tamırları olğanından delâlet bereler.
-
-XIII asırda Qırım Avropadaki ve Asiyadaki ğayet büyük territoriyalarm qavrap alğan Altın Ordunın bir vilâyetine çevirile.
-Qırım medeniyeti ve sanatının inkişafında yanı basqıç başlana.
-O devirde bütün Tavriya yarımadası «Qırım yarımadası» adını ala (qırım — türkçe «qale», dep tahmin etile), mındaki medeniy-hocalıq zonaları daha saqlanıp turalar.
-Oırım köçebeler yaşağan çöl rayonlarına (yarımadanın şimal qısımı) ve yalıboyunen birlikte dağlı rayonğa bolüne.
-Dağlı ve yalıboyu rayonının şeher ve köylerinde tek yurtluqlı ehali yaşay edi.
-Yarımadanın bu qısımı özünifi nisbeten muhtarlığını çeşit tarihiy basqıçlarda saqlaya bildi.
-Meselâ, XIII asırda Altın Ordulılar yarımadanın ancaq çöl qısımını işğal etken, dağlı ve yalıboyu qısımına toqunmağan ediler.
-Seyahatçı Rubruknın yazğanlarına köre, Soldayyanın (Sudaqnın) hakimleri monğollarğa yasaq tölegenler.
-Şeher hakimi yasaqnı şahsen özü Batu hannın qarargâhına alıp bara eken.
-(159.
-47-nci sahife).
-Böylece, közden keçirdigimiz devirde Oırım Altın Ordunın hükümdarlığı astında bulunsa da, mında got-alan, urum, İtalyan ve yunan ehalilerinin küçük, lâkin mustaqil anklavları olğan.
-
-Şeherlerde esasen yunanlar, ermeniler, türk-alanlar, urumlar, cenevizler yaşağanlar.
-Altın Ordulılar yarımadada, hususan mındaki zengin Ceneviz koloniyalarında ticaretnin inkişaf etmesinden menfaatdar olıp, alış-verişke keder etmegenler, öz kelirlerini ise yasaq sıfatında alğanlar.
-
-Büyük ticaret ve esnafçılıq merkezi sayılğan Oırım şeheri (cenevizce adı Solhat) yarımadanın memuriy merkezine çevirile.
-XIII asırğa ait arap menbalarında yazılğanına köre, bu şeherde qıpçaqlar, alanlar, ruslar yaşağanlar.
-(59.
-88-nci sahife).
-Arheologik tedqiqatlar ise bu şehernin XIII—XIV asırlarğa ait medeniyeti ğayet yüksek seviyede olğanını tasdiqlaylar.
-Solhatnın bazı bir mimarcılıq abideleri bizim vaqıtqa qadar saqlanıp qalğanlar.
-
-Türk qabilesinin imayesinde bulunğan Qırq-Yer (Çufut-Oale) hem de yasaq tölegen ceneviz şeherlerinden Bosporo (Kerç), Çembalo (Balıqlava), ceneviz topraqlarımh merkezi olmuş Soldayya (Sudaq) yarımadadaki diğer medeniy-ticaret merkezleri cümlesine kire ediler.
-Kefe (Feodosiya) şeherinin skelesi Oırımdaki en büyük skele sayıla edi.
-Bu şeher ehalisinin esas qısımını hristianlar teşkil etseler de, mında musülmanlar da yaşay ve öz camilerine malik ediler.
-Kefede esnafçılıqnın türlü-türlü çeşitleri inkişaf etken edi.
 
 Baqımımızdaki devirge ait etnik manzaranı kolemce büyük olmağan mustaqil Feodoro knyazlığı tekmilley.
 Bu yerde gotlarnın nesilleri, yunanlar, urumlar ve yehudiy-türkler yaşay ediler.
