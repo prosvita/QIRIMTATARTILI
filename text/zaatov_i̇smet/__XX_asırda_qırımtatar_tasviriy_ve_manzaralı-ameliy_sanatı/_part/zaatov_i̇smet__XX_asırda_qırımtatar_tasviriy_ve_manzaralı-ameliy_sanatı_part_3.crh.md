@@ -98,79 +98,59 @@ Qalafatov daa yaş ekende örnekler çızar, olar qırımtatar nağışçı qad�
 O, emek faaliyetini çilengir olıp başladı.
 Kaqmacı, silâcı zenaatını menimsegen soñ, Qalafatov av tüfekleri, pıştavlar, pıçaqlar yasağan.
 Qaqlamalarnen süslengen, altın qaqlamalarnen işlengen bu eşyalar bediiy tekmillikleri ile ayrette qaldırıp, büyük ihtiyacğa malik ediler.
+Eñ taacipli yeri şu ki, usta endi 70 yaşını toldurıp bu işlerden çetleşken zamanda, onıñ örnekçi-ressam istidatı gayrıdan canlandı.
+Qoluna tüşken bir tabaq kâgıtnıñ üstüne evelleri ştihel ile madenniñ üstünde sızğan soñra padişa raqısınen temizlep, şablonlarnen qaqıp çıqqan örneklerini qalem ile sızmağa tırıştı.
+Böyleliknen, qart usta kene de örnek sanatına muracaat etti.
+Qalafatov eki yıl içinde qalem, tuş, renksiz ve renkli qalemlernen sızılğan, üç yüzden ziyade örnekli kompozitsiya yarattı.
+Avropa sanatından alınğan bazı bir yañı usullarnı kirsetti, meselâ, rakurstan (qıska körünüş) faydalanuv, çeçekniñ dörtten üç qısımını tasvirlev (adeti-üzre musulman sanatında çeçekniñ yuqarıdan körünüşi ya da köndelen kesilgen şekilde tasvirlene).
+Qalafatovnıñ örnekleri, Anadolu ve İran sanatınıñ elementlerini işleterek, eski qırımtatar örnekleri esasında yaratılğanlar.
+Amet Qalafatov Parijde (1925 s.) Bütüncian manzaralı-ameliy halq sanatı sergisinde, Moskvada (1939 s.) Bütünittifaq sergisinde ve, şu cümleden, Qırım bediiy sergilerinde (1937-1938) iştirak etti.
+1930-ncı yıllar onıñ icadında ğayet semeleri oldılar.
+Qalafatov yaratqan örneklerden Qırımda aveskâr ressamlar, artellerniñ ustaları, toqumacılar, evde çalışqan nağışçı qadınlar keniş faydalandılar.
+1940 senesi, 80 yaşındaki Qalafatov Qırım ASSR Ressamları birligine qabul etildi, oña "Qırım halq örnekçisi" unvanı berildi.
+Ustanıñ yaratqan örnek kompozitsiyaları al-azırda Rusiye etnografiya müzeyinde (sabıq SSSR halqlarınıñ etnografiya müzeyi), Qırım Cumhuriyet ülkeşınaslıq müzeyinde, Yaltada birleşken tarih-edebiyat müzeyinde (88, s. 29), Aqmescitte Cumhuriyet qırımtatar sanatı müzeyinde, ciannıñ — Parij, London, Pekin, Moskva, Peterburg — iri müzeylerinde saqlanmaqtalar.
+Qırımtatar örneklerini pek yahşı bilgen nağışçı-usta Adaviye Efendiyeva (1879-1944) edi.
+O, Kezlevde doğdı.
+Örnek yaratuv ustalığınıñ sırlarını öz qartanası, istidatlı ve çeber ustadan ögrendi.
+Adaviyeniñ babası yaşağan evniñ bütün donatması onıñ çeber qollarınen yaratılğan edi.
+Adaviye 4 yaşında ekende qartanasından onıñ zenaatınıñ bütün sırlarını ögrenip başladı, yavaş-yavaş toqumacılıq ve nagış sırlarını da menimsedi.
+Qız 12 yaşında ekende kergef başına oturdı.
+Qızı 16 yaşını toldurğanda babası oña toqumacılıq tezyasını alıp berdi ve oña bu zenaatnı ögretecek ustanı davet etti.
+Babası halq sanatına yüksek qıymet keserek, qızını oqutmaq içün aqça qızğanmadı.
+Adaviye, nağış ve toqumacılıq tehnikasını mükemmel menimsegen soñ, acayip sanat eserleri yaratıp başladı.
+1928 senesi Kezlev müzeyiniñ ülkeşınaslıq tögeregi onı milliy nağış ocası olaraq işke davet etti.
+1930 senesi artelge işke kirdi, soñra "Eski örnek" artelinde nağış ögreticisi vazifesinde çalıştı.
+Efendiyeva istisal içün Qırımnıñ çöl tarafına ait qırımtatar örnek sanatını aks ettirgen 200-den ziyade örnek resimlerini azırladı.
+Efendiyevanıñ resimleri ilk olaraq 1935 senesi Moskvada ötkerilgen sergide numayış etildiler, soñra I Bütünrusiye tasviriy sanat aveskârlarınıñ sergisinde de taqdim etildi.
+1930-1937 seneleri Efendiyeva Qırımnıñ bütün artelleri faydalanğan yüzlernen örnek kompozitsiyalarını yarattı.
+Efendiyevanıñ resimleri boyunca eksport mahsulatı işep çıqıldı.
+Efendiyevanıñ örnekleri işletilgen tikicilik eşyaları ve nağışlar Avropa ve Amerikada numayış etildiler.
+Efendiyevanıñ icadına has çizgiler, bu — resimniñ açıqlığı, kompozitsiyanıñ özüne haslığı — bunı "Dil-Puş" (1930) yelpaze içün nağış eskiziniñ misalinde közetmek mümkün.
+Resim grafikanıñ açıqlığı, nazik şekillerniñ vecizligi ve simmetriyası ile ayırılıp tura.
+Eskiz bardaqtaki çeçek klassik kompozitsiyasına üslüpleştirilgen.
+Bardaq gügümni añdıra, çekek ise — ince saplı iri, dülber ğonce.
+Ğonceniñ etrafında, suv üstündeki tögerekler kibi, dekorativ elementler — alqalar, gyonce ve kertikli yapraqlarnı eki tarafından sarıp alğan yarımay şekilleri yerleşkenler.
+%Resim seyircini şekilnıñ temizliği ve sadeliginen meftün ete.
+"Menim örneklerim — menim fikirlerimdir" — dep ayta turğan A.Efendiyeva özüniñ kompozitsiyaları aqqında.
+Efendiyeva 1944 senesi uzaq sürgünlik yoluna dayanalmay, Samarqand civarında vefat etti.
+Belli qırımtatar dramaturgı vecemaat erbabı Seid-Abdulla Özenbaşlı (1867-1924), zamandaşlarınıñ aytqanına köre, çeber, eski nağış ustalarından biri olğan.
+Bundan da ğayrı, S. Özenbaşlı acayip çalğıcı ve şair edi.
+Teessüf ki, ustanıñ örnekli tikiş istidatı aqqında bizge başqa bir şey belli degil.
+O, 1924 senesi vefat etti.
+Mezkür işte adı añılğan, qırımtatar kitap naşirciliginiñ "atası" İlyas-mırza Boraganskiy de acayip örnekçi edi.
+Toqumacılıq ve qırımtatar ananeviy nağışı boyunca belli mütehassıs Zuleyha Bekirova ananeviy qırımtatar esnaflarını tiklev işinde büyük rol oynadı.
+Z. Bekirova 1913 senesi Tavriya guberniyasınıñ Perekop uyezdindeki Mollalar köyünde doğdı.
+Tatar mektebini bitirgen soñ, soyları Adaviye Efendiyevanıñ yanına Kezlevge keldi ve "Eski örnek" arteline işke kirdi.
+Mında 1930 senesinden 1932 senesine qadar A. Efendiyevadan ğayrı, çeber usta K. Ya. Rıbalskaya da oña ustazlıq yaptılar.
+O, 1932-36 seneleri yollanma boyunca Moskvada bediiy-sanayı institutında tasil aldı.
+%1936 senesi tehnikumnı bitirgen soñ 1940 senesine qadar Moskva bediy sanayi institutında çalıştı.
+Z. Bekirova Qazahistan, Turkmenistan, Şimaliy Ösetiya ve sabıq SSSR cumhuriyetleriniñ kilim toqumacılıq istisalı içün milliy örneklerniñ eskizlerini işlep çıqtı.
+Olarnıñ arasında — Nyü-Yorkta (1939 s.) ötkerilgen Bütüncian sergisine toqulğan "Develer" tüyli kilim; "Ösetiya" (1951 s.) tüylü kilim bellidir.
+İttifaq cumhuriyetleriniñ ustahane ve fabrikaları içün eskizler yapar eken, Bekirova olarnıñ milliy örneklerini tafsilâtlı ögrenir edi.
+Bu maqsad ile o, Orta Asiya ve Qazahistanda ekspeditsiyanen bulundı.
 
-
-
-
-
-1929 senesine qadar ekspeditsiya azaları Qırq Azizler, Eski Yurt, Eski Qırım, Çufut-Qale, Bay Qazaq kibi yerlerni tedqiq ettiler.(184.60-ncı sahife).
-Bodaninskiy teşviqat işlerik nen beraber ilmiy işnen de oğraştı — o, qırımtatarlarnın sanatı boyunca pek çoq lektsiyalar oqudı, halqnın maddiy medeniyetinin tarihi boyunca maqaleler yazdı.(30-32-nci sahıfeler).
-Onın ğayretleri sayesinde qırımtatar halq sanatına ait eksponatlar (erkek ve qadın-qızlarnıh kiyimleri, qaqma ve işlemeler) 1925 senesi Parijde ötkerilgen manzaralı sanat ve sanayi boyunca Halqara sergige yollanılıp, anda kümüş medalnen taqdirlengen (U.Bodaninskiynin malûmatlarına köre, qırımtatar işlemelerine tunç medal berilgen edi — 26-ncı sahife), 1927 senesi ise Moskvadaki Bütün ittifaq sergisine yollan ılğan ediler.
-%Qırimtatar ustalarınıñ ustalığı cian miqyasında tanıldı.
-Buhara emirinin Yaltada müsadere etilgen sarayında yerleşken Şarq müzeyi qırımtatar sanatını ögrenüv boyunca diğer bir merkezge çevirildi.
-Muzeyge istanbulda, Beyrutta ve Moskvadaki Lazarev adına şarq tilleri institutında tahsil alğan (1913-1914) yüksek ihtisaslı mütehassıs, 1917 senesi Zincirli medrese negizinde meydanğa ketirilgen Menli Geray han saniy I adına İnstitutnın rektorı (1917 senesinden 1925 senesine qadar), Şarq tarihi ve medeniyetinin bilmiri Yaqub Kemâl mudirlik yaptı.
-Bu ulu adam sonundan yaqalanıp (1934) atılgan edi.(184.225-nci sahife).
-Ya.Kemâl an'aneviy qırımtatar esnafları haqqında «Qırım hanlığındaki seleflernin vesiqalı tarihi» kitabını yazğan edi.
-Onın yolbaşçılığında çalışqan muzey yalıboylu qınmtatarlarnın hem de «öz vaqtında qırımtatar sanatına o ya da bu derecede tesir köstergen Şarq halqlarının» esnafçılıq eşyalarını toplav, ögrenüv ve nümayiş etüvnen meşğül edi.(183. 31-nci sahife).
-Oz nevbetinde, Kezlevdeki etnografiya müzeyi karaimlernin ve çöl taraflı qırımtatarlarnın sanatını öğrenip.
- Ona Polina Yakovlevna Çepurina yolbaşçılıq yapa edi.
-P.Ya.Çepurinanm faaliyetini ayrıca qayd etmeli.
-O, 1882 senesi Kiyevde doğdı, Peterburgdaki arheologiya institutını bitirdi, lâkin bütün ömürini Oırımnen bağladı.
-P. Çepurina — Oırımnıh ameliy sanatı boyunca çoqtançoq maqalelernih müellifi, tedqiqatçı alim, Oırımda bediiy-esnafçılıq şirketlerinin teşkilâtçısıdır.
-Onın maqaleleri sanatşınaslarnın şimdiki nesili içün de ğayet aktualler.
-Qırımtatar esnafçılığını ögrenüv işine onı ustalarnen bivasta qonuşuv mecbur etti.
-Çepurina «1917 senesi Kefe yanındaki Otuz köyünde yaşağan halq ustası, çeber elli Ayşe Mambetovanen tesadüfen körüşken ve şu qadınmn işini közetken son, turmuş sanatının bu çeşiti nasıl peyda olğanınen meraqlanıp başlay».(198.103-nci sahife).
-1910 senesinden 1915 senesine qadar olğan devirde Çepurina Oırımnın dağlı reyonlarının bütün şarqiy qısımını ve qısmen yalıboyu qısımını (Kefe, Sudaq mintaqaları) tedqiq etip çıqa.
 Cenübiy-şarqiy Oırımnın avlaq dağ köylerinde (Ay-Serez, Arpat, Oapsıhor) «toquma ve işlemelernin örnek, renk ve tehnika cehetinden şaşılacaq derecede dülber numünelerini» araştırıp tapa.(198.105-nci sahife).
 Bularnın cümlesinde İtalyan gemisi tasvirlengen Sudaq işlemesi (XVII—XVIII asırlarğa ait), hayat teregi tasvirlengen Koktebel işlemesi (XVIII asır) bar edi.
-%Tedqiqatçı karaim nağışlarınıñ ögrenüvine de buyük emiyet berdi.
-Çepurina «tek ilmiy-tedqiqat işlerinen sınırlanmaq olmaz.
-Böyle örnekler materialını istihsalğa tadbiq etmek zarur.
-Eger şay yapılsa, çiniy-mayolika istihsalına da, Şarq örneklerine pek zar olğan toqumacılıq istisalımızğa da taze ğıda berilir».(198.108-nci sahife) dep qayd ete edi.
-Çepurina özünin çoq yıllıq tedqiqat işleri neticesinde qırımtatar nağışlı işlemelerinin, tikişler çeşitlerinin bütün türlerini taariflep, olarnın yaratıluvım hem de tarihiy inkişafını kosterdi.
-Qırımtatar sanatının ilk tedqiqatçıları tarafından büyük sevgi ile toplanılğan muzey kollektsiyalarının taqdiri facialı olıp çıqtı.
-Qırımtatarlarnıh öz toprağında yaşağanlarından delâlet berici her hangi maddiy deliller 1944 senesinin sürgünliginden son yoq etildiler.
-Bahçasaraydaki saray-muzeynin, Yaltadaki birleştirilgen tarihiy-edebiy muzeynin, Qırım cumhuriyet ülkeşınaslıq muzeyinih unikal kollektsiyaları tek nasıldır mucize ile saqlanıp qaldılar.
-işlemeler, toqumalar ve urbalardan ibaret olğan bu kollektsiyalar 19931995 seneleri Kiyevde, Aluştada, Yaltada, 1996 senesi Aqmescitte ve 2000 senesi Moskvada nümayiş etildiler.
-Buna sonki 4-5 yıl içinde Cumhuriyet qırımtatar sanatı müzeyi hadimleri tarafından toplanılğan keniş kollektsiyanı da qoşmaq mümkün.
-Çeteldeki muzeylerden Rusiye etnografiya müzeyi (Sankt-Peterburg), Şarq halqlarının Rusiye müzeyi (Moskva), Rusiye tarihi devlet müzeyi (Moskva), Kremi tarihiy-mimarcılıq zapovedniginin Silâhlar palatası (Moskva), Berlin etnografiya müzeyi (Almaniya), GOHRANnın qıymetli taş ve madenler müzeyi (Taşkent, Özbekistan), Topqapu saray-muzeyi (İstanbul, Türkiye), Etnografiya müzeyi (Ankara, Türkiye), Halq sanatımüzeyi (Köstence, Romaniya) hem de Venanın (Avstriya), Tula şeherinin (Rusiye), Samarqand ve Buhara şeherlerinih (Özbekistan) muzeyleri bugünde-bugün qırımtatar manzaralı-ameliy sanatına ait eşyalarnın ğayet zengin kollektsiyalarına malikler.
-XX asımın başlarında Qırımda zuur etken içtimaiy-siyasiy vaziyet, 1921-1922 senelerinin deşetli açlığı neticesinde an'aneviy esnaflar ciddiy inqirazğa oğradılar.(32.23-nci sahife).
-Esnaflarnıh sayısı keskin eksildi.
-Halq hocalığını tiklevge doğrultılğan umumiy siyaset çerçivesinde an'aneviy esnafçılıqnı canlandıruv da aktual vazifege çevirildi.
-Böyleliknen, ehali arasında, şu cümleden, ustalar arasında aydınlatuv işleri başlandı.
-Qırımda milliy esnafçılıqnıh merkezi olaraq Bağçasaray tanılğan edi.
-1920-nci senelerde mında Şarq halqlarımn esnafçılıq-sanayı tehnikumı açıldı ve anda tek qırımtatarlar değil, qazantatarlar, azerbaycanlar, özbekler, Astrahan tatarları, Kavkaz dağlıları (cümleden, Dağıstandaki meşhur Kubaçi köyünden) ve diğerleri (cemi 22 millet vekili) oquy ediler.
-Tehnikumnın kilim toquv, nağışlav, himiya-boyalav ve dülgerlik boyunca dört oquv ustahanesi olıp, mında talebeler 5 yıl devamında zenaat ögrene ediler.
-Tehnikumda 140-qa yaqın talebe tahsil ala, 20-ge yaqın oca ve instruktor çalışa edi.
-Mezkûr oquv yurtunın meydanğa ketirilmesinden közde tutulğan maqsad «evelki esnaflar yerine yanı ihtisaslı esnaflarnı ve Şarq bediiy sanatının hadimlerini azırlamaq»tan (1929 senesinin qılavuzından, Aqmescit, Oırım devlet neşriyatı, 92-nci sahife), esnafçılıq istihsalim ratsionallaştırmaq ve mehanizmleştirmekten ibaret edi.
-1929-30 senelerinin oquv yılı başlanacaqta Bağçasarayda guya oquv odaları yetişmegeni manaçığınen tehnikum Kefe şeherine avuştırılğan ve ahır-sonu qapatılğan edi.
-30-ncı senelerde Qırımda (Kezlev, Bağçasaray, Qarasuvbazar ve diğer şeherler) an'aneviy mahsulat (esasen işleme ve toqumalar) işlep çıqarğan bediiy-esnafçılıq şirketleri çalışıp başladılar.
-Bütün bu şirketler mahsulatnı esasen eksportqa yollay ediler.
-1930 senesi Bağçasarayda qırımtatar halq işlemelerini yapqan ilk kooperativ şirket meydanğa ketirile ve oha «İlk adım» adı berile.
-Bu şirkette instruktor olıp halq ustası Esma Mansurskaya çalışa edi.
-Lâkin qısqa bir vaqıttan son (1932) oqutılğanlarnıh sayısı yeterlik olmağam sebebinden şirketnih toquv ustahaneleri qapatılıp, tek nağış işlev ustahaneleri qala.
-1930 senesi Kezlevde P.Çepurinanın yolbaşçılığı altında «Eski örnek» adlı meşhur bediiy-esnafçılıq şirketi teşkil oluna.
-1935 senesi mayıs 25-te Moskvadaki Şarq medeniyetleri muzeyinde «Eski örnek»nin hazırladığı materiallardan qırımtatar basmaları ve işlemelerinin sergisi ötkerile.
-Bağçasarayda «İleri» adlı bediiy şirket meydanğa ketirilip, onda istekliler çölmekçilik sanatını menimsey ediler.
-Şirkette çalışqan ustalar şekilce çeşit türlü suvlamalı savutlar yasay.
- Оlarnı qırımtatar nağışlı işlemelerinden köçürip alınğan an'aneviy örneklemen bezete ediler.
-Orneklernin ifade qudretini olarnin qabarıqlığı qayd ete (böylece, orta asırlardaki qırımtatar mimarcılığına has olğan qabarıq bezetmeler yapuv usulından faydalanıldı).
- Koloritinde yeşil, sarı, qaverenki tüsler üstün tura edi.
-«ileri» şirketinde yasalğan gügüm ve bardaqlar bu künge qadar saqlanıp qaldılar ve olarnin bazıları şimdi Sankt-Peterburg, Aqmescit, Yalta muzeylerinde, cümleden Cumhuriyet qırımtatar sanatı muzeyinde nümayiş etileler.
-
-XX asırğa ait halq manzaralı-ameliy sanatının inkişafında bir qaç mürekkep basqıçnı qayd etmek zarur.
-Orta asırlarda olğanı kibi, esnafçılıq XIX asımın sonlarında — XX asırnın başlarında da öz qanun-qaideleri esasında çalışqan qaviy bir sistem edi.
-Bir de-bir zenaat sahibi olğan ustalar birleşip, olarğa usta başı reberlik yapa edi.
-Böyle birleşmelerge adiy ustalar, qalafalar, şegirtler de kire. 
- %Anda kimnin kimge boysunğanı, kim kimni ögretkeni tam belgilene, işçi bir seviyeden diğer, yüksekçe seviyege keçkende, yahut birleşmenin yolbaşçıları saylanğanda ananeviy merasimler ötkerile edi.
-Birleşmenin ve onın azalarının faaliyeti mahsus ustavlar selefnameler esasında idare etile edi.(80.40-nci sahife).
-XIX asırnın sonlarına — XX asımın başlarına ait devir qırımtatar manzaralı-ameliy sanatının inkişafındaki sonki nurlarnen qayd oluna.
- Lâkin biraz vaqıt keçip, bu nurlar da soneler.
-Bunıñ sebebi pek çoq.
-Obyektiv sebepler sırasında an'aneviy esnaflarnın umumiy inqirazını anmaq mümkün, çünki yigirminci asımın başlarında cemiyet ömürinde yüz bergen içtimaiy-iqtisadiy ve siyasiy denişmeler, halqmn ömürine soqulıp kirgen ğarbiy Avropa medeniyeti esnaflarnın faaliyetini yoqqa çıqarıp başladılar.
-Olarnin yasağan şeylerini sanayi işhanelerinde kütleviy surette yapılğan ve şunın içün de ucuz olğan mallar sıqıp çıqardılar.
-Esnaflarnıñ hazırladığı mallarnıki körünişi de denişti, еvel-ezelden yüksek qıymetlengen ananeviy örnekler yerine import basmalarnın ya da tabaqlarnın örnekleri qullanılıp başlandı.
-Ornamentikağa çevredeki ömürden, sonra sovet hayatından alınğan süjetli levhalar kirsetildi.
 Bu ise, şekilnen manzaralı bezetme arasındaki uyğunlıqnı boza edi.
 Böyleliknen yigirminci asırnın başlarına kelip, beyaz silâh istihsali, taş ve ağaç üstünde oyuv kibi esnaflar tamamile coyulalar.
 Qırımtatar esnaflarının eh büyük merkezlerinden biri olğan Bağçasarayda ve diğer şeherlerde «evelden gür inkişaf etken esnaflar çabik sür’at ile sönüp başladılar: baqır savut, fereceler, atlar içün yem torbaları, quyumcılıq eşyaları deyerlik yapılmay, sahtiyandan ayaqqap tiküv istihsali bütünley toqtadı».(226.89-ncı sahife).
