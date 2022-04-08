@@ -544,8 +544,6 @@ olar kendi resimlerinen etraftaki bütün koylerni teminley ediler.
 Böyle usta qadınlar haqiqiy professionallar ediler, çünki ananeviy örneklerni yahşi bilmeknen bir sırada, renklerni yahşi his ete, işleme tehnikasını da yahşi bile ediler.
 Örneknin resimi sımarışçının isteğine köre yaratıla edi.
 Resim basmağa keçirilmezden evel, esas motiv ve sızıqlarnın şekilleri boyunca qattı karton kâğıttan resim qalıbı yapıla.
- Sonra ise bu qalıp basmanın örnek çekilecek yerine qoyula ve etrafı qarandaşnen sızılıp çıqıla,
-tek şundan son bivasta örnek işlevge kirişile edi.
 
 Böyle usul işleme örneğinde yapılabilgen yanlışlardan qaçınmaq,basma yüzünen işleme arasındaki nisbetni hesaplap çıqmaq imkânını bere edi.
 XIX asırnın sonlarında — XX asırnın başlarında yapılğan toquma ve işlemeler tehnika hem de icracılıq cehetinden türlü-türlü olsalar da, ekseriyette şeherlerde keniş yayılğan örnekli toqumacılıq ve işleme sanatı, hususan yipişli ve cevherli işleme sanatı inkişafnın yüksek noqtasında bulunğanlarından delâlet bereler.
@@ -1549,9 +1547,5 @@ Materialnın taqsimi de tüzgün değil.
 Metnnin büyük qısmı halqnın ömüri ve medeniyetinde mühim yertutqan ve körümü numüneler bergen sanat çeşitlerine ayırıldı.
 Biz mevcut ve elde etilecek ilmiy işler, edebiy ve bibliografik menbalarğa, arhiv vesiqalarına bazandıq.
 Bazı sanat çeşitlerinin numüneleri yoq etilgeni, Oırımdan tışqa çıqarılğanı sebebinden, olarnin talilinde ancaq saqlanıp qalğan beyan ve delillerge sıltanuvnen sınırlanmaq sırası tüşti.
-Zengin nazariy ve eşya materialları mevcut olğan hallarda ise mevzuğa ziyadece has ve tipik olğan numüne ve usullardan faydalanıldı.
 
-işte, qayd etilgen sebeplerden ötrü, bir sıra ressamlar icadının talili acim ve terenlik cehetinden bir değildir.
-Material azlıq etkeni ya da professionallıq seviyesi yeterli olmağan icatçılar haqqında yalınız qısqa malûmatlar berildi.
 
-Ömür bir yerde turmay, kendi icatlarınen inkişafmn yanı basqıçına adım atqan ustalar Oırımğa qaytalar; icatcılarnın yanı nesili oseyata, bundan ötrü mezkûr işni etraflı, dep saymaq mümkün değil, biz tedqiqatnın ve başlağan mevzumızmh devamı olacağına ümüt etemiz.
