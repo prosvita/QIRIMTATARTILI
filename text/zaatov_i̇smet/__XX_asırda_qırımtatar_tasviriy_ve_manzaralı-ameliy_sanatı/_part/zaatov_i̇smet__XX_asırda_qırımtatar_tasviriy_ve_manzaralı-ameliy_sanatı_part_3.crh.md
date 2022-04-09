@@ -1669,7 +1669,5 @@ Cibigen teriler yününden temizlenip, kireçi yuvula, sepi maddelerinde tutulı
 
 Teri eskicesine işlene edi.
 Tek bazı işhanelerde istihsalnı mehanizmleştirip başladılar (yuvmaq ve cülâlamaq).
-Eger evel teriler qolnen, adiy qızılçıq çubuğı yardımınen cülâlanğan olsa, asımın başında cülâlavnı mahsus maşina yapa ve bu maşinanı üç adam çalıştırta edi.(80.37-nci sahife).
-O yıllarda qayd etilgeni kibi, «mehanizleştirüv ve kooperirlenüv — Bağçasaraynın esnafçılıq sanayısındaki bir inqilâp edi».(226.87-nci sahife).
 
 
