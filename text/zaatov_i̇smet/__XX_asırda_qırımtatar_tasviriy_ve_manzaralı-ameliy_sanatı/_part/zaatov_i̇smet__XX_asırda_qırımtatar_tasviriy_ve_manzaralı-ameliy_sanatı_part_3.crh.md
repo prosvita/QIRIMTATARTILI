@@ -1000,6 +1000,200 @@ Negizi pamuq, atması yün.
 Esas elementleri — "taraq", "arslan ağızı".
 Kompozitsiya — yolaqlı namazlıqnıñ qoyu-kultyus zemininde — keñ yolaq ve "taraq" — "arslan ağızı" — "taraq" üçlüginen ve çevresi sızıqlı, örneksiz eki renkli yolaqlarnen nevbetnen almaşalar.
 Örnekniñ elementleri — bir tüslü, iri, açıq-aydın, ifadeli.
+Namazlıqnıñ esas renkleri — qoyu-kultyus (zemini), feruze, qoyu-gülgüli.
+
+Namazlıqnıñ kompozitsiyası namazlıqlarğa has kompozitsiyanen bağlı degil.
+Namazlıqlarda mihrab tasviri olması şart edi.
+İhtimal, qırımtatarlarnıñ arasında vaqıt keçken sayın namazlıq kompozitsiyasınıñ elementlerine qattı riayet etüv mecbur olmağandır.
+Devirler keçken sayın namazlıqlarnıñ örnekleri pek deñişti, amma buña baqmadan, qırımtatarlarnıñ arasında namazlıq tek kölemi cetten farq ete, o, yatıp namaz qılğan insannıñ qıyafetine qararlaştırılğan.
+
+Evde toqulğan namazlıq, palas tehnikasında toqulğan.
+Negizi pamuq, atması yün.
+Örnekniñ esas elementi — "taraq".
+
+Mezkür kilimde, kompozitsiyanıñ merkezinde yerleştirilgen üç tişi eki tarafqa baqqan çift "taraq" elementleri, namazlıq boyu keñ yolaqnen sozulıp, mihrab şekilini açıq-aydın yaratalar.
+Amma resimniñ eñ "ikâyeci" elementi — qarşımızda namazlıq olğanını tasdiqlağan eñ yuqarısında toqulğan küçük qara üçköşeliktir.
+Bu üçköşelik namaz qılğan insan qaysı tarafqa sece etmek kerekligini, başını qayerge egmek kerekligini köstere.
+Secde etkende baş ve qollarnıñ yerini "kösterip" toqumaq usulı Orta Asiyada da, Kavkazda da halq arasında işletilgen.
+Bundan da ğayrlı, üçköşelik — nazarlıq şekili olıp, qara küçlerden qorçalanğan.
+Bu faktnıñ meraqlılığı şunda ki, islâm dinine ait diniy eşyanıñ üstünde putperestlik temsili saqlanıp qalğan.
+Üçköşelik yerleşken yolaq bütün kompozitsiya içinde yeşil tüslü birden-bir element olğanı da tesaduf degildir.
+Yeşil tüs — islâm dini tüsü eşyanıñ diniy harakterli olğanını bir daa tasdiqlamaq içün hızmet ete.
+Kilim halq arasında diniy merasim — namaz qılmaq adeti saqlanıp qalğanınıñ delili olaraq, etnografik noqtaiy-nazardan büyük meraq doğurmaqta.
+Onıñ dekorativ hususiyetleri gayet sadedir, mında işletilgen qoyu-qırımızı ve portaqal renkler, ihtimal, yalıñız bu boyalar olğanından sebeptir.
+Biz baqıp çıqqan kilimlerniñ episi bediiylik noqtaiy-nazarından teñ qıymetli degildir.
+Lâkin tarihiy, etnografik ceetten meraqlı olaraq, olar qırımatar kilimlerine has çizgilerni ögrenmege ve belgilemege imkân bereler.
+
+Böyleliknen, biz kilimniñ resimi, oğuz-selcuk qabilelerniñ migratsiya dalğasınen kelip kirgen, ayvanasravcılıq qabilelerniñ kilim toqumacılıq sanatına has örneklerniñ ğayet sadeleşken element ve mevzularını saqlap qalğanını köremiz.
+Tarihiy keçmişleri öguz-selcuk qabilelerinen bağlı ölgan turkmen, özbek, qırğız, azeybarcanlarnıñ kilimlerinde de böyle elementler darqaluvı bu faktlarnı isbat eteler.
+Resim qattı geometrik harakter taşımaqta, örnekniñ er bir elementiniñ evel temsiliy manası ölgan, soñra o, coyulıp, dekorativ, eyilik tilegen temsilge çevirilgen.
+
+Koloriti çeşit, renklerniñ sayısı yedi-sekizge çıqa — feruze, qırmızı tüslerniñ çeşit aenkleri işletilgen.
+Böyle tüsler qırımtatar toqumacılığına has degil.
+Mında asırdan-asırğa tek tabiiy boyalar işletilgen, olar ise böyle ötkür, keskin renkler bermegen.
+Anilin qullanılğanı sebebinden, kolorit pek ötkür, renkler öz terenligi ve temizligini yoq eteler.
+Elementlerniñ çevresi qayd etilmey, olar yerleşken zemininiñ qarama-qarşı tüsünen biri-birinden ayırılalar.
+Tar şeritleri ğayet açıq örneklengen.
+
+1990 senesinden berli Qırımda kilim toquvnıñ tehnik ve bediiy usullarını ğayrıdan tiklev boyunca programma işlep çıqılmaqta.
+Qırımtatar qadın-qızlar birliginiñ teşebbüsi ile, Kaunterpart Konsortsium (Almaniya) fondunıñ qoltuvuvında Sudaq şeerinde kilim toqumacılıq merkezi teşkil etildi.
+Programmanıñ yolbaşçıları — F. Asanova (al-azırda Cumhuriyet qırımtatar sanat müzeyiniñ ilmiy hadimi) ve soñra M. Çurlu bu programmanıñ yolbaşçıları oldılar.
+Mezkür programma 1994-1995 seneleri amelge keçirilip başlandı.
+Novorossiyskte saqlanıp qalğan yekâne qırımtatar tezyası tapıltı.
+Onı Qırımğa alıp keldiler ve onıñ konstruktsiyası esasında daa 45 tezya cıyıldı.
+Böyleliknen, Qırımda kilim toqumacılıq esnafını ğayrıdan tiklemek içün zemin yaratıldı.
+Bugünde-bugün ananeviy kilim ciddiy tedqiqat, ecnebiy investitsiyalarnı celp etüv saasına çevirilmekte.
+Ukrainada yiplerni tabiiy boyalarnen boyalavnıñ unikal tehnologiyası ise Qırım kilimlerini çet elde belli toqumacılıq merkezleriniñ eşyalarınen bir sıraga qoya.
+
+Bugünde-bugün Qırımnıñ bir sıra rayonlarında kilim toqumacılıqnen oğraşalar.
+1994 senesi Mamut Çurlu yolbaşçılığında Şarqiy Qırım boylap ötkerilgen ekspeditsiya, bu esnaf ğayrıdan tiklengenini ve inkişaf etkenini tasdiqlağan pek çoq materiallar qayd etti.
+
+Bundan da ğayrı, albomda Razdolnoye (Aq-şeyh) rayonından (1997 s.) usta Niyara Reşatovanıñ kilimleri de taqdim etilgen.
+Reşatova öz işinde anilin boyalarınen boyalanğan yün, sintetika, pamuq yipler qullana.
+Ustanıñ kompozitsiya seçüvde fantaziyası sıñırsızdır.
+O, çeşit geometrik şekillerni nevbetnen almaştırıp, çeşit kompozitsiyalar yarata.
+Ananeviy "taraq" mevzusı, sınıq sızıqlar, yolaqlar, çift üçköşelik örnekleri muntazam tekrarlanğan rapport yaratalar.
+Resimniñ lakonizm ve ifadeliligi Reşatova toquğan atta küçük kilimlerine açıq ifadelengen monumentallik bağışlaylar.
+Koloriti açıq, sarı-altın renkler üstünlik etip, olarğa beyaz, qaverenkli, portaqal, kök-yeşil tüsler qoşulğan.
+
+Razdolnoye rayonından Gülnara Abduveliyeva ve Sundus Batırovanıñ kilimleri (1997,1998 ss.) özlerine has kompozitsion çeziminen ayırılıp turalar.
+Olar ananeviy örnek mevzularını, qarama-qarşı renklerni işletkenler.
+G. Abduveliyeva toquğan namazlıqta boynuz örneginen yekünlengen ananeviy mihrab resiminen birlikte, aşağıda keñ şeritte de mevcut.
+Mihrabnıñ qara zemininde bir-birini almaştırğan bir sıra elementler ayırılıp turalar-basamaqlı romb, altı köşeli medalyonlar, üslüpleştirilgen sekiz ışıqlı tepsiçikler.
+S. Batırovanıñ kiliminiñ örnegi dekorativ elementler kibi qabul etilgen tırnaq şekilinde elementli medalyonlarnıñ transformatsiyasına esaslanğan.
+
+Ekspeditsiya bağçasaraylı usta Vasfiye Zeytullayevanıñ kilim toqumacılıq eşyalarını (1997 s.) qayd etti.
+Bu yerde de standart kompozitsiyalarda (sıranen yerleşken medalyonlar) ananeviy mevzular — basamaqlı ve tişli romblar, 5 belgisi ile küçük medalyonlar, "taraq" elementi işletilgen.
+
+Alime Çauş (Kezlev ş.) ve Sabriye Eyupovanıñ (Saq rayonı) namazlıqları qırımtatar kilim toqumacılığında temelleşken kompozitsiyaları ile süslengen, amma örnek mevzularını çeçek örneklerinen birleştirip, er keresi yañı variantlar yaratılğan.
+
+Ananeviy töşeme kilimlernen bir sırada küçük şekiller mahsulatı da keniş darqay.
+Bu — toqulğan yastıqlar, qoltuq (kreslo, divan) örtüleri.
+
+Zemaneviy qırımtatar kilimleriniñ talili şunı köstere ki, umumen alğanda, ustalar evelki toqumacılıq sanatınıñ ananeleri ve qazançlarına bazanalar.
+Örneklerde geometrik şekiller, tamğa, yıldız ve küneş nişanlarını işleteler.
+Koloriti keskin, ötkür tüslerden qaçınıp, eski eşyalarnıñ yımşaq, açıq aenklerine yaqınlaşmağa tırışalar.
+Zemaneviy kilim toqumacılıqnıñ eñ eyi nümüneleri bu — ananelerge sadıqlıq ve şahsiy icadiy til araştıruvdır.
+
+Bugünde-bugün qırımtatar professional ressamları kilim eşyaları içün eskizler yaratmaqtalar.
+1996 senesi küzde Aqmescitte qırımtatar kilimleriniñ ilk sergisi ötkerildi.
+Kilimlerniñ ekseriyeti Mamut Çurlunıñ eskizleri esasında toqulğan.
+Olarnıñ örnekleri qırımtatar toqumacılığına has ananeviy örneklerdir, lâkin ressam olarğa yañı ve özgün mana bergen.
+Kilimlerniñ koloriti sarı, bej, açıq-yeşil, kultyus, gülgüli, açıq-qırmızı renklerniñ birleşmesine esaslanğan.
+
+Mamut Çurlu qırımtatar kilim toqumacılığı meselelerinen çoq vaqıttan berli ve maqsadlı sürette meşğuldir.
+O, ta Özbekistanda yaşağan devirde Özbekistanda toqulğan qırımtatar kilimleri boyunca material toplav ve ögrenüvine, em de Orta Asiya halqınıñ manzaralı-ameliy sanatını ögrenüv meselelerine çoq küçüni sarf ete edi.
+1983 senesi Mamut Çurlu Baku şeerinde olıp keçken Halqara simpoziumda "Ferğana vadiysiniñ bugünki tüylü kilimleri" maruzanen çıqışta bulundı.
+1987 senesi Andijan vilâyetiniñ Palvantaş qasabasında qırımtatar kilimleriniñ istisalı mevcutlığı aqqında haberi oldı.
+1987 senesi Leningradda ötkerilgen kilim toqumacılığı boyunca Halqara simpoziumında iştirak etti ve "Turkmenistan, Özbekistan ve Qırğızistannıñ zemaneviy halq kilimleriniñ bazı hususiyetleri" mevzusında maruzanen çıqışta bulundı.
+Mamut Çurlu Palvantaş, Marğılan, Kirgilide (Özbekistan) qırımtatar kilimleri boyunca ekspeditsiya teşkil etti.
+
+Onıñ tedqiqiy faaliyeti Qırımda da devam etmekte.
+1994 senesi Çurlu Qırımtatar milliy galereyasınıñ qırımtatar kilimlerini araştıruv boyunca ekspeditsiyasına yolbaşçılıq yapa.
+1995 senesi o, "Qırımtatar kilimi" mevzusında tedqiqiy iş yazdı.
+Mamut Çurlu qırımtatar toqumacılıq eşyalarınıñ zengin kollektsiyasını topladı.
+Olar bir qaç kere Moskvada, Kiyevde, Aqmescitte, Kefede numayış etilip, seyircilerniñ büyük merağını doğurdılar.
+90-ncı yıllarda o, Kaunterpart Konsortsium fondu finansirlegen, qırımtatar halq kilim toqumacılığını ğayrıdan tiklev programmasında iştirak ete.
+1996 senesi Mamut Çurlu Qırımtatar kilim toqumacılığını ğayrıdan tiklev leyhasına yolbaşçılıq yapa.
+Qırımtatar toqumacılıq eşyalarınıñ örneklerini ögrenüv esasında ressam balalar içün "Qırımtatar örnekleriniñ mevzusı boyunca dekorativ resim ve applikatsiya" qullanmasını neşir etti.
+Em de kilim toqumacığı ustaları içün tehnikiy şablonlar sistemasını işlep çıqtı.
+Bu qullanmanıñ emiyeti ğayet büyüktir.
+Ayrıca şunı qayd etmeli ki, böyle neşir çıqarılğanı ilkidir, bu vaqıtqace qırımtatar halqınıñ manzaralı-ameliy sanatınıñ qazançları ile oquyıcı ve seyircilerni tanış etken ne kitap, ne de albom bar edi.
+Qullanmanıñ eñ büyük emiyeti şunda ki, mındaki materiallarnıñ işletilüvi ğayet keniş ola bilecek, material amelde işletilmek içün qararlaştırılğan.
+O, Qırım balalarını çoq asırlıq tamırları olğan qırımtatar medeniyeti ile tanış ete.
+Tablitsalarnıñ materialları, balalarnen alıp barılğan ameliy işlerniñ neticeleri çoqtan-çoq müddetli ve daimiy sergilerniñ eksponatlarına çevirile bileler.
+Sergiler ise öz nevbetinde, er bir qırımtatar doğğan kününden başlap körgen müitni (er bir qırımtatar evi toqumacılıq ve nağış eşyalarınen tolu olğan), amma soñki yüzyıllıq içinde ğayıp etilgen milliy müitni belli bir derecede yaratmağa yardım eterler.
+Qullanmada toplanğan örnek materialları çeşit dekorativ resim, tasviriy sanat, nağış ve toqumacılıq tögerekleriniñ işinde qıymetli yardımcısı ola bilirler, urbalarnı süslendirüvde, interyerlerni yaraştıruvda, ve bunıñ kibi de, stsenografiya ve bala em de büyükler içün basma mahsulatında semereli işletilirler.
+
+Qullanma eki qısımdan ibarettir.
+Birinci qısmı — Mamut Çurlunıñ kiriş sözü ve Tatyana Sarkedovanıñ metodik işinden ibaret broşüradır.
+Kiriş sözünde tarihiy, etnografik malümatlar ve bediiy-metodik tevsiyeler berilgen.
+Mamut Çurlu örnek elementleriniñ ve örnek shemalarnıñ sistemasını teklif ete, olarnıñ yardımı ile er kes resimniñ yañı variantını yarata bile.
+İşbu sistema qırımtatarlarnıñ halq sanatında örnek variantları yaratılgan printsiplerni aks ettire.
+Broşüranıñ esas mündericesi — bu balalar bağçalarınıñ hadimleri içün örnekler ile çalışuv metodikasıdır, onı ocalarnıñ ihtisasını yükseltüv institutınıñ tecribeli metodisti T. Sarkedova işlep çıqtı.
+Qullanmanıñ ekinci qısmı — bu büyük kölemli ayrı 42 tabaqta basılğan, qırımtatar nağış ve kilimleri örnekleriniñ renkli ve beyaz-qara tablitsalarıdır.
+
+Qullanmanıñ müellifi Mamut Çurlu tablitsalarnıñ asıl nuhsalarını yaratuv üzerinde altı yıl devamında iş alıp bardı.
+Bu iş çoq vaqıt ve ağır emek talap etken material toplav ceryanından ibaret, bu maqsadnen şahsiy ekspeditsiyalar ötkerildi.
+Olarnıñ neticesinde fotoplönka ve slaydlarğa onlarnen qırımtatar kilimleri alındı, Moskva, Sankt-Peterburg, Berlin, Yalta, Bağçasaray müzeyleri fondlarındaki, Qırımda em de Türkiyedeki qırımtatar diasporasınıñ şahsiy kollektsiyalarındaki qırımtatar nağışlarınıñ yüzlernen eksponatlarınıñ resimleri sızıldı.
+Daa 1990 senesiniñ başında keniş faydalanuvğa berilmegen, bu mevzuğa ait cenkten evel neşir etilgen tedqiqatlar tapıldı.
+
+Al-azırda qolda toqulğan ananeviy eşyalar saasında Arzı Üseinova (Patel) (1975 senesi doğğan) çalışmaqta.
+O, Benkov adına Cumhuriyet ressamlar oquv yurtunıñ bitiricisi, ihtisası boyunca grafik, belli ressamlar A. Üseinov ve 3. Trasinovanıñ qızı.
+O, qırımtatar örnekleriniñ mevzusında toqulğan kilim ve namazlıqlarnıñ müellifi ola.
+
+Zemaneviy manzaralı-ameliy sanatında qırımtatarlar içün ananeviy olmağan gobelen, makrame kibi toqumacılıq çeşitleri da inkişaf etmekteler.
+
+Mamut Çurlu — gobelen ustasıdır.
+M. Çurlu bediiy toqumacılıq ile 70-nci yıllardan berli meşğul.
+"Yıl mevsimleri", "Suvnıñ doğuvı" kibi gobelenler seriyası Kadamcay kombinatınıñ profilaktoriyasi içün eda etilgendir (1982 s.).
+"Kâinat çarhı" kölemli toqumacılıq plastikası Taşkentte Yaşlar eviniñ körüşüvler zalını yaraştırmaqta (1987 s.), "Seyyaremizni saqlap qalayıq" gobelen triptihi de andadır (1987 s.).
+
+Mamut Çurlunıñ gobelen yaratıcılığına daimiy araştıruv, ve eşyalar materialı, tehnikası, mevzusı, kölemini yañılatuv hastır.
+Eger onıñ birinci eserleri tegiz toqumacılıq ananeviy tehnikasında işlengen olsalar ("Baar", 1979 s.), vaqıt keçken soñ ressam şekil ve mündericenen eksperiment ötkerip, kölemli toqumacılıq kompozitsiyaları ("Nar", "Ferğana natürmortı", 1987 s.) yarata.
+Çurlu özbek ustalarınıñ arasında birinci olaraq qırğızlarnıñ ananeviy halq sanatınıñ materialı — çiyge (qasır toqulğan qamışnıñ çeşiti) muracaat etti.
+Aynı zamanda içtimaiy mevzulardan faydalanaraq, "temsil-allegoriya aenkleri mevzularında ifadeli, ve manzaralı-nazik eserleriniñ seriyasını" yarattı.
+Çurlunıñ qamıştan toquv tehnologiyasına yanaşuvınıñ özüne haslığı qamışnıñ yerine adiy ince çubuqlarnı qınapnen sarıp işlegeninde aks olundı.
+Böyleliknen tezya işleriniñ seriyası — "Çaydiş" (1986 s.) ve sayre eserler peyda oldı.
+Ressam bu tehnikada süjetli çoq eserler yarattı, olarnıñ üslüpleştirilgen manası manzaralı-ameliy çizgilerinen qayd oluna.
+
+M.Çurlu material sıfatında qınap — ösümlikten yasalğan qaba yiplerni de işlete, olardan monumental aenkli kölemli-plastik kompozitsiyalar yarata.
+Aynı bu materialdan yapılğan küçük eşyalarnı — toqulğan qutular, vazalar, meyva içün savutlarnı turmuşta qullanmaq mümkün.
+Materiallar ile eksperimentler — cül-hirs tehnikasını (uzun tüylü özbek kilimleri) qamış toquvınen birleştirüv "Alanlıq" kompozitsiyasında ümüt etilmegen manzaralı-plastik ve ifadeli-emotsional neticeler berdi.
+Bu eser 1980 senesi Taşkentte ötkerilgen Bütünittifaq sergisinde numayış etilgen edi.
+
+M.Çurlunıñ bazı işlerinde halq nağışları ile, süzanelerniñ toq ve zengin renk aenklerinen, olarnıñ tantanalı ve bayram ritmli örnekleri ile muayyen bağ — "Yaz", "Belbağ", "Dua", "Leylek quşu" (1980 s.) — sezilmekte.
+
+Ressamnıñ icadınıñ Özbekistan devirine qıymet keserek, A. Hakimov böyle yaza: "Özbek gobeleninde umumiy statistik vaziyeti zemininde Mamut Çurlunıñ icadı eñ dinamik ve istiqballidir".
+
+M.Çurlu Qırımda icat eterek, kilim eserlerinen bir sırada nağış, applikatsiya tehnikasında dekorativ kompozitsiyalar yarata.
+Olar resimniñ grafikligi, kontrast renk birleşmeleriniñ aenkliginen ayırılıp turalar ("Üç quş", 1999 s., "Duvalar-alsu", 1999 s.).
+
+Klassik tehnologiyalar ve ananeden tış materiallar saasında Çurlunıñ keşfiyatlarını onıñ şegirti Vâçeslav Üseinov devam ettirmekte.
+Onıñ eserlerini eki gruppağa bölmek mümkün — ananeviy tegiz toquv tehnikasında işlengen gobelenler ve qamış toquv tehnikası işletilgen acimli kompozitsiyalar.
+
+V.Üseinovnıñ gobelenleri — abstrakt ya da şekilli kompozitsiyalardır, olarnıñ er biri — özüne köre bir felsefiy süitadır.
+Olar tek sabırlı koloristik çizgilerinen degil de, fikir etmek içün teklif etilgen mevzularnen de ayırılıp turalar.
+"Rean-Zi Bağçasınıñ on beşinci taşınıñ kesilişi" (1995 s.) gobelenine baqqan seyirci labirintke tüşe.
+
+Vâçeslav özüniñ toqumacılıq kompozitsiyalarınıñ diger bir gruppasında ğayet çeşit materiallar — yipek, yün, sintetik yipler, cut, qamış atta demir oturğıçlarnıñ karkasından faydalana ("Yarıq ve kölge partiturası", 1996 s.; "Batayatqan küneşniñ kertikleri", 1995 s.).
+Bu eserler özleriniñ standarttan tış olğanları ve koloristik çeziminiñ çeşitligi ile seyircilerniñ diqqatını özüne celp eteler.
+Mındaki renklerniñ episi yanaşa renkten kontrast şekilde berilgen.
+Üseinov bazı toqumacılıq kompozitsiyalarında "qurav" tehnikasından faydalana — "Camlanğan peyzaj" (1998 s.), "Bu bir şey degil" (1999 s.).
+
+### 3.5. KİRAMET
+
+Qırımtatarlar öz toprağında yaşamaq ve icat etmek imkânından marum olğan, sürgünlikke oğratılğan halqlarnıñ taqdirinen paylaştılar.
+Qırımtatarlar Qırımdan quvulğan soñ, asırlar devamında yaratılğan halqnıñ maddiy ve maneviy-bediiy degerlikleri ğayıp oldı, eski esnaflarnıñ ananeleri üzüldiler.
+Qırımtatar kirameti, maden kibi, şekillenüv yüksekliklerine irişip olamadı, lâkin o, turmuşta keniş qullanılıp, köy hocalağınıñ bazı saalarında ğayet zarur edi.
+
+Bugünde-bugün, keçmişte qırımtatar kiramet sanatına müzey ve şahsiy kollektsiyalarda saqlanıp qalğan yalıñız bir qaç nushalar esasında qıymet kese bilemiz.
+Mevzunı professional ceetten aydıntmaq maqsadı ile arheologik tedqiqatlarnıñ neticelerine muracaat etmege mecburmız.
+
+Ta qadimiy devirlerde kiramet Qırım yarımadasında yaşağan adamlarnıñ ayatında büyük rol oynağan.
+Kiramet, utilitar saa sıfatında peyda olıp, yavaş-yavaş estetik emiyetke de malik oldı.
+Savut-saba bay evlerniñ interyeriniñ yaraşığı olıp başladı; dekorativ kiramet, şu cümleden, oymalar — mimarcılıqnıñ adiy ifadeli vastasından monumental sanat seviyesine köterildi.
+
+1926 senesi Kefe ve Aluştanıñ yalıboyundaki qadimiy qırımtatar köylerinde N.S.Barsamov yolbaşçılıq yapqan keniş arheologik razvedka ötkerilgen edi.
+Çeşit yerlerde (Qapsihorda) VІIІ-ІH asırğa ait kiramet sobaları tapıldı.
+A. Yakobson Çoban-Qulle etraflarında VIIІ-ІH asırlarğa ait yigirmiden ziyade kiramet sobası taptı.
+1957 senesi ise Qanaq deresinde (Üsküt köyü) çölmek pişirgen eki soba taptı.
+Kene de Qanaq deresinde 1961-1962 seneleri SSSR İlimler Akademiyası Arheologiya institutınıñ M. A. Fronjulo yolbaşçılığındaki Qırım ekspeditsiyasında üç çölmek (urk) sobasını tapqan edi.
+Sobalar bayırlarda, özen yalılarında, yahşı keyfiyetli çamur qatlamları esapqa alınıp, qurula edi.
+
+Çoban-Qullede tapılğan sobanıñ misalinde Qırım çölmek sobalarınıñ tışqı körünüşini ve konstruktsiyasını tiklemek mümkün.
+Sobanıñ bir ocağı bar, keñligi 1,15 metr, uzunlığını bilmekniñ çaresi olmağan.
+Ocaqnıñ astında ğarp divarı yanında 2 metrlik kerilme belgilene, o cenüp divarı tarafında 0,80 metrlik yükseklikte saqlanıp qalğan.
+Ocaqnıñ sıcağı kenar kanalları boylap eşyalarnı pişirgen ocaqqa köterilgen.
+1 metrlik uzunlığında saqlanıp qalğan kanal ocaqnıñ polından 0,40 metr yükseklikte başlana ve 40 dereceli meyilde töpege köterile.
+Kanalnıñ keñligi (0,30 — 0,35 m) ğarp tarafta tarlaşa (0,20 m).
+Soba ham toladan (0,50 — 0,20 m, qalınlığı 12-15 santimetr) qurulğan.
+Ocaq temizlengende kül obası içinden VІІІ-ІH asırğa ait tübleri tögerek, çetleri tegiz amforalarnıñ parçaları tapıldı.
+Çuqurnıñ içinde 100-den ziyade amfora bar edi.
+
+Aynı o çuqurda tapılğan başqa kirametniñ arasında erte orta asırğa ait bir qaç parçanı qayd etmek mümkün.
+Bu — tegiz ve yolaqlı kiramet parçaları, büyük ve küçük pifoslarnıñ tac, ayaq parçalarıdır.
+Qol matarasınıñ boğazı ve sapları ile bir parçası tapıldı, matarınıñ tapılğan kenar qısmınıñ çeti qırmızı boyalı girlândalarnen süslendirilgen.
 
  
  
@@ -1805,32 +1999,6 @@ Kilimnin esas renkleri — qoyu boz (fon), firüze, qoyu gülgüli renklerdir.
 Mezkûr kilimnin kompozitsiyası asılında namazlıqiarğa has olğan kompozitsiyağa hiç de oşamay.
 Belli ki, namazlıqlarda mıtlaqa mihrab tasviri olmaq kerek edi.
 İşte, şu namazlıq misalinde zan etmek mümkün ki, zamanlar denişmesinen qırımtatarlar namazlıq kompozitsiyalarınıh esas elementlerine qattı riayet etmekten vazgeçip, bir vaqıtlarda şart sayılğan şeylerge endi tap o qadarlıq emiyet bermegenler.
-Diniy eşya sayılğan namazlıqlar daha toqulsa da, olarnın örnekleri sezilirli derecede denişken.
-Namazlıq kilim adetteki kilim ve palaslardan tek özünin küçük biçiminen farq ete, yani onın biçimi namaz qılayatqan adamnın endamına keliştirilgen.
-
-Namazlıq.
-Ev şaraitinde havsız toquma usulında toqulğan.
-Atması pamuq basmadan, atqısı yün yiplerden yapılğan.
-Örneklernin esas elementini «taraq» teşkil ete.
-
-Kilimnin ortasında yerleşken iri, çiftleşik «taraq» elementleri kilimnin eni boylap uzanğan ken yolaq üzerindeki mihrab siluetini şekillendireler.
-Namazlıqnıh eh yuqarı yolağının ortasında yerleşken küçücik qara üçköşelik ise — örneknin eh ifadeli elementidir, çünki bu üçköşelik namaz qılayatqan adamnın maniayı ne yerge tiymek kerekligini kostere.
-Böyle printsipten Orta Asiya, Kavkaz artı halqlarınıh kilimcileri de sıq faydalanğanlar.
-Aynı vaqıtta üçkoşe şekili şeytan şerrinden qorçalağan nazarlıq manasını da taşığan.
-Bu hal — putperestler temsilinin İslâm dinine mensüp eşya vastasınen saqlanıp qalmasına ait meraqlı bir takttır.
-Üçköşelik yerleşken yolaqmn yeşil tüste olması da tesadüf değildir, çünki İslâm renki sayılğan yeşil renk eşyanın muqaddesligini bir daha qayd ete.
-Mezkûr namazlıq etnografiya noqtaiy nazarından ziyade meraq doğura, çünki ibadet merasimi halq arasında ne derecede saqlanıp qalğanını kostere.
-Onın örneği olduqça sade, renkleri de mına saha değil.
-Bes-belli, toqumacı o vaqıt qolu astında olğan boyalarnen kifayelengendir.
-
-Şubhesiz, baqıp çıqtığımız numünelernin hepisi nefislik cehetinden bir çeşit değiller, lâkin olar tarihiy, etnografik meraq qozğamaqnen birge qırımtatar kilimciliğinin harakterli çizgilerini açıp köstermek ve olarnı közetmek imkânını bereler.
-
-Böyleliknen, qırımtatar kilimlerinin örneklerinde ayvanasravcı qavmlarmn kilim toquv sanatına has olğan ve Oırımğa oğuz-selcuk qabilelerinin köçüvi neticesinde kirip kelgen örneklernin ğayet sade elementleri ve motivleri saqlanıp qalğanını köremiz.
-Kilim örneklerinin bütün elementleri öz şekillerinin arhaikliginen ayırılıp turalar.
-Böyle elementler turkmen, Özbek, qırğız, azerbaycan kilimlerinde de pek çoq qullanılğan, çünki bu halqlarnın tarihiy keçmişi de oğuz-selcuk qabilelerinen bağlı olğan edi.
-Kilim örneği qatiyen geometrik harakterde olıp, her bir element başlanğıçta temsiliy mana taşıy, lâkin vaqıt keçmesinen bu mananı coyup, sadece örnek işaretine çevirilgen.
-
-Kilimlernin koloriti zengindir, o yedi-sekiz renkten — firüze, açıq qırmızı renklernin türlü-türlü aenklerinden ibarettir.
 
 
 
