@@ -830,8 +830,177 @@ Tikici usta boş yer qaldırmamağa tırışqan, çünki islâm tasviriy ananele
 Mezkür kiseniñ örnegi, qırımtatar manzaralı sanatı ananeleriniñ üzülmegenini ve çeçek ya da bardaq içinde çeçek tasviri orta asırda eñ keniş darqağan mevzu olğanını tasdiqlay.
 Bunıñle birlikte, örnekniñ belli bir derecede sadeligi sanat saviyesiniñ yavaş-yavaş tüşkeni aqaqında da delâlet bere.
 
- 
- 
+ 1991 senesi Aqmescit şeerinde "Qırımtatar nağışı — qadife üstünde altın işlemeni ğayrıdan tiklev" leyhasınıñ çerçivesinde "Örnek" küçük işhanesiniñ bazasında onıñ teşkilâtçısı S. Memetovnıñ ve Qırımtatar medeniyetini ğayrıdan tiklev boyunca koordinatsion merkeziniñ teşebbüsi ile milliy nağış kursları açıldı.
+Moskvadan davet etilgen 3. Bekirova Aqmescitten, Bağçasaraydan, Canköyden, Sudaqtan istek bildirip kelgen yaş ustalarğa ders berdi.
+Bugünde-bugün Aqmescitniñ "Elâl" etnomerkezinde altın işlemeli suvenirler istisalı ayaqqa turmaqta.
+Ustalarnıñ esas maqsadı — eşyalarnıñ unutılğan şekillerini, ananeviy örnek ve nağış tehnologiyasını ğayrıdan tiklemek, işlemeli eşyalarnı tek milliy suvenir olaraq degil de, zemaneviy turmuş ve kostümniñ bir qısmı derecesine kötermektir.
+Altın işlemeli eşyalarnıñ bir qısmı Mamut Çurlunıñ eskizleri boyunca yapılğandır.
+Olar grafik harakter taşıylar, filigranlıqtan marum etilgenler, lâkin buña baqmadan, qırımtatar milliy örneginiñ harakteri sezilmekte.
+
+Zemaneviy altın işlemelerniñ acayip nümüneleri, dep Elvira Muratova (1970 s. d.) ve Elvira Osmanovanıñ (1961 s. d.) eşyalarını saymaq mümkün.
+Bundan evel nağış qızlarnıñ aveskârlıq eglenceleri edi, amma Qırımğa köçip kelgen soñ altın nağış kurslarını bitirip, endi bir qaç yıldır ki, olarnıñ eserleri Qırımda, Moskvada, Kiyevde, Türkiye ve Almaniyada ötkerilgen manzaralı-ameliy sanat sergilerini yaraştıralar.
+
+Altın işlemeler boyunca istidatlı usta Dilâra Galaktionova (Hasanova), (1929 s. d.) — halq ustası Amet Qalafatovnıñ torunı al-azırda Taşkentte yaşay.
+Onıñ eserleri tek Otra Asiya müzeylerinde degil de, Baltıqboyu, Almaniya, Amerikada da özüne lâyıq yer almaqtalar.
+D. Galaktionova kilim ve gobelenler kibi pek çoq altın nağışlı eserlerniñ müellifidir.
+Usta, qırımtatar toqumacılıq ananelerini devam eterek, öz eserlerine zemaneviy professional ressamnıñ dünyabaqışı ve ğayelerini kirsete.
+"Baht quşı", "Cennet quşları" kibi renkli kompozitsiyalar — bu örnekli, temsilli mevzularnıñ quş, ayvan, çeçeklerniñ real tasviri ile birleştirilgen eserlerdir.
+
+Tedqiqat etilgen materiallarnıñ talili qırımtatar nağışı üslübiniñ esas çizgilerini belgilemege imkân bere.
+Bu — örnek mevzularını seçüvde, çeçek, ösümlik elementlerine — yapraq yollağan ince pıtaçıqlarğa, üslüpleştirilgen çeçek tepsiçiklerine — üstünlik berile.
+Musulman sanatınıñ hususiyetleri, işte, bunda ifadeleneler.
+Alla yaratqan dülberlikniñ temsili olğan çeçek mevzuları, cennet bağçası yeteçki rol oynağanlar.
+Qırımtatar çeçek örneginde yengil abstraktsiya olmaqnen bir sırada, özüniñ hususiyetleri de bar.
+Meselâ, mevzudan gayet tış İran örneginden farq eterek, onıñ resimlerinde Qırım tabiatınıñ prototipleri tanılıp turmaqta.
+Nağışnıñ kompozitsiyası simmetriya qanunlarına qattı riayet ete, simmetriyanıñ merkezi çeçek, umumiy kompozitsiyada neytral zeminge müim rol ayırıla, bu ise nağış resimine hafiflik ve yengillik bağışlay.
+
+### 3.4. KİLİM TOQUMACILIĞI
+
+Ayvanasravcılıq hocalığı, zengin hammal bazası (yüksek keyfiyetli yün mevcutlığı) Qırımda kilim toqumacılıq saasınıñ inkişafını belgilediler.
+Al-azırda biz tek çeşit kilimler aqqında tasavurğa malikmiz.
+Bu tüysiz, palasqa oşağan kilim.
+Yazma menbalar ve körgen-bilgenlerniñ malümatlarına köre, Qırımda tüylü kilimler de toqulğan, lâkin asırnıñ başında bu esnaf yalıñız tüylü asma torbalar yasav derecesine tüşti.
+Qırım müzeylerindeki tüylü kilimlerniñ tedqiqatı neticesinde, olar qırımtatar degil de, Kavkazda toqulğan, kilimler olğanı belli oldı.
+Cumhuriyet qrımtatar sanat müzeyiniñ hadimleri kilim toqumacılıq nümünelerini qıdıruv boyunca iş alıp barmaqtalar.
+Bu mevzu açıq ve ciddiy ögrenüv seviyesinde bulunmaqta.
+1996-1997 seneleri TİKA Türkiye investitsiya agentligi ve Qırımtatar halqı Meclisi tarafından tüylü kilim toqumacılığı kursları teşkil etilip, işbu bir yıllıq oquvnı tahminen 20 adam bitirdi.
+
+2000 senesi Cumhuriyet qırımtatar sanat müzeyiniñ hadimleri L. Tevfiqova ve L. Ğafarova ananeviy qırımtatar örnekleri esasında zemaneviy qırımtatar tüylü kilimi içün bir sıra örnek eskizleri işledi.
+Kurslarnı bitirgen ve yüksek dağlar arasında yerleşken Kokköz köyüniñ "Kokköz" adlı Qırımtatar esnaflar müzeyinde kilim toqumacı olıp çalışqan Zeynep Musayeva Cumhuriyet qırımtatar sanat müzeyiniñ hadimleri işlegen eskizleri boyunca, ihtimal soñki 100-150 yıl içinde ilki qırımtatar tüylü kilimini toqudı.
+Onıñ kölemi 160 sm h 220 sm.
+Ebet, tüylü kilim toqumacılığı esnafını tiklev boyunca işler endi başlanmaqta.
+Bu işte Cumhuriyet qırımtatar sanat müzeyi ve "Kokköz" qırımatatar medeniy-etnografik merkezi esas rol oynamaqtalar.
+
+Kilim toqumacılığı yalıñız qırımtatar esnafı degil.
+Bugünde-bugün kilim istisalı Orta Asiyada, Kavkazartında, Ukrainada, Türkiyede, Mısırda, Bulğaristanda, Romaniyada, Moldaviyada bellidir.
+Olarnıñ mevcutlığını ta XI asırda Mahmud Qaşğari qayd etken, o, kilim — bu örnekli çarşaf, kilimnen pol ve divarlarnı qapatalar, dep yazğan.
+
+Kilim atqı yipleri negiz yipleriniñ arasından kirsetilip, mürekkep çatışuvlar vastasınen toqula.
+Ekseriyet yün, bazıda ise pamuqtan toqula.
+Kilim içün geometrik örneklerniñ etrafında araçıqlar harakterlidir.
+Bu teşiçikler negiz yipleri atqı yiplernen sarılıp, atqı yipleri öz yönelişini deñiştirgen yerlerde asıl olalar.
+Başqaca aytqanda, örnek yaratmaq içün, atqı yipleri örnekniñ şekiline köre bir-birine yaqınlaşalar ve biri-birinen bağlanmayıp, kenedeayrı keteler.
+Neticede, er bir sırada, atqı yipleri bir-birine yaqınlaşqan yerlerde — çilter peyda ola.
+Atqınıñ bir-birinen çatışmağan yipleri bir qaç aylanmadan son boyuna ve diagonal yönelişlerde öz yerlerini avuştıralar, bunıñ neticesinde örneknin çevresinde basamaq şekilinde yüksekligi 5-7 ya da 7-10 mm olğan teşiçikler peyda olalar.
+Örnek çevresindeki çilter büyük ve küçük örnek mevzuları ifadeli ve grafik çerçivesiniñ rolüni oynamaqnen bir sırada, toqulğan eşyağa örme effektini bereler.
+
+Kilim toquma tehnologiyası onıñ örnek şekillerini de belgiley.
+Bu — geometrik örnekler — romb, üçköşelikler ve ilâhre.
+Kilimde ösümlik, deñiz ya da başqa tasviriy mevzular işletilse bile, olar geometrik şekillerini qabul eteler.
+Qırım kilimlerinde, ekseriyet, sade geometrik şekillerindeki örneklerni rastketiremiz.
+Bu, kilim örnegi mında inkişaf olunmağanını, inkişaf olğan ise bile, yalıñız resimni sadeleştirüv tarafına olğanını tasdiqlaylar.
+Umumen, XX asırğa ait qırımtatar kilimleriniñ örnekleri bundan evelki devirge ait kilim toqumacılıqnıñ ananeviy elementleri ve kompozitsiyaları esasında işlengenler.
+Olar eski eşyalardan tek renk aenkleri ile (tabiiy boyalar fabrika istisalınıñ boyalarınen deñişkeni tesir etken) ayırılalar.
+
+XX asırnıñ başında Qırımda tek töşeme kilimler, namazlıqlar, örnekli ve sade kiyizler, eybeler, torbalar toqulğan.
+Olarnıñ azırlanuvı em hocalıq-turmuş em de merasim ihtiyaclarınen bağlı edi.
+Meselâ, bay kelinniñ ciyezinde 2-3 odanı töşemek içün kilimler ola edi.
+Ekseriyet olarnıñ kölemi — 1,5 h 3,5m; 2 h 4 m, namazlıqlar 0,9 h 1,5 m köleminje ola turğan.
+Kilimler pek tığız olmay edi, çünki olarnı gorizontal tezyalarda toquğanlar.
+
+Müellif öz tedqiqat ve hulâsalarını 1945-1990 seneleri devirine ait kilimlerniñ talili esasına bazanıp yapmaqtadır.
+Ameliy sanatnıñ diger çeşitlerinde olğanı kibi, kilim toqumacılıqnıñ özüne has tehnik ve bediiy usulları bar.
+Olar qadimiy zamanlarda peyda olıp, ondan soñki asırlarnıñ sınavından keçkenler, şunıñ içün de olar ğayet qattıdır.
+Bu esnafnıñ maddiy delilleri ğayp oldı, bazı elementleriniñ adları, kilim örnekleriniñ resimleri unutıldı.
+Ya asırnıñ başında elde toqulğan eşyalarğa ihtiyac eksildi de, halqnıñ facialı taqdiri neticesinde de onıñ bütün medeniy degerlikleri bütün dünya boylap sepildi de.
+Buña baqmadan, sürgünlik yerlerinde de kilim toqumacılığınen oğraşqan usta qadınlarımız bu icadiyatnıñ nümünelerini bizim küngece alıp keldiler.
+Özbekistanda Andijan vilâyetiniñ Palvantaş köyünde özüne has kilim istisalı boyunca merkez meydanğa ketirildi.
+Onıñ esasını Qırımnıñ Sudaq rayonından çıqqan ustalar teşkil ettiler.
+Orta Asiya halqları, özleri de qadimiy kilim toqumacılıq ananelerini taşığan halqlar olaraq, şübesiz ki, qırımtatar ustalarınıñ icadına tesir ettiler.
+Buña baqmadan, taqdim etilgen nümüneler qırımtatar kilimleri olaraq baqıla, çünki olar Qırımdan çıqma milliy çizgilerni saqlap qalmaqtalar.
+
+ Evde toqulğan kilim.
+Kilimniñ kompozitsiyası çilterli, basamaqlı romblardan ibaret, olar zeminsiz boşluqta sıralarnen yerleştirilgenler.
+Örnekni asıl etken basamaqlar kilim toquv tehnikasınıñ neticesinde asıl olğanlar.
+Romblarnıñ er bir sırası digerinden renk ceetten farq ete.
+Beyaz zeminli romblarnıñ üstünde kölemi küçükçe feruze tüslü romb, onıñ üstünde qoyu-gülgüli romb, onıñ ortasında feruze tüste küçük dörtköşelik yerleşken.
+Ekinci sıra ise — feruze, onıñ üstünde qara, qaranıñ üstünde qoyu-gülgüli romb, onıñ ortasında feruze dörtköşelik yerleşken.
+Kompozitsiyanıñ belli bir merkezi yoq, onı istegeniñ kibi devam ettirmek mümkün.
+Kilimniñ tar çetlerinde bördür yolaqlar toqulğan, olar beyaz çızıqnen belgilengen olıp, üstünde bir-birini almaştırğan portaqal tüs, yeşil, qoyu-gülgüli "pahlava" örnegi toqulğan.
+Yipler anilin boyalarnen boyalangan.
+Bunı ötkür renkler isbat eteler.
+Yün tegiz boyalmağan.
+
+Aynı bu örnek muvzusı da, umumen kompozitsiyanıñ özü de bu ya da biraz deñişken variantı çeşit halqlarda, şu cümleden Orta Asiyada, Kavkazartında, İranda da mevcuttır.
+Bu örnek em ayvanasravcılıq, em de yerleşken, topraq işlerinen oğraşqan qabileler arasında rastkele; onıñ tamırları qadimiy sanat elementlerine barıp yete.
+Buña beñzegen basamaqlı romblar şekilindeki mevzular Turkmenistan ve Özbekistannıñ territoriyasında tapılğan eneolit kirametinde de işletilgenler.
+Qırım kilim toqumacılığına olarnı Sudaq rayonında yerleşken oğuz-selcuklardan kelip çıqqan türkiy köçebe qabileleri alıp kelgenler, olarnıñ kilimlerinde bu mevzular ğayet keniş darqağan edi.
+Elementniñ temsili topraq.
+O ev, qadın ve umumen meyva bergen başlanğıç ğayesinen bağlıdır.
+Rombnıñ ortasında noqtalar (bizim misalde — küçük dörtköşelik) urluq manasını bildire bile.
+Ustalarnıñ özleri mevzunıñ manasını bilmeyler, o, yaraştırıcı belgi olaraq qabul etile.
+Ustalar ifadeli renkler vastasınen örnekniñ ritm ve dinamikasını köstere bilgenler.
+
+"Qıbrız" tehnikasında toqulğan kilim.
+Negizi — pamuq, atması — yün, kilimniñ kompozitsiyası çilterli.
+Bir sıra tişli medalyonlarnı romblar sırası deñiştire.
+Başqa türkiy halqlarnıñ kilim toqumacılığında yardımcı rol oynağan elementler bu kilimde esas elementlerdir.
+Tişli medalyon — biraz deñişken sekiz köşeli tepsiçik sanatta eñ qadimiy solârium temsillerinden biridir.
+Tepsiçik zeminindeki romb, yuqarıda qayd etilgeni kibi, bereket ğayesinen bağlıdır, bu ğayeni şekilniñ ortasındaki noqta — urluq da tasdiqlay.
+Örnekniñ umumiy manası aqqında aytacaq olsaq, o, endi yuqarıda aytılğanı kibi, bereket tilev ğayesinen bağlı.
+Lâkin kilimni toquğan ustalar içün kompozitsiya tek yaraşıq olaraq qullanılğan.
+Kilimniñ eki tar tarafı "pahlava" örneginen sıñırlanğan, "pahlavalar" kontrast tüslü.
+Kilimni toquğan usta esas diqqatını onıñ kolorit çezimine ayırğan.
+Qara zeminde qoyu-gülgüli ve feruze-kultyus tepsiçikler ve beyaz çerçiveli romblar zıncırı pek yaraşıqlı körüneler.
+Romblarnıñ özleri kontrast renklernen ayırılıp turalar.
+Kilimniñ dekorativligini elementlerniñ ritm ve ifadeligi qayd etmekte.
+
+Evde toqulğan kilim, negizi pamuq, atması yün.
+Kompozitsiyası yuqarıda baqılğan kilimge oşay, lâkin biraz deñiştirilgen.
+Romblar zıncırınıñ yerine kilimniñ çevresi boylap altıköşelikler zıncırı çekilgen.
+Ötkür renkler printsipi saqlanıp qalğan.
+
+Yuqarıda baqılğan eki kilimniñ kompozitsiyası da İran, Kavkaz, Orta Asiyada ayvanasravcılıq qabilelerniñ kilim toqumacılıq istisalında rastkele.
+Qırım sanatında ise olar, mında assimilâtsiya olğan ayvanasravcılıq qabilelerniñ kirsetken çeşit qatlamlarını aks ettireler.
+
+Evde toqulğan kilim, negizi pamuq, atması yün.
+Onıñ resimi Sudaq rayonı içün tipiktir.
+Kilimniñ kompozitsiyası ağlıdır.
+Onıñ esasında — altıköşelik ve romblardan ibaret bir-birine tiygen zıncırlar, olarnıñ içinde ise — daa küçük örnekler.
+Altıköşeliklerniñ qara zemininde — ufaq altıköşelikler, olarnıñ da quvurçıq ilmekleri bar.
+Altıköşelikniñ ortasında — 5 belgisi yerleştirilgen.
+Romblarnıñ içinde — boynuzlı geometrik şekil.
+Kilimniñ tar çetlerinde — bördür yolağı, onıñ zemininde sıranen 5 belgileri yerleştirilgen.
+Bu belgi toqumacılarnıñ arasında "arslan ağızı" adınen bellidir.
+
+Mezkür resim keniş malümat taşımaqta.
+Onıñ kompozitsiyası, şu cümleden onıñ elementleri de, turkmenlerniñ yomud kilimleriniñ ğayet sadeleştirilgen resimidir.
+Quvurçıq ilmekli altıköşelik — bu yomud tüylü kilimleriniñ esas medalyonıdır.
+Rombnıñ ortasındaki geometrik şekil ise — ayvanasravcılıq qabilelerniñ sanatındaki klassik elementler, o, qoyun boynuzlı rombdan ibarettir.
+İlmek şekildeki elementler "tırnaq" adınen bellidir.
+Quş "tırnaqları", turkmen qabilesiniñ totemlerinden birisidir.
+5 belgisiniñ manası aqqan suv ğayesinen bağlıdır.
+Kilimniñ resimi eñ evelâ etnogenetik ceryanlar noqtiy-nazarından meraqlıdır.
+Onıñ Qırım kilim toqumacılığında saqlanıp qalğanı şunı bildire ki, selcuk qabile birleşmesiniñ terkibine kirgen turkmen yomud qabileleri Qırımda assimilâtsiyağa oğranğanlar.
+Yomud kiliminiñ örnegi sadeleşkenini, qadimiy qabile belgisi öz manasını yoq etkenini köz ögüne alsaq, Qırımda turkmen kilim resimleriniñ ananeleri yavaş-yavaş zayıflaşqanı aqqında hulâsa çıqara bilemiz.
+
+Usta bu kilimni toquganda esas emiyetni onıñ süslenüvine bergen.
+Qoyu zeminde örnekniñ elementleri ifadeli grafik belgiler kibi qabul etileler, olar qarama-qarşı renklernen ayırılğanlar.
+Açıq tüslü elementler qoyu zeminde, qoyu tüsler — açıq zeminde.
+Bu resimge açıq-aydınlıq, ifadelik, grafik çizgilerini bere.
+Ağlı kompozitsiyanıñ özü ise sarı çevre sızığı ile qayd etilgen.
+
+Evde toqulğan "taraqlı" kilim, negizi pamuq, atması yün.
+Bu yerde bir-birini almaştırğan yolaqlar printsipi esasındaki kompozitsiyanı köremiz.
+Kilim toqumacılıqta kompozitsiyanıñ bu çeşiti eñ eskisi sayıla.
+O, palas kibi tüysiz kilimlerde saqlanıp qaldı; ağ-medalyonlı kompozitsiya tipine has olğan kilimlerde pek siyrek rastkele.
+Kilimniñ boyu eki çeşit yolaqlardan ibarettir.
+Keñce yolaq — romb ve "taraq" elementlerinden ibaret.
+Kilimniñ ortasınla çift "taraq", kilimniñ eki eni bir yerge tikilgeni neticesinde peyda ola.
+Yuqarıda qayd etilgeni kibi, bu element qırımtatar temsilinde büyük emiyetke malik olğan, çünki o, Çıñğızlarnıñ tamğası olğan.
+Olarnıñ nesilleri — Geraylar Qırım hanlarınıñ sülâlesidir.
+Tarca yolaq "pahlavalarnen" süslendirilgen, olarnıñ boyuna tek çevresi sızıqnen ayırılğan sade yolaq qoyulğan.
+Resimniñ temsiliy manası aqqında bir şey aytmaq qıyın.
+Kilimni toquğan usta oña tanış olğan ve onıñ tasavurında nasıldır manası olğan örnek mevzularını bir yerge toplap, kompozitsiya yaratqan.
+Umumen, kilimniñ kompozitsiyası geometrik şekilindeki resim olaraq qabul oluna.
+Usta qoyu-qırmızı, feruze, erılğan, altıntüsli, qara (zemin) kibi beş tüsni işletip, renk ifadeligine irişken.
+
+Namazlıq, evde toqulğan, palas tehnikasında toqulğan.
+Negizi pamuq, atması yün.
+Esas elementleri — "taraq", "arslan ağızı".
+Kompozitsiya — yolaqlı namazlıqnıñ qoyu-kultyus zemininde — keñ yolaq ve "taraq" — "arslan ağızı" — "taraq" üçlüginen ve çevresi sızıqlı, örneksiz eki renkli yolaqlarnen nevbetnen almaşalar.
+Örnekniñ elementleri — bir tüslü, iri, açıq-aydın, ifadeli.
+
  
  
 Bin yazıq ki, bizim memleketimizde qırımtatar sanatı eserlerinin hâl etici çoqluğı bütünley ğayıp etildi, şu sebepten Cumhuriyet qırımtatar sanatı muzeyinin fondları şimdilik ancaq bihge yaqın unikal eksponattan ibaret olıp.
