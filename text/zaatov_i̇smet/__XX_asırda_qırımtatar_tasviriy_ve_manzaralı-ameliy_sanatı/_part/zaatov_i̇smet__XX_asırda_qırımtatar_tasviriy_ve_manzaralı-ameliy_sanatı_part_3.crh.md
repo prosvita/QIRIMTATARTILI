@@ -1411,7 +1411,8 @@ Acayip renkli, tınıq-yıltırağan, tegiz eşyalar usta kemalına yetkenini bi
 Abdül Seit-Ametov ve Rustem Yaqubov özgün ressam ve kirametçiler olmaqnen bir sırada, olar istidatlı pedagoglardır.
 
 1999 senesi aprel ayında Halqara "Vozrojdeniye" fondu Qırımtatar sanatı müzeyi esasında "Çamur örnekleri" balalar kiramet mektep-studiyasını tesis etti.
-Studiya çalışqan eki yıl içinde onıñ ustahanesinden çeşit millet vekillerine ait 200-ge yaqın bala keçti, studiya oquv ceryanı basqıç-basqıç alıp barılgan nazariy ve ameliy meşğuliyetler esasında qurulğan, balalar başta jivopis, resim, yasamalarnıñ esaslarını ögreneler, soñra kiramet istisalınıñ usullarını — qalıplav, tezya başında iş, pişirüv, süslev işlerini menimseyler.
+Studiya çalışqan eki yıl içinde onıñ ustahanesinden çeşit millet vekillerine ait 200-ge yaqın bala keçti.
+ studiya oquv ceryanı basqıç-basqıç alıp barılgan nazariy ve ameliy meşğuliyetler esasında qurulğan, balalar başta jivopis, resim, yasamalarnıñ esaslarını ögreneler, soñra kiramet istisalınıñ usullarını — qalıplav, tezya başında iş, pişirüv, süslev işlerini menimseyler.
 Tehnikiy bilgiler qırımtatar manzaralı-ameliy sanatınıñ ananelerini ögrenüvnen pekitileler.
 A. Seit-Ametov, R. Yaqubov ve studiyanıñ yolbaşçısı F. Asanova işlep çıqqan programma standart oquv ceryanını teklif etmey, o, bundan da müim — ögretmek ve terbiyelemek kibi vazifeler qoya.
 
@@ -1970,10 +1971,8 @@ Ve o şekilce kerçekten de eğri qılıçnın tasvirini andıra.
 Zoomorfik motivlernin kelip çıquvı da, ekseri hallarda, şoyledir.
 Tedqiqatçılarğa «balıq», «çıqçıqbalaban», «qırqayaq», «örümçek», «qısqaç», «qurtçıq» (170.40-ncı sahife) adlarınen belli olğan elementlerni kene de şu abstraktlı ösümlik motivleri teşkil eteler.
 Spasskayanın özü qayd etkeni kibi, balıq badiçke oşay, örümçek ya da qısqaç — batıq yapraqlı ekzotik çeçekke, qırqayaq — suv yosunına oşap kete...
-Zaten, musülman dinini nisbeten keççe qabul etken ve kündelik aşını esasen denizden alğan yalıboylu qırımtatarlarda aksine de ola bile edi.
+Zaten, musülman dinini nisbete5n keççe qabul etken ve kündelik aşını esasen denizden alğan yalıboylu qırımtatarlarda aksine de ola bile edi.
 
 Basma ve işlemelernin örnekleri asır-asırdan tekrarlanıp, tek kimerde bir azaçıq deniştirile edi; örneklernin eski adları ve manaları unutıla, olarnin elementleri o ya da bu predmetke oşağını içün yanı ad ala ediler.
 İşte, şu sebepten tedqiqatçılar örneknin adından kelip çıqalar, lâkin onın manasını, hepisi bir, bilip olamaylar.
 
-Ösümlik örneği kompozitsion yerleştirilüv cehetinden pek onaytlıdır.
-Orneknin uzun çevik pıtaçıqları, çoqtan-çoq yapraqları nağışçığa işleme içün qararlaştırılğan her hangi meydannı toldurmaq imkânını bereler.
