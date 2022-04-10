@@ -1256,10 +1256,13 @@ Tedqiqat etilgen yadikârlıqnıñ kiramet materialı bir qaç çeşitke bölün
 Tedqiqat uçastkasında cemi 8 bütün savut ve qızıl çamurlı, suvarılğan savutlarnıñ 72 parçası tapıldı.
 Bundan da ğayrı, A malikanesiniñ ğarbiy binasındaki kiramet materialında yeşil sırlı, açıq renkli çamur savutınıñ parçası; şeerçikniñ köterilgen matarialında ise qızıl çamur savutınıñ qandil örnekli küçük parçası tapıldı.
 
- Qızıl çamurlı suvarılğan savutlar bir qaç şekilden ibarettir: angob üstünden tınıq sırnen qaplanğan, qalın ve ince sızıqlarnen sgraffito örnekli sini ve çanaqlar, pialalar; şamdan ve çıraqlar, qazılmalarda tapılğan kirametniñ arasında suvarılğan gügümlerniñ boğaz parçaları da bar edi.
+ Qızıl çamurlı suvarılğan savutlar bir qaç şekilden ibarettir:
+ angob üstünden tınıq sırnen qaplanğan, qalın ve ince sızıqlarnen sgraffito örnekli sini ve çanaqlar, pialalar;
+şamdan ve çıraqlar, qazılmalarda tapılğan kirametniñ arasında suvarılğan gügümlerniñ boğaz parçaları da bar edi.
 Olarnıñ saplarınıñ yuqarı qısmı yüksek boğazlarınıñ ortasına pekitilgen.
 Olar angob üstünden suvarılıp, boğazları oyma sızıqlarnen yaraştırılğan.
-Bu savutlar, Azaq (Azav) şeerinde yasalğan bir saplı gügümler tipine yaqın (Perevozçikov, Klassifikatsiya arheologiçeskogo materiala zolotoordınskogo vremeni (po materialam raskopok i sborov 1960-1990-h godov)).
+Bu savutlar, Azaq (Azav) şeerinde yasalğan bir saplı gügümler tipine yaqın.
+ (Perevozçikov, Klassifikatsiya arheologiçeskogo materiala zolotoordınskogo vremeni (po materialam raskopok i sborov 1960-1990-h godov)).
 
 Quvurçıqlı burumlar ve doğru sızıqlarnen süslengen, yeşil sırlı monohrom çanaqnıñ tapılğan tübü büyük meraq doğura (Tek bir parçası saqlanğan).
 Bu mevzu Azavnıñ monohrom çanaqlarınıñ süslenüvinde işletile (Romançuk, Perevozçikov, ris.8-30, 9-28, 10-29.Glazurovannaya keramika iz Azova).
