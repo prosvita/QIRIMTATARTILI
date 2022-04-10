@@ -36,7 +36,7 @@ She won't ever know."
  Old missis will tear my head off.
 'Deed she would."
 
-She?
+She!
 She never licks anybody- whacks them over the head with her thimble— and who cares for that, I'd like to know.
 She talks awful, but talk don't hurt— anyways it don't if she don't cry.
 Jim, I'll give you a marvel.
