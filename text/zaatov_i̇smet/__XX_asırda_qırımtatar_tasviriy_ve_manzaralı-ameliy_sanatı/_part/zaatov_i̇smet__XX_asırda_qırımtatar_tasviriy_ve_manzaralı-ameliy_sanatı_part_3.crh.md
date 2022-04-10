@@ -703,7 +703,66 @@ XIX asırnıñ soñunda ve XX asırnıñ başında örnekli toqumacılıq esasen
 Bu — beyaz çarşaflar, örtüler, paçavralar, maramalar, şerbentler, basma quşaqlar, iç kölmekleri, çeşit bavlar.
 Bu eşyalar kelin ciyeziniñ bir qısımını teşkil etkenler.
 
- 
+ Örnekli toqumacılıqnıñ bir qaç çeşiti mevcut olğan.
+
+Örnegi "saçma atma — bezler, quşaqlar, şarflar toqulacaq basmanıñ çetleri bu tehnikiy usulnen yekünlene edi.
+Örnekniñ yipleri negiziniñ yiplerinden qalınca olıp, açıq-bej renkli yolaqlı örnek yarata ediler.
+Bu örnek Qırımnıñ çöl tarafına ait edi.
+Amma dağlı ve yalıboyu tarafında da (qaverenkli-qaralı tüsler) rastketirile turğan.
+
+"Atma qıbrız" tehnikası Qıbrızdan kelmelidir.
+Qıbrız çeşiti Qırımnıñ yalıboyunda keniş işletilgen, onıñ vastasınen çoq tüslü mürekkep kompozitsiyalar yaratılğan.
+Örnek yipleri basmanıñ üstüne tegiz yatıp, onıñ üstüni tolusınen qapata ediler — "maqat" toqumacılığı adı da bundan kelip çıqqandır.
+Buña beñzegen toqumacılıq tehnikası Şarqiy Aqdeñiz boyunda yaşagan deyerlik ep halqlarda rastkele.
+
+Qırımnıñ dağlı-yalıboyu qısımında "tahtalı" tehnikası keniş darqalğan edi.
+Bu tehnika çeşitinde, de yüz, de ters tarafından almaşıp renkli yipler töşemesinden örnek teşkil etken, tahtaçıqtan faydalanıla.
+Örnek qabarıq olğanı içün, o nağışqa oşay.
+Bu tehnikanı sofra örtüleri, peştmallar toquğanda işletkenler.
+"Tahtalı" tehnikasınıñ daa bir çeşiti "çilter" edi,— renkli yipler biri-birinden küçük teşiçiklernen ayırıla edi.
+"Çilter" tehnikası ösümlik ve mimarcılıq kompozitsiyalarnı toqumağa pek oñaytlı edi.
+
+"Töpeli" tehnikası çeşiti yuqarıda qayd etilgen çeşitler sırasında eñ az ögrenilgendir.
+Saqlanıp qalğan vesiqalı menbalar ve fotomateriallarğa köre malüm ki, bu tehnikada biri-birine yaqın yatqan yiplerden eki taraflı örnek yaratılgan.
+"Töpeli" tehnikasınıñ "atma qıbrız" tehnikasından farqı şunda ki, mında örnek qoşulğan alda degil de, negizniñ sade yiplerinen ayırılğan alda toqulğan.
+Şunıñ içün de o, "tahtalı" tehnikasına yaqındır.
+"Töpeli" tehnikası urbalar ve dekorativ basmalarnı yaraştırmaq içün işletilgen.
+
+"Evciyarlar" — bezetici bezler qırımtatar örnekli toqumacılıq ve nağışınıñ parlaq nümüneleri olalar.
+Yalta devlet tarihiy-edebiy müzeyiniñ fondlarında 1 biñge yaqın basma mevcut, olarnıñ ekseriyetini evciyarlar teşkil eteler.
+Cumhuriyet qırımtatar sanat müzeyiniñ fondları da unikal toqumacılıq eşyalarınen zenginleştirildi.
+"Evciyar" sözüniñ bir qaç manası bardır.
+Arap tilinde — faydalı olmaq, qırımtatar tilinde — evni yaraştırmaq (cıymaq) manasını añlata.
+Bezlerniñ bu çeşiti hususan qırımtatar turmuşında keniş darqağan edi.
+Evciyarlarnen savut rafları, odalarnıñ divarları ve ilâhre yaraştırılğan.
+Evciyarlar kelin ciyeziniñ bir qısımını teşkil etip, kelinniñ ustalığı ve eyiallığı aqqında malümat bergen.
+Zengin kelinniñ boğçasında 400-500, fuqareniñ — 200-300 nağışlı bezi olğan (68, s. 230).
+Qorantada qız bala doğğanınen, ciyezi azırlanıp başlana edi, söz kesim ve toy arasında ise bu ceryan avcına yete edi: bu devir tahminen yarım yıl devam ete, qorantanıñ bütün qadınları işke kirişip, zarur sayıda nağışlar azırlanğan.
+
+Yüksek keyfiyetli işlev tehnikası, resimniñ ifadeligi ile ayırılıp turğan, eñ keyfiyetli toqulğan evciyarlar Qırımnıñ daglı Şarq tarafında yapıla ediler.
+Evciyarlarnıñ esasını, endi qayd etilgeni kibi, atmalar teşkil etkenler.
+Esasen geometrik örnek ile bütün basma toldurıla; ortasında — siyrek, çetlerinde sıq örnekler işlengen.
+Evciyarlarnıñ kolorit renkleri ananeviy: qara, beyaz, qırmızı, sarı, bazıda qoşma olaraq, yeşil, mavı, kultyus ola edi.
+
+Qırımtatarlarnıñ dekorativ ve turmuş bezleri pek çoq edi, bu — yüz bezler, tiz bezler, divar bezleri, sofra bezleri...
+Olar toquma ve nağış örneklerinen yaraştırılğan.
+Bezlerniñ tar çetleri nağışlanğan, eki ucundaki örnek bir-birini tekrarlağan.
+Ösümlik nağışlarına, ciddiy geometrik örnekke nisbeten, tasavur ve işlevde serbestlik bergen.
+
+Qırımtatar sanatınıñ hususiy çizgileri — ölçü duyğusı, toqtamalıq ve şekilleriniñ inceligi qadın-qızlarnıñ baş örtüleri marama ve şerbentilerde öz aksini taptılar.
+Pamuq, keten, yipek maramalarnı qocağa barğan qadınlar örtkenler.
+Maramalar öz ifadeligi ve dekornıñ baylığı ile ayırılıp tura ediler.
+Maramanıñ örnegine maden de kirsetilip, basma daa ağırca ola edi.
+Dalğalanğan çetlerini gırjıva ve püsküllernen yaraştıra ediler.
+Qadınlar maramanı fesleriniñ üstüne taşlay ediler.
+Yuqarıdaki eki köşesini çeñgeniñ astına ketirip bağlay ediler, aşağıdaki eki ucu ise arqalarında salınıp turğan, zaruriyet peyda olğanda, qadınlar maramanen betlerini qapata bilgenler.
+Qırımtatar sanat müzeyiniñ fondlarında bulunğan maramalarğa köre, olarnıñ renkleri ananeviy — beyaz zemin üstüne qırmızı-qara örnek qoyulğan.
+Maramanıñ tar tarafları ğayet yaraştırılğan.
+Örnekniñ esas elementi — qaranfilniñ üslüpleştirilgen şekili.
+Çeçekler üç sırağa üçer dane qoyulğan olıp, dörtköşelik asıl eteler.
+Dörtköşelikler ise maramanıñ ucunda keñ şerit asıl eteler.
+Örtüniñ keñ tarafları biri-birini almaştırğan büyük-küçük romblarnıñ üç qatlı basamaqlar — nazarlıqlar harakterniy taşığan geometrik şekillernen yaraştırılğan.
+
  
  
  
