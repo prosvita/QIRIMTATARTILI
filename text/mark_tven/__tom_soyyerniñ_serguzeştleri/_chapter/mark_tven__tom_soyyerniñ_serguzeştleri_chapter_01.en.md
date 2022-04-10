@@ -9,7 +9,9 @@ No answer.
 No answer.
 
 "What's gone with that boy, I wonder?
-You TOM!" No answer.
+-TOM!
+
+No answer.
 
 The old lady pulled her spectacles down and looked over them about the room; then she put them up and looked out under them.
 She seldom or never looked THROUGH them for so small a thing as a boy; they were her state pair, the pride of her heart, and were built for "style," not service—she could have seen through a pair of stove-lids just as well.
