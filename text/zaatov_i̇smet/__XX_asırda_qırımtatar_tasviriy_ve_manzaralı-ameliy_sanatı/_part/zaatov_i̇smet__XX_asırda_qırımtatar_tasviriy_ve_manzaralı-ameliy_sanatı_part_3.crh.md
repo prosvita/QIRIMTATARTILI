@@ -663,6 +663,7 @@ Bunıñnen birlikte, YE. Spasskaya qayd etkenine köre, "tatar qadınlarınıñ 
 Örnekniñ ayrı elementi bir ya da birqaç tüsnen nağışlanması mümkün edi.
 Meselâ, çeçekniñ bir yaprağı bir tüs, qalğanları — başqa tüsnen işlene bile".
 Bu qaydlar, qırımtatar nağışınıñ koloristik harakteristikaları sıñırsız olıp, nağışçı usta qadınlar temelleşken qaidelerge riayet etmeknen bir sırada, öz isteklerine köre, çeşit renklerni işletip mustaqil icat etkenlerini tasdiqlamaqta.
+
 Kolorit qırımtatar nağışınıñ eñ müim estetik degerliklerinden birisi ola.
 XIX asırnıñ eşyaları XX asırnıñ başlarındaki eşyalardan aynı koloritleri ile büyük farq ete ediler.
 Ayvan ve ösümliklerden asıl olğan tabiiy boyalar azırlav sırları qırımtatarlarğa yaqın tanış edi.
@@ -681,6 +682,7 @@ Bu boyalarnıñ çeşit kombinatsiyaları, çeşit tüslerni bir-birine kelişti
 XX asırnıñ soñunda Avropa ve Rusiyeden ketirilgen anilin, himiyaviy boyalarğa keçüv boya azırlav ve yip boyalav ceryanını bayağı yengilleştirdi, amma toqumacılıq eşyalarınıñ dekorativ hususiyetlerine menfiy tesir kösterdi.
 Boyacılıq ustalığı yavaş-yavaş öz ananelerini ğayıp etip başladı, kolorit keskin, qaba oldı, vaqıt keçken soñ boyalar ağarıp başlay edi.
 Bularnıñ episi toqumacılıq esnafınıñ umumiy keyfiyetine tesir etti.
+
 Toqulğan ve nağışlanğan çeşit bezler, tüb ve üst urbaları, ufaq-tüfek turmuş eşyalarınıñ negizi olaraq — tegiz ya da yolaqlı "atma" basma işletile edi.
 Bu pamuq ya da keten yiplerden toqulğan yengil basma edi.
 Pamuq ve keten Qırımnıñ cenübiy yalıboyunda ve bazı çöl rayonlarında östürilgen.
@@ -696,6 +698,7 @@ Kölmek, şalvarlarğa ise yolaqlı atma işletilgen.
 Yipler başta boyalanmağan.
 Tabiiy renkli — beyaz ve krem tüslü olğan.
 Yelaqlı basmalarda qırmızı ve qaverenkli yipler işletilgen.
+
 XIX asırnıñ soñunda ve XX asırnıñ başında örnekli toqumacılıq esasen aşağıdaki eşyalar ile taqdim etilgen.
 Bu — beyaz çarşaflar, örtüler, paçavralar, maramalar, şerbentler, basma quşaqlar, iç kölmekleri, çeşit bavlar.
 Bu eşyalar kelin ciyeziniñ bir qısımını teşkil etkenler.
