@@ -498,7 +498,105 @@ Qırımtatar toqumacılıq eşyaları sabıq SSSR müzeyleriniñ toplamlarında 
 Qırımtatar medeniyetiniñ diger maddiy şaatları kibi, toqumacılıq eserleri de çoq yıllar devamında müzeylerniñ zapasniklerinde saqlanıp, yat közlerden gizli tutulğan.
 Amma şimdi de, olarnıñ üstünden yasaq müüri alıp taşlanğan olsa da, olarnı körmek qolay degil: tedqiqatçılarnıñ, iqtisadiy sebeplerge köre, mezkür problemanı ilmiy ceetten toluca ögrenmek içün icadiy komandirovkalarğa barmağa imkânları yoq.
 
- 
+ ### 3.3. TOQUMACILIQ VE NAĞIŞ
+
+Örnekli basmalar ve nağış istisalı yarımadanıñ deyerlik bütün rayonlarında belli, qırımtatarlarnıñ eñ keniş darqağan ve esas esnafıdır.
+Toqumacılar ("bezaci") ve nağışçılarnıñ ("kezaci") tseh birleşmeleri Qırımda qadimiy zamanlardan berli bellidir.
+Bu tsehler hanlar sarayını, asılzadelerni, ruhaniylerni teminlegenler; mahsulatnıñ bir qısmı Aqdeñizboyu memleketlerine, Anadolu, Rusiyege yollanılğan.
+Tseh teşkilâtları Qırımnıñ er bir iri şeerinde mevcut olğan — Kefe, Kezlev, Qarasuvbazar şu cümledendir.
+Bağçasaray eñ büyük esnaf-ticaret merkezine çevirilgen.
+Toqumacılıq ustahanelerinde pamuq, keten, yipek ve yünden basmalar işlep çıqarıla edi.
+XX asırnıñ başında Qırımnıñ çöl, dağlı, şarqiy rayonlarında bu istisal da mevcut edi.
+Er bir rayonnıñ basmalarınıñ öz hususiyetleri bar edi.
+Meselâ, asırnıñ başında "tegiz, yolaqlı ve sade örnekli basmalar Kırımnıñ çöl tarafında inkişaf ete.
+Bundan da ğayrı, olar basmanıñ mükemmelligi ile ayırılıp tura ediler, basmalar Kavkazartından, Türkiyeden ketirilgen, yipek kibi ince ösümlik yipinden ("rami" cınısınıñ "şire" yipi) işlep çıqarılğan.
+Mürekkep örnekler ve istisalnıñ mürekkep tehnikiy usulları Qırımnıñ dağ etekleri ve dağlı rayonlarına aittir, mında biz bediiy ve tarihiy qatlamlarnı çoq rastketiremiz.
+Yalıboyu basmalarında İstanbul toqumacılıq istisalınıñ tesiri ziyade sezilmekte.
+Bazı basma ve nağışlarda beyaz-qara tüslerge kümüş yip qoşuluv alları rastkele, böyle birikmeler qırımtatar manzaralı-ameliy sanatı içün tipik degil.
+%Bu basmalarnıñ örnekleri nazik ve inceliknen işlengen, got ve yunanlarğa barıp çıqqkın qırımtatarlar toquylar.
+Bu basmalarda Vizantiya medeniyetiniñ çizgileri sezilmetke.
+Toqumacılıq ve nağışçılıq ananeleri mükemmel saqlanıp qalğanınıñ sebebi şunda ki, örnekli toqumacılıq eşyaları ev turmuşınıñ, milliy urbalarnıñ, diniy merasimlerniñ (nişan, toy ve ilâhre) bir qısımı edi.
+Bundan da ğayrı, anane ve melekeler büyüklerden küçüklerge keçe — qartanalarından miras olıp qalğan şeylerniñ örneklerini ögrenip, torunları öz eşyalarında tekrarlay turğanlar.
+Böyleliknen, XX asırnıñ devamında toqumacılıq ve nağış işlerinde ananeviy çizgiler, tehnologiya, asırlarnen işlengen ve nesilden-nesilge keçken kompozitsiya çeşitleri, örnekler saqlanıp keldiler.
+
+Sanayı istisalı çıqarğan basmalar ketirilüvi toqumacılıq esnafını bayağı zayıflaştırdı, eşyalarnıñ bediiy qıymetini ve keyfiyetini tüşürdi.
+Nağışçılıq (manzaralı yüzbezler, urbanıñ qısımları ve saire) evelden evde toqulğan pamuq basmaları üstünde işlengen, soñra ketirilgen azır — qadife, atlas işletilip başlandı, olarnı yipek, yün, bazıda altın, kümüş yiplernen ya da fabrikada işlengen altın sicimnen nağışlağanlar.
+Qırımtatar nağışınıñ sanatında 10 türlü örnek tikişi mevcut, olardan altısı — esas, dörtü — yarımcı tikiş.
+Qırımtatar toqumacılıq sanatınıñ ğayretli tedqiqatçısı P. Ya. Çepurina olarnıñ episi aqqında tafsilâtlı malümat berdi:
+— "tatar işlemesi" — ekitaraflı tegiz tikiş;
+— çelterli ekitaraflı tınıq nağış, ruslarnıñ "tikişli nağışı" kibi.
+Halq arasında oña "esap işleme", mütehassıslar ise — "osmanlı işleme" deyler;
+— "telli" örnek nağışı — kümüş, altın (ya da altın suvlı, kümüş suvlı) yipnen ince çanaçıqlar nağışlana.
+Olarnıñ çevre-çeti işlemeniñ yerine köre, çeşit ola;
+— "mıqlama" — tübünde töşemesi olğan, qatlı basma üstünde altın, kümüşnen işlengen nağış; qırımnıñ deyerlik er yerinde bu nağışnı "mıqlama" deyler (rus bediiy nağışçılıq nomenklaturasında oña "yüksek altın nağışı" deyler).
+Tek Qarasuvbazar ve onıñ etraflarında oña "sımakeç" deyler;
+— "bükme" — qattı basma üstünde altın, kümüş sicimler ile, siyrek allarda renkli yipek yiplernen işlene;
+— "qasnaq" örnekli nağışı — bediiy nağış mütehassısları oña "tamburlı" deyler.
+XIX asırnıñ soñunace mahsus maşinalar peyda olğanğa qadar Yaqın Şarqta nağışnıñ bu çeşiti qasnaq üstünde işlengen;
+— applikatsiyalı nağış, tatarca adı belli degil;
+— "pullu" nağış;
+— boyuncaq ve incinen;
+— qıymetli taşçıqlarnen işlengen nağış.
+Nağışlarnıñ bütün bu çeşitleri XX asırnıñ başınace saqlanıp kelgen edi.
+Basma üstüne nağış nağışlav tehnologiyası asırlar devamında deñişmegen.
+Er bir köyde, şeerde resim sızğan usta qadınlar bar edi, olar öz örnekleri ile bütün etraf köylerni teminley turğanlar.
+Ustalar örnek kompozitsiyaları yaratıp, resimni basmanıñ üstüne keçirgenler.
+Bu ustalar aqiqiy professional, ananeviy örneklerni yahşı bilgen, yüksek inkişaf etken kolorit duyğulı, nağış tehnikasını mükemmel bilgen halq mütehassıları olğanlar.
+Resim sımarışçınıñ istegine binaen yaratılğan.
+Onı basmağa keçirmezden evel, örnekniñ esas qısımları qattı kâğıttan kesilip, nağış işlenecek yerge yerleştirilgen.
+Soñra, zger kompozitsiya eskizini sımarışçı begense, şablonlarnıñ çevresini sızıp, basmağa keçirilgen.
+Ufaq-tüfek yaraşıqlı çızıqlar doğrudan-doğru basmanıñ üstünde sızılğan.
+
+İşniñ böyle usulı hatalardan qaçınıp,basmağa nisbeten nağışnıñ kölemini doğru esaplamağa yardım etken.
+XIX asırnıñ soñu ve XX asırnıñ başına ait eşyalar, işlev tehnikası ve seviyesi boyunca çeşitler.Bu ise örnekli toqumacılıq ve nağış, hususan ekseriyet şeer yerlerinde keniş tarqağan altın telli ve qıymetli taşlarnen nağışlar yüksek inkişaf seviyesinde bulunğanlarından delâlet bere.
+Altınnen nağışlanğan eşyalar şunı da bildireler ki, müşteriler asılzadeler, allıtaqatlı, eyiallı insanlar olğanlar.
+Qırımtatarlarnıñ merasimlerinde el işlerine ayrıca emiyet birilgen.
+Meselâ, kelin nişanğa öz elinen işlegen bir taqım eşya mıtlaqa azırlamalı: uçqur (nişanlanğan vaqıtta bağışlana) tiz bez (kiyev yemek vaqıtında tizlerini qapata), yemeni (poşusı), eki kise (tütün qoymaq içün, birisi kiyevge, birisi de onıñ yaqınlarına bağışlana), küçük kise, o kümüş sıcımnen yaraştırıla, tübüne ufaq altınlar tikile; köşeleri kümüş ya da renkli yipek yipnen nağışlanğan kiyev yavluğı; nağışlanğan çorap bavları...
+Bu şeylerge daa yipek kölmekler, çorap, saat qapı, nagışlanğan yastıqlarnı qoşmaq mümkün edi.
+Kelin azırlağan şeylerni kiyevniñ tuvğanlarına, itibarlı musafirlerge, toy qoşusı ve küreşniñ ğaliplerine bağışlay edi.
+Toydan evel kelinniñ evinde çalğı çalınıp, ciyez asuv merasimi ola edi: odanıñ merkezinde tavannıñ astında alqa pekitile, ondan er bir tarafqa yipler bağlana, olarnıñ üstüne ise kelinniñ öz elinen azırlağan ciyezi asıla edi.
+Soñra bu şeyler, köşeleri nağışlanğan boğçağa bağlana edi.
+Adeti üzre, qırımtatar qızları ciyezni doquz yaşından azırlap başlay ediler.
+"Doquz" raqamı türk halqlarında temsiliydir: doquz yaşından "doquzlıq" — doquz eşya azırlamaq adeti olğan.
+
+Amma bu asırnıñ 20-nci yıllarında ananeviy milliy urbalar büyük deñişüvlerge oğradılar.
+Ömür tarzınen sıqı bağlı olğan ananeviy nağışlarnıñ deyerlik bütün çeşitleri yoq olıp başladılar.
+
+30-ncı yıllarda nağış sanatı ev esnafı saasından esnaf kooperatsiyası saasına keçe.
+Artellerniñ teşkilâtçıları qayd etkenleri kibi, olar "icadiy küçlerni seçüvde, em de tatar ealisiniñ keride qalğan qadınlar kütlesinen siyasiy inkişafında büyük rol oynadılar".
+Teessüf ki, bu arteller çoq faaliyet kösterip olamadılar ve tezden darqatıldılar.
+
+Toqumacılıq eşyaları örneklev harakterine köre, eki esas gruppağa bölüneler: ösümlik örnegi (üslüpleştirilgen lâle, qaranfil, nilüferler — Qırımda eñ çoq rastkelgen çeçekler) ve geometrik örnekler.
+Eger toqumacılıq örnegi geometrik şekilllerine qattı riayet etken ise, nağış tehnikası qıyış sızıqlı örnekler yaratmağa imkân bere edi.
+Bundan itibarendesaduf degil ki, nağış elementleriniñ deyerlik gruppasını dalğalı çızıqlarnen işlengen ösümlik ve çeçek örnekleri teşkil eteler.
+Çeçek muvzuları manzaralı örtülerni, milliy urbalarnı da yaraştıralar.
+Bazıda çeçek resimlerinde qaranfil, gül, zambaq, ebengomeç ve ilâhre çeçeklerni tanımaq mümkün.
+Lâkin, ekseri allarda, olar ğayet üslüpleştirilip, örnek belgisine çevirileler.
+Çeçekler bardaqnıñ içinde, bazıda tabaqnıñ üstünde, yalıda, nazarlıqlarğa sarılğan şekilde tasvirlengenler.
+Çeçeklerniñ, ince pıtaçıqlarnıñ, bükülgen yapraqlarnıñ çoqluğı qırımtatar nağışlarına iç bir şeynen teñeştirilmeycek naziklik ve güzellik bağışlaylar.
+
+Orta asırlarda Qırım nağışınıñ tedqiqatçıları qayd etkenine köre, deñiz boylap ketirilgen meyva ve sebzeleri: — armut, kestane, pomidor, kiraz, soğan, qabaq, ananas, soñra deñişken ananeviy ösümlik örneklerine tesir etemey qalmadılar, bu şekiller musulman örnek sanatında çoq rastkeleler.
+Halq ustaları ketirilgen basma ve kilimlerniñ abstrakt ösümlik mevzusınıñ resimini tasvirlemege tırışıp, vaqıt keçken sayın, körgen şekillerini endi olarğa yahşı tanış olğan şeylernen baglaylar.
+Meselâ, burulğan mevzular badiçlerge oşaylar, İran ve Türkiye kilimlirine ait iri çeçek, palmettaları, sadeleştirüv neticesinde kesilgen qabaq ya da pomidorğa beñzeyler...
+"Kelmeşek" mevzularnıñ deñişüvini közetmek meraqlıdır.
+Spasskaya qayd etken badiçler, onıñ fikirince, "haçlanğan hancer ya da qılıçlarnıñ" deñişken resimidir.
+Lâkin, türk toqumacılığında rastkelgen "haçlanğan hancerler" örnegi de "kelmeşektir".
+Onıñ prototipi İrannıñ kilimleri ve basmalarında sıq rastkelgen ösümlik örnegidir.
+Onıñ şekili, kerçekten de, qayırılğan hancerni añdıra.
+
+Deñiz alemi mevzusınıñ kelip çıquvı da aynı böyledir.
+Tedqitqatçılarnıñ arasında belli "balıq", "qırqayaq", "örümçek", "qurt", elementleri, kene de abstrakt ösümlik mevzularıdır.
+Spasskaya qayd etkeni kibi, balıq badiçke oşay, örümçek — ekzotik çeçekke, qırqayaq — deñizotuna...
+Amma, ihtimal, musulman dinini nisbeten keççe qabul etken cenübiy yalıboyu qırımtatarlarnıñ esas zenaatları deñiz esnafları olğanı sebebinden, aksi olabile.
+
+Nağış ve toqumacılıq eşyalarnıñ örnekleri, bazı bir deñişüvlerge oğrap, asırdan-asırğa avuşqanlar; örneklerniñ eski adları ve manaları unutılğan.
+Amma real dünyanıñ elementlerine oşatıp, olarğa yañı adlar berilgen.
+Bundan sebep, örnekniñ adına baqıp, onıñ manasını añlamaq areketleri istenilgen neticege alıp kelmeyler.
+
+Kompozitsion yerleştirüv ceetten ösümlik dekorı ğayet oñaytlıdır.
+Sarılğan uzun filisler, yapraqlarnıñ nomaylığı — bularnıñ episi resim sızğan ustağa nağışlanacaq boş yerlerni toldurmağa büyük imkânlar bere.
+Buña baqmadan, kompozitsiya ne qadar serbest yerleşse bile, onıñ mıtlaqa merkeziy simmetriyası ola — kompozitsiyanıñ bir qısmı ekinci qısmını tekrarlay.
+
  
  
  
@@ -508,11 +606,6 @@ Amma şimdi de, olarnıñ üstünden yasaq müüri alıp taşlanğan olsa da, ol
  
 Belli qırımtatar dramaturgı ve cemaat erbabı Seid-Abdulla Ozenbaşlı (1867), zamandaşlarınm aytqanlarına köre, işleme sanatını yahşi bilgen eh qart ve mahir ustalardan biri olğan.
 Bundan ğayrı, S-A.Ozenbaşlı acayip çalğıcı ve şair olaraq da tanılğan.
-Teessüf ki, biz bu adamnıh nağışlı işlemeleri haqqında hiç bir şey bilmeymiz.
-S-A.Ozenbaşlı 1924 senesi vefat etti.
-Mezkûr kitabımızda qırımtatar matbaacılığının atası sıfatında anılğan IIyas mirza Boraganskiy de acaip nağışçı olğan eken.
-Anаneviy qırımtatar esnaflarını canlandıruv işine milliy toqumacılıq ve qırımtatarlarmh an'aneviy işlemeleri boyunca belli mütehassıs sayılğan Zuleyha Bekirova büyük hisse qoştı.
-Z. Bekirova 1913 senesi Or qapı uyezdinin Mollalar köyünde doğdı,
  Iptidaiy mektepni bitirgen son Kezlevde yaşağan tizesi Adaviye Efendiyevanın yanına barıp, anda «Eski örnek» şirketine çalışmağa kirdi.
 1930-1932 seneleri devamında Zuleyhağa A.Efendiyevadan ğayrı, belli usta K.Ya.Rıbalskaya da ustazlıq yapıp, an'aneviy işlemenin sırlarını öğrettiler.
 1932 senesi Zuleyha şirketnin yollanmasınen Moskvadaki ressamlıq-sanayı tehnikumına oqumağa kire.
