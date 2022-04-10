@@ -1276,7 +1276,8 @@ Qoyu qarışmanen işlengen angob örnegi tek örnekni qabarıq degil de, savutn
 
 Burulğan tamçılar şekilindeki örnekler kaşin çanaq ve sinilerniñ süslenüvinde de keniş qullanılğan.
 Olarnıñ üstündeki resimlerniñ bu elementleri de azaçıq qabarğandır.
-Qırımğa kaşin savutları XIII asırnıñ soñunda XIV asırnıñ soñuna qadar, Volgaboyu şeerleri ve Orta Asiya merkezleri ile, sıqı alâqalar devirinde, şu cümleden, Saray ve Horezmden kelmesi mümkün edi (Babina YE. Kaşinnaya keramika iz Kafı).
+Qırımğa kaşin savutları XIII asırnıñ soñunda XIV asırnıñ soñuna qadar, Volgaboyu şeerleri ve Orta Asiya merkezleri ile, sıqı alâqalar devirinde, şu cümleden, Saray ve Horezmden kelmesi mümkün edi
+ (Babina YE. Kaşinnaya keramika iz Kafı).
 Qasabada tapılğan açıq şekildeki savutlarnıñ arasında, sgraffito örnekli ve monohrom sini ve çanaqlardan ğayrı, tübastı yüksek ya da alçaq, çetleri açıq, ince, dogru ya da azaçıq qayırılğan taclı, piala şekilindeki çanaqlar ayırılıp turalar.
 Olar angob üstünde sarı, yeşil sırnen qaplangan; angobsız tegizlik sarı sırnen boyalanğan, angob tegizligi sırlanğan.
 Bu soy örnekli ve şekilli savutlar Qırımnıñ bir sıra yadikârlıqlarında, Altın Orda Azav materiallarında, Volgaboyu şeerlerinde XIV ve XV asırnıñ birinci yarısına ait qatlamlarında tapıldı.
@@ -1284,14 +1285,17 @@ Bu soy örnekli ve şekilli savutlar Qırımnıñ bir sıra yadikârlıqlarında
 Baybuğa yalılarındaki (Kefe) qasabanıñ kiramet materiallarınıñ talili Qırımnıñ ögrenilgen ve neşir etilgen abideleri arasında unikal, dep saymağa esas bere.
 Bütün kiramet kompleksi Altın Orda deviriniñ Azav istisalında öz analogiyalarını tapa, bu ise umumen kompleksniñ XIV asırnıñ ekinci yarısı ve soñuna ait, dep qayd etilmesine esas bere.
 Süslerniñ bazı farqları, esasen suvarılğan kirametniñ sgraffitosınıñ Azav ve Volgaboyu analoglarından farqı ve, aksine, örneklerniñ Qırım merkezleri, hususan Kefe örneklerinen yaqınlığı, olar yerli, qırımlı olğanını tasdiqlay.
-Aybabinanıñ fikirine köre, qasabağa pek yaqın yerleşken Solhat (Eski Qırım) bu merkezdir (Aybabina YE.A. Keramika iz raskopok zolotoordınskogo poseleniya bliz Feodosii. \\ "İstoriçeskiye svâzi Priçernomorya i Sredizemnomorya H-HVІІІ vv, s. 12, po materialam polivnoy keramiki").
+Aybabinanıñ fikirine köre, qasabağa pek yaqın yerleşken Solhat (Eski Qırım) bu merkezdir
+ (Aybabina YE.A. Keramika iz raskopok zolotoordınskogo poseleniya bliz Feodosii.)
+\\ "İstoriçeskiye svâzi Priçernomorya i Sredizemnomorya Х-ХVІІІ vv, s. 12, po materialam polivnoy keramiki").
 
 Qırımda çıqarılğan kiramet eşyalarını Azaq qazılmalarınıñ materiallarında rastketirmek mümkün.
 Suvarılğan kirametniñ importında Azaqnıñ issesi ortaca 50-60 fayıznı teşkil ete.
 Qırım eşyaları Qırımnıñ cenübiy-şarq şeerleriniñ (Sudaq, Solhat, Kafa) mahsulatınen taqdim etilgen.
 Şekillenecek qarışmalar ğayet yımşaq, qumlı qarışmalar deyerlik yoq, irikireç qarışmaları tabiiydir.
 Pişirmesi tegiz, kultyus-qaverenkli.
-Assortimenti ğayet çeşit: çanaq, sini, tarelka, çanaq, gügüm, basma örnekli gügümler, ilmekli saplı badiye şekilinde savutlar ve saire (İ.V.Belinskiy, A.N.Maslovskiy, İmportnaya polivnaya keramika Azaka XIV v).
+Assortimenti ğayet çeşit: çanaq, sini, tarelka, çanaq, gügüm, basma örnekli gügümler, ilmekli saplı badiye şekilinde savutlar ve saire
+ (İ.V.Belinskiy, A.N.Maslovskiy, İmportnaya polivnaya keramika Azaka XIV v).
 
 1664 senesi Balıqlavanı ziyaret etken orta asır türk entsiklopedisti E.Çelebiniñ aytqanlarına köre, XVII asırnıñ ortalarında Qadıköyniñ (Balıqlava) bütün ealisi tatarlıq (türkiy tilli) eken.
 1992-97 seneleri Qadıköyniñ territoriyasında ötkerilgen arheologik tedqiqatlarnıñ neticesinde suvarılğan kiramet parçaları tapıldı.
