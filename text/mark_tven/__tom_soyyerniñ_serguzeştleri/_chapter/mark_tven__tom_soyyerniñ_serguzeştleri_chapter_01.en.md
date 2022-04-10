@@ -1,10 +1,10 @@
 ## CHAPTER I
 
-"TOM!"
+-TOM!
 
 No answer.
 
-"TOM!"
+-TOM!
 
 No answer.
 
