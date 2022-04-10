@@ -763,39 +763,77 @@ Maramanıñ tar tarafları ğayet yaraştırılğan.
 Dörtköşelikler ise maramanıñ ucunda keñ şerit asıl eteler.
 Örtüniñ keñ tarafları biri-birini almaştırğan büyük-küçük romblarnıñ üç qatlı basamaqlar — nazarlıqlar harakterniy taşığan geometrik şekillernen yaraştırılğan.
 
+ Baş örtüsi — şerbenti (iran tilinden "sarband", sar — baş, band — bav) qocağa daa barmağan, yaş qızlarğa qararlaştırılğan.
+Olarnı Kavkazdan, Türkiyeden ketirilgen ince tülbentiden tikkenler.
+Negizi ince, yengil olğanı içün nağışı da ince pamuq, yipek yiplernen işlengen.
+Toqumacılıq eşyalarnıñ mükemmel geometrik örneklerinden farq eterek, nağışlanğan eşyalarnıñ ösümlik örnekleri basmanıñ üstünde serbest yerleşip, yarışıqlı kompozitsiyalarğa çevirilgenler.
+
+Bugünde-bugün Qırımda qırımtatar milliy toqumacılıq ve nağışı tiklenüviniñ faal ceryanı ketmekte.
+90-ncı yıllarnıñ başında Qırımnıñ bir sıra rayonlarında kurslar açılıp, qırımtatar qızları ananeviy sanat sırlarını ögrendiler.
+Bu aktsiyalarda professional ressamlarımız da iştirak eteler.
+Halq sanatını yahşı bilgen belli usta Mamut Çurlu eki taraflı ananeviy nağış ile işlengen toquma pannolar seriyasınıñ müellifidir.
+Çurlu öz eserlerini, ekseriyet, istidatlı ustalarnen birlikte yarata, olar müellifniñ ğayelerini amelge keçirip, eşyaga öz üslüp ve ustalıqlarını kirseteler.
+
+Altın tikiş qırımtatar manzaralı-ameliy sanatınıñ gururıdır.
+
+Altın ya da kümüş yiplernen işlengen nağış kolorit çeşitliginen ayırılmasa da, yipler qalın olğanı sebebinden qabarıq nağışnıñ özü ifadeli yarıq-kölge effektini bere.
+"Altın tikiş ustası tikişni açıq-aydın işlegeni ve örnekleri ustalıqle yerleştirgeni neticesinde yüksek bediiy semerelerge irişe, olar renkli yiplernen işlengen nağışlardan qalışmaylar.
+Altın nağışnı bediiy cetten dülberligi ve baylığı boyunca yüksek qaqma sanatı ya da gravörniñ işinen teñeştirmek mümkün", — dep yazğan P. Çepurina.
+
+Cumhuriyet qırımtatar sanat müzeyiniñ fondlarında qırımtatar altın nağışlarınıñ unikal nümüneleri mevcut.
+Olarnıñ arasında — kiseler, yeñ qapaqları, baş kiyimleri, yelekler, erkek ve qadın-qızlar urbaları bardır.
+
+XIX asırnıñ soñuna ve XX asırnıñ başına ait qırımtatar qadın-qızlar anteriniñ bir qısmı — altınnen nağışlanğan yeñqapaqlar edi.
+Çıqarılğan yeñqapaqlar trapetsiya şekilinde olıp, paalı basmalardan, ekseriyet, qoyu-vişne tüsteki qadifeden tikile edi.
+Astarı atlastan tikile, bilekni qattı sarıp tutması içün, yeñ qapaqnıñ içine kâğıt qoyulğan.
+Yeñqapaqlar ösümlik örneklerinen (beş, yedi, sekiz yapraqlı üsüpleştirilgen lâleler) mıqlama ve qasnaq tehnikasında işlengen.
+Yeñqapaqlarnıñ çetleri altın yipli sicim ile çevrelengen.
+
+Altınnen işlengen urbalar onıñ saibiniñ içtimaiy ve maddiy vaziyetiniñ köstergiçi edi.
+Erkekler, qadınlar, balalar kiygen qısqa tonçıqlar pek zengin süslendirilgenler.
+Tonçıqlar qadifeden tikilgenler.
+Altın nağış yeñlerinde, arqasında, omuzlarında, köküsinde işlengen örnegi ananeviy ösümlik tasvirleri edi.
+Burğuçlanğan filisler bütün zeminni qaplap, bazıda ayrı badem ve çeçeklerge ayırıla edi.
+
+Tedqiqatçılar burğuçlı örnekte Vizantiyanıñ tesirini köreler.
+İran ve Türkiye sanatınıñ tesirini ise, olarda keniş darqağan "badem" örnegi mında de mevcutlığınen añlatalar.
+
+Ananeviy baş kiyimi — fesler de altınnen işlengenler.
+Cumhuriyet qırımtatar sanat müzeyinde mevcut altın fes bütünley altınnen işlengen, töpeliginde sekiz yapraqlı çeçek, çetlerinde de aynı bu çeçek, amma ufaqça, yanında da iri kertikli yapraqlar işlengen.
+
+Cumhuriyet qırımtatar sanat müzeyiniñ qıymetli eksponatlarından biri — XX asırğa ait bayramlıq anteridir.
+J, qoyu-mor yipek atlastan tikilgen, "qasnaq" tehnikasında altın sicimnen işlengen.
+Sicim elde pukülgen ve anterniñ üstüne ösümlik örnegi şekilinde tikilgen.
+İşleme yolaqnen anterniñ bütün ögünden yaqasına köterile, oymasını aylana; aşağasında anterniñ eki kenarındaki yırıqları da altın sicimnen yaraştırılğan.
+
+Erkek urbaları da altın sicimnen yaraştırılğan.
+Cumhuriyet qırımtatar sanat müzeyiniñ kollektsiyasında XX asırnıñ başına ait milliy erkek kostümi mevcut — yüksek yaqalı qısqa tonçıq, dogru balaqlı ştan.
+Tonçıqnıñ bütün ögü ve yeñqapaqları altın sicim ile gırjıva kibi işlengen.
+Örnekniñ esas elementleri — boyunda işlengen dalğalı sızıqlar, olarğa qoşma olaraq adiy çeçekler işlengen.
+
+Altınnen işlengen ğayet populâr eşyalardan biri — kiseler edi.
+Kiselerni, adeti üzre, qadınlar, yaş qızlar öz aqayları ve nişanlılarına tikkenler, şunıñ içün de kiseler ekseriyet qadın şekilinde olğanı tesaduf degildir.
+Sanatta qadın şekiliniñ tasvirlenüvi tarihiy tamırlarnen bağlıdır.
+Buña oşağan mevzular keniş Avrasiya regionınıñ terrakot plastikasında közetileler, olar Allanıñ qadın qıyafeti ğayesinen bağlıdır.
+Qırımtatar sanatında bu şekilniñ saqlanıp qaluvı islâmdan evelki sanat ananeleriniñ qaviyliginiñ delilidir.
+İhtimal, bu ananeler, antik devirde Qırımnıñ qadimiy ealisi tabınğan Qıznıñ obrazına barıp yetedir.
+
+Kise, adeti üzre, dört qısımdan ibaret ola.
+Ög ve art qısımı ve eki yan tarafı, olar içine tikilgeni içün körülmeyler, amma kisege acimli şekil bereler.
+Kiseniñ yuqarı qısımına, onı quşaqqa bağlamaq içün, yip tikile.
+Şunı mıtlaqa qayd etmeli ki, kiseniñ ğayet mürekkep zemini burğuçlı ve ösümlik örnegi büyük ustalıqnen işlengen.
+
+Altın işlemenen yaraştırılğan kiselerniñ sırasında, XX asırğa ait qadifeden tikilgen ve ufaq boyuncaqlarnen yaraştırılğan kise ayrıca turmaqta.
+Böyle eşyalarnı Kezlevde işlegenler.
+Kiseniñ zemini çiftlengen boyuncaqlarnen nağışlanğan.
+Tikici usta boş yer qaldırmamağa tırışqan, çünki islâm tasviriy ananeleri boyunca, boşluq yasaq etilgen.
+Mezkür kiseniñ örnegi, qırımtatar manzaralı sanatı ananeleriniñ üzülmegenini ve çeçek ya da bardaq içinde çeçek tasviri orta asırda eñ keniş darqağan mevzu olğanını tasdiqlay.
+Bunıñle birlikte, örnekniñ belli bir derecede sadeligi sanat saviyesiniñ yavaş-yavaş tüşkeni aqaqında da delâlet bere.
+
  
  
  
  
- 
-Qırımda esnafçılıqnın berbat etilmesine alıp kelgen inqiraz, belki de, bitirilir edi.
-Teessüf ki, 1944 senesi qırımtatarlar bir qalmadan sürgün etilgenleri neticesinde halq icadiyatının an'aneleri amelde bütünley unutıldılar.
-Sabıq SSSRnin çeşit ülkeleri boylap dağıtılğan qırımtatarlar hakimiyetnih taqiplerine baqmadan, sürgünlikte aileviy yadikârlıq olıp qalğan, cenkten evel Oırımdaki yaşayışm hatırlatıp turğan ameliy sanat numünelerini köz bebeği kibi saqladılar.
-Qırımda doğğan, asriy halq ananeleri esasında terbiyelengen ve ecdatlarnın medeniyeti, turmuş tarzı haqqındaki hatıranı coymağan üyken nesil vekilleri halqmn turmuş ve medeniyet ananelerini aybetlep, qırımtatar sanatının bazı bir çeşitlerini, meselâ, kilim toquv, işlemeler yapuv alışqanlıqlarını saqlap qaluvda (Ozbekistannın Palvantaş koyu) büyük röl oynadılar.
-Bugünde-bugün Oırımda manzaralı-ameliy sanatnı canlandıruv ceryanı pek büyük meşaqatlarnen, işsizlik, iqtisadiy buhran kibi ağırdan-ağır içtimaiy şaraitlerde keçe.
-Qırımğa ayrı ustalar qayttılar, bular esasen endi çoqtan rahmetli olğan eski ustalarnın balaları ya da şegirtleridir.
-Meselâ, Oırımda milliy quyumcılıq sanatını Ayder Asanov, izzet ve Enver Ablayevler; qaqma sanatını Asan Galimov, kiramet ve ufaq şekiller plastikasını Fevzi Seithalilov, Abdül Seit-Ametov, Rustem Yaqubov, Rustem Skibin, Şamil İlyasov, Mamut Çurlu ve diğerleri canlandıralar; taşm işlev sanatınen Ayder Aliyev, İlmi Ametov; havlı maqat toquvnen Zeynep Musayeva, Gülnara Asanova, Reyan ve Ediye Bekirovalar; kilim toquvnen Arzı Patel, Mamut Çurlu, Sabriye Eyüpova ve diğerleri; altın ve örnekli işlemelernen Elmira Muratova, Elvira Osmanova, Elmira Çalbaşova, Tamara Klüçkina ve Ayşe Osmanova oğraşalar.
-Qırımtatar manzaralı-ameliy sanatının qalğan çeşitleri para ve mütehassıs olmağanı sebebinden ale daha tiklenmeyler.
-Halqımıznıh manzaralı-ameliy sanatının esas çeşitlerini canlandıruv işine Türkiye, Almaniya, Romaniya, Gollandiya ve AOŞta yaşağan qırımtatar diasporası, Türkiye ve Ukrainanıh hükümet ve cemaatçılıq teşkilâtları büyük yardım köstereler.
-Qırımda qırımtatar manzaralı-ameliy sanatının esas merkezleri sıfatında bugünde-bugün Aqmescit, Qarasuvbazar, Bağçasaray, Kezlev şeherlerini, Kokköz, Taraqtaş, Bağay köylerini köstermek mümkün.
-Yarım asırlıq sürgünlikten son qaytıp keleyatqan qırımtatarlar şimdi misilsiz zorluqlarnı yenerek, Vatanda kendi fillerini, kendi medeniyetlerini canlandırmağa çalışalar.
- Halqmn tekrarlanmaz özgün sanatını kelecek nesillernih variyetine çevirmeğe tırışalar.
-Bu esnada qırımtatar halqımn maddiy medeniyetine ait abidelerni, manzaralı-ameliy sanatının numünelerini toplav ve saqlap qaluvğa ayrıca emiyet berile.
-Bu maqsadnen Qırımda Cumhuriyet qırımtatar sanatı müzeyi meydanğa ketirildi.
-Bu muzey tarihinin esabı 1992 senesinden başlay.
-Eger biz şimdinin özünde qırımtatar milliy sanatının abidelerini toplav ve saqlavnen keniş miqyasta ve keçiktirmeden oğraşıp başlamasaq, tezden toplamağa ve saqlamağa şey qalmaycaq.
-%Vaqıt  elden qaçırılacaq.
-Şunıri içün de qırımtatarlarnıri maddiy medeniyetine ve sanatına ait olıp, çeşit vaqıtlarda yarımadadan çıqarılğan numüneler ve eserlerni Qırımğa qaytarıp ketirüv meselesine büyük diqqat ayınla.
-Orta Asiya memleketlerinde, Romaniya, Bulğaristan, Türkiyede qırımtatarlar toplu yaşağan yerlerge ekspeditsiyalar teşkilâtlandırıldı ve ileride de teşkilâtlandırılacaq, hem böyle işni qırımtatar diasporasınen birlikte alıp barmaq qararlaştırıla.
-Qırımdan tışta yaşağan qırımtatarlar Vatanımızda muzey teşkil olunğanını eşitken son özleri bizge müracaat etip, ta baba-dedelerinden qalğan aileviy yadikârlıqlarnı bağışlaylar.
-Meselâ, Romaniyada yaşağan qırımtatarlarnıh delegatsiyası 1998 senesinin avgust ayında Qırımnı ziyaret etken vaqıtta muzeyimizge qırımtatar manzaralı-ameliy sanatının numünelerinden ibaret bütün bir kollektsiyanı hediye etti.
-1999 senesinin dekabrinde muzey Romaniyanın Köstence şeherinden 56 dane acayip işleme aldı, bu şeylerni 1850 senesinden 1950 senesine qadar olğan devirde Oırımda ve Dobrucada yaşağan çeşit qırımtatar qadınları yapqanlar, Kemâl Musuret değen fedaiy bir adam ise olarnı toplağan.
-1999 senesi qırımtatar sanatşınaslığı iliminiri tarihında ilk sefer qırımtatarlar toplu yaşağan Dobrucağa (Romaniya) ekspeditsiya yollanıldı, om Cumhuriyet qırımtatar sanat müzeyi ve Romaniya Demokratik Türk-Tatar birliği teşkil ettiler.
-Oırımtatarlar bayağı sayıda olğan Köstence şeherindeki (Romaniya) Halq sanatı muzeyinifi fondlarında qırımtatar ameliy sanatı boyunca unikal kollektsiya (sırğa ve küpeler, gerdanlıq ve boyuncaqlar, quşaqlar, baş ilvanları, torevtika, urbalar, altın nağışlı tikişler, işlemeler) saqlanıla.
-Muzey fondlarında XVIII-XX asırlarğa ait qırımtatar manzaralı-ameliy sanatına mensüp 2500-den ziyade numüne bar.
-Muzey yanında tamirlev ustahanesi çalışa.
-Muzeynin emanethaneleri en zemaneviy donatmalarnen tekmillengenler.
-Bazı esnaf çeşitlerine has an aneler (eh evelâ, kilim toquv ve işlemeler) andaki qırımtatarlar arasında şimdi de yaşaylar.
 Bin yazıq ki, bizim memleketimizde qırımtatar sanatı eserlerinin hâl etici çoqluğı bütünley ğayıp etildi, şu sebepten Cumhuriyet qırımtatar sanatı muzeyinin fondları şimdilik ancaq bihge yaqın unikal eksponattan ibaret olıp.
 Olarnin da ekseryieti Qırımdan tışta toplanıldı.
 
