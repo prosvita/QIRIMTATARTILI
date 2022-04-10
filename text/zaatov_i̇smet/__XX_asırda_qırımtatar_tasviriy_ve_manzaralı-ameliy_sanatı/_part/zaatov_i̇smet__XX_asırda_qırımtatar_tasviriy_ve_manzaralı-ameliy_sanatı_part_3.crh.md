@@ -597,7 +597,109 @@ Kompozitsion yerleştirüv ceetten ösümlik dekorı ğayet oñaytlıdır.
 Sarılğan uzun filisler, yapraqlarnıñ nomaylığı — bularnıñ episi resim sızğan ustağa nağışlanacaq boş yerlerni toldurmağa büyük imkânlar bere.
 Buña baqmadan, kompozitsiya ne qadar serbest yerleşse bile, onıñ mıtlaqa merkeziy simmetriyası ola — kompozitsiyanıñ bir qısmı ekinci qısmını tekrarlay.
 
- 
+ Nağışta sıq işletilgen mevzular; yıldız, küneş, bazıda yarımay; süslengen baqır savutlarnıñ tasviri — quman, yıbrıq, gügüm, sini.
+
+Basma ve nağış eşyalarınıñ keniş darqağan süslendirüv elementi romb — "köbek"tir.
+Bu şekilniñ vastası ile ustalar er vaqıt yañı-yañı, tekrarlanmağan kompozitsiyalar yaratqanlar.
+Bir sıra halqlarnıñ ameliy sanatında rombnıñ kütleviyligi onıñ şekil em mündericesi ceetten universalligi ile añlatıla.
+Rombnıñ şekili struktura teşkili ceetten pek oñaytlı, onıñ geometrik şekili toqumacılıqnıñ tehnologiyasına kelişe.
+Ekinci taraftan ise, romb öz içine mifoepik tasavurlarnı qavrap alğan, universal temsil belgisi olğan.
+Qırımtatarlar rombğa "köbek" deyler, onıñ manası — özek, yerniñ merkezi; "köbekni" tavannıñ, örtülerniñ merkezine, ortasına qoyğanlar.
+Qırımtatar tatlılıqlarınıñ şekiline oşatıp, "loqum", "pahlava" adları da populâr edi.
+Rombğa bazıda gül dey ediler, bazıda filis ve boynuzğa beñzegen elementleri olğan romb şekiline "qısqaç" dey ediler.
+"Tabiiy ki, — dey Çepurina,— örnekke bu adnı yalıboyu köylerinde bereler".
+
+Kölemlice baqqanda, romb — yer bereketi ğayesiniñ temsiliy ifadesidir.
+O, sadelik, tertip, aqiqatnı aks ettirgen temelli strukturanı tasvirlegen.
+L.V.Petrenko qayd etkeni kibi turkmen ve kavkaz kilimlerindeki romblar qırımtatar evciyarlarında rastkelgen romblarğa oşaylar.
+Kerçekten de, Avrasiya türk tilli qabileleriniñ umumiy bediiy mirasınen bağlı olaraq, elementlerniñ tamırı birdir, lâkin, adı añılğan müellif qayd etkeni kibi, elementniñ "tarantulnen" alıp berecegi yoq.
+"Filisli" rombnıñ negizinde — ayvanlarnı (quş ve qoylarnı) qorçalayıcı mevzular ile qadimiy qabile temsilleridir.
+Bu elementler ayvanasrayıcı türk tilli qabilelerniñ sanatına hastır.
+Qırımtatar toqumacılığında olarnıñ saqlanıp qalınuvı qırımtatar sanatınıñ çeşit qatlamlı çöl medeniyeti ananeleriniñ qaviyligini tasdiqlamaqta.
+Örnekler eski tiplerini saqlap qalaraq, dekorativ deñişmelerge oğradılar, ve bunıñnen bütün qırımtatar sanatınıñ hususiyetlerini aks ettirdiler.
+
+Daa bir keniş darqağan mevzu — "üçköşelik" (halq arasında — "üçköşe"), yerniñ meyva bergen küçleri erkek ve qadın cınıslarnıñ temsili olğan rombdan peyda ölgan şekildir.
+Meselâ, kelinniñ ciyezi sarılğan boğçalarnıñ köşelerinde de üçköşelikler nağışlanğanı tesaduf degildir.
+
+Örnekli toqumacılıqta ekseriyet doğru, yatıq, dalğalı sızıqlar işlete turğanlar.
+Antik devirlerden belli "meandra" mevzusı da sıq rastkele.
+Qırımtatarlar bu örnekke "aylanğan suv" dep, oña soñsuzlıq temsilini bere ediler.
+
+Köçebe çöl medeniyetiniñ miraslarına tamğa elementleri de kireler.
+Daa yaqın keçmişte olarnı belli bir qabilege ait olğan ayvanlarnı belgilemek içün faydalana ediler.
+"Olarnıñ bazıları, 1926 senesi O. Aqçoqaraqlı derc etken qırımtatar tamğalarına ve orta asırlı Qırımnıñ nişanlarına oşaylar".
+Olar ayvanasravcılar turmuşına ait eşyaları — nal, yay ve ilâhre eşyalarnıñ üslüpleştirilgen tasvirlerinden ibarettir.
+Nağışlarda tamğa endi qabile emiyetini ğayıp etip, qorçalayıcı temsilni alğan.
+Qadimiy zamanlarda, usta öz eşyasını örneklerken, tasvirniñ mana ve temsiline büyük emiyet bergen, çünki qabile, qorantanıñ maddiy vaziyeti, qısmeti, sağlığını bu temsillernen bağlay ediler.
+Vaqıt keçken sayın örnekniñ tılsımlı emiyeti silinip, toqumacılar bazıda olarğa şiiriy ya da şaqiy adlar bergenler, meselâ — tavuq ayağı, yılan izi, horaz kikirigi, sıçan tiş ve ilâhre.
+
+Niayet, nağışlarda rastkelgen epigrafik örnekni de qayd etmeli.
+Ekseriyet, bu — Qurandan parçalar, şiiriy satırlar, "inşalla", "maşalla", "hayırlı olsun" degen isteklerdir, olarnı medalyonlarnıñ içinde ya da şeritlerde yerleştirgenler.
+
+Ameliy sanat eşyalarınıñ üstüne yazılar yapmaq adeti ІХ-ХІ asırlarğa ait İran kirametinen beraber kelgendir.
+Yazılar qırımtatar yaşyalarında da peyda oluvını İran sanatı tesiriniñ neticesi kibi qabul etmelidir.
+Arap nash yazısı ile işlengen yazılar öz üslübi boyunca ösümlik dekorından farq etmey — olarnı dalğalı, nazik sızıqlarnıñ nomaylığı birleştire.
+Lâkin yazılar er vaqıt renkli olğanınen ayırılıp turğan.
+Yazılarnıñ bazıları oqula, bazılarını ise oqumaqnıñ çaresi yoq edi.
+Oqulğan yazılarnı, ihtimal erkekler yazğandır, soñra olarnı,belki de, bazı sebeplerge köre, yazmağa bilmegen qadınlar ya da qızlar işlegendir.
+Oqulmağan yazılarnı ise (arifleri, sözleri qaçırılğan, hatalı, yañlış yazılğan) qadınlarnıñ özleri yazıp, özleri nağışlağanlar.
+Neticede yazı öz manasını ve emiyetini yoq etip, adiy örnekke çevirilgen.
+Şunı da qayd etmeli ki, böyle allar tek caillikniñ neticesinde olmayıp, sanatnıñ başqa çeşitlerinde de em yalıñız qırımtatarlarda degil, başqa musulman halqlarnıñ sanatında da yüz bergen.
+Mimarcılıq dekorında, kilim ve kirametlerde yapılğan arap yazıları vaqıt keçken sayın üslüpleştirilgen ve oqulmağan harakter taşıp başlaylar.
+Olarnıñ oqulması mecbur degil edi.
+Bu alnı "yazı belgi olaraq, yañğırağan nutqqa nisbeten, ziyade emiyetke malik edi..., arap yazısınıñ belgiler vazifesine konkret malümatnı bermekten gayrı, onıñdaa büyük vazifesi bar — Qurannıñ sözlerinden mücessemleşken, samimiylik tili olğan arap yazılarnıñ muqaddes vazifelerini eda etmekteler.
+İlle arap elifbesi, onıñ formal hususiyetleri oquycını ya da adiy seyircini başqa seviyedeki degerliklerge yollaylar...".
+Qırımtatar milliy nağışlarındaki yazılar, mimarcılıq dekorındaki yazılar kibi, olarnıñ mündericesine baqmadan, em süslendirici rol oynağanlar, em "bu yadikârlıqlar ille musulman diniy cemiyetlerge ait olğanını tasdiqlağanlar".
+
+Bazıda yazılar terbiyeviy harakter de taşığanlar.
+meselâ, YE. Spasskaya yüzbezlerdeki yazılarnıñ tercimelerini bere: "Ekiyüzlü, fikirsiz, ahmaq insan şeyniñ tek tışqı qıyafeti ve şekilini begene", "Biz, bütün degerliklerniñ negizi olğan qadınlar, onıñ içün bir şey degilmiz", "Bar da, böyle ahmaq ve cailge özüñni begendir, muqaddeslikniñ dadını bilmegen kimsege bütün muqaddes varlığıñnı ber".
+Böyle yazılar olarnıñ tek musulman sanatına ait olğanını tasdiqlamaqtan ğayrı, qadınnıñ cemiyetteki vaziyetini harakterizley.
+Şuña emin olmaq mümkün ki, bu yazılarnı bilgili.şeerli qadınlar yapqanlar, böyle al köyde olabilecegine inanmaq küç.
+
+Kolorit — qırımtatar nağış istisalı deviriniñ işançlı şaatıdır: resimniñ boyası qattı reglamentirlengen edi.
+Mavı, sarı, beyaz tüsler XVIII asırnıñ eşyalarına ait; mavı, sarı, qırmızı — HVІІІ-HІH asırlarğa; qırmızı, sarı, qara — XIX asırnıñ ekinci yarısına ait edi.
+
+Bunıñnen birlikte, YE. Spasskaya qayd etkenine köre, "tatar qadınlarınıñ sevgen tüsleri — nazik renklerniñ açıq aenkleri: gülgüli-yeşilli, mavımtılı-sarılı, dep saymaq mümkün; qaramtıraq renkler de rastkeleler, lâkin olarnı da açıqça, altın ve kümüş yiplernen yımşatalar...
+Örnekniñ ayrı elementi bir ya da birqaç tüsnen nağışlanması mümkün edi.
+Meselâ, çeçekniñ bir yaprağı bir tüs, qalğanları — başqa tüsnen işlene bile".
+Bu qaydlar, qırımtatar nağışınıñ koloristik harakteristikaları sıñırsız olıp, nağışçı usta qadınlar temelleşken qaidelerge riayet etmeknen bir sırada, öz isteklerine köre, çeşit renklerni işletip mustaqil icat etkenlerini tasdiqlamaqta.
+Kolorit qırımtatar nağışınıñ eñ müim estetik degerliklerinden birisi ola.
+XIX asırnıñ eşyaları XX asırnıñ başlarındaki eşyalardan aynı koloritleri ile büyük farq ete ediler.
+Ayvan ve ösümliklerden asıl olğan tabiiy boyalar azırlav sırları qırımtatarlarğa yaqın tanış edi.
+Boyalarnı ösümliklerniñ tamır, pıtaq, qabuğı, yapraq, çeçek ve meyvalarından azırlay ediler.
+Boyanıñ keyfiyeti, tüsniñ qoyulıgı ösümlikniñ cıyılğan vaqtına (yıl mevsimi, sutkanıñ qaysı saatinde), saqlav şaraitlerine, işletilgen tehnologiyağa bağlı edi.
+Taze ösümliklernen boyalansa, ötkür, intensiv renkler ola; qurutılğan otlarnen ise — renkler tınıq ola edi.
+Boyanı tuttırmaq içün köktaş, saçqıdrız, şap ya da ekşiliklerden faydalanğanlar.
+Aynı bir boya çeşit tuttırıcılar ile iştelgen alda başqa-başqa tüsler asıl etken, tuttırıcı az miqdarda işletilse açıq tüs, ziyade işletilse — qoyu tüsler olğan.
+Boyalanmağan yiplerniñ tüsü — bej ya da açıq-qaverenkli olğan.
+Boyacı ustalar yerli ösümliklerden pijma, çobanotu, qılıçotu, ebengomeç ve saire otlardan faydalanğanlar.
+Toqumacılıqta sıq rastkelgen sarı tüs — şafran boyasınıñ neticesidir, amma onıñ paalılığından sebep, ekseriyet barbaristen işlengen boyadan faydalanğanlar, bazıda adiy soğan qabuqlarını işletkenler.
+Qara boya nar qabuqları ya da cevizniñ yeşil qabuqlarından asıl olğan.
+Qırmızı boyanı sandal teregi ya da çeşit aşeratlardan yapqanlar.
+Ustalar yerli ösümlik ve ayvanlardan asıl olğan boyalardan ğayrı İndistan, Turkestan, Türkiye, İrandan ketirilgen çeşit-türlü boyalarnı da çoq işletkenler.
+Bu boyalarnıñ çeşit kombinatsiyaları, çeşit tüslerni bir-birine keliştirüv neticesinde, basma ve yipler acayip renkler alıp, yıllar devamında ağarmayıp öz güzelligini coymay ediler.
+XX asırnıñ soñunda Avropa ve Rusiyeden ketirilgen anilin, himiyaviy boyalarğa keçüv boya azırlav ve yip boyalav ceryanını bayağı yengilleştirdi, amma toqumacılıq eşyalarınıñ dekorativ hususiyetlerine menfiy tesir kösterdi.
+Boyacılıq ustalığı yavaş-yavaş öz ananelerini ğayıp etip başladı, kolorit keskin, qaba oldı, vaqıt keçken soñ boyalar ağarıp başlay edi.
+Bularnıñ episi toqumacılıq esnafınıñ umumiy keyfiyetine tesir etti.
+Toqulğan ve nağışlanğan çeşit bezler, tüb ve üst urbaları, ufaq-tüfek turmuş eşyalarınıñ negizi olaraq — tegiz ya da yolaqlı "atma" basma işletile edi.
+Bu pamuq ya da keten yiplerden toqulğan yengil basma edi.
+Pamuq ve keten Qırımnıñ cenübiy yalıboyunda ve bazı çöl rayonlarında östürilgen.
+Yipler elde işlengeni içün olar er vaqıt tegiz olmağan.
+Köylerde ekseriyet kendir ve qıcıtqan yipi işletilgen, şunıñ içün basma qattı ve qaraca olğan.
+Atmanıñ eni tahminen 30-70 santimetr olğan.
+Atma toqumacılıq esnafında çöl qırımtatar qadınlarına yetecek olmağan.
+Yüksek keyfiyetli yipler Buharadan, Kavkazdan da ketirilgen.
+Öz qaviyligi, tegizligi, inceliginen İstanbul burma yipi belli edi.
+Ondan krepdeşinni añdırğan atma toquy ediler.
+Fırlanta, quşaq, şallarğa işletilecek atma adeti üzre tegiz olğan.
+Kölmek, şalvarlarğa ise yolaqlı atma işletilgen.
+Yipler başta boyalanmağan.
+Tabiiy renkli — beyaz ve krem tüslü olğan.
+Yelaqlı basmalarda qırmızı ve qaverenkli yipler işletilgen.
+XIX asırnıñ soñunda ve XX asırnıñ başında örnekli toqumacılıq esasen aşağıdaki eşyalar ile taqdim etilgen.
+Bu — beyaz çarşaflar, örtüler, paçavralar, maramalar, şerbentler, basma quşaqlar, iç kölmekleri, çeşit bavlar.
+Bu eşyalar kelin ciyeziniñ bir qısımını teşkil etkenler.
+
  
  
  
