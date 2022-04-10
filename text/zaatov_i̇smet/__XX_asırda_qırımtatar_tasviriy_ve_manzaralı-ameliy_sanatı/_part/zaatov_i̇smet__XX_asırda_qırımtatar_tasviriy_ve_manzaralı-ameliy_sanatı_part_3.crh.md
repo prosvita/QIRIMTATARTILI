@@ -1208,7 +1208,7 @@ O, Vizantiya ananelerine meil berse de onıñ Şarq dekorativ sanatına yaqınl�
 
 O devirde Qırımnıñ kiramet istisalı merkezlerinden biri Aluston (şimdiki Aluşta) edi.
 Mında 1992 senesi Orta-Qulleniñ qazılmalarında nomay kiramet parçalarınıñ arasında eki saan bulundı.
-Saanler — kjsek bediiy eserlerdir, olarnıñ çoq detalli mürekkep ve nazik örneklerini qayd etmeli.
+Saanler — kіsek bediiy eserlerdir, olarnıñ çoq detalli mürekkep ve nazik örneklerini qayd etmeli.
 Umumen alğanda, bu eşyalar numayış harakterniy taşıylar ki, sini de qızıl çamurdan yasalğan.
 Tübleri alqalı, beyaz angob üstüne polihrom tökülgen.
 Tapılğan parçalarnıñ koloritinde sarı, qaverenkli tüsler üstünlik eteler.
@@ -1221,7 +1221,7 @@ Bu erte osmanlı kirameti "Millet eşyaları" adınen bellidir.
 Bu eşyalardaki quşlar uçqan alda, yuvada oturğan, yüzüm yapraqları arasında, bir-birine qarşı oturğan alda tasvirlengenler.
 İşbu üslüp XIII ve XIV asırlarğa ait Vizantiya kirametinde tasvirlengen quş şekillerinden büs-bütün ayırıla.
 Qırım kirameti Vizantiya kirametinden renk ceetinden de farq ete (D.Talbot Rays.Vizantiyskaya keramika.).
-Söz sırası, Cumhuriyet qırımtatar sanat müzeyiniñ ekspeditsiyası Dobrucadan ketirgen qırımtatar ustalarınıñ HVІІІ-HІH asırğa ait nağışlarında da quşlar tasviri çoq rastkele.
+Söz sırası, Cumhuriyet qırımtatar sanat müzeyiniñ ekspeditsiyası Dobrucadan ketirgen qırımtatar ustalarınıñ ХVІІІ-ХІХ asırğa ait nağışlarında da quşlar tasviri çoq rastkele.
 Quş tasvirleri qırımtatar torevtikasında da rastkele (Qırımtatar sanat müzeyiniñ fondlarında üstlerinde quş ve balıqlarnıñ siluetleri oyulğan gügümler saqlanmaqta).
 
 Tüstavuq — baqiylik ve canlanuv temsili sayılğan.
