@@ -14,10 +14,12 @@ No answer.
 No answer.
 
 The old lady pulled her spectacles down and looked over them about the room; then she put them up and looked out under them.
-She seldom or never looked THROUGH them for so small a thing as a boy; they were her state pair, the pride of her heart, and were built for "style," not service—she could have seen through a pair of stove-lids just as well.
+She seldom or never looked THROUGH them for so small a thing as a boy.
+they were her state pair, the pride of her heart, and were built for "style," not service—she could have seen through a pair of stove-lids just as well.
 She looked perplexed for a moment, and then said, not fiercely, but still loud enough for the furniture to hear:
+She paused for a moment, thinking,and then she said,not very loudly,but so that the furniture in the room could hear her:
 
-"Well, I lay if I get hold of you I'll—"
+Well, I lay if I get hold of you I'll—"
 
 She did not finish, for by this time she was bending down and punching under the bed with the broom, and so she needed breath to punctuate the punches with.
 She resurrected nothing but the cat.
