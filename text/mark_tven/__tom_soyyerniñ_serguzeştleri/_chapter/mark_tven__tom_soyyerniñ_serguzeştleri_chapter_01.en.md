@@ -39,7 +39,7 @@ What you been doing in there?"
 
 -Nothing.
 
-"Nothing!
+%-How is it nothing?
 Look at your hands.
 And look at your mouth.
 What IS that truck?"
@@ -49,10 +49,11 @@ What IS that truck?"
 "Well, I know.
 It's jam—that's what it is.
 Forty times I've said if you didn't let that jam alone I'd skin you.
-Hand me that switch."
+Hand me that switch.
 
-The switch hovered in the air—the peril was desperate— "My!
-Look behind you, aunt!"
+The switch hovered in the air—the peril was desperate— My!
+
+%- Oh,look behind you, aunt!
 
 The old lady whirled round, and snatched her skirts out of danger.
 The lad fled on the instant, scrambled up the high board-fence, and disappeared over it.
