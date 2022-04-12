@@ -32,12 +32,12 @@ She went to the open door and stood in it and looked out among the tomato vines 
 "I never did see the beat of that boy!"
 % Something rumbled from behind.
  She turned just in time to seize a small boy by the slack of his roundabout and arrest his flight.
-"Y-o-u-u TOM!"
+% Tom,where did you disappear to?
 %- Yes,yes!
 I might 'a' thought of that closet.
 What you been doing in there?"
 
--Nothing.
+- Nothing.
 
 %-How is it nothing?
 Look at your hands.
@@ -65,6 +65,7 @@ His aunt Polly stood surprised a moment, and then broke into a gentle laugh.
 "Hang the boy, can't I never learn anything?
 % Of course, I have to get used to his dirty tricks.
 Ain't he played me tricks enough? 
+% It's time for me to wise up.
 But old fools is the biggest fools there is.
 Can't learn an old dog new tricks, as the saying is.
 But my goodness, he never plays them alike, two days, and how is a body to know what's coming?
