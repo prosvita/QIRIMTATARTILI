@@ -24,11 +24,13 @@ Well, I lay if I get hold of you I'll—"
 She did not finish, for by this time she was bending down and punching under the bed with the broom, and so she needed breath to punctuate the punches with.
 She resurrected nothing but the cat.
 
+She went to the open door and stood in it and looked out among the tomato vines and "jimpson" weeds that constituted the garden.
+% Tom wasn't here either.
+%So old woman lifted up her voice at an angle calculated for distance and shouted:
+
+%- Tom!- she shouted.
 "I never did see the beat of that boy!"
 
-She went to the open door and stood in it and looked out among the tomato vines and "jimpson" weeds that constituted the garden.
-No Tom.
-So she lifted up her voice at an angle calculated for distance and shouted:
 
 "Y-o-u-u TOM!"
 
