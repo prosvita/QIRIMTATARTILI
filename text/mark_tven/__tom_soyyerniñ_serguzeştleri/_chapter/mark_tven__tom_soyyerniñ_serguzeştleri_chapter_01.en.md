@@ -80,6 +80,10 @@ He's my own dead sister's boy!
 Every time I let him off, my conscience does hurt me so, and every time I hit him my old heart most breaks.
 % İ don't know what to do.
 % My heart breaks when I try to hurt him.
+
+% Gospel truth!
+% Here you are: today he is slipping away from school ,which means that İ will punish him tomorrow-let him work hard.
+
 Well-a-well, man that is born of woman is of few days and full of trouble, as the Scripture says, and I reckon it's so.
 He'll play hookey this evening, * and [* Southwestern for "afternoon"] I'll just be obleeged to make him work, tomorrow, to punish him.
 It's mighty hard to make him work Saturdays, when all the boys is having holiday, but he hates work more than he hates anything else, and I've GOT to do some of my duty by him, or I'll be the ruination of the child."
