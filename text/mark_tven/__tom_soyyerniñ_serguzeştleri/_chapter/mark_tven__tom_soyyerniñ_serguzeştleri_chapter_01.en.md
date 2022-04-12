@@ -30,17 +30,14 @@ She went to the open door and stood in it and looked out among the tomato vines 
 
 %- Tom!- she shouted.
 "I never did see the beat of that boy!"
-
-
+% Something rumbled from behind.
+ She turned just in time to seize a small boy by the slack of his roundabout and arrest his flight.
 "Y-o-u-u TOM!"
-
-There was a slight noise behind her and she turned just in time to seize a small boy by the slack of his roundabout and arrest his flight.
-
-"There!
+%- Yes,yes!
 I might 'a' thought of that closet.
 What you been doing in there?"
 
-"Nothing."
+-Nothing.
 
 "Nothing!
 Look at your hands.
