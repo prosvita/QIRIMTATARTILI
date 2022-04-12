@@ -53,7 +53,7 @@ Hand me that switch.
 
 The switch hovered in the air—the peril was desperate— My!
 
-%- Oh,look behind you, aunt!
+%- Oh,look behind you, aunt?!
 
 The old lady whirled round, and snatched her skirts out of danger.
 The lad fled on the instant, scrambled up the high board-fence, and disappeared over it.
@@ -61,9 +61,10 @@ The lad fled on the instant, scrambled up the high board-fence, and disappeared 
 
 His aunt Polly stood surprised a moment, and then broke into a gentle laugh.
 
+% -Prankster boy!
 "Hang the boy, can't I never learn anything?
-
-Ain't he played me tricks enough like that for me to be looking out for him by this time?
+% Of course, I have to get used to his dirty tricks.
+Ain't he played me tricks enough? 
 But old fools is the biggest fools there is.
 Can't learn an old dog new tricks, as the saying is.
 But my goodness, he never plays them alike, two days, and how is a body to know what's coming?
