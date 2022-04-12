@@ -69,11 +69,13 @@ But old fools is the biggest fools there is.
 Can't learn an old dog new tricks, as the saying is.
 But my goodness, he never plays them alike, two days, and how is a body to know what's coming?
 % And the main thing  is that he knows where the limit of my patience is,and if he makes me laugh or even for a minute confuse me, then İ can`t even spank him properely.
+
 I ain't doing my duty by that boy, and that's the Lord's truth, goodness knows.
 Spare the rod and spile the child, as the Good Book says.
 I'm a laying up sin and suffering for us both, I know.
 He's full of the Old Scratch, but laws-a-me!
-he's my own dead sister's boy, poor thing, and I ain't got the heart to lash him, somehow.
+He's my own dead sister's boy!
+ Poor thing, and I ain't got the heart to lash him, somehow.
 Every time I let him off, my conscience does hurt me so, and every time I hit him my old heart most breaks.
 Well-a-well, man that is born of woman is of few days and full of trouble, as the Scripture says, and I reckon it's so.
 He'll play hookey this evening, * and [* Southwestern for "afternoon"] I'll just be obleeged to make him work, tomorrow, to punish him.
