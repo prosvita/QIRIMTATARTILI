@@ -235,7 +235,6 @@ Then Tom said:
 %- Two words!
 % Get it!
 
-
 %-Look at him!
 I could lick you with one hand tied behind me, if I wanted to."
 
@@ -243,6 +242,9 @@ I could lick you with one hand tied behind me, if I wanted to."
 You SAY you can do it."
 
 "Well I WILL, if you fool with me."
+
+%-Ah-ah-ah!
+
 
 "Oh yes—I've seen whole families in the same fix."
 
