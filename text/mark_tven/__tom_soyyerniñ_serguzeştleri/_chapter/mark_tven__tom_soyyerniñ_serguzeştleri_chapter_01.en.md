@@ -136,8 +136,8 @@ His shirt collar was securely sewed.
 %-Okay,okay.
 Well, go 'long with you.
 I'd made sure you'd played hookey and been aswimming.
-But I forgive ye, Tom.
-I reckon you're a kind of a singed cat, as the saying is—better'n you look.
+But I forgive ye, Tom.I reckon you're a kind of a singed cat, as the saying is—better'n you look.
+
 She was half sorry her sagacity had miscarried.
  Аnd half glad that Tom had stumbled into obedient conduct for once.
 
@@ -158,7 +158,7 @@ In a safe place Tom examined two large needles which were thrust into the lapels
 He said:
 "She'd never noticed if it hadn't been for Sid.
 Confound it!
-
+% And what a manner!
 sometimes she sews it with white, and sometimes she sews it with black.
 I wish to gee-miny she'd stick to one or t'other—I can't keep the run of 'em.
 But I bet you I'll lam Sid for that.
