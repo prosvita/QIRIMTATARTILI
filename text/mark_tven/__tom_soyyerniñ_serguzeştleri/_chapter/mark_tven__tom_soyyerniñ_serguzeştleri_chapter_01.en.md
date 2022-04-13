@@ -297,12 +297,12 @@ But neither could get an advantage.
 After struggling till both were hot and flushed, each relaxed his strain with watchful caution, and Tom said:
 
 "You're a coward and a pup.
-I'll tell my big brother on you, and he can thrash you with his little finger, and I'll make him do it, too."
-
+I'll tell my big brother on you, and he can thrash you with his little finger."
+% I will definitely tell him- he will hit you!- he said.
 "What do I care for your big brother?
 I've got a brother that's bigger than he is— and what's more, he can throw him over that fence, too." [Both brothers were imaginary.]
-
-%
+% I also have a brother.
+%He is older than your brother.
 
 "YOUR saying so don't make it so."
 
