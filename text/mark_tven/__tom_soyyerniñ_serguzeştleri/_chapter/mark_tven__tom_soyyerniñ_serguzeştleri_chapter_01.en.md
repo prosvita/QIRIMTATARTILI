@@ -158,6 +158,7 @@ In a safe place Tom examined two large needles which were thrust into the lapels
 He said:
 "She'd never noticed if it hadn't been for Sid.
 Confound it!
+
 sometimes she sews it with white, and sometimes she sews it with black.
 I wish to gee-miny she'd stick to one or t'other—I can't keep the run of 'em.
 But I bet you I'll lam Sid for that.
