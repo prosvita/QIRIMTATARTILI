@@ -196,15 +196,15 @@ If one moved, the other moved—but only sidewise, in a circle.
 
 Finally Tom said:
 
-"I can lick you!"
+-Do you want me to hit you?-he asked.
 
-"I'd like to see you try it."
+-I'd like to see you try it!
 
 "Well, I can do it."
 
 "No you can't, either."
 
-"Yes I can."
+% If I want,I will hit you.
 
 "No you can't."
 
