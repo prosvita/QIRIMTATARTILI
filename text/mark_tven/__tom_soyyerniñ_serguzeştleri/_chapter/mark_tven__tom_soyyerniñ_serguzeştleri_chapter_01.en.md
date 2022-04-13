@@ -62,7 +62,7 @@ The lad fled on the instant, scrambled up the high board-fence, and disappeared 
 His aunt Polly stood surprised a moment, and then broke into a gentle laugh.
 
 % -Prankster boy!
-"Hang the boy, can't I never learn anything?
+
 % Of course, I have to get used to his dirty tricks.
 Ain't he played me tricks enough? 
 % It's time for me to wise up.
@@ -84,8 +84,8 @@ Every time I let him off, my conscience does hurt me so, and every time I hit hi
 % Gospel truth!
 % Here you are: today he is slipping away from school ,which means that İ will punish him tomorrow-let him work hard.
 It's mighty hard to make him work Saturdays, when all the boys is having holiday, but he hates work more than he hates anything else, and I've GOT to do some of my duty by him, or I'll be the ruination of the child."
-Well-a-well, man that is born of woman is of few days and full of trouble, as the Scripture says, and I reckon it's so.
-He'll play hookey this evening, * and [* Southwestern for "afternoon"] I'll just be obleeged to make him work, tomorrow, to punish him.
+
+
 % Tom didn't go to school today.
 % So he had a great time.
 He got back home barely in season to help Jim, the small colored boy, saw next-day's wood and split the kindlings before supper.
@@ -102,7 +102,7 @@ Said she:
 
 "Powerful warm, warn't it?"
 
-"Yes'm."
+-Yes,madam.
 
 "Didn't you want to go in a-swimming, Tom?"
 
