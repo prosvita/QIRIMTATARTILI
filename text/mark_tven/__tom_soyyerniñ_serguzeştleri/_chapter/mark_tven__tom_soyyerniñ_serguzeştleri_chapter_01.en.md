@@ -120,7 +120,8 @@ And it flattered her to reflect that she had discovered that the shirt was dry w
 But in spite of her, Tom knew where the wind lay, now,so he forestalled what might be the next move:
 
 "Some of us pumped on our heads—mine's damp yet.
-See?"
+% My hair is still wet.
+See?"-he asked.
 
 Aunt Polly was vexed to think she had overlooked that bit of circumstantial evidence, and missed a trick.
 Then she had a new inspiration:
