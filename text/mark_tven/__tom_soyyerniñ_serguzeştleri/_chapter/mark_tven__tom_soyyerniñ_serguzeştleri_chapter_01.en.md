@@ -191,14 +191,14 @@ The more Tom stared at the splendid marvel, the higher he turned up his nose at 
 
 % The two boys stared at each other in silence.
 If one moved, the other moved—but only sidewise, in a circle.
-% They didn't take their eyes off each other.
+%They didn't take their eyes off each other.
 
 
 Finally Tom said:
 
 -Do you want me to hit you?-he asked.
 
--I'd like to see you try it!
+-Hit,I'd like to see it!
 
 "Well, I can do it."
 
@@ -243,7 +243,7 @@ You SAY you can do it."
 
 "Well I WILL, if you fool with me."
 
-%-Ah-ah-ah!
+
 % We've seen a lot like you!
 
 
@@ -251,7 +251,7 @@ Oh, what a hat!"
 
 %-Don`t you like it?
 "You can lump that hat if you don't like it.
-I dare you to knock it off—and anybody that'll take a dare will suck eggs."
+
 "You're a liar!"
 
 "You're another liar."
@@ -262,11 +262,9 @@ I dare you to knock it off—and anybody that'll take a dare will suck eggs."
 
 "Say—if you give me much more of your sass I'll take and bounce a rock off'n your head."
 
-"Oh, of COURSE you will."
 
-"Well I WILL."
 
-"Well why don't you DO it then?
+
 %- Then what are you waiting for?
 % You only know how to scare,but in reality you can`t prove anything.
 It's because you're afraid."
@@ -319,7 +317,7 @@ The new boy stepped over promptly, and said:
 
 "Now you said you'd do it, now let's see you do it."
 
-"Don't you crowd me now; you better look out."
+
 
 
 "Well, you SAID you'd do it—why don't you do it?"
@@ -339,7 +337,7 @@ The boy only struggled to free himself.
 He was crying—mainly from rage.
 "Holler 'nuff!"—and the pounding went on.
 
-At last ,a stranger with a strangled voice:
+% Finally,the boy mumbled:
 
  "'Nuff!" and Tom let him up and said:
 
@@ -358,4 +356,4 @@ So he went away; but he said he "'lowed" to "lay" for that boy.
 
 He got home pretty late that night, and when he climbed cautiously in at the window, he uncovered an ambuscade, in the person of his aunt.
  When she saw the state his clothes were in her resolution to turn his Saturday holiday into captivity at hard labor became adamantine in its firmness.
-% Her decision was harder than a diamond.
+% Decision was harder than a diamond.
