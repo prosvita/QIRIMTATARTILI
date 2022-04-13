@@ -195,6 +195,7 @@ If one moved, the other moved—but only sidewise, in a circle.
 
 
 Finally Tom said:
+
 "I can lick you!"
 
 "I'd like to see you try it."
@@ -211,26 +212,28 @@ Finally Tom said:
 
 "You can't."
 
-"Can!"
+" I can!"
 
-"Can't!"
+" You can't!"
 
-An uncomfortable pause.
+% Both fell silent.
 Then Tom said:
 
-"What's your name?"
+"What's your name?" - he asked.
 
-"'Tisn't any of your business, maybe."
+"'isn't any of your business, maybe."
 
 "Well I 'low I'll MAKE it my business."
 
 "Well why don't you?"
 
+
 "If you say much, I will."
 
-"Much—much—MUCH.
-There now."
-
+%- Two words!
+%- Two words!
+%- Two words!
+% Get it!
 "Oh, you think you're mighty smart, DON'T you?
 I could lick you with one hand tied behind me, if I wanted to."
 
