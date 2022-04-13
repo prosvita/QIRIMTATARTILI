@@ -246,18 +246,15 @@ You SAY you can do it."
 %-Ah-ah-ah!
 % We've seen a lot like you!
 
-"Oh yes—I've seen whole families in the same fix."
 
-"Smarty!
-You think you're SOME, now, DON'T you?
 Oh, what a hat!"
 
+%-Don`t you like it?
 "You can lump that hat if you don't like it.
 I dare you to knock it off—and anybody that'll take a dare will suck eggs."
-
 "You're a liar!"
 
-"You're another."
+"You're another liar."
 
 "You're a fighting liar and dasn't take it up."
 
