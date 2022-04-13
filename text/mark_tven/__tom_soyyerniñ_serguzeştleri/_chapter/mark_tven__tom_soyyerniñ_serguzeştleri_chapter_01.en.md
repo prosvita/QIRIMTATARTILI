@@ -90,15 +90,15 @@ He'll play hookey this evening, * and [* Southwestern for "afternoon"] I'll just
 % So he had a great time.
 He got back home barely in season to help Jim, the small colored boy, saw next-day's wood and split the kindlings before supper.
 Аt least he was there in time to tell his adventures to Jim while Jim did three-fourths of the work.
-Tom's younger brother (or rather halfbrother) Sid was already through with his part of the work (picking up chips), for he was a quiet boy, and had no adventurous, trouble-some ways.
+Tom's younger brother (or rather halfbrother) Sid was already through with his part of the work (picking up chips).
+ He was a quiet boy, and had no adventurous, trouble-some ways.
 
 While Tom was eating his supper, and stealing sugar as opportunity offered, Aunt Polly asked him questions that were full of guile, and very deep—for she wanted to trap him into damaging revealments.
 Like many other simple-hearted souls, it was her pet vanity to believe she was endowed with a talent for dark and mysterious diplomacy, and she loved to contemplate her most transparent devices as marvels of low cunning.
 Said she:
-
 "Tom, it was middling warm in school, warn't it?"
 
-"Yes'm."
+%-Yes,madam.
 
 "Powerful warm, warn't it?"
 
@@ -162,7 +162,7 @@ Confound it!
 sometimes she sews it with white, and sometimes she sews it with black.
 I wish to gee-miny she'd stick to one or t'other—I can't keep the run of 'em.
 But I bet you I'll lam Sid for that.
-I'll learn him!"
+
 He was not the Model Boy of the village.
 He knew the model boy very well though—and loathed him.
 
@@ -172,7 +172,8 @@ This new interest was a valued novelty in whistling, which he had just acquired 
 It consisted in a peculiar bird-like turn.
  Produced by touching the tongue to the roof of the mouth,at short intervals in the midst of the music.
  The reader probably remembers how to do it, if he has ever been a boy.
-Diligence and attention soon gave him the knack of it, and he strode down the street with his mouth full of harmony and his soul full of gratitude.
+Diligence and attention soon gave him the knack of it.
+ And he strode down the street with his mouth full of harmony and his soul full of gratitude.
 He felt much as an astronomer feels who has discovered a new planet—no doubt, as far as strong, deep, unalloyed pleasure is concerned, the advantage was with the boy, not the astronomer.
 
 The summer evenings were long.
