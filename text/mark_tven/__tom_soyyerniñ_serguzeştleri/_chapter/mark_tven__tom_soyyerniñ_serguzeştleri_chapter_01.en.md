@@ -277,9 +277,8 @@ It's because you're afraid."
 
 "I ain't."
 
-"You are."
-
-Another pause, and more eying and sidling around each other.
+% The boys fell silent.
+%Both continued to stand ,they seemed to be eating each other with their eyes.
 Presently they were shoulder to shoulder.
 Tom said:
 
