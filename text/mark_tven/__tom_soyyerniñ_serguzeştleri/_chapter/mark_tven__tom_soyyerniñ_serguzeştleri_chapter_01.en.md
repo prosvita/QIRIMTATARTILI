@@ -133,14 +133,13 @@ The trouble vanished out of Tom's face.
 He opened his jacket.
 His shirt collar was securely sewed.
 
-"Bother!
+%-Okay,okay.
 Well, go 'long with you.
 I'd made sure you'd played hookey and been aswimming.
 But I forgive ye, Tom.
 I reckon you're a kind of a singed cat, as the saying is—better'n you look.
-THIS time."
-
-She was half sorry her sagacity had miscarried, and half glad that Tom had stumbled into obedient conduct for once.
+She was half sorry her sagacity had miscarried.
+ Аnd half glad that Tom had stumbled into obedient conduct for once.
 
 But Sidney said:
 
