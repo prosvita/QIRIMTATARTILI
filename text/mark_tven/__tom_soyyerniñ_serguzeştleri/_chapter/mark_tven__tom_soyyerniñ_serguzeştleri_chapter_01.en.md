@@ -107,16 +107,17 @@ Said she:
 "Didn't you want to go in a-swimming, Tom?"
 
 A bit of a scare shot through Tom—a touch of uncomfortable suspicion.
-He searched Aunt Polly's face, but it told him nothing.
+He searched Aunt Polly's face.
+ But it told him nothing.
 So he said:
 
 "No'm—well, not very much."
 
 The old lady reached out her hand and felt Tom's shirt, and said:
 
-"But you ain't too warm now, though." And it flattered her to reflect that she had discovered that the shirt was dry without anybody knowing that that was what she had in her mind.
-But in spite of her, Tom knew where the wind lay, now.
-So he forestalled what might be the next move:
+"But you ain't too warm now, though."
+And it flattered her to reflect that she had discovered that the shirt was dry without anybody knowing that that was what she had in her mind.
+But in spite of her, Tom knew where the wind lay, now,so he forestalled what might be the next move:
 
 "Some of us pumped on our heads—mine's damp yet.
 See?"
