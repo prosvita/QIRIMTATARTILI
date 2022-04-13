@@ -299,11 +299,11 @@ After struggling till both were hot and flushed, each relaxed his strain with wa
 "You're a coward and a pup.
 I'll tell my big brother on you, and he can thrash you with his little finger."
 % I will definitely tell him- he will hit you!- he said.
-"What do I care for your big brother?
-I've got a brother that's bigger than he is— and what's more, he can throw him over that fence, too." [Both brothers were imaginary.]
+"What do I care for your big brother? 
+%I`m not afraid of your brother.
 % I also have a brother.
 %He is older than your brother.
-
+My brother can throw him over that fence, too." [Both brothers were imaginary.]
 "YOUR saying so don't make it so."
 
 Tom drew a line in the dust with his big toe, and said:
