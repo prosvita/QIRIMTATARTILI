@@ -340,11 +340,12 @@ The boy only struggled to free himself.
 He was crying—mainly from rage.
 "Holler 'nuff!"—and the pounding went on.
 
-At last the stranger got out a smothered "'Nuff!" and Tom let him up and said:
+At last ,a stranger with a strangled voice:
+
+ "'Nuff!" and Tom let him up and said:
 
 "Now that'll learn you.
 Better look out who you're fooling with next time."
-
 The new boy went off brushing the dust from his clothes, sobbing, snuffling, and occasionally looking back and shaking his head and threatening what he would do to Tom the "next time he caught him out." To which Tom responded with jeers, and started off in high feather, and as soon as his back was turned the new boy snatched up a stone, threw it and hit him between the shoulders and then turned tail and ran like an antelope.
 Tom chased the traitor home, and thus found out where he lived.
 He then held a position at the gate for some time, daring the enemy to come outside, but the enemy only made faces at him through the window and declined.
