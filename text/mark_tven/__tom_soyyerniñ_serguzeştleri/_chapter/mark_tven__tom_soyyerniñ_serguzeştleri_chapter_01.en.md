@@ -293,6 +293,7 @@ Tom said:
 So they stood, each with a foot placed at an angle as a brace.
  They were glowering at each other with hate.
 But neither could get an advantage.
+% Some time they continued to push each other.
 After struggling till both were hot and flushed, each relaxed his strain with watchful caution, and Tom said:
 
 "You're a coward and a pup.
