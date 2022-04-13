@@ -267,8 +267,8 @@ I dare you to knock it off—and anybody that'll take a dare will suck eggs."
 "Well I WILL."
 
 "Well why don't you DO it then?
-What do you keep SAYING you will for?
-Why don't you DO it?
+%- Then what are you waiting for?
+% You only know how to scare,but in reality you can`t prove anything.
 It's because you're afraid."
 
 "I AIN'T afraid."
