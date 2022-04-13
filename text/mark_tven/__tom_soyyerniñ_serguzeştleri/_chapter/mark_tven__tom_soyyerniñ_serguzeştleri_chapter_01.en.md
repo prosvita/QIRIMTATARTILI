@@ -26,21 +26,21 @@ She resurrected nothing but the cat.
 
 She went to the open door and stood in it and looked out among the tomato vines and "jimpson" weeds that constituted the garden.
 % Tom wasn't here either.
-%So old woman lifted up her voice at an angle calculated for distance and shouted:
+% Raising her voice so that she could be heard very far away,the old women:
 
 %- Tom!- she shouted.
-"I never did see the beat of that boy!"
+
 % Something rumbled from behind.
  She turned just in time to seize a small boy by the slack of his roundabout and arrest his flight.
 % Tom,where did you disappear to?
 %- Yes,yes!
-I might 'a' thought of that closet.
+%I forgot to look at the store.
 What you been doing in there?"
 
 - Nothing.
 
 %-How is it nothing?
-Look at your hands.
+Look at your hands. 
 And look at your mouth.
 What IS that truck?"
 
