@@ -111,7 +111,7 @@ He searched Aunt Polly's face.
  But it told him nothing.
 So he said:
 
-"No'm—well, not very much."
+-No'm—well, not very much,-he said.
 
 The old lady reached out her hand and felt Tom's shirt, and said:
 
