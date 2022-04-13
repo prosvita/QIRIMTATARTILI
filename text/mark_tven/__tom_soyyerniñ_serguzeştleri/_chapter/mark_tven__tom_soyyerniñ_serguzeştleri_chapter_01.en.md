@@ -84,7 +84,7 @@ Every time I let him off, my conscience does hurt me so, and every time I hit hi
 % Gospel truth!
 % Here you are: today he is slipping away from school ,which means that İ will punish him tomorrow-let him work hard.
 It's mighty hard to make him work Saturdays, when all the boys is having holiday, but he hates work more than he hates anything else, and I've GOT to do some of my duty by him, or I'll be the ruination of the child."
-
+% This time I will not be able to punish him,otherwise I will completely destroy him.
 
 % Tom didn't go to school today.
 % So he had a great time.
