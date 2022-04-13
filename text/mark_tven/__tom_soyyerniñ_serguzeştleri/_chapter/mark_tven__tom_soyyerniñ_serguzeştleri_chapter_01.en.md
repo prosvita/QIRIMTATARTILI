@@ -347,9 +347,12 @@ At last ,a stranger with a strangled voice:
 Better look out who you're fooling with next time."
 The new boy went off brushing the dust from his clothes, sobbing, snuffling, and occasionally looking back and shaking his head and threatening what he would do to Tom the "next time he caught him out."
 %Tom said "yes,of course,of course!"laughing at him and went home proud of his victory.
-To which Tom responded with jeers, and started off in high feather, and as soon as his back was turned the new boy snatched up a stone, threw it and hit him between the shoulders and then turned tail and ran like an antelope.
+% And as soon as he turned his back,the boy grabbed the stone and threw it.
+ And hit him between the shoulders.
+ He then turned tail and ran like an antelope.
 Tom chased the traitor home, and thus found out where he lived.
-He then held a position at the gate for some time, daring the enemy to come outside, but the enemy only made faces at him through the window and declined.
+He then held a position at the gate for some time, daring the enemy to come outside.
+ But the enemy only made faces at him through the window and declined.
 At last the enemy's mother appeared, and called Tom a bad, vicious, vulgar child, and ordered him away.
 So he went away; but he said he "'lowed" to "lay" for that boy.
 
