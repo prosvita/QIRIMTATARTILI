@@ -198,7 +198,7 @@ Finally Tom said:
 
 -Do you want me to hit you?-he asked.
 
--Hit,I'd like to see it!
+%-Hit,I'd like to see it!
 
 "Well, I can do it."
 
@@ -334,7 +334,7 @@ Presently the confusion took form, and through the fog of battle Tom appeared, s
 % -"Holler 'nuff!-Tom demanded.
 
 The boy only struggled to free himself.
-He was crying—mainly from rage.
+
 "Holler 'nuff!"—and the pounding went on.
 
 % Finally,the boy mumbled:
