@@ -153,9 +153,9 @@ As he went out at the door he said:
 
 "Siddy, I'll lick you for that."
 
-In a safe place Tom examined two large needles which were thrust into the lapels of his jacket, and had thread bound about them—one needle carried white thread and the other black.
+In a safe place Tom examined two large needles which were thrust into the lapels of his jacket.
+ % The were wrapped with threads : one- white, the other one-black.
 He said:
-
 "She'd never noticed if it hadn't been for Sid.
 Confound it!
 sometimes she sews it with white, and sometimes she sews it with black.
