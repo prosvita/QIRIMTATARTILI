@@ -180,8 +180,7 @@ The summer evenings were long.
 It was not dark, yet.
 Presently Tom checked his whistle.
 A stranger was before him—a boy a shade larger than himself.
-A newcomer of any age or either sex was an impressive curiosity in the poor little shabby village of St.
-Petersburg.
+A newcomer of any age or either sex was an impressive curiosity in the poor little shabby village of St.Petersburg.
 This boy was well dressed, too—well dressed on a week-day.
 This was simply astounding.
 His cap was a dainty thing, his closebuttoned blue cloth roundabout was new and natty, and so were his pantaloons.
@@ -189,10 +188,12 @@ He had shoes on—and it was only Friday.
 He even wore a necktie, a bright bit of ribbon.
 He had a citified air about him that ate into Tom's vitals.
 The more Tom stared at the splendid marvel, the higher he turned up his nose at his finery and the shabbier and shabbier his own outfit seemed to him to grow.
-Neither boy spoke.
-If one moved, the other moved—but only sidewise, in a circle; they kept face to face and eye to eye all the time.
-Finally Tom said:
+% The two boys stared at each other in silence.
+If one moved, the other moved—but only sidewise, in a circle.
 
+
+
+Finally Tom said:
 "I can lick you!"
 
 "I'd like to see you try it."
