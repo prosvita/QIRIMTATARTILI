@@ -282,7 +282,7 @@ It's because you're afraid."
 Presently they were shoulder to shoulder.
 Tom said:
 
-"Get away from here!"
+-"Get away from here!"
 
 "Go away yourself!"
 
@@ -290,7 +290,8 @@ Tom said:
 
 "I won't either."
 
-So they stood, each with a foot placed at an angle as a brace, and both shoving with might and main, and glowering at each other with hate.
+So they stood, each with a foot placed at an angle as a brace.
+ They were glowering at each other with hate.
 But neither could get an advantage.
 After struggling till both were hot and flushed, each relaxed his strain with watchful caution, and Tom said:
 
