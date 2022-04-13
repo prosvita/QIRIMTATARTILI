@@ -278,7 +278,7 @@ It's because you're afraid."
 "I ain't."
 
 % The boys fell silent.
-%Both continued to stand ,they seemed to be eating each other with their eyes.
+% They continued to stand as if they were trying to eat each other.
 Presently they were shoulder to shoulder.
 Tom said:
 
@@ -302,7 +302,7 @@ I'll tell my big brother on you, and he can thrash you with his little finger, a
 "What do I care for your big brother?
 I've got a brother that's bigger than he is— and what's more, he can throw him over that fence, too." [Both brothers were imaginary.]
 
-"That's a lie."
+%
 
 "YOUR saying so don't make it so."
 
