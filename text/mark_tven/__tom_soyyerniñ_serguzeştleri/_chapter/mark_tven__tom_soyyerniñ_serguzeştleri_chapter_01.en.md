@@ -83,15 +83,13 @@ Every time I let him off, my conscience does hurt me so, and every time I hit hi
 % No wonder the Bible says the human age is short and full of sorrows.
 % Gospel truth!
 % Here you are: today he is slipping away from school ,which means that İ will punish him tomorrow-let him work hard.
-% İt's a pity to force a boy to work when all the children have a holiday,but İ know that work for him is twice as bad as a rod ,and İ must do my duty ,otherwise İ will completely destroy the child's soul.
+It's mighty hard to make him work Saturdays, when all the boys is having holiday, but he hates work more than he hates anything else, and I've GOT to do some of my duty by him, or I'll be the ruination of the child."
 Well-a-well, man that is born of woman is of few days and full of trouble, as the Scripture says, and I reckon it's so.
 He'll play hookey this evening, * and [* Southwestern for "afternoon"] I'll just be obleeged to make him work, tomorrow, to punish him.
 % Tom didn't go to school today.
 % So he had a great time.
-It's mighty hard to make him work Saturdays, when all the boys is having holiday, but he hates work more than he hates anything else, and I've GOT to do some of my duty by him, or I'll be the ruination of the child."
-
-Tom did play hookey, and he had a very good time.
-He got back home barely in season to help Jim, the small colored boy, saw next-day's wood and split the kindlings before supper—at least he was there in time to tell his adventures to Jim while Jim did three-fourths of the work.
+He got back home barely in season to help Jim, the small colored boy, saw next-day's wood and split the kindlings before supper.
+Аt least he was there in time to tell his adventures to Jim while Jim did three-fourths of the work.
 Tom's younger brother (or rather halfbrother) Sid was already through with his part of the work (picking up chips), for he was a quiet boy, and had no adventurous, trouble-some ways.
 
 While Tom was eating his supper, and stealing sugar as opportunity offered, Aunt Polly asked him questions that were full of guile, and very deep—for she wanted to trap him into damaging revealments.
