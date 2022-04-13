@@ -9,7 +9,7 @@ No answer.
 No answer.
 
 "What's gone with that boy, I wonder?
--TOM!
+-Tom!
 
 No answer.
 
@@ -86,6 +86,8 @@ Every time I let him off, my conscience does hurt me so, and every time I hit hi
 % İt's a pity to force a boy to work when all the children have a holiday,but İ know that work for him is twice as bad as a rod ,and İ must do my duty ,otherwise İ will completely destroy the child's soul.
 Well-a-well, man that is born of woman is of few days and full of trouble, as the Scripture says, and I reckon it's so.
 He'll play hookey this evening, * and [* Southwestern for "afternoon"] I'll just be obleeged to make him work, tomorrow, to punish him.
+% Tom didn't go to school today.
+% So he had a great time.
 It's mighty hard to make him work Saturdays, when all the boys is having holiday, but he hates work more than he hates anything else, and I've GOT to do some of my duty by him, or I'll be the ruination of the child."
 
 Tom did play hookey, and he had a very good time.
