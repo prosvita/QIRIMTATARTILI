@@ -278,7 +278,7 @@ It's because you're afraid."
 "I ain't."
 
 % The boys fell silent.
-% They continued to stand as if they were trying to eat each other.
+% They stood still as if they were trying to eat each other.
 Presently they were shoulder to shoulder.
 Tom said:
 
@@ -305,15 +305,15 @@ I'll tell my big brother on you, and he can thrash you with his little finger."
 %He is older than your brother.
 My brother can throw him over that fence, too." [Both brothers were imaginary.]
 
-"YOUR saying so don't make it so."
+%-You are lying!
 
 
 
 Tom drew a line in the dust with his big toe, and said:
 
+%- I will draw the line,be carefull.
+"I dare you to step over that, and I'll lick you till you can't stand up,Anybody that'll take a dare will steal sheep."
 
-"I dare you to step over that, and I'll lick you till you can't stand up.
-Anybody that'll take a dare will steal sheep."
 
 The new boy stepped over promptly, and said:
 
@@ -326,10 +326,14 @@ The new boy stepped over promptly, and said:
 "By jingo!
 for two cents I WILL do it."
 
+
 The new boy took two broad coppers out of his pocket and held them out with derision.
+
 Tom struck them to the ground.
-In an instant both boys were rolling and tumbling in the dirt, gripped together like cats; and for the space of a minute they tugged and tore at each other's hair and clothes, punched and scratched each other's nose, and covered themselves with dust and glory.
+In an instant both boys were rolling and tumbling in the dirt, gripped together like cats.
+ They tugged and tore at each other's hair and clothes, punched and scratched each other's nose. 
 Presently the confusion took form, and through the fog of battle Tom appeared, seated astride the new boy, and pounding him with his fists.
+
 "Holler 'nuff!" said he.
 
 The boy only struggled to free himself.
