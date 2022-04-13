@@ -246,7 +246,7 @@ You SAY you can do it."
 
 % We've seen a lot like you!
 
-
+%- Do you know that everyone is afraid If i pretend to be an arrogant rooster?
 Oh, what a hat!"
 
 %-Don`t you like it?
