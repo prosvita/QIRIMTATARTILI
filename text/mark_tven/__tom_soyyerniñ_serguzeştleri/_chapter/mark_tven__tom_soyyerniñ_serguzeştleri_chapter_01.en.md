@@ -225,8 +225,8 @@ Then Tom said:
 
 "Well I 'low I'll MAKE it my business."
 
-"Well why don't you?"
-
+%-Show me,let`s see.
+%-What you will show?
 
 "If you say much, I will."
 
@@ -234,7 +234,9 @@ Then Tom said:
 %- Two words!
 %- Two words!
 % Get it!
-"Oh, you think you're mighty smart, DON'T you?
+
+
+%-Look at him!
 I could lick you with one hand tied behind me, if I wanted to."
 
 "Well why don't you DO it?
