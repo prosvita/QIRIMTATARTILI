@@ -163,14 +163,15 @@ sometimes she sews it with white, and sometimes she sews it with black.
 I wish to gee-miny she'd stick to one or t'other—I can't keep the run of 'em.
 But I bet you I'll lam Sid for that.
 I'll learn him!"
-
 He was not the Model Boy of the village.
 He knew the model boy very well though—and loathed him.
 
 Within two minutes, or even less, he had forgotten all his troubles.
 Not because his troubles were one whit less heavy and bitter to him than a man's are to a man, but because a new and powerful interest bore them down and drove them out of his mind for the time—just as men's misfortunes are forgotten in the excitement of new enterprises.
 This new interest was a valued novelty in whistling, which he had just acquired from a negro, and he was suffering to practise it un-disturbed.
-It consisted in a peculiar bird-like turn, a sort of liquid warble, produced by touching the tongue to the roof of the mouth at short intervals in the midst of the music—the reader probably remembers how to do it, if he has ever been a boy.
+It consisted in a peculiar bird-like turn.
+ Produced by touching the tongue to the roof of the mouth,at short intervals in the midst of the music.
+ The reader probably remembers how to do it, if he has ever been a boy.
 Diligence and attention soon gave him the knack of it, and he strode down the street with his mouth full of harmony and his soul full of gratitude.
 He felt much as an astronomer feels who has discovered a new planet—no doubt, as far as strong, deep, unalloyed pleasure is concerned, the advantage was with the boy, not the astronomer.
 
