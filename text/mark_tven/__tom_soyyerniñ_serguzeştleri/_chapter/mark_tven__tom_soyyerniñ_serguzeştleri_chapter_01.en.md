@@ -184,13 +184,14 @@ A newcomer of any age or either sex was an impressive curiosity in the poor litt
 This boy was well dressed, too—well dressed on a week-day.
 This was simply astounding.
 His cap was a dainty thing, his closebuttoned blue cloth roundabout was new and natty, and so were his pantaloons.
-He had shoes on—and it was only Friday.
-He even wore a necktie, a bright bit of ribbon.
+He had shoes on—and it was only Friday,he even wore a necktie, a bright bit of ribbon.
 He had a citified air about him that ate into Tom's vitals.
-The more Tom stared at the splendid marvel, the higher he turned up his nose at his finery and the shabbier and shabbier his own outfit seemed to him to grow.
+The more Tom stared at the splendid marvel, the higher he turned up his nose at his finery.
+ % He tried to look at the boy across from him,trying to show disgust at his appearance.
+
 % The two boys stared at each other in silence.
 If one moved, the other moved—but only sidewise, in a circle.
-
+% They didn't take their eyes off each other.
 
 
 Finally Tom said:
