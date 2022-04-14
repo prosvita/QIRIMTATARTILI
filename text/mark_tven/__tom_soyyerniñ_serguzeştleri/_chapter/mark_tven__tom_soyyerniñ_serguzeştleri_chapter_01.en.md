@@ -26,7 +26,7 @@ She resurrected nothing but the cat.
 
 She went to the open door and stood in it and looked out among the tomato vines and "jimpson" weeds that constituted the garden.
 % Tom wasn't here either.
-% Raising her voice so that she could be heard very far away,the old women:
+%  Old woman raising her voice so that she could be heard very far away:
 
 %- Tom!- she shouted.
 
