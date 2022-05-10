@@ -7,8 +7,8 @@ Samimiyetnen degil, mısqıllap küldi.
 
 Külmek asıl da kerek edimi?
 Zeverced oña, er keske belli adetiy şeyni ayttı.
-Özü uydurıp çıqarğanı yeq.
-Ariza degen şey, nasıl olsa olsun: “Meni işke qabul etiñiz!..” degen sezlernen başlay.
+Özü uydurıp çıqarğanı yoq.
+Ariza degen şey, nasıl olsa olsun: “Meni işke qabul etiñiz!..” degen sözlernen başlay.
 
 – Bu – bala bağçası degil, – dep cevap berdi oña tseh başlığı. – Sen adaşqansıñ!
 
