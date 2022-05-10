@@ -49,9 +49,7 @@ O da, qaynatasınıñ sözlerini nasıl etip añlamaq kerekligini bilmey, tiklen
 
 – Sen de! – dedi Çauş.
 Serverge muracaat etip.
-
-Zeverced eyecanğa keldi.
-Babasınıñ qabaca çıqqan emirini yımşatmaq içün nezaketle dedi:
+Zeverced eyecanğa keldi. Babasınıñ qabaca çıqqan emirini yımşatmaq içün nezaketle dedi:
 
 – Kiriñiz, Server!
 Sevimli musafirimiz oluñız!
@@ -59,8 +57,7 @@ Sevimli musafirimiz oluñız!
 Küçük tahta qapunı açtı, babasına keçmege yol berdi, soñra Serverniñ bileginden tutıp, azaçıq ögge çekti... niayet, özü de kirdi.
 
 Şefiqa yenge ocaq başında aş pişirüv ile meşğul edi.
-Qızını ve qocasını beklemekte... amma böyle keç maalde üçünci kişi sürip kelir dep ümüt etkeni yoq.
-Şaştı şaşmaladı.
+Qızını ve qocasını beklemekte... amma böyle keç maalde üçünci kişi sürip kelir dep ümüt etkeni yoq.Şaştı şaşmaladı.
 Ocaq üstünde qaynamaqta olğan qazan böyle müterem musafir içün yufqaca edi.
 
 – Raatsızlanma, apaqay! – dedi Çauş, qarısınıñ acizligini körip, – musafir öz kişimiz!
