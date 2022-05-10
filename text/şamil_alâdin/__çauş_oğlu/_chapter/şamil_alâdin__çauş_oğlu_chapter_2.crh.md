@@ -74,7 +74,6 @@ Alla bilsin.
 Çünki yigit özü yaş edi.
 
 – Şübesiz... – dedi kâtip.
-Bunıñnen, zavoddaki içtimaiy ömür yalıñız özüniñ üstünde qurulğanını añlatmaq istedi.
 
 – Meni anda iç körmediñizmi?
 
@@ -163,7 +162,7 @@ Qız toqtaldı.
 
 – Nasıl mektüpler? – Zeverced taaciplendi. – Biz onı elâk oldı dep bile edik.
 
-Şemsnur, söz Zeverced ile mektüpleşken student üstünde ketmegenini añlağan soñ, qaz kibi, boyunını töpege sozdı.
+Şemsnur, Zeverced ile mektüpleşken student üstünde ketmegenini añlağan soñ, qaz kibi, boyunını töpege sozdı.
 
 – Men sizniñ eviñizdeki sırlarıñıznı qaydan bileyim? – dep taşladı o.
 
@@ -188,8 +187,6 @@ Bularnıñ şeerine keleyata.
 Zevqlı şey.
 Şemsnur bir vaqıtlarda, evde öz başında olğanda, özüni ofitser qadını tasavur etmek istegen edi.
 Taaciplenmege şey yoq qaraman yigitten qoca aqqında qızlarnıñ episi hayallanmağa seve.
-Öyle eken, Şemsnur tüşünip baqmaq, ölçep biçmek kerek.
-Aysa?!
 Zeverced qaç yıllar evelsi, ğaliba, onıñ qarısı cenkte ğayıp olğanını aytqan edi.
 Ebet!
 Ğayıp oldı degen edi.
@@ -202,8 +199,7 @@ Fikir degen şeyden qaçıp qurtulmaq mümkün degil.
 Ne yapmalı?
 Yigirmi beş yaşında ekende öz bahtıñnıñ peşinden avlanmaq kerek ola.
 
-Şemsnur endi merdivenniñ astına tüşken, qapu ögünde toqtalğan edi.
-Bosağadan atlap tışqa çıqıp ketmedi.
+Şemsnur endi merdivenniñ astına tüşken, qapu ögünde toqtalğan edi, bosağadan atlap tışqa çıqıp ketmedi.
 
 – Bunı çar-çapik aytmağanıñ ne? – dedi o Zevercedke.
 
