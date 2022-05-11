@@ -97,6 +97,7 @@ Serov 1893 senesiniñ yazını öz ailesi ile beraber Bağçasaray civarında R.
 S. Lvovanıñ yazlıq evinde keçirgen.
 O vaqıtta etüdlar çızğan.
 “Tatar qadınları” o ziyaretniñ yemişi.
+
 Süret Roma ve Parij sergilerinde bulunğan, alemniñ alğışlarını qazanğan!
 
 Hayalım sürette eken, talğın közlerimni zametle yuqarı köterdim, nazarım pencere ögündeki şımşırğa tüşti.
