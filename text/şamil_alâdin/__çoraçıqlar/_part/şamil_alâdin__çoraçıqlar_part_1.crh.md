@@ -74,6 +74,7 @@ Eki peri eki taş üzerine oturğan, ayaqqaplarını çıqarıp, ayaqlarını su
 Eki peri subet eteler.
 Ah, bu sıcaq közler!
 Bu cilveli baqışlar!
+
 Sizlerni qaysı hoş-baht ana doğurdı aceba?
 
 Dereniñ bir yaqı qayalıq.
@@ -84,6 +85,7 @@ Nasıl köy?
 Ay Serezmi?
 Urkustamı?
 Yoqsa, menim cigerim Mahuldürmi?
+
 Siz, Valentin Aleksandroviç, ğayet alicenap adam ekensiñiz!
 Sanatta böyle şerefli mearet, böyle muammalı bediyet yaratmaq... taacipli şey!
 
