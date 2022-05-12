@@ -322,8 +322,7 @@ Aşaladı.
 Erzaqtan marum etilecegimni ayttı.
 
 – Rica etem, sizge, ocam!
-Menimnen “siz” dep qonuşmañız! – dedim musafirge. – “Sen” deñiz!
-“Siz” deseñiz, pek azaplanam!
+Menimnen “siz” dep qonuşmañız! – dedim musafirge. – “Sen” deñiz!“Siz” deseñiz, pek azaplanam!
 
 Oca evelâ menim sözlerimniñ manasını añlamadı... añlağan soñ özüni sıqıntılı vaziyette is etti.
 Yüzü qızardı.
