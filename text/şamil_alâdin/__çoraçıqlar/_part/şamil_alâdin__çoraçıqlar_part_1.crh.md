@@ -461,11 +461,8 @@ Ağaç ayaqnen serbest yürip olamaysıñ, – dedim Yunusqa. – O sebepten, se
 Semirmek kimse içün faydalı degil.
 Bare, qoltuq tayaqnen yürmege alış!
 Qoltuq tayaqlarnen yürmesi yengil!” Yunusnıñ maña kene canı ağırdı.
-“Qoltuq tayaqlarnen de yürip olamayım.
-Sağ qolum cansız kibi.
-Siñirleri ezilgen, qopqan.
-Bu – qol degil.
-Areketsiz sopa parçası.
+“Qoltuq tayaqlarnen de yürip olamayım,sağ qolum cansız kibi,siñirleri ezilgen, qopqan.
+Bu qol değil,аreketsiz sopa parçası.
 İnanmasañ, özüñ de baq... – O, egildi, sol elinen kölmegini çıqarıp, sağ omuzını maña çevirdi.
 Qoltuğı astında mavı renkli eki oyuq kördim...
 Yüregim sıqletlendi.
