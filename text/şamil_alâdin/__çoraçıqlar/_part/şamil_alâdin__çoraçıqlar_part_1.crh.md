@@ -237,7 +237,8 @@ Muallimlik yer yerde bir.
 
 Men ocanıñ çalıq, aqıllı sözlerini hoşnutlıqnen diñlemekte olıp, aqırından ayaqqa turdım, evde acayip cınıstan kimse yoqluğı sebebinden, özüm aşhanege çıqıp, qave pişirip ketirmek isteginen qapuğa doğruldım, oca niyetimni duyıp, meni toqtattı.
 
-– Zamet etmeñiz! – dedi maña. – Oturıñız, biraz qonuşayıq!
+– Zamet etmeñiz! – dedi maña.
+– Oturıñız, biraz qonuşayıq!
 Menim yarım künlük vaqıtım bar.
 Gece poyezdinen Şahrihanğa qaytacağım. – Qatiyen razı olmadı.
 Meni yerime oturmağa mecbur etti.
@@ -248,6 +249,7 @@ Oca, niçün bilmem, lafını endi bu mevzuda devam etmek istemedi.
 Başındaki qalpağını çıqarıp, yanaşadaki oturğıç üstüne qoydı.
 Damarları kögerik, çökürli qolunen başını, mañlayından tutıp, yelkesine taba, soñra aksine, sıypadı.
 Qalpaqnı alıp, küçük şkaf üstüne qoymaq içün uzandım, oca qalpaqnı oturğıçı taqımınen çetke çekti.
+
 Aldırmadı. – Yoq!
 Yoq!
 Aci-güci!
