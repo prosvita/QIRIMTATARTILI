@@ -153,7 +153,8 @@ Yüzü birden aqçıl renk aldı, maña yarı sevinçli, yarı kederli nazar ta�
 Meni unutmağansıñız!
 
 – Sizni unutmaqmı?
-Bu mümkün degil! – dedim men. – Çünki siz birinci ediñiz.
+Bu mümkün degil! – dedim men.
+– Çünki siz birinci ediñiz.
 Birinciler unutılmay.
 Rica etem, evge buyurıñız!
 
