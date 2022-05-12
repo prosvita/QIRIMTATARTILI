@@ -446,9 +446,7 @@ Sağ qolu eki zeerli qurşun ile ağır yaralanğan.
 Onı Taşkentke ketirdim.
 Ükümet Yunusqa yaşamaq içün şeerniñ merkezinde kvartira ve yengil avtomobil berdi.
 O, bir şeyge ihtiyac sezmey yaşadı.
-“Sen baltanen yasalı ağaç ayaqnen yüresiñ.
-Ükümet saña zavodda yapılğan soyunı berdi.
-Onıñnen niçün yürmeysiñ?” dedim oña bir defa, evini ziyaret etken vaqıtımda.
+“Sen baltanen yasalı ağaç ayaqnen yüresiñ,ükümet saña zavodda yapılğan soyunı berdi,onıñnen niçün yürmeysiñ?” dedim oña bir defa, evini ziyaret etken vaqıtımda.
 Yunus sözlerime ıncındı, asabiylendi.
 Men sezdim, onı ıncıtqan şey – menim sözlerim degil.
 Özüniñ müşkül vaziyeti edi.
