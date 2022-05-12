@@ -168,6 +168,7 @@ Mında işim, zanıma qalsa, tez bite qoymaycaq.
 
 – Afu etiñiz, ocam! – dedim men, – Selâmet mıtlaqa ketmek kerekmi?
 Evimizge kirip, bir filcan qavemizni içse, Nu-Tufanı qopacaqmı? – dep baqtım.
+
 Oca indemedi, güya sözlerimni eşitmedi.
 Mıyıqlı yigit maşinanı biraz artqa berdi, art köpçeklerini solğa aylandırdı, soñra küçlü surat ile demir çabaqlı qapu betke aydap ketti.
 Oña ne “bir filcan qave”, ne de eki ihtiyar kişi arasında olacaq qonuşma kerek degil edi.
@@ -183,7 +184,8 @@ Men, şaşmalap, onıñ sağ qulağınıñ kenarından öptim, o mañlayını me
 Bu teşrifat çoqqa sürdi.
 Bitken soñ kişilik odağa kirip, oturdıq.
 
-– Sizni körüv menim içün büyük şeref, ocam! – dedim men samimiyetle. – Bu ziyaretiñizni, menim şahsiyetime köstergen yüksek itibarıñız dep bilmek kerekim.
+– Sizni körüv menim içün büyük şeref, ocam! – dedim men samimiyetle.
+– Bu ziyaretiñizni, menim şahsiyetime köstergen yüksek itibarıñız dep bilmek kerekim.
 Teşekkür sizge!
 Doğrusı, körüşip olurmız degen ümüdim yoq edi.
 Söyleñiz, muallim, bu yaqlarğa nasıl tüştiñiz?
