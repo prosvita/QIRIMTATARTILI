@@ -192,8 +192,7 @@ Söyleñiz, muallim, bu yaqlarğa nasıl tüştiñiz?
 
 Musafir külümsiredi, sustı.
 Menim ayretli nidalarıma cevap bermege aşıqmadı.
-“Sabur et!
-Episi hususında tafsilâtlı izaat alırsıñ!” dep tüşüngen kibi sezildi.
+“Sabur et!Episi hususında tafsilâtlı izaat alırsıñ!” dep tüşüngen kibi sezildi.
 Müçelerini topladı, pekitti, evelâ içinde çalqanğan araretni, zeinindeki fikirlerni tertipke çekti, soñra şamdam üzerindeki çıraqlarnıñ lipildegen yarığını eslep, ayretle közetti, indemedi.
 Asılında ev içinde iç bir şeyniñ maiyetine itibar bermedi.
 Menim sözlerimni de eşitmedi.
