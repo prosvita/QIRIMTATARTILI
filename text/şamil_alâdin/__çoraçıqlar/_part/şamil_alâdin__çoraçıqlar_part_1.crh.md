@@ -427,7 +427,7 @@ Ruhiy muşaadelerge kelgende, ocanıñ yüregindeki yara alâ taze ekenini añla
 
 – Bilesiñizmi? – dedi maña musafirim. – Men cenkte ölgen adamlarımız hususında yanıqlı haberler çoq eşittim.
 Öyle haberler eşittim ki, cigerlerim telçe-telçe ola yazdılar.
-O sebeptep, ölgenlerden ziyade qalğanlar hususında tüşünmege qarar bergen edim.
+O sebepten, ölgenlerden ziyade qalğanlar hususında tüşünmege qarar bergen edim.
 Qararımnı şimdi özüm bozdım.
 
 – Yoq, oca!
