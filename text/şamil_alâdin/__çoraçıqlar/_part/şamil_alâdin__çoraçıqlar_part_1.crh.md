@@ -475,6 +475,7 @@ Yunus menden üç yaş büyük.
 Bir şeyler tüşüne.
 Men oña keder etmek istemeyim.
 Sükünet çoq devam etti.
+
 “Sen maña, bizim evge, siyrek kelesiñ! – dedi Yunus, niayet, – niçün öyle siyrek kelesiñ?” Men közlerimni aşağı doğrulttım, tüşüncege daldım.
 Niçün siyrek kelem?
 Bunı nasıl añlatırsıñ?
