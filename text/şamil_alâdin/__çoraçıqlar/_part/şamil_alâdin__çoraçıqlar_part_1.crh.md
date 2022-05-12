@@ -219,7 +219,8 @@ Soñra siziñ köyni terk ettim.
 Şeerge, öz evimizge qaytıp keldim.
 Babamız yerindeki Arifmemet ağam darıldı.
 “Niçün keldiñ?
-Özüñe malüm, bizim keçinişimiz de pek ziynetli degil, – dedi maña. – Menim artqaç tamaq baqmağa alım yoq.” “Qayttım, çünki başqa çarem olmadı...” dedim men.
+Özüñe malüm, bizim keçinişimiz de pek ziynetli degil, – dedi maña. – Menim artqaç tamaq baqmağa alım yoq.”
+“Qayttım, çünki başqa çarem olmadı...” dedim men.
 O çoq tüşünip oturdı.
 “Kelmege – keldiñ... ket, Totayköyde oqu!” dedi, niayet.
 Men Arifmemet ağanıñ ögütini küttim.
