@@ -35,7 +35,6 @@ Pek tanış.
 – Yanıñdaki kim?
 
 – Server...
-
 Çoqtan beri beklenilgen körüşüv.
 Kerçek, Çauşta kiyevni geceleyin soqaqta rastketirüv ümüti yoq edi.
 Evelâ, onıñ yürüşini yahşı közden keçirmek içün, uzaqtan körmek, soñ yan-yanaşa, köz-közge kelip qonuşmaq kerek.
@@ -85,9 +84,10 @@ Anda, fuçuda qoqulı muskat bar.
 – Men saña ayttım... – dedi Server, – qapı ögünde turmayıq, dedim.
 İşte, qolğa tüştik!
 
-– Tüştik... soñ, ne oldı? – Zeverced oña itiraz etti. – Qartlar seni körmek istey ediler, körsünler.
+– Tüştik... soñ, ne oldı? – Zeverced oña itiraz etti.
+– Qartlar seni körmek istey ediler, körsünler.
 
-Çauş elinde surali, podvaldan çıqtı.
+Çauş elinde surali,podvaldan çıqtı.
 Stol üstünde şarap, zeytün, patilcan turşusı peyda oldı.
 
 – Stolğa yaqınca oturıñız, – dedi Çauş. – Epiñiz oturıñız.
@@ -100,7 +100,8 @@ Zeverced ümütsizden yüz bergen bu vaqiadan memnün edi.
 
 – Balalarım!
 Sizniñ aqqıñızda eki söz aytmaq isteyim, – dedi Çauş.
-Küz yelinden suvuqlanğanmı, yoqsa, boğazına közyaşı tıqaldımı, o küçlü öksürdi, yutqundı, soñ devam etti: – Men Dilâverni közde tutam.
+Küz yelinden suvuqlanğanmı, yoqsa, boğazına közyaşı tıqaldımı, o küçlü öksürdi, yutqundı, soñ devam etti:
+ – Men Dilâverni közde tutam.
 
 Zeverced taaciplendi.
 
@@ -109,8 +110,7 @@ O balanıñ bu vaqiağa ne alâqası bar?
 
 Çauş qızına baqıp, köküs keçirdi.
 
-– Torunımnı...
-Yoq.
+– Torunımnı...Yoq.
 Men üyken Dilâver aqqında söylemek isteyim.
 Menim Dilâver degen oğlum bar edi... seniñ ağañ!
 
@@ -121,10 +121,10 @@ Sevinç, saadet hususında aytılsa, başqa mesele.
 Öyle adet olğan.
 Evlenüv arfesinde baba, yahut ana balalarğa telqin bermek kerek.
 
-– Şa-ay...
-Soñ? – Zeverced babasınıñ lafınıñ neticesini beklemekte edi.
+– Şa-ay...Soñ? – Zeverced babasınıñ lafınıñ neticesini beklemekte edi.
 
-– O siziñ bahtıñız içün özüni ayamadı, – Çauş kettikçe teren tüşüncelerge daldı, sözleri, öz tüşüncelerine cevap olaraq yañğıradılar. – Adamlarğa ayat bağışladı, özü ise ondan, o ayattan, ketti.
+– O siziñ bahtıñız içün özüni ayamadı.
+ – Çauş kettikçe teren tüşüncelerge daldı, sözleri, öz tüşüncelerine cevap olaraq yañğıradılar. – Adamlarğa ayat bağışladı, özü ise ondan, o ayattan, ketti.
 
 Çauşnıñ sesi qaltıradı, soñ üzüldi.
 Bu saran sözler astında küçlü isler ve fikirler bar edi.
@@ -173,8 +173,7 @@ Lâkin aqsıram öksürem.
 Dilâver közleriniñ qıyığından maña baqtı: “Siziñ ile işlemek elverişli degil... – dedi o maña, – balıqlarnı qorquzasıñız.
 Qarmaqqa kelmeyler.
 Poliklinikağa barıp, körünseñiz, ne ola?” “Qayda o, poliklinika?” dedim men.
-“Bu yerde, yaqında.
-Yürüñiz, köstereyim!” dedi Dilâver.
+“Bu yerde, yaqında.Yürüñiz, köstereyim!” dedi Dilâver.
 Meni öz anasına, Zeynep aptege, alıp keldi.
 Evelâ, anketa toldurdılar.
 Ekim doğğan yerimni oqup bilgen soñ, qaysı yaqlardan kelgenimni soradı.
@@ -254,12 +253,10 @@ Poçtağa kirip baqtım, yoq.
 Kelinniñ susa berüvi yüregine yatmay edi.
 Eki mektüp yazdı – cevap yoq.
 Soñ telegramma yolladı, kene çım-çırt.
-Balanıñ yüregini sınap baqmaq isteymi...
-Alla bilsin!
+Balanıñ yüregini sınap baqmaq isteymi...Alla bilsin!
 Biraz asretlik çekse, qaytıp kelir belleymi?
-Dilâver, kerçekten de, qasevetlene.
-Tüşünceli olıp qaldı.
-Kimerde mektüp dep sandraqlay.
+
+Dilâver, kerçekten de, qasevetlene.Tüşünceli olıp qaldı.Kimerde mektüp dep sandraqlay.
 
 – Mektüp kelir... – Şefiqa yenge torunnı tınçlandırmaq istedi, – Anañnıñ vaqıtı olmasa kerek.
 Belki qabaat poçtanıñ özündedir.
@@ -268,6 +265,7 @@ Mektüpler kimerde kontorlarda yatıp qalalar.
 – Oldı şunı! – Çauş iddetlendi. – Mektüp yazılğan, tezden kelir, demedimmi? – Qartnıñ çeresi, evelki kibi, bunarlı, közleri asretli edi.
 Stol başındakiler ondan endi sevinçli laf beklemediler.
 Mustafa qarısına: – Şarap qoy! – dep işaret etti. – Turuñız, epimizniñ selâmetligimiz içün içeyik!
+
 
 Qadeler alel-acele toldurıldı, köterildi.
 Zeverced ise yerinde areketsiz oturmaqta edi.
