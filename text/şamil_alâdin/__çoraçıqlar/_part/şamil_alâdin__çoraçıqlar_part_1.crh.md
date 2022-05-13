@@ -540,7 +540,6 @@ Oca sol yeñiniñ ucunı azaçıq yuqarı köterip, saatına közetti.
 
 – Qorqam... – dedi o. – Selâmet tezden Çarvaqta işlerini bitirip kelir, men de Taşkentke qaytmağa mecbur olurım.
 Siziñnen lafımız üzülip qalır.
-Yanar-yaqılarım.
 
 – Bizde qalırsıñız! – dedim men. – Laqırdı, içün zaruret büyük.
 Yarın sizni vokzalğa özüm ozğarırım.
@@ -560,7 +559,7 @@ Balalıq çağımda zeinimde basılı qalğan izler şimdi açıldı, sınıfta 
 On sekizde köyüñiz almanlarnıñ qolunda edi.
 Meni soñundan ketirdiler.
 
-– Ebet, apansızdan ketip qaldıñız, ocam! – dedim oña, – men doquz yaşınpda edim.
+– Ebet, apansızdan ketip qaldıñız, ocam! – dedim oña, – men doquz yaşında edim.
 Doquz yaşındaki bala ne bile?
 Ne añlay?
 Siz kettiñiz.
