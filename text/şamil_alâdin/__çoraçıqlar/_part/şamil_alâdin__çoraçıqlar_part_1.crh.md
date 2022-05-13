@@ -105,7 +105,6 @@ Ruzgârdan bükülgen dalları pencereniñ camını tırnap-tırnap almaqtalar.
 Ebediy yeşil şımşır... diger çıplaq terekler suvuq yel altında titreyler, sınalar.
 Bu qaviy bedenli terek, öyle degil.
 Demirden yasalı gemiler suv üstünde yüzeler.
-Batmaylar.
 Bunıñ bir kesegi bata.
 Tabiatnıñ cilvesi!
 
