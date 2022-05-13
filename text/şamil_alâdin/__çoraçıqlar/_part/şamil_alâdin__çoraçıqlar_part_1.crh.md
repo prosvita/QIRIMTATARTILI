@@ -560,7 +560,6 @@ Balalıq çağımda zeinimde basılı qalğan izler şimdi açıldı, sınıfta 
 – Yoq.
 On sekizde köyüñiz almanlarnıñ qolunda edi.
 Meni soñundan ketirdiler.
-Sizde çoq olmadım.
 
 – Ebet, apansızdan ketip qaldıñız, ocam! – dedim oña, – men doquz yaşınpda edim.
 Doquz yaşındaki bala ne bile?
