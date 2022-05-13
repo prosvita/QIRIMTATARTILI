@@ -136,7 +136,6 @@ Kişi aqlı.
 Nezaket sıñırsız degil.
 Bunı añlamaq kerekim.
 Albu ki, men, qapunı açıp, tışqa közetkenimnen, kişini tanıdım.
-Tanığanımnı sezdirmedim.
 Men yalıñız onıñ özüni tanıdım.
 Maşina içindekilerni ilki körüşim.
 
