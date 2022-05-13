@@ -918,7 +918,6 @@ Bu tertipke, umumen, riayet etile.
 Kimerde tertip bozula.
 Bala derske kelmey... demek ki, odun da ketirilmey.
 Derske bir kün on talebe kelmese, yigirmi odun yetişmey.
-Eki golland ocağınıñ biri yaqılmay.
 Soba yanında quru bedenli er kişi ve şeerlice kiyimli yaş qadın, ayaq üstünde turıp, İsmail efendi ile laqırdı etmekteler.
 İsmail efendi menim başımnı köre qaldı.
 
