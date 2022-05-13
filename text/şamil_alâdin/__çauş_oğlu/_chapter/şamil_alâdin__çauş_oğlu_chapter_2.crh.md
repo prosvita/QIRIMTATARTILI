@@ -205,7 +205,7 @@ Yigirmi beş yaşında ekende öz bahtıñnıñ peşinden avlanmaq kerek ola.
 
 – Üstüme atıldıñ.
 Ne yapmaq kerek edim?
-Qorçalandım, – Zeverced kederini birden ayta qoydı,
+Qorçalandım, – Zeverced kederini birden ayta qoydı.
 
 – Meni afu et, tuvğançığım!
 Pek yoruldım. – Elinen mañlayını sıypadı, – Ağañ... ne vaqıt kelecek dediñ?
@@ -285,7 +285,7 @@ Zevercedniñ qaşları çatıldılar.
 Men musafirlikke keldim, – dedi Şemsnur yasama nezaket ile, soñ ilâve etti. – Siziñ evde bayram.
 
 Şemsnur ilâkâr qız.
-Yapqan er şeyi samimiy olıp çıqa, er şeyi yürekni areketke ketire.
+
 Yenge qıznıñ tıqıla bergeniniñ sebebini endi sezdi, amma oña bir şey aytıp olamadı.
 Suvuq qız olsa, oña asıl da qulaq asmaz edi, amma bu sıcaq, ayneci.
 
@@ -300,7 +300,7 @@ Zan etsem, ağası hatirinde yoq.
 
 – Hatirimde bar! – dedi Zeverced.
 
-– Menim de esimde, – Şemsnur közlerini azaçıq yumıp, külümsiredi. – Babamnıñ da esinde.
+– Menim de esimde, – Şemsnur közlerini azçıq yumıp, külümsiredi. – Babamnıñ da esinde.
 Dülber yigit edi dey turğan.
 
 – Öyle edi. – Mustafanıñ davuşında asret ve şefqat duyuldı, – Matrabas oğlumnı bilmek kerek.
@@ -324,7 +324,7 @@ Qıznıñ meramı – bariyelini körmek... özüni de körsetip, soñ yigitniñ
 Gençlik, dülber çere ve naz... bular ile yigitni delirtmek küç degil?
 Tasavurında belki oğlan endi bu qıznıñdır.
 
-Ne aqkı bar?
+Ne aqqı bar?
 Çauşnıñ açuvı qozğalıp ketti.
 Şefiqa ile ekimiz bahtımıznı soñunace bekledik, oğlumız adam olsun dep, oña er şeyni berdik.
 Dilâverniñ özü de adamlarnıñ saadeti oğrunda cenk etti, devlet mesut ayat kördi.
@@ -345,7 +345,7 @@ Qız onı dülber ekeni, ofitser ekeni içün degil, er şeyni cemiyet oğrunda 
 
 – Dülber yigit edi, – dedi Mustafa, ağır tüşüncelerden qurtulmaq, Dilâverniñ yaşlığını tasavur etmek içün.
 
-– Ebet, – Şefiqa terenden köküs keçirdi. – Tali bizge acayip oğul bağış etken edi. – Onıñ tasavurında da, eski evlerinde yaşağan vaqıtta qapudan kirip keleyatqan yaş deñizci köründi. – Ah, menim Dilâverim!
+– Ebet, – Şefiqa terenden köküs keçirdi. – Taаli bizge acayip oğul bağış etken edi. – Onıñ tasavurında da, eski evlerinde yaşağan vaqıtta qapudan kirip keleyatqan yaş deñizci köründi. – Ah, menim Dilâverim!
 
 Çauş terrasağa, bu qadınlar cemiyetinde ah-vah dep, köküs keçirip turmaq içün kelmedi.
 Oña söngen çubuğını yaqmaq kerek edi.
