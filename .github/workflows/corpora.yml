@@ -28,7 +28,7 @@ jobs:
             node:14-buster-slim \
             yarn install
         docker run -t --rm -w /build -v "$(pwd):/build" \
-            -e GITHUB_TOKEN={{ secrets.GITHUB_TOKEN }} \
+            -e GITHUB_TOKEN="{{ secrets.GITHUB_TOKEN }}" \
             node:14-buster-slim \
             yarn build
 
