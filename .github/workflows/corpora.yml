@@ -18,6 +18,7 @@ jobs:
 
     - name: Cache node_modules
       uses: actions/cache@v3
+      with:
         path: node_modules
         key: cache-${{ hashFiles('yarn.lock') }}
 
