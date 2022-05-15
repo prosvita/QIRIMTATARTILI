@@ -23,20 +23,23 @@ jobs:
         key: cache-${{ hashFiles('yarn.lock') }}
 
     - name: Install node_modules
-      run: docker run -t --rm -w /build -v "$(pwd):/build" \
-        node:14-buster-slim \
-        yarn install
+      run: |
+        docker run -t --rm -w /build -v "$(pwd):/build" \
+            node:14-buster-slim \
+            yarn install
 
     - name: Build source
-      run: docker run -t --rm -w /build -v "$(pwd):/build" \
-        -e GITHUB_TOKEN="${{ secrets.GITHUB_TOKEN }}" \
-        node:14-buster-slim \
-        node tools/build-source.js
+      run: |
+        docker run -t --rm -w /build -v "$(pwd):/build" \
+            -e GITHUB_TOKEN="${{ secrets.GITHUB_TOKEN }}" \
+            node:14-buster-slim \
+            node tools/build-source.js
 
     - name: Build corpora
-      run: docker run -t --rm -w /build -v "$(pwd):/build" \
-        python:3-slim \
-        ./tools/build-corpora.py
+      run: |
+        docker run -t --rm -w /build -v "$(pwd):/build" \
+            python:3-slim \
+            ./tools/build-corpora.py
 
     - name: Compile corpora
       run: |
