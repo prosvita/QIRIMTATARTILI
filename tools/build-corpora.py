@@ -8,17 +8,18 @@ import os
 reg_template = """MAINTAINER "your@yourdomain.com"
 INFO "Qırımtatarca Online Terciman"
 NAME "Corpus in %(lang)s"
-PATH "%(path)s"
 ENCODING "UTF-8"
 LANGUAGE "%(language)s"
+
+PATH "%(path)s"
 VERTICAL "%(vertical)s"
 
 FULLREF "%(fullref)s"
 
-ATTRIBUTE   word
-# ATTRIBUTE   lemma
-# ATTRIBUTE   tag
-# ATTRIBUTE   status
+ATTRIBUTE word
+# ATTRIBUTE lemma
+# ATTRIBUTE tag
+# ATTRIBUTE status
 
 ATTRIBUTE lc {
   LABEL    "word (lowercase)"
@@ -33,6 +34,7 @@ ATTRIBUTE lc {
 
 STRUCTURE doc {
 %(attributes)s
+  ATTRIBUTE wordcount
 }
 
 STRUCTURE s
@@ -43,31 +45,31 @@ ALIGNED "%(aligned)s"
 """
 
 def main():
-  corpora_name = 'qirimtatarca'
-  dest_path = os.getcwd() + '/target/corpus-source/'
-  compile_path = os.getcwd() + '/target/corpus-compiled/'
+  # Input files
   attributes_file = os.getcwd() + '/target/attributes.txt'
   list_file = os.getcwd() + '/target/list.txt'
-
-  corpora_path = compile_path + corpora_name
+  # Output files
+  corpora_name = 'qirimtatarca'
+  compile_path = os.getcwd() + '/target/corpora'
+  corpora_path = compile_path + '/' + corpora_name
   indexed_path = corpora_path + '/indexed'
   vertical_path = corpora_path + '/vertical'
-  registry_path = compile_path + 'registry/'
-  # vertical_path = '/corpora/%s/vertical' % corpora_name
+  registry_path = compile_path + '/registry'
+  indexed_dest = '/corpora/%s/indexed' % corpora_name
+  vertical_dest = '/corpora/%s/vertical' % corpora_name
+  registry_dest = '/corpora/registry'
 
   # Prepare folders
-  init_folder(dest_path)
   init_folder(compile_path)
-  init_folder(corpora_path)
+  init_folder(vertical_path)
   init_folder(registry_path)
-
 
   # First, load attributes of files
   fname2attributes, attribute_names = get_all_files(attributes_file)
   print('Text attributes:', attribute_names)
 
   with open(list_file) as ft:
-    lang_list, langs, align_files = init_vert_n_align_files(ft, dest_path)
+    lang_list, langs, align_files = init_vertical_files(ft, vertical_path)
 
     for line in ft:
       line = line.rstrip('\r\n')  # it is ok to have empty tabs from the left though! We anyway cut only 'newline's, not tabs!
@@ -84,11 +86,11 @@ def main():
   print('Sentense statistics:')
   for langId in langs:
     print('%20s %5d' % (langId, langs[langId][1]))
-    init_folder('%s%s' % (compile_path, langId))
+    init_folder('%s/%s' % (indexed_path, langId))
 
   finish_files(langs)
   finish_files(align_files)
-  create_reg_files(langs, align_files, attribute_names, dest_path, compile_path, reg_template)
+  create_reg_files(langs, align_files, attribute_names, registry_path, vertical_dest, indexed_dest, registry_dest, reg_template)
 
   os._exit(os.EX_OK)
 
@@ -115,21 +117,21 @@ def get_all_files(attributes_file):
       fname2attributes[dat[0]] = dat[1:]
   return fname2attributes, attribute_names
 
-def init_vert_n_align_files(ft, dest_path):
+def init_vertical_files(ft, dest_path):
   langs = {} # language id -> [vertical_file_obj, num_sentences_written, vert_file_name]
   align_files = {} # (lang_from, lang_to) -> [file_obj, align_file_name]
   hdr = ft.readline().strip().split('\t')
   lang_list = hdr
   for i, langId1 in enumerate(hdr):
-    vert_file_name = dest_path + langId1 + '.vert'
+    vert_file_name = dest_path + '/' + langId1 + '.vert'
     langs[langId1] = [open(vert_file_name, 'w'), 0, vert_file_name, []]
     # the fields are: file_id, non-empty line index (after paragraph lines excluded), full_file_name, line indices (including -1, but excluding paragraph lines) to be used for alignments
     #                 0        1                                                      2               3
     for j, langId2 in enumerate(hdr):
       if j==i:
         continue # the language can not be aligned to itself
+      align_filename = '%s/%s_to_%s.align' % (dest_path, langId1, langId2)
       key = (langId1, langId2)
-      align_filename = dest_path + ('%s_to_%s.align' % key)
       align_files[key] = [open(align_filename, 'w'), align_filename]
   return lang_list, langs, align_files
 
@@ -228,7 +230,7 @@ def finish_files(files):
   for fid in files.values():
     fid[0].close()
 
-def create_reg_files(langs, align_files, attribute_names, dest_path, compile_path, reg_template):
+def create_reg_files(langs, align_files, attribute_names, registry_path, vertical_dest, indexed_dest, registry_dest, reg_template):
   for langId, vert_info in langs.items():
     numSentsInDestCorpus = langs[langId][1]
     if numSentsInDestCorpus == 0:
@@ -237,7 +239,7 @@ def create_reg_files(langs, align_files, attribute_names, dest_path, compile_pat
       continue
     #
 
-    with open(dest_path + ('%s_reg' % langId), 'w') as fr:
+    with open('%s/%s_reg' % (registry_path, langId), 'w') as fr:
       # friendly_name, path, vertical, fullref, doc, aligndef, aligned
       fullref = ','.join(['doc.%s' % a for a in attribute_names])
       attrs = '\n'.join(['  ATTRIBUTE %s' % a.lower() for a in attribute_names])
@@ -246,8 +248,11 @@ def create_reg_files(langs, align_files, attribute_names, dest_path, compile_pat
         if key[0] == langId:
           numSentsInDestCorpus = langs[key[1]][1]
           if numSentsInDestCorpus > 0:
-            # aligned_to.append( (key[1], afid[1]) ) # (langTo, align_file_name)
-            aligned_to.append( ('%s%s' % (dest_path, key[1]), afid[1]) ) # (langTo, align_file_name)
+            align_file_name = os.path.basename(afid[1])
+            aligned_to.append((
+              '%s/%s_reg' % (registry_dest, key[1]),
+              '%s/%s' % (vertical_dest, align_file_name)
+            ))
           else:
             print('[%20s]'%key[1], '%s will not be aligned to %s, because the latter has zero size' % key)
             print('[%20s]'%key[1], 'You might also want to remove %s_to_%s.align file' % key)
@@ -262,12 +267,12 @@ def create_reg_files(langs, align_files, attribute_names, dest_path, compile_pat
       reg_data = {
         'lang': langId,
         'language': language_names[langId],
-        'path': compile_path + ('%s/' % langId), 
-        'vertical': vert_info[2], 
-        'fullref': fullref, 
-        'attributes': attrs, 
-        'aligndef': ','.join(x[1] for x in aligned_to), 
-        'aligned': ','.join(x[0]+'_reg' for x in aligned_to)
+        'path': '%s/%s/' % (indexed_dest, langId),
+        'vertical': '%s/%s' % (vertical_dest, os.path.basename(vert_info[2])),
+        'fullref': fullref,
+        'attributes': attrs,
+        'aligndef': ','.join(x[1] for x in aligned_to),
+        'aligned': ','.join(x[0] for x in aligned_to)
       }
       fr.write(reg_template % reg_data)
 

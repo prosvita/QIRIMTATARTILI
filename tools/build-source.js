@@ -26,30 +26,30 @@ async function run() {
             process.exit(1)
         }
 
-        // const data = await getSyncedFileList(octokit, metaFiles)
-        const data = [
-          {
-            filename: '/build/text/timur_pulat/__noman_chelebidzhihan/timur_pulat__noman_chelebidzhihan_part_0009.ru.md',
-            author: 'Тимур Пулатов',
-            title: 'Номан Челебиджихан',
-            year: '1234',
-            lang: 'ru'
-          },
-          {
-            filename: '/build/text/timur_pulat/__noman_chelebidzhihan/timur_pulat__noman_chelebidzhihan_part_0014.crh-RU.md',
-            author: 'Timur Pulat',
-            title: 'Noman Chelebidzhihan',
-            year: '1234',
-            lang: 'crh-RU'
-          },
-          {
-            filename: '/build/text/timur_pulat/__noman_chelebidzhihan/timur_pulat__noman_chelebidzhihan_part_0014.ru.md',
-            author: 'Тимур Пулатов',
-            title: 'Номан Челебиджихан',
-            year: '6666',
-            lang: 'ru'
-          }
-        ]
+        const data = await getSyncedFileList(octokit, metaFiles)
+        // const data = [
+        //   {
+        //     filename: '/build/text/timur_pulat/__noman_chelebidzhihan/timur_pulat__noman_chelebidzhihan_part_0009.ru.md',
+        //     author: 'Тимур Пулатов',
+        //     title: 'Номан Челебиджихан',
+        //     year: '1234',
+        //     lang: 'ru'
+        //   },
+        //   {
+        //     filename: '/build/text/timur_pulat/__noman_chelebidzhihan/timur_pulat__noman_chelebidzhihan_part_0014.crh-RU.md',
+        //     author: 'Timur Pulat',
+        //     title: 'Noman Chelebidzhihan',
+        //     year: '1234',
+        //     lang: 'crh-RU'
+        //   },
+        //   {
+        //     filename: '/build/text/timur_pulat/__noman_chelebidzhihan/timur_pulat__noman_chelebidzhihan_part_0014.ru.md',
+        //     author: 'Тимур Пулатов',
+        //     title: 'Номан Челебиджихан',
+        //     year: '6666',
+        //     lang: 'ru'
+        //   }
+        // ]
 
         const targetDir = path.join(process.cwd(), 'target')
         fs.rmSync(targetDir, { recursive: true })
@@ -203,7 +203,7 @@ async function getDocuments(octokit, issue_number, dir) {
     const { data } = await octokit.rest.issues.get({owner, repo, issue_number})
     const { state, title, labels } = data
     const labelNames = labels.map((label) => label.name)
-console.log(issue_number, state, title, labelNames)
+// console.log(issue_number, state, title, labelNames)
 
     if (state !== 'closed') {
         return []

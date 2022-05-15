@@ -3,7 +3,7 @@
   "version": "1.0.0",
   "description": "Qırımtatar tiline tercime etüv programması",
   "scripts": {
-    "build": "node tools/build-target.js",
+    "build": "node tools/build-source.js",
     "test": "tools/speller.sh"
   },
   "repository": {

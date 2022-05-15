@@ -1,0 +1,70 @@
+name: corpora
+
+on:
+  push:
+    branches:
+    - master
+    paths:
+    - text/**/*.md
+  # test
+  pull_request:
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    steps:
+
+    - uses: actions/checkout@v2
+
+    - name: Cache node_modules
+      uses: actions/cache@v3
+        path: node_modules
+        key: cache-${{ hashFiles('yarn.lock') }}
+
+    - name: Build source
+      run: |
+        docker run -it --rm -w /build -v "$(pwd):/build" \
+            node:14-buster-slim \
+            yarn install
+        docker run -it --rm -w /build -v "$(pwd):/build" \
+            -e GITHUB_TOKEN={{ secrets.GITHUB_TOKEN }} \
+            node:14-buster-slim \
+            yarn build
+
+    - name: Build corpora
+      run: |
+        docker run -it --rm -w /build -v "$(pwd):/build" \
+            python:3-slim \
+            ./tools/build-corpora.py
+
+    - name: Compile corpora
+      run: |
+        for regFile in `ls target/corpora/registry/*_reg`; do
+            regName=`basename ${regFile}`
+            docker run -it --rm -w /corpora -v "$(pwd)/target/corpora:/corpora" \
+                eltedh/nosketch-engine \
+                compilecorp --no-ske --no-align /corpora/registry/${regName}
+        done
+
+    - name: Recompile corpora
+      run: |
+        for regFile in `ls target/corpora/registry/*_reg`; do
+            regName=`basename ${regFile}`
+            docker run -it --rm -w /corpora -v "$(pwd)/target/corpora:/corpora" \
+                eltedh/nosketch-engine \
+                compilecorp --no-ske --no-align /corpora/registry/${regName}
+        done
+
+    - name: Rsync deployments
+      uses: burnett01/rsync-deployments@5.2
+      with:
+        switches: -avzr --delete
+        path: target/corpora
+        remote_path: ${{ secrets.CORPORA_DEPLOY_PATH }}
+        remote_host: ${{ secrets.CORPORA_DEPLOY_HOST }}
+        remote_port: ${{ secrets.CORPORA_DEPLOY_PORT }}
+        remote_user: ${{ secrets.CORPORA_DEPLOY_USER }}
+        remote_key: ${{ secrets.CORPORA_DEPLOY_KEY }}
+
+    - name: Archive corpora
+      run: tar -zcvf corpora-qirimtatarca.tar.gz -C target/corpora .
