@@ -24,17 +24,17 @@ jobs:
 
     - name: Build source
       run: |
-        docker run -it --rm -w /build -v "$(pwd):/build" \
+        docker run -t --rm -w /build -v "$(pwd):/build" \
             node:14-buster-slim \
             yarn install
-        docker run -it --rm -w /build -v "$(pwd):/build" \
+        docker run -t --rm -w /build -v "$(pwd):/build" \
             -e GITHUB_TOKEN={{ secrets.GITHUB_TOKEN }} \
             node:14-buster-slim \
             yarn build
 
     - name: Build corpora
       run: |
-        docker run -it --rm -w /build -v "$(pwd):/build" \
+        docker run -t --rm -w /build -v "$(pwd):/build" \
             python:3-slim \
             ./tools/build-corpora.py
 
@@ -42,7 +42,7 @@ jobs:
       run: |
         for regFile in `ls target/corpora/registry/*_reg`; do
             regName=`basename ${regFile}`
-            docker run -it --rm -w /corpora -v "$(pwd)/target/corpora:/corpora" \
+            docker run -t --rm -w /corpora -v "$(pwd)/target/corpora:/corpora" \
                 eltedh/nosketch-engine \
                 compilecorp --no-ske --no-align /corpora/registry/${regName}
         done
@@ -51,7 +51,7 @@ jobs:
       run: |
         for regFile in `ls target/corpora/registry/*_reg`; do
             regName=`basename ${regFile}`
-            docker run -it --rm -w /corpora -v "$(pwd)/target/corpora:/corpora" \
+            docker run -t --rm -w /corpora -v "$(pwd)/target/corpora:/corpora" \
                 eltedh/nosketch-engine \
                 compilecorp --no-ske --no-align /corpora/registry/${regName}
         done
