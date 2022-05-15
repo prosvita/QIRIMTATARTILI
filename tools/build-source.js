@@ -52,7 +52,9 @@ async function run() {
         // ]
 
         const targetDir = path.join(process.cwd(), 'target')
-        fs.rmSync(targetDir, { recursive: true })
+        if (fs.existsSync(targetDir)) {
+            fs.rmSync(targetDir, { recursive: true })
+        }
         fs.mkdirSync(targetDir, { recursive: true })
 
         // TODO: Rename crh-RU to crh-Cyrl [https://datatracker.ietf.org/doc/html/rfc5646]
@@ -203,11 +205,12 @@ async function getDocuments(octokit, issue_number, dir) {
     const { data } = await octokit.rest.issues.get({owner, repo, issue_number})
     const { state, title, labels } = data
     const labelNames = labels.map((label) => label.name)
-// console.log(issue_number, state, title, labelNames)
 
     if (state !== 'closed') {
         return []
     }
+
+    console.log(issue_number, state, title, labelNames)
 
     return glob.sync(`${dir}/**/${title.substring(5)}.@(${labelNames.join('|')}).md`, {absolute: true, nodir: true})
 }
