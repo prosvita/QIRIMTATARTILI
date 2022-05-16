@@ -104,7 +104,8 @@ Ve, çoqqa barmay, burunından, aralıq pencerede sızğırğan yel kibi, devaml
 
 Menim uyqum qaçtı.
 “Saabe apte özü kim?
-Adiy köylü qadınmı? – dep tüşündim, niçün bilmem. – Öyle olsa, bu zekiylik oña qaydan kelgen?” Biraz vaqıt daa keçken soñ, Saabe apte hatirimden çıqtı, öz taqdirimni tüşündim.
+Adiy köylü qadınmı? – dep tüşündim, niçün bilmem. – Öyle olsa, bu zekiylik oña qaydan kelgen?”
+ Biraz vaqıt daa keçken soñ, Saabe apte hatirimden çıqtı, öz taqdirimni tüşündim.
 Mahuldürge kelgenim eppi vaqıt oldı.
 Qayda köz taşlasam, suvanlıq, yoqsullıq.
 Maña, mında kelmege razılıq bermezden evel, yahşı tüşünip baqmaq kerek degilmi edi aceba?
@@ -159,7 +160,8 @@ O, tünevinki aşnı soba üstünde qızıdırıp, ögüme qoydı, men aşadım.
 Saabe aptege de buyurmasını teklif ettim, o istemedi.
 “Yañçıq aşadım... toqım”, dedi.
 Er alda, aştan oña da qaldırdım.
-“Belki menimnen yüz-yüzge oturıp aşamağa çekinedir, men yoq vaqıtta qapınsın!” Özüm mektepke cönedim.
+“Belki menimnen yüz-yüzge oturıp aşamağa çekinedir, men yoq vaqıtta qapınsın!”
+Özüm mektepke cönedim.
 
 Saabe apteniñ evi köyniñ kündoğuşında, arqası Bağatır poçta yoluna çıqa.
 Şimdi martnıñ soñki aftası.
@@ -1120,13 +1122,10 @@ Ceennem azabı!
 
 – Bu yerniñ toprağı küçlü, – dedi babam. – Baarde mında bostan saçacağım.
 Seniñ aytqan yerleriñ kolhoznıñ ihtiyarında.
-
 – Sürülmegen, saçılmağan yerlermi? – dedim men. – Domuz-tamır biylegen.
 Bu nasıl kolhoz yerleri?
-
 – Adam yetişmey, – dedi babam, – yaşlıq ep şeerlerge avmaqta, köyde yaşamaq istemey.
 Qartlar ise ep eksilmekteler.
-
 Yerge qaranlıq tüşe başlağanda, babama özümniñ işimni añlattım.
 “Maña şimdi ketmek kerek...” dedim.
 
@@ -1183,8 +1182,7 @@ Qayda?” dep soradım.
 “Sıcaq suv... yoq! – dedi o, – tapacaqsıñ!”
 
 Bugün, ocam, siziñ ilki muallimlik ve menim talebelik devirimizni eske tüşürdik.
-Hatirim ğayet hoş.
-Men, bunıñle beraber, o yıllarda köyümizde şura akimiyetini samimiy sevgi ile qabul etip, onıñ ebediyen yaşaması içün yüksek ğayret köstergen cesür ve fedakâr köydeşlerimniñ hatiresi ögünde aşağı pek egilip secde etem.
+Hatirim ğayet hoş.Men, bunıñle beraber, o yıllarda köyümizde şura akimiyetini samimiy sevgi ile qabul etip, onıñ ebediyen yaşaması içün yüksek ğayret köstergen cesür ve fedakâr köydeşlerimniñ hatiresi ögünde aşağı pek egilip secde etem.
 Ulu Vatan cenki vaqıtında almanlar Yaqub Haybullayevni, şura qurucılığı erbabı ekenligi içün, atqanlar.
 Bari Alâdinov Perekoptaki uruşlarda yaralana, onı Yaltadaki gospitalge ketireler.
 Almanlar şeerni zapt etken vaqıtta yaralılarnı gemige qoyıp, Kavkazğa alıp ketüvge imkân olmay.
