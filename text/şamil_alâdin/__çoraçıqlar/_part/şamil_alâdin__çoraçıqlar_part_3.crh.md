@@ -789,8 +789,7 @@ Deycegim, Abdulla özü bay degil, o, şura akimiyetiniñ birinci aylarında kö
 “Bizge, oturıp, vaziyetimiz hususında ciddiy laqırdı etmek... ve bir qararğa kelmek kerek, – dedi bir kün Bayraşevskiy ocalar odasında, – mektepteki bu al oquv degil”.
 
 Ertesi künü müdirimiz İsmail Aqqiy, Bağatırğa, köy şurasına ketti, anda Yaqub Haybullayevnen körüşken.
-Mektepteki vaziyetni añlatqan.
-Haybullayev oquv muvaqqat olaraq toqtatılsın degen.
+Mektepteki vaziyetni añlatqan.Haybullayev oquv muvaqqat olaraq toqtatılsın degen.
 İsmail efendiniñ fikirine razı olğan.
 Öylece, 1922 senesi fevralniñ on ekinci kününde İsmail efendi, Yaya oca, Safiye ocapçe ve men, dördümiz, ocalar odasında sıcaq soba etrafındaki kürsüler üstünde oturıp, köy şurasınıñ qararınen tanış oldıq.
 Onı doğru tedbir dep tanıdıq.
@@ -803,9 +802,7 @@ Bir daa maña bu köyde ocalıq etmek munasip olacaqmı, bilmeyim.
 Muallim çıdap olamadı, davuş çıqarmay ağladı.
 Menim de közlerim yaşlandılar.
 Çünki balalarnı bu vaziyette taşlap ketmek menim içün qıyın oldığı kibi, İsmail efendiden, bu aqıllı ve merametli adamdan, ayırılmaq da qolay degil edi.
-Yaya oca ve Safiye ocapçe...
-Ah!
-Olar menim añım, idrakim ediler.
+Yaya oca ve Safiye ocapçe...Ah!Olar menim añım, idrakim ediler.
 
 – Ocalığım böyle başladı, – dedi Abdureşid oca, davuşını biraz alçaltıp. – Ve böyle de bite yazdı.
 Mektep qapusına kilit asılğan soñ men cayav qırq çaqırım yol yürip, şeerge evimizge qaytıp keldim.
