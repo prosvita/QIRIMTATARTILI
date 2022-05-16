@@ -338,7 +338,7 @@ Men bu haberni şimdilik İradağa aytmadım".
 Elbette.
 Siz maña alâ açuvlısıñızmı, İrada?
 
-— Menmi?— o elindeki kâğıtlarnı şkaf içine qoyıp, kilitledi, çıqıp ketti.
+— Men mi?— o elindeki kâğıtlarnı şkaf içine qoyıp, kilitledi, çıqıp ketti.
 
 Madamki sualim cevapsız qaldı, men de onıñ peşinden kettim.
 İrada topraq obaları üstüne çıqıp parom betke yol tuttı.
