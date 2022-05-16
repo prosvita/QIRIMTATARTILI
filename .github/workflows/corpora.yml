@@ -71,4 +71,7 @@ jobs:
         remote_key: ${{ secrets.CORPORA_DEPLOY_KEY }}
 
     - name: Archive corpora
-      run: tar -zcvf corpora-qirimtatarca.tar.gz -C target/corpora .
+      uses: actions/upload-artifact@v3
+      with:
+        name: corpora-qirimtatarca
+        path: target/corpora
