@@ -26,7 +26,7 @@ Siz meşur maşinist olıp kettiñizmi?— dep taaciplene, kelip meni quçaqlay.
 
 Kim bilsin?
 Belki kelir?
-Kelse de, meni eslemez!?
+Kelse de, meni eslemez?!
 Er kesniñ qolunı sıqar, tebrikler... maña qulaq asmaz.
 Ya Şpitsbergen?
 Şpitsbergenge ketem degende maña ne degen edi?
