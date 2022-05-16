@@ -47,16 +47,16 @@ jobs:
             regName=`basename ${regFile}`
             docker run -t --rm -w /corpora -v "$(pwd)/target/corpora:/corpora" \
                 eltedh/nosketch-engine \
-                compilecorp --no-ske --no-align /corpora/registry/${regName}
+                compilecorp --no-ske --no-align ${regName}
         done
 
-    - name: Recompile corpora
+    - name: Recompile corpora align
       run: |
         for regFile in `ls target/corpora/registry/*_reg`; do
             regName=`basename ${regFile}`
             docker run -t --rm -w /corpora -v "$(pwd)/target/corpora:/corpora" \
                 eltedh/nosketch-engine \
-                compilecorp --no-ske --no-align /corpora/registry/${regName}
+                compilecorp --no-ske --recompile-align ${regName}
         done
 
     - name: Rsync deployments

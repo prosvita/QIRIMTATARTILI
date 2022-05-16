@@ -250,7 +250,7 @@ def create_reg_files(langs, align_files, attribute_names, registry_path, vertica
           if numSentsInDestCorpus > 0:
             align_file_name = os.path.basename(afid[1])
             aligned_to.append((
-              '%s/%s_reg' % (registry_dest, key[1]),
+              '%s_reg' % (key[1]),
               '%s/%s' % (vertical_dest, align_file_name)
             ))
           else:
