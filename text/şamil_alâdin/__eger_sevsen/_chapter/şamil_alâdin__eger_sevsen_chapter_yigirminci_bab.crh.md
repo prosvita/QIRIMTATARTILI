@@ -194,8 +194,7 @@ Tek raport bermek olsun... iç añlap olamayım.
 Bu aşıquv niçün?
 Yanğın barmı?
 
-— Yanğın?
-Ondan da beteri bar!— dedi İrada. — Niçün iş mutlaqa uzana bermek kerek?
+— Yanğın? Ondan da beteri bar!— dedi İrada. — Niçün iş mutlaqa uzana bermek kerek?
 İşte, sizge sual.
 Eki smenada çalışacaqsıñız.
 Siz, Karim... ondan soñ Bekirov, Bassaraba... epiñiz eki smena.
