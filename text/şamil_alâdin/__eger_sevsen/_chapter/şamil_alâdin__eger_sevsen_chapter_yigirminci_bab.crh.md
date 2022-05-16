@@ -16,7 +16,7 @@ Baş Dugüm idaresi yeñi ekskavatorlar kelüvini bekley.
 Demek, yeñi maşinistler ve yardımcılar kerek.
 Şimdi er ekskavatornıñ rıçagı başında ekişer-üçer ameliyatçı oturamız.
 
-Rıçag başında oturğan vaqıtımda Almazov bir şeyler ayta, men işitmeyim.
+Rıçag başında oturğan vaqıtımda Almazov bir şeyler ayta, men eşitmeyim.
 Öz başıma tüşünem: İrada bizim ekskavator smena vazifesini artqaç eda etkenini bilip, Almazovnı hayırlamaq içün kele ve ümütsizden meni rıçag başında köre.
 Ayrette qala.
 Cevdet!
