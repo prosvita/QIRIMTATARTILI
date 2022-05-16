@@ -47,7 +47,7 @@ Yanaşamda oturdı, çoq vaqıt ellerimniñ ve ayaqlarımnıñ areketini, kovşn
 Baş parmağını töpege tiklep, İradağa kösterdi... soñ arqamnı taptadı,— yazıqlar olsun... seni niçün özüme yardımcı etip almadım?
 
 Yerge tüşken soñ çoq vaqıt Almazov ve İrada ile laqırdı etip turdı.
-Qaç defa adımnı aytqanını işittim.
+Qaç defa adımnı aytqanını eşittim.
 
 Soñ İrada Karimniñ yeñiniñ ucundan tutıp, çetke çekip alıp ketti.
 Qaç daqiqa keçti, Almazov da olarnıñ yanına bardı... üçevi topraq yığını töpesine çıqtılar.
@@ -74,13 +74,13 @@ Qısqaracaqmı?
 Almazov maña bunı añlatıp yetiştiralmadı, aşağıda İrada ve Karimniñ davuşları çıqtı.
 
 İrada, uçurım töpesinde turğanı alda, pek qıçırıp laqırdı etmekte...
-Almazov ise motorlarnıñ gürültisi içinde onı zar-zorına işitmekte edi.
+Almazov ise motorlarnıñ gürültisi içinde onı zar-zorına eşitmekte edi.
 
-— Taze haber bar,— dedi İrada, elini közleri ögünde qaqqalap,— işittiñizmi?
+— Taze haber bar,— dedi İrada, elini közleri ögünde qaqqalap,— eşittiñizmi?
 
 — Yoq!?
 
-İrada onıñ sualini işitmedi.
+İrada onıñ sualini eşitmedi.
 
 — Taze haber bar.
 
