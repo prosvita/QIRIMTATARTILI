@@ -367,6 +367,6 @@ Demir yol köpürden keçip, baraklarğa doğruldıq.
 Nasıl?— yüregim solqıldadı,— İrada, bu saqlancımaq ne vaqıt bitecek?
 
 — Sizge artıq canım ağırmay, Cevdet!
-İşitesiñizmi?
+Eşitesiñizmi?
 Ağırmay...
 Siziñ içün bu kâfi degilmi?
