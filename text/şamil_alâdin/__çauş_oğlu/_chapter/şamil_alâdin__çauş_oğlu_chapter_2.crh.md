@@ -52,7 +52,7 @@ Turğan yerinde qız başına belâ açtı.
 
 Kâtip ketti.
 Qaydalardadır ve kimlernendir laqırdı etip keldi.
-Bir daqiqada degil, on daqiqada da degil, bir saatta.
+Bir daqiqada degil, on daqiqada da degil, bir saat.
 Lâkin memnün çere ile keldi.
 
 – Bahtlı ekensiñ, – dedi o qızğa. – Kranda şakirt olacaqsıñ.
@@ -79,7 +79,7 @@ Alla bilsin.
 
 – Bizde... medeniyet sarayındamı?
 
-– Ebet, sizde... men balet tögereginde eki yıldan beri iştirak etem.
+– Ebet, sizde... men balet tögereginde eki yıldan berli iştirak etem.
 
 Qız, yigitniñ yüzünde acizlik sezse de, indemedi.
 Onı utandırmaq istemedi.
@@ -88,16 +88,16 @@ Ertesi künü Zeverced kranğa çıqtı.
 Töpede turar eken, avada uçqan... ayaqları astındaki yañğıravuq tseh bir yaqlarğa çıqıp keteyatqan kibi keldi.
 Kran ögge, artqa, sağğa, solğa areket etmekte.
 Er şey maşinistniñ maareti ile olmaqta.
-Zeverced te işlep başladı.
+Zeverced de işlep başladı.
 Manivelâğa bastı, krannı tseh töpesindeki eki yaqlama relsler üzerinde yürsetti, amma tecribeli, sabırlı usta onı kimerde toqtattı.
 Bilmegen şeylerini ögretti.
 Ustanıq özü, er şeyni tüşünip taşınıp yapqan adam, krannı köçürse, qaqındırmay silkindirmey alıp kete, yükni tayin etilgen yerine alıp barıp qoya.
-Zevercedke de öyle yapmaqnı ögretti.
+Zevercedge de öyle yapmaqnı ögretti.
 Qız ğayret etti, tez vaqıtta aqiqiy krancı oldı.
 Bir talay vaqıt keçken soñ Şemsnurnı özüne şakirt etip aldı.
 Şimdi ekisi bir-birini deñiştirip çalışalar.
 Tseh başlığı anterli işçilerge alıştı.
-Lâkin qatiy ve inat qızlarğa külümsirep baqqan vaqıtı az ola – daima küsip yüre.
+Lâkin qatiy ve inat qızlarğa külümsirep baqqan vaqtı az ola – daima küsip yüre.
 Atta istisal muşaveresinde Zevercedni maqtağan maalinde bile qaşları çatılğan ola: “ögüñde yüregim irip ketkeni yoq... haberiñ olsun...” demek isteymi... niçün, belli degil.
 
 Zeverced bugün zavod qapusından içeri hoş isler ile kirdi, yüregi eyecanlı edi.
