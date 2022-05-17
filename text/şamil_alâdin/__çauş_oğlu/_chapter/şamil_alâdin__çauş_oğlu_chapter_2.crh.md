@@ -27,7 +27,7 @@ Direktornıñ özü emir etse bile qabul etmem.
 
 – Qabul etersiñiz. – Qız sabırlı, tınç davuşnen öz sözlerini tekrarladı. – Direktor emir etmese de...
 
-Bu endi adden aşıq edi.
+Bu endi adden aşır edi.
 Tseh başlığı artıq külmege istemedi, aksine, qıçırmağa, qaba sözler aytmağa, atta sögünmege istedi.
 Amma Zeverced qaba sözler eşitmedi.
 Tseh başlığını açuvlı niyetlerinen birlikte qaldırıp, çıqtı.
