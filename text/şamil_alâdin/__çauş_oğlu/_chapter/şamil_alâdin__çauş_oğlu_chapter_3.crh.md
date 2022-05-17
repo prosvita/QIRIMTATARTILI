@@ -49,13 +49,13 @@ Yoqsa, yükü ağırmı?
 Ya, alı yoqmı?
 Lâkin işni sozmaq, qart Mustafanı çekiştirmek kerekmey.
 
-Qonşu vagondan, elinde bala velosipedi, şlâpalı kişi çıqtı.
+Qoñşu vagondan, elinde bala velosipedi, şlâpalı kişi çıqtı.
 Bu – soñki yolcu.
 Keçikken.
 Yüküniñ çaresini tapalmay, eglenip qalğan.
 
 Çauş çıdayalmadı.
-Ögge, poyezdğa doğru ıntıldı.
+Ögge, poyezdge doğru ıntıldı.
 Bu arada vagon qapusında Zeverced peyda oldı.
 Yanında kimse yoq.
 Bir özü.
@@ -74,7 +74,7 @@ Lâkin endi keç edi.
 Poyezd suratını arttırdı, konduktor Çauşlarnen sağlıqlaşır kibi, sarı bayraçıqnı tutqan qolunı köterdi.
 Şefiqa yenge ağlamsıradı. – Menim oğlum qayda?
 
-– Belki telegrammada poyezdniñ nomerini qarıştırğandırlar? – dedi Zeverced. – Bütün küpelerni baqıp çıqtım.
+– Belki telegrammada poyezdniñ nomerini qarıştırğandırlar? – dedi Zeverced. – Bütün kupelerni baqıp çıqtım.
 Soraştırdım...
 
 Qız anasını quçaqladı, omuzlarından sıypadı, tınçlandırmaq istedi.
@@ -107,7 +107,7 @@ Lâkin...
 Dilâver dos-doğru evge kete de bile.
 Er kes öyle yapa bile – qarşılap alğan adam olmağan soñ, elbette evni özü qıdırıp tapmağa mecbur.
 Belki telegramma coyuldı, yahut keçikti?
-Buña aqılımız yetmegeni?
+Buña aqlımız yetmegenmi?
 Dilâver endi evniñ ögünde, skemleçik üstünde otura...
 Matüv doğmuşları ise onı vagonda qıdırmaqtalar.
 
