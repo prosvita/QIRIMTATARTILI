@@ -1069,10 +1069,8 @@ Kökköz avtobusını qaçırsam, işim tesadufiy lelenkağa qalacaq.
 – Mümkün degil, ana!
 
 O, qomşu odağa kirdi, eppi vaqıt davuşı çıqmadı, bir talaydan soñ:
-
 – Evelâ aşa toy!
-Soñ ket! – dep qıçırdı qapusı yapıq oda içinden. – Meni ıncıtma!
-Ya Rabbi!
+Soñ ket! – dep qıçırdı qapusı yapıq oda içinden. – Meni ıncıtma! Ya Rabbi!
 Oqumağa ketkenlerniñ episi seniñ kibimi aceba?
 Olarnıñ anaları da, menim kibi, daima asret ve qasevet içindelermi? – o, ep yüregindeki kederi, sevgisi hususında söyledi... ama babam ile ekisi qaranlıq köterilip qaranlıq engence, belni doğrultmay çayırda çalışqanları, ayatlarınıñ ağırlığı aqqında ağızından söz çıqmadı.
 
@@ -1217,8 +1215,7 @@ Oña ev içinde yarım kün bulunmaq, elbet de, qolay iş degil.
 
 – Siz Mahuldürni eñ mesuliyetli ve ağır vaziyetinde kördiñiz, – dedim men ocağa, – o sebepten, köyümiz hususında fikiriñiz pek sisli olmalı!
 
-– Yoq!
-aksine... – dedi o, – fikirim pek açıq ve muayyen.
+– Yoq! aksine... – dedi o, – fikirim pek açıq ve muayyen.
 
 – Köy aqqında subetimiz bitmek üzre.
 Musaadeñizle bir müteber yer aqqında daa eki söz ilâve etmek isteyim.
