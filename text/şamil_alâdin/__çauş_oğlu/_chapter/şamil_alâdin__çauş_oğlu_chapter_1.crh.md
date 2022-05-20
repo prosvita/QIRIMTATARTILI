@@ -86,7 +86,6 @@ Soñ baba külümsiredi.
 Qızını tebessüm ile ozğardı.
 Zeverced tez-tez basamaqlardan aşağı enerek, bağça içinde asma yüzüm terekleri astında ğayıp oldı.
 
-Çauş hayli vaqıt qızınıñ pervasız adımlarına diñlenip, onıñ terekler arasında cazibeli yürüşini tasavur etip, ferahlanıp oturdı.
 
 Zeverced, şübesiz, dülber qız.
 Dülber ekenini er kes bile.
