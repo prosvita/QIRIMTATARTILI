@@ -94,16 +94,16 @@ Bilmegen şeylerini ögretti.
 Ustanıq özü, er şeyni tüşünip taşınıp yapqan adam, krannı köçürse, qaqındırmay silkindirmey alıp kete, yükni tayin etilgen yerine alıp barıp qoya.
 Zevercedge de öyle yapmaqnı ögretti.
 Qız ğayret etti, tez vaqıtta aqiqiy krancı oldı.
-Bir talay vaqıt keçken soñ Şemsnurnı özüne şakirt etip aldı.
+Bir talay vaqıt keçken soñ Şemsnurnı özüne şegirt etip aldı.
 Şimdi ekisi bir-birini deñiştirip çalışalar.
 Tseh başlığı anterli işçilerge alıştı.
 Lâkin qatiy ve inat qızlarğa külümsirep baqqan vaqtı az ola – daima küsip yüre.
-Atta istisal muşaveresinde Zevercedni maqtağan maalinde bile qaşları çatılğan ola: “ögüñde yüregim irip ketkeni yoq... haberiñ olsun...” demek isteymi... niçün, belli degil.
+Atta istisal muşaveresinde Zevercedni maqtağan maalinde bile qaşları çatılğan ola: “ögüñde yüregim irip ketkeni yoq... haberiñ olsun...” demek isteymi... ne içün, belli degil.
 
 Zeverced bugün zavod qapusından içeri hoş isler ile kirdi, yüregi eyecanlı edi.
 
 O, qalbindeki sırını yolda ğayıp etmemek içün, kimsege baqmadı, kimsenen laqırdı etmedi.
-Fevqulade vazifeni eda içün keteyatqan kibi aşıqtı.
+Fevqulâde vazifeni eda içün keteyatqan kibi aşıqtı.
 Azbar içinde toqtalıp, kelgen keçken er kes ile meraqlanıcı qızlarnıñ yanında da eglenmedi.
 Tünevin bazar künü edi.
 Belki adetten tış bir adise yüz bergendir?
@@ -128,7 +128,7 @@ Keçikip başlaysıñ... birevge daa aşıq oldıñmı?
 Bu sözler şaqa sırasında aytıldımı, ciddiy olaraqmı?
 Zeverced añlap olamadı.
 Qızlarnıñ episi azbarda.
-Niçün eldirekte men keçikem?
+Ne içün eldirekte men keçikem?
 Adamnıñ yüregi böyle etip qırıla, sevinçi böyle öldürile.
 Onı da yapqan kim?
 Eñ yaqın dostu, Şemsnur.
