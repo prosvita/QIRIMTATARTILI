@@ -6,7 +6,7 @@ Büyük şeer suvuq ruzgârlar içinde susqan.
 Men Taşkentni daima şeñ ve gürdeli olğanı içün, begene edim.
 Onı soñki defa bu alında terk etken edim.
 
-Bir qaç sene evelsi üç yaş kişi torbalarımıznı arqalarımızğa urıp, vokzal meydanında adamlar, arabalar ve faytonlar arasında keçeyatqan vaqıtımızda, maña bütün şeer ealisi, daa kimse tarafından keşf etilmegen, işitilmegen, bilinmegen bir ülkege cönemek içün toplanğan kibn kelgen edi.
+Bir qaç sene evelsi üç yaş kişi torbalarımıznı arqalarımızğa urıp, vokzal meydanında adamlar, arabalar ve faytonlar arasında keçeyatqan vaqıtımızda, maña bütün şeer ealisi, daa kimse tarafından keşf etilmegen, işitilmegen, bilinmegen bir ülkege cönemek içün toplanğan kibi kelgen edi.
 
 ...Böyle eken, qomşumıznıñ keçken 1959 senesi, student oğlunı qırtış topraqlar ülkesine ozğarğanı hatirime keldi.
 Yüksek boylu, sağlam müçeli yigit azbar qapu ögünde turıp, anasını tınçlandırmaqta edi:
