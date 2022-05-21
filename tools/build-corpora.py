@@ -5,9 +5,9 @@ import os
 
 # Create registry files
 # for details, see https://www.sketchengine.eu/documentation/corpus-configuration-file-all-features/
-reg_template = """MAINTAINER "your@yourdomain.com"
+reg_template = """MAINTAINER "info@ctcorpus.org"
 INFO "Qırımtatarca Online Terciman"
-NAME "Corpus in %(lang)s"
+NAME "Qırımtatarca [%(lang)s -> %(to_lang)s]"
 ENCODING "UTF-8"
 LANGUAGE "%(language)s"
 
@@ -251,7 +251,8 @@ def create_reg_files(langs, align_files, attribute_names, registry_path, vertica
             align_file_name = os.path.basename(afid[1])
             aligned_to.append((
               '%s_reg' % (key[1]),
-              '%s/%s' % (vertical_dest, align_file_name)
+              '%s/%s' % (vertical_dest, align_file_name),
+              key[1]
             ))
           else:
             print('[%20s]'%key[1], '%s will not be aligned to %s, because the latter has zero size' % key)
@@ -266,6 +267,7 @@ def create_reg_files(langs, align_files, attribute_names, registry_path, vertica
       }
       reg_data = {
         'lang': langId,
+        'to_lang': ', '.join(x[2] for x in aligned_to),
         'language': language_names[langId],
         'path': '%s/%s/' % (indexed_dest, langId),
         'vertical': '%s/%s' % (vertical_dest, os.path.basename(vert_info[2])),

@@ -14,42 +14,14 @@ async function run() {
         auth: process.env.GITHUB_TOKEN
     })
 
-    // getIssues(octokit)
-    //     .then((data) => {
-    //         console.log(data)
-    //         console.log(`retrieved ${data.length} issues`)
-    //     })
-
     glob('**/.meta.json', {}, async (error, metaFiles) => {
         if (error) {
             console.error(error)
             process.exit(1)
         }
 
-        const data = await getSyncedFileList(octokit, metaFiles)
-        // const data = [
-        //   {
-        //     filename: '/build/text/timur_pulat/__noman_chelebidzhihan/timur_pulat__noman_chelebidzhihan_part_0009.ru.md',
-        //     author: 'Тимур Пулатов',
-        //     title: 'Номан Челебиджихан',
-        //     year: '1234',
-        //     lang: 'ru'
-        //   },
-        //   {
-        //     filename: '/build/text/timur_pulat/__noman_chelebidzhihan/timur_pulat__noman_chelebidzhihan_part_0014.crh-RU.md',
-        //     author: 'Timur Pulat',
-        //     title: 'Noman Chelebidzhihan',
-        //     year: '1234',
-        //     lang: 'crh-RU'
-        //   },
-        //   {
-        //     filename: '/build/text/timur_pulat/__noman_chelebidzhihan/timur_pulat__noman_chelebidzhihan_part_0014.ru.md',
-        //     author: 'Тимур Пулатов',
-        //     title: 'Номан Челебиджихан',
-        //     year: '6666',
-        //     lang: 'ru'
-        //   }
-        // ]
+        const issues = await getIssues(octokit, owner, repo)
+        const data = await getSyncedFileList(issues, metaFiles)
 
         const targetDir = path.join(process.cwd(), 'target')
         if (fs.existsSync(targetDir)) {
@@ -59,8 +31,6 @@ async function run() {
 
         // TODO: Rename crh-RU to crh-Cyrl [https://datatracker.ietf.org/doc/html/rfc5646]
         generateSource(path.join(targetDir, 'generated'), data)
-
-// console.log(data)
 
         saveSource(path.join(targetDir, 'source'), data)
         saveCropusAttributes(path.join(targetDir, 'attributes.txt'), data)
@@ -77,8 +47,6 @@ function generateSource(generatedDir, data) {
         if (data.find((item) => item.filename === findFilename)) {
             continue
         }
-
-// console.log(interim)
 
         const text = fs.readFileSync(interim.filename, 'utf8')
         const crhText = crh.fromCyrillic(text)
@@ -123,7 +91,7 @@ function saveCropusList(listFile, data) {
     for (const item of data) {
         const found = item.filename.match(reFile)
         if (found === null) {
-            console.error(`${item.filename} file not parsed and was ignored.`)
+            console.error(`ERROR: ${item.filename} file not parsed and was ignored.`)
             continue
         }
         let {basename, lang} = found.groups
@@ -149,7 +117,7 @@ function saveCropusList(listFile, data) {
     fs.writeFileSync(listFile, result.join('\n'))
 }
 
-async function getSyncedFileList(octokit, metaFiles) {
+async function getSyncedFileList(issues, metaFiles) {
     const reFile = new RegExp(/(?:\/(?<author>[^\/]+)__(?<title>[^\/]+))?\.(?<lang>[^\.]+)\.md$/, 'i')
     const list = []
 
@@ -157,22 +125,19 @@ async function getSyncedFileList(octokit, metaFiles) {
         const metaFilePath = path.join(process.cwd(), metaFile)
         const meta = require(metaFilePath)
         const metaDir = path.dirname(metaFilePath)
-// console.log(meta)
 
         if (!meta.sync) {
-            console.error(`${metaFile} file have not 'sync' field`)
+            console.error(`ERROR: ${metaFile} file have not 'sync' field.`)
             process.exit(1)
         }
 
         for (const issue of meta.sync) {
-// if (issue !== 251) {continue}
-
-            const docFiles = await getDocuments(octokit, issue, metaDir)
+            const docFiles = await getDocuments(issues, issue, metaDir)
 
             for (const file of docFiles) {
                 const found = file.match(reFile)
                 if (found === null) {
-                    console.error(`${file} file not parsed and was ignored.`)
+                    console.error(`ERROR: ${file} file not parsed and was ignored.`)
                     continue
                 }
                 let {author, title, year, lang} = found.groups
@@ -201,42 +166,46 @@ async function getSyncedFileList(octokit, metaFiles) {
     return list
 }
 
-async function getDocuments(octokit, issue_number, dir) {
-    const { data } = await octokit.rest.issues.get({owner, repo, issue_number})
-    const { state, title, labels } = data
-    const labelNames = labels.map((label) => label.name)
+async function getDocuments(issues, issue_number, dir) {
+    const issue = issues.find((item) => item.number === issue_number)
+    if (!issue) {
+        console.error(`ERROR: Issue ${issue_number} from ${dir} not found.`)
+        return []
+    }
 
+    const { state, title, labels } = issue
     if (state !== 'closed') {
         return []
     }
 
+    const labelNames = labels.map((label) => label.name)
     console.log(issue_number, state, title, labelNames)
 
     return glob.sync(`${dir}/**/${title.substring(5)}.@(${labelNames.join('|')}).md`, {absolute: true, nodir: true})
 }
 
-// async function getIssues(octokit) {
-//     let data = []
-//     let page = 1
+async function getIssues(octokit, owner, repo) {
+    let data = []
+    let page = 1
 
-//     async function paginate(page) {
-//         let response = await octokit.rest.search.issuesAndPullRequests({
-//             q: `repo:${owner}/${repo} is:issue`,
-//             per_page: 100,
-//             page: page
-//         })
+    async function paginate(page) {
+        let response = await octokit.rest.search.issuesAndPullRequests({
+            q: `repo:${owner}/${repo} is:issue`,
+            per_page: 100,
+            page: page
+        })
 
-//         console.log(`request n°${page}, l:${response.data.length}`);
+        console.log(`Get issues page:${page}, count:${response.data.items.length}.`)
 
-//         if (!response.data.length) {
-//             return false
-//         }
+        if (!response.data.items.length) {
+            return false
+        }
 
-//         data = data.concat(response.data.items)
-//         return true
-//     }
+        data = data.concat(response.data.items)
+        return true
+    }
 
-//     while (paginate(page++)) {}
+    while (await paginate(page++)) {}
 
-//     return data
-// }
+    return data
+}
