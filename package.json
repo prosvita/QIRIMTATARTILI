@@ -3,6 +3,7 @@
   "version": "1.0.0",
   "description": "Qırımtatar tiline tercime etüv programması",
   "scripts": {
+    "build": "node tools/build-source.js",
     "test": "tools/speller.sh"
   },
   "repository": {
@@ -19,5 +20,9 @@
   "devDependencies": {
     "transliteration.crh": "^0.2.1",
     "yaspeller": "^v6.0.2"
+  },
+  "dependencies": {
+    "@octokit/rest": "^18.12.0",
+    "glob": "^7.2.0"
   }
 }

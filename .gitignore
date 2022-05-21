@@ -1,4 +1,5 @@
 node_modules/
+target/
 .DS_Store
 TODO.md
 package-lock.json
@@ -6,6 +7,7 @@ package-lock.json
 .idea
 *.log
 *~
+~*
 
 # test
 yaspeller_report*.html

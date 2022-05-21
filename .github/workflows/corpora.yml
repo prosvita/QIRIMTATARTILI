@@ -1,0 +1,75 @@
+name: corpora
+
+on:
+  push:
+    branches:
+    - master
+    paths:
+    - text/**/*.md
+
+jobs:
+  build:
+    runs-on: ubuntu-latest
+    steps:
+
+    - uses: actions/checkout@v2
+
+    - name: Cache node_modules
+      uses: actions/cache@v3
+      with:
+        path: node_modules
+        key: cache-${{ hashFiles('yarn.lock') }}
+
+    - name: Install node_modules
+      run: |
+        docker run -t --rm -w /build -v "$(pwd):/build" \
+            node:14-buster-slim \
+            yarn install
+
+    - name: Build source
+      run: |
+        docker run -t --rm -w /build -v "$(pwd):/build" \
+            -e GITHUB_TOKEN="${{ secrets.GITHUB_TOKEN }}" \
+            node:14-buster-slim \
+            node tools/build-source.js
+
+    - name: Build corpora
+      run: |
+        docker run -t --rm -w /build -v "$(pwd):/build" \
+            python:3-slim \
+            ./tools/build-corpora.py
+
+    - name: Compile corpora
+      run: |
+        for regFile in `ls target/corpora/registry/*_reg`; do
+            regName=`basename ${regFile}`
+            docker run -t --rm -w /corpora -v "$(pwd)/target/corpora:/corpora" \
+                eltedh/nosketch-engine \
+                compilecorp --no-ske --no-align ${regName}
+        done
+
+    - name: Recompile corpora align
+      run: |
+        for regFile in `ls target/corpora/registry/*_reg`; do
+            regName=`basename ${regFile}`
+            docker run -t --rm -w /corpora -v "$(pwd)/target/corpora:/corpora" \
+                eltedh/nosketch-engine \
+                compilecorp --no-ske --recompile-align ${regName}
+        done
+
+    - name: Rsync deployments
+      uses: burnett01/rsync-deployments@5.2
+      with:
+        switches: -avzr --delete
+        path: target/corpora
+        remote_path: ${{ secrets.CORPORA_DEPLOY_PATH }}
+        remote_host: ${{ secrets.CORPORA_DEPLOY_HOST }}
+        remote_port: ${{ secrets.CORPORA_DEPLOY_PORT }}
+        remote_user: ${{ secrets.CORPORA_DEPLOY_USER }}
+        remote_key: ${{ secrets.CORPORA_DEPLOY_KEY }}
+
+    - name: Archive corpora
+      uses: actions/upload-artifact@v3
+      with:
+        name: corpora-qirimtatarca
+        path: target/corpora
