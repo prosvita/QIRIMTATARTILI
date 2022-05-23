@@ -142,7 +142,7 @@ Tek seniñ degil!
 Zevercedniñ keleyatqan maalde çeresinde sezilgen tebessümi irip ketti.
 Közlerinde ise alâ sevinç yanmaqta edi.
 Şemsnur bunı sezmedimi aceba?
-Dostundan: “Ne yeñilik bar”, dep soramaycaqmı?
+Dostundan: “Ne yañılıq bar”, dep soramaycaqmı?
 
 Yoq, öyle niyet sezilmedi.
 Keteyatqanda koftasınıñ yaqasını dögmeledi, saçlarını tüzetti, aylanma demir merdivenden aşağı aqırın-aqırın tüşe başladı.
@@ -233,12 +233,12 @@ Azbardaki çiçekler suvarılğan, yüzümler tübündeki soqaq sipirilgen, suv 
 
 – Bu nasıl qıyafet? – dep qıçırdı o qızına. – Sen qaydan kelesiñ?
 
-– İşten... – dedi Zeverced ve nazarı Şemsnurnıñ üstündeki yeñi anterge tüşti. – Ne vaqıt tiktirdiñ?
+– İşten... – dedi Zeverced ve nazarı Şemsnurnıñ üstündeki yañı anterge tüşti. – Ne vaqıt tiktirdiñ?
 
 – Baarde. – Şemsnur eteklerine baqındı, – Nasıl?
 
 – Hucursıñ.
-Niçün bu vaqıtqace indemediñ?
+Ne içün bu vaqıtqace indemediñ?
 
 – Alemni taaciplendirmek istedim! – dedi Şemsnur.
 
