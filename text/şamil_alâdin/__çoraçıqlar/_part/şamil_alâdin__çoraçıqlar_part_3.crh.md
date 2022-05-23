@@ -529,8 +529,7 @@ Alâdin aqay özü becerikli adam olmasa edi, ailesi belki, yalıñız Abdulmein
 Dülger dağlarda, qırlarda yürdi, türlü kiyik meyva cıydı, eskencede şıra sıqtı, petmez qaynattı, artqaçını mısırboğday ununa deñişti, öyle etip, dört tamaqnı yaşattı.
 
 Eminim ki, bu çareler de aileni amansız zevaldan qurtarıp olamaz edi.
-Bir kün eviñizge bir adam kele, – men o vaqıtta endi köyüñizden ketken edim.
-Bu vaqianı maña, sekiz yıldan soñ, Bağçasarayda han azbarında körüşkende, Bari ağa özü söyledi. – Kelgen adam İsmail Aqqiy efendi eken.
+Bir kün eviñizge bir adam kele, – men o vaqıtta endi köyüñizden ketken edim.Bu vaqianı maña, sekiz yıldan soñ, Bağçasarayda han azbarında körüşkende, Bari ağa özü söyledi. – Kelgen adam İsmail Aqqiy efendi eken.
 Muallim, kiler içinde ev hızmetinen meşğul Müntea apteniñ yanaşasındaki kürsüge otura.
 
 – Sizge müim rica ile keldim, – dey oña, – ecnebiy memleketten açlarğa yardım içün kelgen undan cemaatqa ekmek pişirmek, yani künde üç kere hamur basıp, mindirmek, üç defa peçni yaqıp qızdırmaq, siziñ iri peç içine üç defa ekmek qoyıp pişirmek zarur.
