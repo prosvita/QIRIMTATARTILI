@@ -162,7 +162,7 @@ Qız toqtaldı.
 
 – Nasıl mektüpler? – Zeverced taaciplendi. – Biz onı elâk oldı dep bile edik.
 
-Şemsnur, Zeverced ile mektüpleşken student üstünde ketmegenini añlağan soñ, qaz kibi, boyunını töpege sozdı.
+Şemsnur, Zeverced ile mektüpleşken student üstünde ketmegenini añlağan soñ, qaz kibi, boynunı töpege sozdı.
 
 – Men sizniñ eviñizdeki sırlarıñıznı qaydan bileyim? – dep taşladı o.
 
@@ -173,7 +173,7 @@ Nasıl?
 
 Zeverced keçken küzde oña ağası aqqında bazı şeyler aytqan edi.
 Şemsnur öz babasından da eşitken edi ğaliba.
-Bir vaqıtlarda Şemsnurlarnıñ evi Çauşlarnen qonşu eken.
+Bir vaqıtlarda Şemsnurlarnıñ evi Çauşlarnen qomşu eken.
 Şemsnur özü de olarnıñ evinde bir defa yaş bir bariyeli körgeni esinde.
 Bu çoqtan olğan şey.
 O vaqıtta episi küçük balalar edi.
@@ -201,7 +201,7 @@ Yigirmi beş yaşında ekende öz bahtıñnıñ peşinden avlanmaq kerek ola.
 
 Şemsnur endi merdivenniñ astına tüşken, qapu ögünde toqtalğan edi, bosağadan atlap tışqa çıqıp ketmedi.
 
-– Bunı çar-çapik aytmağanıñ ne? – dedi o Zevercedke.
+– Bunı çar-çapik aytmağanıñ ne? – dedi o Zevercedge.
 
 – Üstüme atıldıñ.
 Ne yapmaq kerek edim?
@@ -210,7 +210,7 @@ Qorçalandım, – Zeverced kederini birden ayta qoydı.
 – Meni afu et, tuvğançığım!
 Pek yoruldım. – Elinen mañlayını sıypadı, – Ağañ... ne vaqıt kelecek dediñ?
 
-– Burskun.
+% – O birisi kün.
 
 – Güze-el.
 Barıp qarşılaycaqmız!
