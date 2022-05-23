@@ -292,8 +292,8 @@ Oqup bitirgence qız yoruldı, qızardı, terledi.
 “Saña, Emine, evde qıraitni çoqça oqumaq kerek, – dedim oña, – laqırdıñ güzel, oquvıñ ukrain aenkinde olıp çıqa”.
 
 Aynı masalnı o künü sizge de oquttım.
-Başından güzel oqup keldiñiz, “...çayırda Sefer-Ali aqay, leskeri omuzında, çalığa yaqınlağanda, içinden tilki çıqtı, duv-babam, qaçtı.
-Sefer-Ali çalınıñ pıtaqlarını açtı, ne körsün?
+Başından güzel oqup keldiñiz, “...çayırda Sefer-Ali aqay, leskeri omuzında, çalığa yaqınlağanda, içinden tilki çıqtı, duv-babam, qaçtı. 
+Sefer-Ali çalnıñ pıtaqlarını açtı,ne körsün?
 Tilki evden ketirilgen üylelik yemek boğçasını yırtqan, içindeki aşnı yalap qoyğan”.
 Bu yerde... “duv-babam”, niçündir, siziñ oşuñızğa ketti: “şırq etip külip yiberdiñiz!
 Külgende, oquğan satırlarıñıznı ğayıp ettiñiz.
@@ -421,7 +421,6 @@ Bereket beklegen ealiniñ ümütleri elâk oldı.
 Soñra küz keldi.
 Accı yeller esip, azğın köylülerni titretti.
 Kit-kite teriler süyeklerge yapıştı.
-İçekler incerdi.
 Adamlarnı er yerde ecel taqip etti.
 Ep poçta yol betke... mezarlıqqa süyrekledi.
 
