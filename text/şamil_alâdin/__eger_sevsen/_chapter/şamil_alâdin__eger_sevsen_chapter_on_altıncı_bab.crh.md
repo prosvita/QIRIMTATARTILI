@@ -61,6 +61,7 @@ Oña bu arfni doğru söylemege ögretmek istegenim çoqtan.
 Vaqıt yoq.
 Ondan soñ, yavaş-yavaş özü ögrenip keter belledim.
 Men özüm de... altı yaşımda ekende "r" yerine "l" dey edim.
+
 Balalıq... lâkin Raşid, şükürler olsun, yigirmi dört yaşında.
 
 Yaz künleriniñ birinde bizim köyde qomşumıznıñ oğlu student tatilge kelgen edi.
