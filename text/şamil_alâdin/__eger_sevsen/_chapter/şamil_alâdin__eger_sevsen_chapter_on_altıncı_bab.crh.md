@@ -146,10 +146,10 @@ Kim?
 Yüzü körünmey, çünki maña yarıqqa qarşı baqmaq qıyın.
 Yanında erkek kişi... kişiniñ başında yaltıravuq qasnaqlı qara furajka.
 Böyle furajka kiygen adamlarnı Ödessa bazarında körgen edim.
-Ayaqlarında toqal burun, laklı çızmalar...
-"Cimmi".
+Ayaqlarında toqal burun, laklı çızmalar..."Cimmi".
 Üstünde keñ balaqlı ştan, qısqa bıcaq — çarlston.
 Onıñ da üstünden qısqa palto — ögü çezik.
+
 
 — Siz, Bekirovsıñız... tanıdım,— dedi qız.
 Bu vaqıtqa qadar qayda ediñiz?
