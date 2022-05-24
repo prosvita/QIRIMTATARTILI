@@ -675,7 +675,7 @@ Aytmağa kelemi?
 Omuzında daima kesik tüfek, qolunda brezent çanta.
 Men ağam dep... böyle oğulnıñ babasından aqiqat bilmek içün keldim”.
 
-– Atışuvlarğa tezden acet qalmaycaq, – dedi dülger. – Öyle körüne.
+– Atışuvlarğa tezden acet qalmaycaq, – dedi dülger. 
 Şura ükümeti keldi mından bir yaqqa ketmeycek.
 Atışuvlarnıñ endi faydası yoq.
 
@@ -708,8 +708,7 @@ O, şura ükümeti degilmi?
 Belki volost idaresine bizim içün eki ağız söz aytır!
 
 – Yoq! – dedi dülger. – Bari onı yapmaz.
-Qolundan kelse bile yapmaz.
-Eali de yaptırmaz!
+Qolundan kelse bile yapmaz.Eali de yaptırmaz!
 
 Dülgerge qız qardaşı ile böyle kederli mevzuda laqırdı etmek ğayet müşkül edi.
 O sebepten, özüniñ daimiy yerinden qalqıp, azbarğa çıqtı, kiler saçağı tübündeki tapşan üstüne oturdı, başını eki avuçı arasına alıp, tüşüncege daldı.
@@ -752,9 +751,7 @@ Siz eki akimiyetniñ işlerini biri-birinen qarıştırmañız!
 Kerçek, kimerde anda-mında tüfek patlay... buña devlet almaşuvı, yani inqilâp deyler.
 
 Mümine apte menim soñki sözlerimni eşitmegen kibi, indemey sofağa çıqtı.
-Tapşan üstünde Alâdin ağa yoq edi.
-Musafir maramasınen yüzüniñ bir yaqını örtkeni alda, taşlı, eniş azbar boyu yürip, araba qapudan çıqtı, soñra tar soqaqnen dere betke endi.
-Bent ep quturmaqta edi.
+Tapşan üstünde Alâdin ağa yoq edi.Musafir maramasınen yüzüniñ bir yaqını örtkeni alda, taşlı, eniş azbar boyu yürip, araba qapudan çıqtı, soñra tar soqaqnen dere betke endi.Bent ep quturmaqta edi.
 
 Köyniñ şarqında, Bağatırğa ketken eniş aralıqnıñ qarşısında Abdulla baynıñ eki qatlı evi tura.
 Ast ve üst sofaları camlı.
