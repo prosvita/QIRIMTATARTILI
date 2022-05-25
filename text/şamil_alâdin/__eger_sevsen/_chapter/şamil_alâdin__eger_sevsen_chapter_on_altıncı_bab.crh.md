@@ -215,8 +215,7 @@ Senmi?— Kişi balaban ağızını ziyade açıp, küldi.— Bana şişeni tüp
 
 — Bir parçaçıq... o da raqı degil, zveroboy.
 
-— Qayda işleysiñ.
-Valâ?— dep soradım ondan.
+— Qayda işleysiñ Valâ?— dep soradım ondan.
 
 —İşim zevqlı.
 Kommutatorda oturam.
