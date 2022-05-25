@@ -266,6 +266,7 @@ Valâ bilse kerek.
 
 — Mansurovnıñ?
 Şaşılacaq şey! 
+
 Soñundan nasıl vaqialar olıp çıqacağını bilmedim.
 Bilgen olsam, Yekaterina Vasilyevna aqqında bir şey aytmaz edim.
 
