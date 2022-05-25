@@ -380,6 +380,7 @@ Men oturalmadım.
 Küşetkanıñ üstüne yatqızdılar.
 Aş qazanımnı yuvdılar... bu — müim protsedura eken.
 Ondan soñ, özüme keldim.
+
 Diagnoznı körip, ayrette qaldım.
 
 — Zeerlenüv,— dedi ekim,— kimerde kişiler barakqa parovoz çöyüninden suv alıp keleler.
