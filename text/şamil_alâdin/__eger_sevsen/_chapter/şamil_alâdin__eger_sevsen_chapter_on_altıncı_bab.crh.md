@@ -572,7 +572,7 @@ Elbette, bunıñ sebepleri bar.
 
 — Aytıñız, biz de bileyik!— dep qıçırdı zaldan yer patlatıcılarnıñ büyügi.
 
-— Siz, Mihail Eduardoviç, bir şeyler aytacaqsıñızmı?— dep soradı Krasnânskaya, quru-cılıq başlığından... güya zaldan berilgen replikanı işitmedi.
+— Siz, Mihail Eduardoviç, bir şeyler aytacaqsıñızmı?— dep soradı Krasnânskaya, qurucılıq başlığından... güya zaldan berilgen replikanı işitmedi.
 
 — Yoq,— Torizo başını tersine salladı,— özüñiz aytıñız!
 Merkeziy Komitetniñ qararı sizge malüm.
