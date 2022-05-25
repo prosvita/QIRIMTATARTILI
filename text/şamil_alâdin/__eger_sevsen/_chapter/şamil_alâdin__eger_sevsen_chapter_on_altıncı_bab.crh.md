@@ -234,8 +234,7 @@ Közüme baqmağa istemey.
 Sol qaşınıñ üstünde pıçaq izi.
 Canım bu...
 
-— Muşuq!
-Sen ep gizlenip yüresiñmi?
+— Muşuq!Sen ep gizlenip yüresiñmi?
 
 — Niçün?
 Ne mana bar?— Muşuq tınç cevap berdi.
