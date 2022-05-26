@@ -734,14 +734,13 @@ Qırlardan sel aqmaqtamı.
 Aylanma kanal, işte, müim mesele.
 Ekskavator maşinistler hususında tüşünmek, olarnıñ ameliy bilgilerini teşkermek kerek.
 Belki bu fikirnen de razı olmazsıñız, amma men öyle tüşünem.
-Bizim maşinistler — acemi kişiler.
+Bizim maşinistlerımız — acemi kişiler.
 Rıçagnı ögge-artqa üytemege bilüv, bu iş bilüv degil.
 Kiçik detal bozulsa, tüzetmek tursın, yerinden çıqarıp almağa bilmeyler.
 Bütün Baş Dugümde bir aqiqiy maşinist bar...
 Andrey Almazov.
 Başqalarını qoy çuvalğa — ur divarğa!
-Agapov...
-Bassaraba, olarğa maşinist demek mümkünmi?
+Agapov...Bassaraba, olarğa maşinist demek mümkünmi?
 
 — Bassarabağa toqunmañız!— dep qıçırdı nijniklerden biri.
 
