@@ -579,7 +579,7 @@ Merkeziy Komitetniñ qararı sizge malüm.
 
 Krasnânskaya teklifni qabul etti.
 
-— İş şöyle,— dedi o,— ükümetniñ yeñi qararı mücibi, aylanma kanal bu sene baarde bi-tirilmege borclı.
+— İş şöyle,— dedi o,— ükümetniñ yeñi qararı mücibi, aylanma kanal bu sene baarde bitirilmege borclı.
 Lâkin biz bu müddetni muzakere içün toplanmadıq.
 Qararnı eda eteyikmi?
 Etmeyikmi?
