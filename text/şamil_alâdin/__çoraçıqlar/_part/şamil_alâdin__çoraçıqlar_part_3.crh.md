@@ -666,7 +666,6 @@ O, ağasını, asıl da, çoq meselelerde añlap olamay.
 “Ya Rabbi!
 Men ağamdan ne qıdıram?
 O maña nasıl teselli bere bilecek? – dep tüşündi şimdi de. – Oraza tutmağan, camige ayda-yılda hatanen bir barğan adam, maña ne yardım etecek?
-Onıñ beklegeni böyle akimiyet edi.
 “Qutu yuvarlandı, qapağını buldı”.
 Oğlu üç yıl padişa ordusında almanğa qarşı uruştı.
 Dördünci yılı bolşevik olıp keldi.
@@ -735,8 +734,7 @@ Ağañnıñ sözlerine ıncınma!
 O, biraz tik mezep... lâkin qalpten temiz.
 Seni seve, seniñ içün qasevetlene.
 
-– Siziñ acizlenüviñiz yersiz, – dedim men Mümine aptege. – Şura idaresi bu küngece ne fuqareniñ, ne de zenginniñ şahsiyetine toqunmadı.
-Kimseniñ elinden mülküni çekip almadı.
+– Siziñ acizlenüviñiz yersiz, – dedim men Mümine aptege. – Şura idaresi bu küngece ne fuqareniñ, ne de zenginniñ şahsiyetine toqunmadı.Kimseniñ elinden mülküni çekip almadı.
 Mal-mülk saipligi, zanıma qalsa, vaqıtı ile qanun mücibi al olunacaq!
 
 – Ya, balam, ortalıqtaki bu zorbalıqnı körmeysiñmi? – dedi Mümine apte, – Alan-alannı, tutan-tutannı!
