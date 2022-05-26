@@ -656,9 +656,9 @@ Yahşı şey degil.
 
 — Eki million!— dep fısıldadı Raşid ve tirseginen menim qaburğama türtti.
 
-Curayevniñ sözleri adamlarda, şübesiz, tees-surat doğurdılar.
+Curayevniñ sözleri adamlarda, şübesiz, teessurat doğurdılar.
 Bunı Vadim Semönoviç sezdi, ellerini pervasız alda eki yaqqa açıp, boyunını qısıp, zalnıñ törine baqıp turdı.
-Baqtı... kimsenn körmedi, bir şey işitmedi.
+Baqtı... kimseni körmedi, bir şey işitmedi.
 
 — Yoq!— dedi o, bir talaydan soñ,— bu, er alda, tehnikiy mesele.
 Onı al etermiz.
