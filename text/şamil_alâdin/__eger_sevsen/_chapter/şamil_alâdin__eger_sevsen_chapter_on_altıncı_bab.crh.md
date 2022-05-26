@@ -749,6 +749,7 @@ Dağılıp ketecekmi?
 
 Soñki eki söz kişnlerniñ oşlarına ketti… külüştiler.
 Torizo ilekâr... ne vaqıt, ne yerde, nasıl laqırdı etmek kerekligini bile. 
+
 Raşid dayanıp olamadı.
 
 — Bassaraba acaip maşinist...— dep qıçırdı, ayaqqa tura berip.— Tek bir plannı toldırmadı.
