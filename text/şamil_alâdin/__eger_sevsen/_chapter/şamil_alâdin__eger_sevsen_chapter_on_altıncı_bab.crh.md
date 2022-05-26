@@ -700,7 +700,7 @@ Kanal üstünde eki köpür qurmaq kerekmi — kerekmeymi?
 Bu meseleni muzakere eter, bir qararğa kelirmiz,— dedi Torizo.
 
 — Biz, Mihail Eduardoviç, bu hususta siziñnen laqırdı etken edik.
-Hatiriñizdemi?— dedi Krasnânskaya, eecanlı alda,— oldı!
+Hatiriñizdemi?— dedi Krasnânskaya, eycanlı alda,— oldı!
 Mesele çezildi, degen ediñiz.
 Şimdi kene: baqarmız, çezermiz... añlaşılmay.
 
@@ -718,7 +718,7 @@ Anna Yakovlevnanıñ yüzü qızardı, iddetlenip, qarındaşınen grafinni çal
 — Men mesele böyle çezilir, dep, tüşünmegen edim,— dedi Krasnânskaya, fikirlerini toplağan soñ,— Curayev arqadaş!
 Baş idarede akveduk meselesi çezilgende siz barmı ediñiz?
 
-— Çezilgende, degil — çezilıyen soñ... bar edim.
+— Çezilgende, degil — çezilğinden soñ... bar edim.
 Mihail Eduardoviç akveduk proyekti tehsovette tasdiq etilgenini aytqan edi.
 
 — Men Baş Dugüm qurucılığı içün mesül kişim,— dedi Anna Yakovlevna,— tehnikiy aktivniñ ögünde tekrar aytam: müim mesele böyle çezilmey.
