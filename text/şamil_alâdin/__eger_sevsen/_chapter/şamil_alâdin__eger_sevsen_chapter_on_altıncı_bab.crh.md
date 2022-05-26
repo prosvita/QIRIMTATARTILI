@@ -595,7 +595,7 @@ Torizo başını qıbırdattı: "Mümkün".
 — Maña bugün akveduk meselesi çezilecek dediler.
 Onıñ içün keldim.
 
-— Siz şay da meclisimizniñ qaramanısıñız...— dedi Torizo külümsirep.— Yer astı kanalı-ñız başımız üzerine apansızdan yağğan qar oldı.
+— Siz şay da meclisimizniñ qaramanısıñız...— dedi Torizo külümsirep.— Yer astı kanalıñız başımız üzerine apansızdan yağğan qar oldı.
 
 — Men tünevin kommunistlernen laf ettim,— endi ayaqqa Curayev turdı,— olar, yer astı kanalı aqqında, ciddiy talimat bekleyler.
 
