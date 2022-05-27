@@ -318,7 +318,7 @@ O şimdi baş agronom.
 – Demek, tek oğlannı degil, dostumnı da körecegim.
 Kelsin... mor-patilcan turşusı da ketirsin.
 
-Çauş böyle dedi, yüregi ise, niçündir, sızlap aldı.
+Çauş böyle dedi, yüregi ise, ne içündir, sızlap aldı.
 Qart Mustafanıñ yüreginiñ sızlavı Şemsnur içün ne demek ola?
 Qıznıñ meramı – bariyelini körmek... özüni de körsetip, soñ yigitniñ başını noqtalamaq.
 Gençlik, dülber çere ve naz... bular ile yigitni delirtmek küç degil?
