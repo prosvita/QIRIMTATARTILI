@@ -298,7 +298,6 @@ Tilki evden ketirilgen üylelik yemek boğçasını yırtqan, içindeki aşnı y
 Bu yerde... “duv-babam”, niçündir, siziñ oşuñızğa ketti: “şırq etip külip yiberdiñiz!
 Külgende, oquğan satırlarıñıznı ğayıp ettiñiz.
 Olarnı qıdırıp tapqan soñ fikirleriñizni birden toplap olamadıñız.
-Böyle etip, çığırdan çıqqanıñızğa, ğaliba, özüñiz de tarsıqtıñız.
 Bu arada Emine qulağıñız tübünde yavaştan: “Aci-güci... saña ne oldı?
 Duv babam dep... olamaysıñmı?” diye pısırdadı.
 Siz qızıştıñız, omuzıñıznen qıznı türttiñiz, qız çetke qaqılğanda, tirsegi rale üstündeki merekep şişesine tiydi, şişe yıqıldı, tığırıp qıznıñ tizleri üstüne tüşti.
@@ -940,8 +939,7 @@ Mında yazılğan: tapqan uva, aram ola!
 Teri ketirgen adam mollanıñ sözlerini añlamay.
 “Nasıl dediñiz, molla azretleri?” dep qaytarıp soray.
 Molla sözlerini tekrarlay: “Tapqan uva – aram ola.
-İmam uva – elâl ola!” Quranda açıq-aydın yazılğan!” “Demek, tapılğan kilim maña aram, sizge elâlmı?” Mollanıñ: “E!
-A!” – degen davuşları çıqa.
+İmam uva – elâl ola!” Quranda açıq-aydın yazılğan!” “Demek, tapılğan kilim maña aram, sizge elâlmı?” Mollanıñ: “E! A!” – degen davuşları çıqa.
 Kişi kilimni mollağa qaldırıp, narazı alda, çıqıp kete.
 
 Seyirci cemaat etini ğayıp etecek qadar hahıldap küldi.
