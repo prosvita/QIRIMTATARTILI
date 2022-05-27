@@ -228,7 +228,7 @@ Añlaşıldı, ketmek kerek.
 Kişi kim?
 Qara kartuzını közlerine basa berip kiygen.
 Yüzü körünmey.
-Ana endi qaburğalap oturdı.
+
 Közüme baqmağa istemey.
 
 Sol qaşınıñ üstünde pıçaq izi.
