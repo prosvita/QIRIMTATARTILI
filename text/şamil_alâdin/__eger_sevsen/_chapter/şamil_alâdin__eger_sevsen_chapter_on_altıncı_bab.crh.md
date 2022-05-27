@@ -932,8 +932,7 @@ Arheologik bir delil olaraq meraqlı şey.
 Ne yapacaqmız?
 Onıñnen oğraşacaqmızmı, yoqsa plotina quracaqmızmı?
 
-— Çar-Çaqnıñ qarşı yalısında qışlaq bar...
-İskander.
+— Çar-Çaqnıñ qarşı yalısında qışlaq bar...İskander.
 Añladıñızmı?— dedi Menjevetskiy ve sustı, nelernidir hatırlamaq istedi.
 
 — Ebet!
