@@ -990,7 +990,7 @@ Yerine oturdı.
 
 Soñ Tursunov turdı, elindeki qulaqlı qalpağını sallay berip, elektrik bürosınıñ şimdiki vaziyeti ve kelecegi aqqında söyledi.
 Yeñi stantsiya areketke kelse, elektrik küçü yoq, yarıq söndi degen şey olmaycaq.
-Şimdilik Qadıryanıñ küçünen yaşap turamız.
+
 
 Bu adam ayaqqa turğan vaqıtta, onı fikren İrada ile yan-yanaşa qoyıp, muqayese ettim.
 Söz istep, elini kötergende, onıñ tar ve uzun avuçınıñ içini kördim.
