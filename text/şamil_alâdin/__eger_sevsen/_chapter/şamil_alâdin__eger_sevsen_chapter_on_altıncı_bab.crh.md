@@ -1041,4 +1041,4 @@ Bunı sizge bildirmemni rica etti.
 Akveduk meselesine kelgende, özüñiz baktıñız, nasıl elverişli olsa, öyle al etiñiz, dedi.
 Eger imkân olsa, eki million degil, eki kümüşni bile iqtisad etmege tırışıñız... şay dedi.
 
-— Sergo başqa türlü demeycegine men emin edim!— Curayev hoş ve ğururlı çere ile külüm-siredi.
+— Sergo başqa türlü demeycegine men emin edim!— Curayev hoş ve ğururlı çere ile külümsiredi.
