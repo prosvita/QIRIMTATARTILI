@@ -730,7 +730,7 @@ Men böyle işke razı degilim.
 Biz bazarda degilmiz.
 Akveduk... bu şimdi ne içün kerek oldı?
 Ne?
-Qırlardan sel aqmaqtamı.
+Qırlardan sel aqmaqtamı?
 Aylanma kanal, işte, müim mesele.
 Ekskavator maşinistler hususında tüşünmek, olarnıñ ameliy bilgilerini teşkermek kerek.
 Belki bu fikirnen de razı olmazsıñız, amma men öyle tüşünem.
