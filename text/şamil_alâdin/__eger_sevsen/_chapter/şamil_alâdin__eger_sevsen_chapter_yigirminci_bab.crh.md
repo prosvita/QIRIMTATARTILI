@@ -2,10 +2,10 @@
 
 Almazov menim çalışqanıma diqqat etip turdı.
 
-— Karim ne dedi, aqılıñdamı?
+— Karim ne dedi, aqlıñdamı?
 Kovş qaranlıqta, çuqur içinde ne vaziyette...
 Eliñ rıçag üstünde ekende is etmek kerek.
-Aks taqdirde özüñni maşinist isap etmege aqqıñ yoq.
+Aks taqdirde özüñni maşinist esap etmege aqqıñ yoq.
 
 Ekskavatorcılar mektebini bitirgen soñ Almazovnıñ elinde ameliyat keçtim.
 
@@ -94,7 +94,7 @@ Men motorlar bölüginde turıp, olarnıñ laqırdısını diñledim.
 — Çar-Çaqqa yetmege on metr qaldı...— dedi Almazov, közlerini kovştan almay,— eksik degil.
 Keñligi?
 Terenligi?
-Bu isapqa alınmaymı?
+Bu esapqa alınmaymı?
 
 Karim aşağıda tura.
 Çırayı sıtıq, özü darğın.
