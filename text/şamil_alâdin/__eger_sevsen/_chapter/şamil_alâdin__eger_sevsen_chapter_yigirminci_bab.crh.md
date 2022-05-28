@@ -109,7 +109,7 @@ Sesi titrek.
 
 Kögertege çıqtım.
 
-— Qavi turuñız, injener arqadaş,— dedim İradağa,— kabinanı bir silkitse... sizni uçurım astında qıdır yur.
+— Qaviy turuñız, injener arqadaş,— dedim İradağa,— kabinanı bir silkitse... sizni uçurım astında qıdır yur.
 
 — Silkitsin...— dedi o, quru davuşnen. — Men de onı qıdıram.
 
@@ -119,31 +119,31 @@ Kögertege çıqtım.
 
 — Yıqıldıñızmı?
 
-— Yeter, Cevdet!— dedi İrada kederli alda,— şaqa etüv vaqıtı degil.
+— Yeter, Cevdet!— dedi İrada kederli alda,— şaqa etüv vaqtı degil.
 
 Qıznıñ yuqusız, aqçıl çeresine, asretli közlerine baqtım.
 Yoq, o maña açuvlı degil...
 
-Tekrar içeri kirdim, olarnıñ laqırdılarına diñlendim.
-Yarım-yurtu işitilgen sözlerden, şöyle adise olıp keçkenini añladım.
+Tekrar içeri kirdim, olarnıñ laqırdılarını diñlendim.
+Yarım-yurtu eşitilgen sözlerden, şöyle adise olıp keçkenini añladım.
 
 ...Üç kün evelsi Mansurov kâğıt yazıp bir kişige bergen.
 Paromda qarşı yalığa keçip, İskander poçtasından Orconikidzege telegramma yollamasını emir etken.
-Bunı Toqtabayev işitken, amma emiyet bermegen.
+Bunı Toqtabayev eşitken, amma emiyet bermegen.
 Kerçek, Mansurovnıñ halq komissarınen mektüpleşüvine biraz taaciplengen, biraz da şübelengen, lâkin soñundan başqa neticege kelgen: halq komissarına erkes mektüp yaza bile dep tüşüngen.
 Şimdi Curayev oña, Sergodan telegramma kelgenini bildirgen.
-Halq komissarı Baş Dugüm qurucılarını aylanma kanalnı müddetinden evel bitirüvleri munasebetinen hayırlamaqta ve ekskavatorcılarğa aynı zamanda, Mansurovqa teşekkürler bildirmekte.
+Halq komissarı Baş Dugüm qurucılarını aylanma kanalnı müddetinden evel bitirüvleri munasebetinen hayırlamaqta ve ekskavatorcılarğa aynı zamanda, Mansurovğa teşekkürler bildirmekte.
 
 — Krasnânskayanıñ haberi barmı?— dep soradı Almazov.
 
 — Bar,— dedi İrada,— lâkin ne çare?
 Kanalnı bitirmek içün eñ azdan sekiz kün kerek.
-Yer astı kanalını isapqa qoşmasaq...
+Yer astı kanalını esapqa qoşmasaq...
 
 — Mansurov zevqlı adam,— dedi Almazov. — Bundan evel qayda çalıştı, bilmeysiñizmi?
 
 — Tehnikiy bölükte.
-Ne yapqan bilmem, boşadılar... mında keldi.
+% Ne yapqan bilmem, işten çıqardılar... mında keldi.
 İçtimaiy keçmişinde bir şeyler bar eken.
 
 — Ne bar eken?
@@ -153,7 +153,7 @@ Babası basmaç degilmi eken.
 Almazovnıñ bu sualine darılğan kibi oldı. — Niçün basmaç?
 Men añlamayım, bir adamnıñ içtimaiy keçmişi çıbalıqça olsa, mıtlaqa babası basmaç eken dep tüşünmek kerekmi?
 Mansurov meselesine Torizonıñ özü de qarışqan.
-Torizo, fikirimce mefküreviy sağlam kişi.
+Torizo, fikrimce mefküreviy sağlam kişi.
 
 — Keçenlerde... muşaverede olğan laqırdılarğa baqqanda, Krasnânskaya ondan qorqqanğa beñzemey,— dedi Karim.
 Kögertege ne vaqıt çıqqanını sezmedim.
@@ -176,7 +176,7 @@ Dülber yer.
 — Dülber.
 Yazıq ki, dülber şeylerniñ episi faydalı olmay,— dedi İrada,— Ayıq-Burun aylanma kanalğa suv kirmesine keder etecek.
 Karimnen ekiñiz onı beş kün içinde cıyıştırıp alacaqsıñız.
-Anna Yakovlevnanıñ emiri Böyle.
+Anna Yakovlevnanıñ emri böyle.
 
 Biraz indemey turdı, soñ ilâve etti:
 
@@ -186,7 +186,7 @@ Elbette biter.
 Bu Çar-Çaq boyunda neler-neler bitmedi!..
 Tasavur etesiñizmi?
 
-Almazov, İradanıñ inamlı, işançlı davuşını işitip, açuvlandı.
+Almazov, İradanıñ inamlı, işançlı davuşını eşitip, açuvlandı.
 
 — Beş kün...
 Sizge, reberlerge, köre ne?
@@ -206,7 +206,7 @@ Beş künde bitmez. — Karim öz-özünen laqırdı etmekte edi. — Topraq bir
 Patlatmaq kerek.
 Patlatuv ise vaqıt ala.
 
-— Sizge yalı ne kerek?— dedi İrada,— qırnı suv seviyesinece qazacaqsıñız... aşağısını özen özü yuvup alıp keter.
+— Sizge yalı ne kerek?— dedi İrada,— qırnı suv seviyesinece qazacaqsıñız... aşağısını özen özü yuvıp alıp keter.
 Ayıq-Burunda taş, qaya yoq, geologlar episini teşkerdiler.
 Taş suv astında.
 Yalını doğrultsañız oldı.
