@@ -213,7 +213,7 @@ Yalını doğrultsañız oldı.
 Suv aylanma kanalğa kire bilsin.
 Beş kün... azmı?
 
-Parovoznıñ keskin davuşı işitildi.
+Parovoznıñ keskin davuşı eşitildi.
 Almazov soñki kovşnı yığın töpesine aydap, toprağını tökti, kovşnı yerge tüşürip, rıçagnı keri çekip taşladı.
 
 Evge qaytqanda Andrey Zaharoviçnen laqırdığa tutundıq.
@@ -240,7 +240,7 @@ Beş kün...
 Er kün tahtada raqam deñiştirile, künler eksilgen sayın surat arta.
 Noqtalar üstünde "bir" raqamı ne vaqıt peyda olacaq?
 O kün kelse edi.
-Yerastı kanalınıñ ağızı daa tıqatılmadı.
+Yerastı kanalınıñ ağzı daa tıqatılmadı.
 Çuqurlar qapalmadı ve trubanıñ üstünde açılğan qapaqlar örtülmediler.
 Bu işlernen şimdi oğraşıp başlaylar.
 Gidrotehnikler, geologlar, kereksin-kerekmesin, arqalarına apparatlarını ve qazmalarını urıp, de Ayıq-Burun betke keçip kete, de Çatal-Çinar yanındaki qobağa kire,— qarışıp yüreler.
@@ -269,22 +269,22 @@ Belki birisi yırtıp atqan!?
 Yoq, mümkün degil.
 Samolöt üstünde biz Almazovnıñ ekipajı.
 Gemide Karim.
-Bassaraba yavtomobilde.
+Bassaraba avtomobilde.
 Kaloş içinde kimse yoq.
 
 Yalığa tüştik.
 Yerastı kanalınıñ Çar-Çaqqa çıqqan yerini körmek istedik.
 Özenniñ çetinde yerge demir qazıqlar qaqılğan.
 Niçün?
-Buña aqılımız yetmedi.
+Buña aqlımız yetmedi.
 Suvnıñ ortasında ne olğanını köralmadıq — qaranlıq.
 Qaytıp töpege çıqtıq "Mavı qaya"ğa kirdik.
 Anda İrada bir özü oturmaqta edi.
-Toqtabayevniñ stolı üzerine büyük kâğıt cayğan, "Yengil kavaleriyanıñ" nevbetiy bülletenini yazayata.
+Toqtabayevniñ stolu üzerine büyük kâğıt cayğan, "Yengil kavaleriyanıñ" nevbetiy bülletenini yazayata.
 
 Almazov kâğıtnıñ üstündeki yazılarnı körip, açuvlandı.
 
-— Bu adden aşıq...— dedi o, qızğa,— biz aytqanımız yoq, siz ayttıñız!
+— Bu adden aşır...— dedi o, qızğa,— biz aytqanımız yoq, siz ayttıñız!
 
 Kâğıt üstünde şu sözler yazılı edi: "İleri maşinistler Almazov ve Yoldaşev Ayıq-Burundaki topraq işlerini beş künde bitirmege söz berdiler".
 Bülleten: "İş suratını arttırayıq!
