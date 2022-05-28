@@ -26,7 +26,7 @@ Böyle oğlançıqlar ve qızçıqlar pek çoq degilller, lâkin barlar.
 Amma otuzıncı yıllarda bizge anamıznıñ etegi astından çıqıp ketmek qıyın degil edi.
 
 Sez kelimi, arbiy komissarlıqqa ariza berip, arbiy mektepke ketmek adetiy bir şey edi.
-"İmperialistler memleketimizge qarşı cenk azırlayyatqanda biz salqın, tınç binalarda oturıp, raat oqup olamaymız!" İşte, sebep!
+"İmperialistler memleketimizge qarşı cenk azırlayyatqanda biz salqın, tınç binalarda oturıp, raat oqup olamaymız!" 
 O vaqıtlarda... baştan-ayaq silâ taqınğan nemse-faşist başkeserleri Avropanı titretkende, bu sözlernn, kelişsin-kelişmesin, qullanmağa seve edik.
 
 Biz institutnı bıraqıp, torbalarımıznı omuzlarımızğa urıp, vokzalğa keldik.
@@ -60,15 +60,14 @@ Maşşalla! — deyler.
 Ebet, öyle olur bellegen edim, amma öyle olmadı.
 Çünki orduda hızmet etken yalıñız men degil, million kişiler ediler.
 Adamlar toplanıp, episiniñ ikâyesini diñley berecek olsalar, olarğa çalışmağa ve yuqlamağa vaqıt qalmaycaq.
-Men er kesniñ közü, ayaqlarımdaki şporlarğa ve başımdaki qırmızı qasnaqlı mavı furajkağa tikilip, şaşıp — seyir etip qalırlar, bellegen edim.
-Furajkama kimse qulaq asmadı.
+
 Vagondaki çot saqal qomşum laqırdını qısqadan kese qoydı:
 
 — ...Bitirip keleyatqan olsañ, bu şporlarnı niçün çıqarmaysıñ?
 
 Ne deycegimni bilmedim.
 Men okrug manevrlerinde iştirak ettim, at üstünde qarlı dağlardan, ucsız-bucaqsız çöllerden, buzlu özenlerden keçtim... o maña şporlarıñnı niçün çıqarmaysıñ, dey.
-Qıymetli yolcu, men daa olarnıñ davuşını işitip toymadım!
+Qıymetli yolcu, men daa olarnıñ davuşını eşitip toymadım!
 Onıñ nağmelerini daa çoq kişiler diñlemek kerekler.
 Bunı saña aytıp añlatmaq mümkün degil.
 Sen atlı askerde hızmet etken kişige beñzemeysiñ.
@@ -88,12 +87,13 @@ Direktor qapu üstündeki çıraqnıñ yarığında maña hayli vaqıt taacipli-
 — Cevdet Bekirov?
 Sensiñmi? — dep soradı.
 
-— Ebet! — dedim men,— onıñ özü!
+— Ebet! — dedim men, — onıñ özü!
+
 Direktor ayret içinde keri çekildi:
 
 — Arqadaşlarıñ?..
 
-— Bnlmeyim.
+— Bilmeyim.
 Biz çeşit yerlerde hızmet ettik.
 Men... keldım.
 İnstitutnı bitirmek isteyim.
@@ -198,9 +198,8 @@ Añladıñmı?
 Anda, saña benzer, mazallı kişiler kerekler.
 Ket anda!
 
-— Yeq.
-Men oqumaq... institutnı bitirmek isteyim!
-dedim men. — Qurucılıqqa, institutnı bitirgen soñ kete bilem.
+— Yoq.
+Men oqumaq... institutnı bitirmek isteyim! - dedim men. — Qurucılıqqa, institutnı bitirgen soñ kete bilem.
 
 Men şay degende, kabinetteki kişiler arasında çıbalıq saçlı, aqçıl yüzlü, yaş kişi maña hucur-hucur baqtı, soñ teneke davuşnen qaqıldap küldi.
 Oña köz ettim.
