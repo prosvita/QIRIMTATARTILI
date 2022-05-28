@@ -300,24 +300,24 @@ Soñ Almazov çıqıp ketti.
 
 — Yoq,— dedi İrada resmiy tilde,— qolaysız olıp çıqar...
 
-— Onıñ yuzsizligi işniñ faydasına olıp çıqtı, öyle añlaycaqmızmı?
+— Onıñ yuzsuzlığı işniñ faydasına olıp çıqtı, öyle añlaycaqmızmı?
 
 — Ne demek isteysiñiz, Bekirov?— İrada közlerimniñ içine dep baqtı ve menden cevap bekledi.
 Baqışında teren ökünç bar edi.
 "Saña ne oldı?
 Meni kerçekten de unutmaq isteysiñmi, Cevdet?" demek istegen kibi keldi.
-Soñ: — Böyle qavflı areket nasıl etip faydalı olıp çıqa bile, aqılım yetmey,— o zornen külümsiredi.
+Soñ: — Böyle qavflı areket nasıl etip faydalı olıp çıqa bile, aqlım yetmey,— o zornen külümsiredi.
 
-— Bütünley degil,— dedim men,— er alde, faydalı olıp çıqtı!
+— Bütünley degil,— dedim men,— er alda, faydalı olıp çıqtı!
 
 — Sizni tanımaq mümkün degil, Cevdet!— dedi o.
-Niayet, ağızından adım çıqtı,— daa yañçıq şaqa etesiñiz bellegen edim.
+Niayet, ağzından adım çıqtı,— daa yañçıq şaqa etesiñiz bellegen edim.
 Şimdi añladım, şaqa etmey ekensiñiz.
 Mansurov bu işni büyüklerniñ közüne kirmek içün yaptı.
 
 — Şübesiz... tünevin mecliste ise smena injenerleri, aylanma kanalnı doquz künde bitirmek mümkün degen fikirge keldiler.
 Şimdi beş künde bitirmege söz bereyatasıñız.
-Mansurov gürülti çıqardı, siz ise Ayıq-Burun dört künde yer yüzünden ğaip olacaq dep molniya yazdıñız.
+Mansurov gürülti çıqardı, siz ise Ayıq-Burun dört künde yer yüzünden ğayıp olacaq dep molniya yazdıñız.
 
 Şükür!
 Biz endi laqırdı etemiz.
@@ -338,7 +338,7 @@ Men bu haberni şimdilik İradağa aytmadım".
 Elbette.
 Siz maña alâ açuvlısıñızmı, İrada?
 
-— Men mi?— o elindeki kâğıtlarnı şkaf içine qoyıp, kilitledi, çıqıp ketti.
+— Menmi?— o elindeki kâğıtlarnı şkaf içine qoyıp, kilitledi, çıqıp ketti.
 
 Madamki sualim cevapsız qaldı, men de onıñ peşinden kettim.
 İrada topraq obaları üstüne çıqıp parom betke yol tuttı.
@@ -357,7 +357,7 @@ Men artıq sizge darğın degilim.
 
 "Darğın degilim..." Buña inanmaq mümkünmi? 
 Bayırdan aşağı tüştik.
-Demir yol köpürden keçip, baraklarğa doğruldıq.
+Demiryol köpürden keçip, baraklarğa doğruldıq.
 
 İnjenerler maallesindeki trans-kiosk yanında İrada meni toqtattı.
 
