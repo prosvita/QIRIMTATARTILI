@@ -870,49 +870,6 @@ Temaşadan soñ köy mektebiniñ talebeleri şiirler oquylar.
 Böyle aqşamlarnıñ birinde, hatirimde, köy qızlarından Zeyneb İbraimova ve Ayşe Aqmollayeva “Ketme, balam, ayıptır!” eserini sanağa çıqıp oqudılar.
 Zeyneb ana oldı, Ayşe qızı.
 
-Ana: Şeytan evi mektep degen egerek,
-
-Özü de tap Aqmescitte, köyümizge pek erek!
-
-Asıl, canım, qız balağa oquv-yazuv ne kerek?
-
-Otur evde, qur tezyañnı, ketenlerni ağartıp.
-
-Aytqanımdan çıqma, balam, halqqa yüzüñ qızartıp.
-
-Saña baqsaq, sen oquvnı beñzetesiñ süretke,
-
-Zemane dey, sağlamlıq dey, tırmaşasıñ terekke.
-
-Bizler seni nişanladıq pek zengin bir erkekke,
-
-Ah, aq Tañrım, buzuldı da qızlarımız, erimiz,
-
-Yarın ahret kününde yoq bizim yatar yerimiz.
-
-Qız: Ah, esirlik deviriniñ qul-qurbanı, anayım!
-
-Siziñ içün ceennemde otlarğa men yanayım!
-
-Yañlışasız, aldanasız, hucur laflar aytasız!
-
-Zemaneni añlamaysız, yüz yıl artqa qaytasız!
-
-Bezdiresiz sizler meni şu nişanlav sözümen,
-
-Menligimni satacaqsız üç-beş arşın bezimen.
-
-Ketme, balam, dep aytasız, asla kimniñ yüzümen?
-
-Men ketermen, aytıñ, babam maña potük tez alsın!
-
-Mında alğan eski bilgim özü içün mal olsun!
-
-Ey, anayım!
-Oqumağa ketecekmen-ketecek!
-
-Bu Qırımnı bir top çiçek etecekmen-etecek!
-
 Oquyıcı gençlik, tatil bitip, köyden şeer mekteplerine qaytqan soñ, bediiy aqşamlarnı köylülerniñ özleri de yaptılar.
 Olarnıñ temaşaları, ekseriyetle, mektep azbarında, açıq avada, yüksekçe yerde ola edi.
 Tütün sırıqlarını biri-birine bağlap, çatqı yasap, töpesini brezentnen örteler, büyük sana olıp çıqa.
