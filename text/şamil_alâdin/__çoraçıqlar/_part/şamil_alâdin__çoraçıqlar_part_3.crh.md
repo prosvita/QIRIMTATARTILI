@@ -1168,7 +1168,8 @@ Qayda?” dep soradım.
 “Sıcaq suv... yoq! – dedi o, – tapacaqsıñ!”
 
 Bugün, ocam, siziñ ilki muallimlik ve menim talebelik devirimizni eske tüşürdik.
-Hatirim ğayet hoş.Men, bunıñle beraber, o yıllarda köyümizde şura akimiyetini samimiy sevgi ile qabul etip, onıñ ebediyen yaşaması içün yüksek ğayret köstergen cesür ve fedakâr köydeşlerimniñ hatiresi ögünde aşağı pek egilip secde etem.
+Hatirim ğayet hoş.
+Men, bunıñle beraber, o yıllarda köyümizde şura akimiyetini samimiy sevgi ile qabul etip, onıñ ebediyen yaşaması içün yüksek ğayret köstergen cesür ve fedakâr köydeşlerimniñ hatiresi ögünde aşağı pek egilip secde etem.
 Ulu Vatan cenki vaqıtında almanlar Yaqub Haybullayevni, şura qurucılığı erbabı ekenligi içün, atqanlar.
 Bari Alâdinov Perekoptaki uruşlarda yaralana, onı Yaltadaki gospitalge ketireler.
 Almanlar şeerni zapt etken vaqıtta yaralılarnı gemige qoyıp, Kavkazğa alıp ketüvge imkân olmay.
