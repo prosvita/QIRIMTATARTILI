@@ -317,7 +317,7 @@ Lâkin buña alışıp qalğan paromcı qart özüni sıqmadı, o çette indemey
 Niayet, paromğa atlar, arabalar çıqarıldı.
 Qart, qırq adam sayıp aldı, soñ gemi yerinden köçti.
 Yalıda qalğanlar ateş yaqıp, qızınmağa tutındılar.
-Özenniñ ortasına kelgende paromcı işçiniñ kiyik sadası işitildi.
+Özenniñ ortasına kelgende paromcı işçiniñ kiyik sadası eşitildi.
 Aylanıp baqtım.
 Qart ellerinen işaret etip, trosnı körsetti: "yardım etiñiz!"
 
@@ -351,8 +351,7 @@ Suvğa yıqılğan vaqtımda trosnıñ ucu elimde qalğan.
 Irğaq vastasınen trosnıñ ortasını tartıp alğan paromcı, onı ağaçnen yerge basıp, paromnı toqtatkan.
 Qart meni, göñlümni almaq içün, maqtay eken.
 
-Suvuq yelde üstümdeki sılaq şinelim buzlap qaldı.
-Çızmalarımnı çıqarıp, çılğavlarımnı sıqtım.
+Suvuq yelde üstümdeki sılaq şinelim buzlap qaldı, çızmalarımnı çıqarıp, çılğavlarımnı sıqtım.
 Lâkin bundan ne fayda?
 Urbalarım şırsuv.
 Bir qaç daqiqa keçse, turğanım kibi qatıp qalacağım.
@@ -367,7 +366,7 @@ Kurskten qalma şey...
 Eki yutum şey içtim.
 Bedenimni ateş aldı.
 
-— İç azaçıq daa!— dep zorladı qadın: 
+— İç azaçıq daa! — dep zorladı qadın:
 Bir yutum daa içtim.
 Mañlayım alevlenip ketti.
 Şişeni qaytarıp berdim.
@@ -396,7 +395,7 @@ Tezden topraqqa yanaştıq.
 Bayırlarnı ve tarlalarnı qar örtken.
 Özenniñ çetlerini qalın buz qaplağan.
 Qart meni qaravulnıñ evine alıp kirdi.
-Nevbetçi urbalarımnı çıqarıp, qıp-qırmızı çöyün ocaqnıñ yanaşasındaki kürsü üzerine yaydı.
+
 Men paromcınıñ çapanına sarınıp, üç-dört piala sıcaq çay içtim.
 Samogonnıñ arareti köterilip ketti.
 
