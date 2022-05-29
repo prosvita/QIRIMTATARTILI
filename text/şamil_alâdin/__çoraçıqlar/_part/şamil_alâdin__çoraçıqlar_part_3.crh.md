@@ -1232,7 +1232,6 @@ Lâkin tek Çoraçıqlar degil.
 Bağçalar!
 Tütün tarlaları!
 Yañçıq çalınğan piçenniñ ve yanayatqan quru yapraqlarnıñ qoqusı.
-Miyrada otlağan taylar!
 Özen boyunda melegen qozular!
 Bular menim içün ne demek, bilesiñizmi, ocam?
 Keç küz kününde siziñle körüşüvimizden ğayet memnünim.
