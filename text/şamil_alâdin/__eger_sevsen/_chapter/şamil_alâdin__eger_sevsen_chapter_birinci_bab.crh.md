@@ -205,12 +205,12 @@ Men şay degende, kabinetteki kişiler arasında çıbalıq saçlı, aqçıl yü
 Oña köz ettim.
 Maña arqasını çevirdi.
 
-— Sen aksini yap! — dedi sekretar,— evelâ çalış, soñra oqu!— menim eecanlı, ateşli sözlerime emiyet bermedi. 
+— Sen aksini yap! — dedi sekretar,— evelâ çalış, soñra oqu!— menim eyecanlı, ateşli sözlerime emiyet bermedi.
 — Familiyañ ne?
 
 — Bekirov!
 
-Sekretar defterini açtı, menim familiyamnı yazıp qoydı,
+Sekretar defterini açtı, menim familiyamnı yazıp qoydı.
 
 — Seni artıq Çar-Çak qurucılığına mobilizlendi esap etemiz,— dedi o,— anda şimdi esas mesele — aylanma kanal.
 
@@ -226,8 +226,7 @@ Bugün "Kovrovets" de işten çıqtı.
 Menim smenamda rels, Tulâganovnıñkinde şpal yetişmey.
 Vaziyet böyle eken, meni Baş-Dugümge niçün yolladıñız?
 
-Qıznıñ areketini körip, ayrette qaldım;
-sekretarnıñ eli avuçım içinde unutılıp qalğan.
+Qıznıñ areketini körip, ayrette qaldım, sekretarnıñ eli avuçım içinde unutılıp qalğan edim.
 Boşağan soñ, parmaqlarını avada qaç defa silkitip aldı.
 Ziyade sıqqanım, ğaliba.
 
@@ -272,15 +271,13 @@ Yımşaq qar... çamur.
 Böyle avada şeerde dolana bermekte mana yoq.
 Tez-tez ketmek kerek.
 
-Çayhaneden çemodanımnı alıp, stantsiyağa kettim.
-Darhan arıqnı boylap yüreyatqanda, ayaqlarımdaki çızmalarıma köz ettim.
-Olar at-araba ve maşinalarnıñ sıçratqan çamurından bılaşqanlar.
+Çayhanadan çemodanımnı alıp, stantsiyağa kettim.
+Darhan arıqnı boylap yüreyatqanda, ayaqlarımdaki çızmalarıma köz ettim, olar at-araba ve maşinalarnıñ sıçratqan çamurından bılaşqanlar.
 Yazıqlar olsun...
 Saba çötkinen temizlegen ve qadife parçasınen yaltıratqan edim.
 İşte, demir yel stantsiyası.
 Ellerinde baltaları, bıçqıları ve arqalarında çuvalları eecanlı erkekler, ayaqlarında ağır potikleri, yanlarında qırmızı burunlı kiçik balalar — qadınlar... perron boyunda dolanmaqtalar.
 
-Kişiler kimerde, tutaş bir divar şekilinde teprenip, ögge atıla, soñra biraz yatışa, toqtay, bir talaydan kene qozğala, kene areketke keleler.
 Kassa qapalı.
 Açıq olğanda bile bilet alacaq kişi yoq.
 
