@@ -158,7 +158,7 @@ Meni Mansurovnıñ muavini tain ettiler.
 Maşinalarnıñ ekserisi endi derivatsion kanalda olğanından, maña sağ yalığa köçmek kerek oldı.
 Evelâ Karimnen bir evde yaşadıq.
 Soñ taqdir bizni ayırdı.
-Men başqa yataqhanege avuştım, menim yerime Karamat köçip keldi, amma Karim yerinden qbırdamadı.
+Men başqa yataqhanege avuştım, menim yerime Karamat köçip keldi, amma Karim yerinden qıbırdamadı.
 Çoqqa barmay, bizimkilerniñ episi sağ yalığa avuştı.
 Meni, bütün kompaniyañnı sağ yalığa alıp keldiñ, İrada sol yalıda qaldı, dep mısqılladılar.
 
