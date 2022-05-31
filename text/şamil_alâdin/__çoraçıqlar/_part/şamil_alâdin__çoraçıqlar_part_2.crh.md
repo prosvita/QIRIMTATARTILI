@@ -95,9 +95,9 @@ Köy ve eali ile de tanış olmaq kerek.
 Kim bilsin, belki bu köy – menim taqdirimdir!
 
 Dersler bitken soñ ocalar odasınıñ qapusını açıp baqtım.
+
 İçeride Yaya efendi ve Safiye hanım yan-yanaşa oturıp, qonuşmaqtalar.
-Kireyimmi-kirmeyimmi?
-Qolaysızlanıp, toqtaldım.
+Kireyimmi-kirmeyimmi? Qolaysızlanıp, toqtaldım.
 
 – Buyurıñız, Abdureşid efendi! – dedi Yaya Bayraşevskiy.
 Yerinden qalqtı.
@@ -186,7 +186,8 @@ Yaya efendi menim çereme baqıp, zeinimdeki fikirni bildi.
 – Bizler Lehistan tatarlarımız, – dedi maña ve, böyle degende yüzden biraz deñişti, soñra külümsiredi. – Eşitken ediñizmi?
 
 – Eşittim... ne demek olsun! – dedim men.
-Safiye hanımnıñ ve Yaya efendiniñ lehistanlı ekenlerini birden ferqlamağanım içün öz-özüme taaciplendim. – Bağçasarayda qomşumız Mustafa Aleksandroviç, lupqa tatarı.
+Safiye hanımnıñ ve Yaya efendiniñ lehistanlı ekenlerini birden ferqlamağanım içün öz-özüme taaciplendim.
+– Bağçasarayda qomşumız Mustafa Aleksandroviç, lupqa tatarı.
 Onıñ ile dostım.
 
 Yaya oca memnün alda tekrar cılmaydı.
