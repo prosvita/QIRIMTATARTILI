@@ -57,7 +57,8 @@ Yeñi akimiyetniñ bizge ketirgen birinci acayip sözü “arqadaş”, Arqadaş
 Böyle şerefli söz mevcut eken, efendige ne acet?
 
 – Mantıqiy noqta-i nazardan siz, aci-güci, aqlısıñız!
-Ameliy ceetten mesele olduqça mürekkep... “Efendi” sözüne özüm de çoq itiraz ettim, lâkin onı taşlatıp olamadım.
+Ameliy ceetten mesele olduqça mürekkep...
+“Efendi” sözüne özüm de çoq itiraz ettim, lâkin onı taşlatıp olamadım.
 Ondan ta, otuzıncı senege qadar qurtulıp olamadıq.
 Halq onı qullanıp alışqan.
 Birden taşlap olamay.
@@ -466,7 +467,8 @@ Balalarnı, olğanı-olacağı, bir kün oquttım.
 Böyle degende, yürüşini deñiştirmedi, başını çevirip, maña baqmadı. – Aş, suv nasıl?
 
 – Fena degil.
-Lâkin bir şeyge taaciplendim, – dedim oña. – Tünevin saba adamnıñ içi donavlı edi.
+Lâkin bir şeyge taaciplendim, – dedim oña.
+– Tünevin saba adamnıñ içi donavlı edi.
 Aqşam keldim tap-taqır.
 Yerde yalıñız töşek-yastıq... başqa şey yoq.
 Saabe apte cıyıştırıp alğan.
