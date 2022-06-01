@@ -1,4 +1,4 @@
-## Birinci bab — O, olmasa — bu olsın!
+## Birinci bab — O, olmasa — bu olsun!
 
 Vokzal meydanında aqçıl ışıq saçıcı fener direkleriniñ yanında kerbar renkli quru yapraqlar üyrülmekteler.
 
@@ -6,9 +6,9 @@ Büyük şeer suvuq ruzgârlar içinde susqan.
 Men Taşkentni daima şeñ ve gürdeli olğanı içün, begene edim.
 Onı soñki defa bu alında terk etken edim.
 
-Bir qaç sene evelsi üç yaş kişi torbalarımıznı arqalarımızğa urıp, vokzal meydanında adamlar, arabalar ve faytonlar arasında keçeyatqan vaqıtımızda, maña bütün şeer ealisi, daa kimse tarafından keşf etilmegen, işitilmegen, bilinmegen bir ülkege cönemek içün toplanğan kibi kelgen edi.
+Bir qaç sene evelsi üç yaş kişi torbalarımıznı arqalarımızğa urıp, vokzal meydanında adamlar, arabalar ve faytonlar arasında keçeyatqan vaqtımızda, maña bütün şeer ealisi, daa kimse tarafından keşf etilmegen, eşitilmegen, bilinmegen bir ülkege cönemek içün toplanğan kibi kelgen edi.
 
-...Böyle eken, qomşumıznıñ keçken 1959 senesi, student oğlunı qırtış topraqlar ülkesine ozğarğanı hatirime keldi.
+...Böyle eken, qomşumıznıñ keçken 1959 senesi, student oğlunı qırtış topraqlar ülkesine ozğarğanı hatrime keldi.
 Yüksek boylu, sağlam müçeli yigit azbar qapu ögünde turıp, anasını tınçlandırmaqta edi:
 
 — Ağlama!
@@ -20,14 +20,14 @@ Anasınıñ közlerindeki yaşlarnıñ tıyılmağanını körgen student, aman-
 Ey, sıtıq yürek...
 Sen de yer yüzünde erkek olıp doğğansıñ,— dep tüşündim men o vaqıtta,— adamlar cebege kettiler, qart anaylarnıñ közlerinden yaş çıqmadı, bu ise... bir buçuq ay mületnen bereket toplamağa keteyata.
 Hızmet ve şeñlik içinde arqadaşlarınen birlikte vaqıt keçirecek.
-Anda bizim Seyyare de barıp keldi, lâkin poyezdğa keteyatqanda kimsege özüni ozğarmağa ruhset etmedi.
+Anda bizim Seyyare de barıp keldi, lâkin poyezdge keteyatqanda kimsege özüni ozğarmağa ruhset etmedi.
 
 Böyle oğlançıqlar ve qızçıqlar pek çoq degilller, lâkin barlar.
 Amma otuzıncı yıllarda bizge anamıznıñ etegi astından çıqıp ketmek qıyın degil edi.
 
-Sez kelimi, arbiy komissarlıqqa ariza berip, arbiy mektepke ketmek adetiy bir şey edi.
-"İmperialistler memleketimizge qarşı cenk azırlayyatqanda biz salqın, tınç binalarda oturıp, raat oqup olamaymız!" 
-O vaqıtlarda... baştan-ayaq silâ taqınğan nemse-faşist başkeserleri Avropanı titretkende, bu sözlernn, kelişsin-kelişmesin, qullanmağa seve edik.
+Söz kelimi, arbiy komissarlıqqa ariza berip, arbiy mektepke ketmek adetiy bir şey edi.
+"İmperialistler memleketimizge qarşı cenk azırlayatqanda biz salqın, tınç binalarda oturıp, raat oqup olamaymız!" 
+O vaqıtlarda... baştan-ayaq silâ taqınğan nemse-faşist aşkeserleri Avropanı titretkende, bu sözlerniñ, kelişsin-kelişmesin, qullanmağa seve edik.
 
 Biz institutnı bıraqıp, torbalarımıznı omuzlarımızğa urıp, vokzalğa keldik.
 Aqşam perronda qulağımıznı ilki defa arbiy komanda davuşı iñletti:
@@ -35,7 +35,7 @@ Aqşam perronda qulağımıznı ilki defa arbiy komanda davuşı iñletti:
 — Sa-af ol!
 
 Ondan soñ üç sene keçti.
-Men, üstünde uzun şinel, başımda qızıl qasnaqlı mavı furajka, ayaqlarımda şporlı hrom çızmalar, qızıl kazaklar polkınıñ öfitseri olıp, tekrar institutqa qaytıp keleyatam.
+Men, üstümde uzun şinel, başımda qızıl qasnaqlı mavı furajka, ayaqlarımda şporlı hrom çızmalar, qızıl kazaklar polkunıñ öfitseri olıp, tekrar institutqa qaytıp keleyatam.
 Bir özüm...
 
 Vagonda yoldaşım,— bir vaqıtta eski orduda hızmet etken olsa kerek,— süyrü saqallı, közlüklü kişi menden:
@@ -44,7 +44,7 @@ Vagonda yoldaşım,— bir vaqıtta eski orduda hızmet etken olsa kerek,— sü
 
 — Ebet! — dedim.
 
-Atnıñ callarını ve quyruğını yuvmaq içün qışnıñ ayaz gecelerinde, elimde qopqa, at ahırından bir kilometr uzaqtaki polk furunına ne qadar qatnadım!..
+Atnıñ çallarını ve quyruğını yuvmaq içün qışnıñ ayaz gecelerinde, elimde qopqa, at ahırından bir kilometr uzaqtaki polk furunına ne qadar qatnadım!..
 Ne içün?
 Sıcaq suv almaq içün.
 Özüme berilgen sabun parçasını daima atqa sarf etip, çatlaq-patlaq ellerimnen yüre, starşinanıñ közüne körünmege qorqa edim.
