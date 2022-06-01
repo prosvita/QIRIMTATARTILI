@@ -4,7 +4,8 @@ Bereketli topraqlar dört-beş baynıñ qolunda.
 Yoqsullıqtan qurtulmaq istegen köylü olardan kirağa topraq alıp, aşlıq saça, aradaki añlaşuvğa binaen, yerniñ aqqını ya para, yahut zahirenen töley.
 Öylece, köylü esini toplap ala.
 Öyle kişi – ne bay esap etile, ne de – fuqare.
-Kirağa topraq almağa çaresi yoq köylüler balası-çalasınen baynıñ çöllerinde işley, küzde yer süre, aşlıq saça, yazda çalıp, arman basa... bu meşaqqatlı hızmetleri içün degersiz miqdarda zahire alıp, onıñnen keçineler.
+Kirağa topraq almağa çaresi yoq köylüler balası-çalasınen baynıñ çöllerinde işley, küzde yer süre, aşlıq saça, yazda çalıp, arman basa...
+bu meşaqqatlı hızmetleri içün degersiz miqdarda zahire alıp, onıñnen keçineler.
 Kimerde köylüge qatanen tiygen ufaq-tüfek yer meydanları – taqatsız topraq olıp çıqa.
 Anda aşlıq saçmaq, bostan asramaq mümkün olmay.
 
@@ -37,7 +38,8 @@ Şimdilik mevcüt tertipke tabi olmağa mecbur.
 Qaç künler keçken soñ, üyken sınıfta, derslerniñ birinde Osman Aqçoqraqlınıñ “Nenkecan hanım” eserinden balalarğa ayrı kesekler oqup, izaat berip turğan vaqıtında tavan-qış köşesinde qararıp turğan örümçek yuvası közlerine çalındı.
 Pek göñülsizlendi.
 Ama ocanı göñülsizlendirgen amil tek örümçek avı degil edi.
-Onıñ çoq yıllıq ocalığı neticesinde ana tili oqutuv saasında elde etken qıymetli usulları ameliyattan bütünley köterilgen, olarnıñ yerine Seit-Mambet ocanıñ usulları temelleştirilgen... bir vaqıtlarda Üsein ocanıñ ögünde bu raleler üzerinde oturıp, tasil körgen talebeler mektepni bitirip ketkenler.
+Onıñ çoq yıllıq ocalığı neticesinde ana tili oqutuv saasında elde etken qıymetli usulları ameliyattan bütünley köterilgen, olarnıñ yerine Seit-Mambet ocanıñ usulları temelleştirilgen...
+bir vaqıtlarda Üsein ocanıñ ögünde bu raleler üzerinde oturıp, tasil körgen talebeler mektepni bitirip ketkenler.
 Üsein Şamil yoq vaqıtta onıñ ilimleri yeñi sınıf balaları içün artqaç tanılğan.
 Sarf-nau diqqattan tüşip, aptiyik ve Quran oquv içün vaqıt arttırılğan.
 Oca talebelerge qırait oquttırıp baqtı, sohtalar kibi, kevdelerini ögge ve artqa sallay berip, sozuq maqamnen oqudılar.
@@ -68,7 +70,8 @@ Ocanıñ ayaqlarında teren kaloşlar, balaqlarınıñ ucları örme çorap
 Qalpağını ve qaşlarını qar basqan.
 Çeresi sılanğan ve qızarğan.
 
-Evniñ qapusını açıp, sofa içine ayaq basqan edi, aşhaneden Acire hanım çıqa qaldı... elindeki iri baqır tavanıñ üstü qapaqnen örtüli olıp, özü ateşte pek qızğan, eki yaqlap tutması qolaysız olsa kerek, qocasına bir nazar taşlap, alel-acele közden ğayıp oldı.
+Evniñ qapusını açıp, sofa içine ayaq basqan edi, aşhaneden Acire hanım çıqa qaldı...
+ elindeki iri baqır tavanıñ üstü qapaqnen örtüli olıp, özü ateşte pek qızğan, eki yaqlap tutması qolaysız olsa kerek, qocasına bir nazar taşlap, alel-acele közden ğayıp oldı.
 Oca çontuq tonunı ve qalpağını çıqarıp, üstlerindeki qarnı açıq qapudan tışqa egilip, qaqtı, divardaki ucu yuqarı qaytıq qalın demir çüyge ilmege oñaytlanğanda, Acire tekrar sofada peyda oldı.
 
 – Müjde menim, – dedi o qocasına, şeñ ve hoşnut sesnen: – Müjde!
@@ -88,21 +91,21 @@ Bermeseñiz, ne ekenini aytmaycağım!
 Acire cilveli, yüksek davuş ile küldi.
 
 Oca yersiz hahıldılardan asabiylengen kibi oldı.
-Qızardı, ağardı, lâkin qadınnı ıncıtmağa
-
-istemey, sabır etti.
+Qızardı, ağardı, lâkin qadınnı ıncıtmağa istemey, sabır etti.
 Sabır ettimi?
 Yoq!
 Tamağına yarçıq sançılğan kibi, boyunını ögge sozıp, taaciplendi, yutqundı: “Acerge ne oldı, aceba?”
 
-– Ma! – dedi o qarısına. – Tut!
+– Ma! – dedi o qarısına.
+– Tut!
 Mende başqa suyunç yoq.
 
 Elindeki defterlerni qarısına uzattı, Acire defterlerni alıp, kişilik odağa kirdi.
 Bu onıñ er kün aqşam, oca mektepten kelgen maalde, öz-özlüginden, añsız surette yapıp, çoqtan alışıp qalğan küçüçik hızmeti...
 Üsein Şamil onıñ peşinden ketti.
 
-– Acire, meni azaplama! – dedi o. – Zarf içindeki şey er vaqıt sevinçli olmay.
+– Acire, meni azaplama! – dedi o.
+ – Zarf içindeki şey er vaqıt sevinçli olmay.
 Belki müjde berilecek şey degil!
 
 Qadın sandıq üstünde cıyılı töşekler ve yorğanlar arasına elini tıqtı, mavı renkli zarf çıqardı.
@@ -114,7 +117,10 @@ Zarf yerge tüşeyatqanda, Acire onı aman çelip aldı... açtı.
 İçinden “Nalei Qırım” çıqtı.
 Şiirler kitabı.
 
-– Ey, Allayım! – dedi Üsein Şamil. – Maña bu künni... bu şefaqlı künni kösterdiñmi? – közleri yaşlanıp kettiler. – Sen ne yaptıñ? – dedi Üsein yüksek sesle Acirege. – Menim qıymetli Acirem!
+– Ey, Allayım! – dedi Üsein Şamil.
+ – Maña bu künni... bu şefaqlı künni kösterdiñmi? – közleri yaşlanıp kettiler.
+ – Sen ne yaptıñ? – dedi Üsein yüksek sesle Acirege.
+ – Menim qıymetli Acirem!
 Sen maña dünyalarnı bağışladıñ!
 Men endi saadetten ve mesudiyetten deli olurım.
 Men bu künni dört yıl bekledim.
@@ -124,7 +130,8 @@ Bu kün!
 Bu nasıl kün?
 
 – Ulu işlerniñ başlanğıçı meşaqqatlı ola, – dedi Acire hanım.
-Onıñ yüzü, niayet, açıla başladı. – Soñu, inşalla, hayırlıdır.
+Onıñ yüzü, niayet, açıla başladı.
+ – Soñu, inşalla, hayırlıdır.
 Siz büyük edip olacaqsıñız!
 Men siziñ içün daima iftihar etecegim!
 
@@ -136,14 +143,13 @@ Saña suyunç bermek içün ceplerimniñ iç birisinde eki şa tapıp ola
 Men fuqare ocam ve küçük edibim.
 Seniñ daima şad ayat sürgeniñni isteyim, ama elimden kelmey.
 
-– Men şaqa ettim, – dedi Acire. – Bir şey kerekmey.
+– Men şaqa ettim, – dedi Acire.
+ – Bir şey kerekmey.
 “Nalei Qırım”nıñ özü ekimizge ulu ediye.
 
 Üsein küçük kitapçıqnı örnekli, kök cıltına çoq baqıp turdı.
-“Muallim Üsein Toqtarğazı eseri, – dep yazılı edi onıñ cıltı üstünde. – Qarasuvbazar.
-Z.U.
-Rogan matbuasında tab olunmıştır.
-1910 s.” Oca hoşnut ve minnetdar çere ile külümsiredi.
+“Muallim Üsein Toqtarğazı eseri, – dep yazılı edi onıñ cıltı üstünde. – Qarasuvbazar.Z.U. Rogan matbuasında tab olunmıştır.1910 s.”
+ Oca hoşnut ve minnetdar çere ile külümsiredi.
 Kitapnı açtı.
 Közleri, bir vaqıtlarda kendi qolunen yazılıp, çoqtan unutılğan muqaddemege iliştiler.
 “Efendiler!
@@ -171,7 +177,8 @@ Parmaqları arasındaki zarf ocağa, nasıldır, qalınca kibi keldi.
 Açıp baqtı... ebet, zarf içinde mektüp de bar, oqup baqtı.
 Oqur eken, beñzi tekrar aydınlandı.
 
-– Ya Rabbi! – dedi oca, fikirini ne ile ifa etmege bilmeyip. – Bu nasıl kün?
+– Ya Rabbi! – dedi oca, fikirini ne ile ifa etmege bilmeyip.
+– Bu nasıl kün?
 
 Mektüp Abdureşid Mediyevden edi.
 Ocanı içten araret aldı, teni suvuq ter içinde qaldı.
@@ -190,8 +197,7 @@ Qalan eserleriñizi, inşalla, ekinci kitabıñızda oqurız.
 Buña eminiz.
 
 Selâm ve itiram ile – Abdureşid.
-1911 s.
-fevral 9.
+1911 s.fevral 9.
 Qarasuvbazar şeeri”.
 
 Mektüp böyle muqayt ve qısqa edi.
@@ -200,7 +206,8 @@ Bir şeyni sezdi ki, Mediyev kelecek zamannı bekley, oña inana.
 
 Eki buçuq yıl evelsi Üsein Şamil Ay Vasıl mektebi muallimi ekende, Qarasuvbazar şeerine kelgen edi.
 Kelüvden maqsadı – öz eserleriniñ kitabını tab etüv edi.
-Bu işte oña yardım kösterüv, yalıñız Abdureşid efendi Mediyevniñ qolundan kelecegini bilip, “Vetan Hadimi” idarehanesine kirdi, Mediyevnen körüşmek ümüdinen degil... onıñ al-azırda ne yerdeligini hadimlerniñ bir debirinden sorap bilmek istedi.
+Bu işte oña yardım kösterüv, yalıñız Abdureşid efendi Mediyevniñ qolundan kelecegini bilip, “Vetan Hadimi” idarehanesine kirdi, Mediyevnen körüşmek ümüdinen degil...
+ onıñ al-azırda ne yerdeligini hadimlerniñ bir debirinden sorap bilmek istedi.
 Lâkin idarehaneni tanılmaz, harabe alında körip, ayrette qaldı.
 Qapuları açıq, elyazmalar yırtılğan, yerge saçılğan, bılaşıq potükler astında taptalğanlar.
 Odalar içinde vaqıt ile içilgen sigarlarnıñ ve insan teriniñ baş aylandırıcı, ağır qoqusı divarlarğa siñip qalğan.
@@ -215,16 +222,21 @@ Selâmlaşuvnı unuttılar.
 – Bu Nu-Tufanı... ne demek ola?– dep soradı ondan Üsein oca, alçaq, ezgin sesle ve ilâve etti: – Sebebi ne?
 
 – Musadere... – dedi Ablâmit Şeyh-zade.
-Qolunıñ ters yaqınen közlerindeki yaşlarnı sildi. – “Vetan hadimi” endi yoq!
+Qolunıñ ters yaqınen közlerindeki yaşlarnı sildi.
+ – “Vetan hadimi” endi yoq!
 
-– Bizler... ğarip ocalar, bir şey eşitmeymiz, bilmeymiz, – dedi Üsein Şamil. – Olğan-keçken vaqialar aqqında kimse haber etmey!
+– Bizler... ğarip ocalar, bir şey eşitmeymiz, bilmeymiz, – dedi Üsein Şamil.
+ – Olğan-keçken vaqialar aqqında kimse haber etmey!
 
 – Haber etilse, qoluñızdan bir şey kelirmi edi?
 
 Üsein oca cevap berip olamadı, boyunını burdı, omuzlarını qıstı.
 
-– Bir menim qolumdan ne kelir edi? – dedi o ve öz – sualine özü cevap berdi. – İç bir şey! – İdarehaneniñ tintilgeni üç afta... – dedi Şeyh-zade. – Qapu-pencere gece-kündüz açıq.
+– Bir menim qolumdan ne kelir edi? – dedi o ve öz – sualine özü cevap berdi.
+– İç bir şey!
 
+– İdarehaneniñ tintilgeni üç afta... – dedi Şeyh-zade.
+– Qapu-pencere gece-kündüz açıq.
 İçerisi aşır-neşir.
 Er kün bu yerge kelem, aylanıp-üyrülip, qaytıp ketem.
 
@@ -240,15 +252,18 @@ Abuneden tüşken aqçağa Otuzlı Molla Çelebiniñ bir özünen esap k
 Başqalardan alınğan ödünç paralarnı aytmayım.
 Şimdi eñ müim iş – Abdureşid efendini borclardan qurtarıp almaq.
 
-– Baş muarrir qayda? – dep soradı Üsein oca. – Aqmescitke köçip kettimi?
+– Baş muarrir qayda? – dep soradı Üsein oca.
+ – Aqmescitke köçip kettimi?
 
 – Asan Sabri efendimi?
-Yoq! – dedi Şeyh-zade. – Bazirgân Mamutnıñ qavehanesinde.
+Yoq! – dedi Şeyh-zade.
+– Bazirgân Mamutnıñ qavehanesinde.
 Bu yerde... eki adım.
 Çağırıp ketireyimmi?
 
 – Yoq!
-Yoq! – dedi Toqtarğazı alel-acele. – Maña Abdureşid efendiniñ özü kerek.
+Yoq! – dedi Toqtarğazı alel-acele.
+– Maña Abdureşid efendiniñ özü kerek.
 Bu maalde onı qayda tapmaq mümkün?
 
 – Yalıñız belediyede... şeer upravasında, – dedi Ablâmit Şeyh-zade.
@@ -290,12 +305,13 @@ Men Yalta uyezdinden keldim.
 
 Karton cıltlı defterni qoltuğına qıstı, qapu betke yürüş etkende, birden toqtaldı.
 
-– Bana baq! – dedi o, artına aylanmayıp. – Biz seniñle görüşkenmi edik?
+– Bana baq! – dedi o, artına aylanmayıp.
+– Biz seniñle görüşkenmi edik?
 
 – O!
-Samson Harlampiyeviç cenapları! – Ne demek olsun? – dedi Üsein oca, onıñ yanına
-
-kelip. – Eki yıl evelsi meni Harcibiyeden alıqtırğan ediñiz!
+Samson Harlampiyeviç cenapları!
+– Ne demek olsun? – dedi Üsein oca, onıñ yanına kelip.
+ – Eki yıl evelsi meni Harcibiyeden alıqtırğan ediñiz!
 Hatiriñizden çıqtımı?
 
 – Devlet hızmeti, qardeş!
@@ -304,9 +320,7 @@ Men endi yaş degilim.
 
 – Bu idarege nasıl tüştiñiz, Samson Harlampiyeviç azretleri?
 
-– Nasıl tüştim? – bir közüni yuma berip, azaçıq külümsiregen soñ, koridornıñ törüne, emen
-
-qapuğa işaret etti.
+– Nasıl tüştim? – bir közüni yuma berip, azaçıq külümsiregen soñ, koridornıñ törüne, emen qapuğa işaret etti.
 İşançlı dostlarım yoq degil... olar eyiliklerimni unutmaylar.
 Çağırdılar...
 İşim elverişli!
@@ -315,7 +329,7 @@ İşim elverişli!
 
 Oca böyle degende, Samson deşetli sarsıntıdan abdırar kibi, küçlü irkildi, soñra yanaşadaki skemle üstüne oturıp, yavlığınen mañlayındaki terni sile başladı.
 
-– Anda, Kefede, qardeş, fena iş oldı, – dedi o niayet, – kabak baña pâtladı.
+– Anda, Kefede, qardeş, fena iş oldı, – dedi o niayet, – qabaq baña pâtladı.
 Bir yıldan beri burada Bağça Eli volostı idaresindeyim!
 
 Üsein oca onıñ nasıl hızmette ekenini sorap bilmek istedi, yetiştirip olamadı, Trandafilidi yünlü, qalın sol qolunı şapkesiniñ qasnağına toqundırıp, temenna berdi, nallı çızmalarınen tahta töşemeni gürsüldetip, koridor boyu ketti.
@@ -366,7 +380,8 @@ Sözleri yarım qalğan meclis iştirakçileri, başlarını çevirip, eki
 
 Al-hatir soraşqan soñ, Mediyev musafirni kişilerge taqdim etti, onı özüniñ yanaşasında yımşaq qırmızı kresloğa oturttı.
 Adamlarnıñ ekserisi şeer belediye başlığına ayret ve tebessümle baqtı.
-“Toqtarğazını taqdim etüvge ne acet? – dediler olar bir-birlerine. – Eserleri epimizge belli”.
+“Toqtarğazını taqdim etüvge ne acet? – dediler olar bir-birlerine.
+– Eserleri epimizge belli”.
 Abdureşid efendi ayretlenüvniñ manasını añladı, nitekim iftiharle külümsiredi.
 Meclis iştirakçileri arasında aqırın-aqırın sağır velvele köterildi, kimseniñ sözü, kimsege añlaşılmadı çünki laqırdı musafirniñ peyda oluvı munasebetile başlasa da, birazdan soñra kenişlep başladı.
 Mecliste yorulğan adamlarda biri-biri ile qonuşuv içün zaruret sezildi.
@@ -465,23 +480,25 @@ Kimler o, üç adam?
 Gençlikniñ fikirince, belediye azalığına Osman Seyfullayev, İbraim Smulskiy, Abdureşid Mediyev lâyıqlar.
 Paqıl kibi, bu adamlarnıñ üçünde de ne mal, ne de mülk yoq.
 
-“Yoqmı? – dediler dostlar, iddetlenip. – Olmasa... olur!”
+“Yoqmı? – dediler dostlar, iddetlenip.
+ – Olmasa... olur!”
 
 Adliyeci ile körüştiler.
 Notarius ile laqırdı ettiler.
 
-“Mal-mülkmi? – dediler olar, tekrar. – Eñ azdan üç biñ kümüşlikmi?
+“Mal-mülkmi? – dediler olar, tekrar.
+ – Eñ azdan üç biñ kümüşlikmi?
 Yahşı!”
 
 Eki aftadan soñ...
 Acı Abduramannıñ baqqal tükânı ve qavehanesi İbraim Smulskiyge satıldı.
-
 Abibulla baynıñ “Avropa” musafirhanesi Osman Seyfullayevniñ ihtiyarına keçti, Suleyman-Ali Mollayevniñ babasınıñ eki qatlı evleri ve han azbarı Abdureşid Mediyevniñ oldı.
 Satuv-aluv işi notariusta resmiyleştirilip, senet eyyetke taqdim etildi.
 Üç müteraqqiy yaş kişi resmiy vesiqalar esasında belediyege vekil saylanıldı.
 Çeşit milletlerniñ vekillerinden ibaret şeer duması Abdureşid Mediyevni bir ağızdan şeer upravasınıñ ğalavası, yani özümizniñ tilimizde aytqanda, belediye başlığı sayladı.
 
-– Siz, Üsein efendi, şeerimizni bilesiñiz, – dedi Suleyman Ali... endi yemekniñ ahırı yaqınlağan edi. – Suv içmek istegen adam, elinde qopqası, yollarda talağı qatqanca, saqacınıñ peşinden yuvura turğan.
+– Siz, Üsein efendi, şeerimizni bilesiñiz, – dedi Suleyman Ali... endi yemekniñ ahırı yaqınlağan edi.
+ – Suv içmek istegen adam, elinde qopqası, yollarda talağı qatqanca, saqacınıñ peşinden yuvura turğan.
 Qopqası altı kapik.
 Öyle degilmi?
 
