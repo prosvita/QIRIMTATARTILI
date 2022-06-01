@@ -18,7 +18,7 @@ Simeizde doğğan adamğa yalıboylu, deyler.
 Qaranğıtta dünyağa kelgen kişige – yalıboylu demeyler.
 Albuki, Simeiz de, Qaranğıt da bir deñizniñ yalısında.
 Bu ayatnıñ hatasımı, yoqsa, adamlarnıñ perişanlığımı?
-Bilmeyim!
+Bilmeyim !
 
 Üsein oca... özü?
 O da yalıboylu, lâkin Kökköz qayda?
