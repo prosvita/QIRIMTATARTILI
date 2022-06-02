@@ -86,7 +86,7 @@ Adalar memleketinde hızmetiñ ne vaqıt bitecek?
 Ne vaqıt qaytacaqsıñ?
 Bu hususta iç bir şey aytalmay.
 Kelecek künüñni bildirmegeniñ içün İrada pek darıldı, dey.
-Bir afta evel kelgen olsañ ne qadar yahtı olur edi!
+Bir afta evel kelgen olsañ ne qadar yahşı olur edi!
 
 Elbette, bildirgen olsam, yahşı olur edi!
 Böyle degende qalbimni, niçündir, keder basa.
