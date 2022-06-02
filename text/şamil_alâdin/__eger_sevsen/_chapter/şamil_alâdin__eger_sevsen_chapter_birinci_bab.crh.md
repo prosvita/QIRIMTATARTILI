@@ -48,15 +48,15 @@ Atnıñ çallarını ve quyruğını yuvmaq içün qışnıñ ayaz gecelerinde, 
 Ne içün?
 Sıcaq suv almaq içün.
 Özüme berilgen sabun parçasını daima atqa sarf etip, çatlaq-patlaq ellerimnen yüre, starşinanıñ közüne körünmege qorqa edim.
-Çünki kirli ellerimni körse, meni nevbetsiz narâdqa yiberecegini bilem.
+Çünki kirli ellerimni körse, meni nevbetsiz narâdğa yiberecegini bilem.
 Ellerimni starşinadan gizlemek mümkün, lâkin atnı eskadron komandirinden gizlemek mümkün degil.
 Atı kirli kazak... bu ne demek?
 
-Doğmuşlarımdan, yahut institut arqadaşlarımdan birde-birini körsem, olarğa bu tarihnı uzun uzadiye ikâye eterim, bu hususta belki poyezdda da laqırdılar olur, dep tüşüne edim.
+Doğmuşlarımdan, yahut institut arqadaşlarımdan birde-birini körsem, olarğa bu tarihnı uzun ikâye eterim, bu hususta belki poyezdde de laqırdılar olur, dep tüşüne edim.
 Men levhanı, özümce, şöyle tasavur ete edim: çevre-çetimde adamlar... episi meni diñley ve başlarını sallap: sizge pek ciddiy şeyler ögretkenler...
 Siz Vatan qaramanlarısıñız.
-Maşşalla!
-Maşşalla! — deyler.
+Maşalla!
+Maşalla! — deyler.
 Ebet, öyle olur bellegen edim, amma öyle olmadı.
 Çünki orduda hızmet etken yalıñız men degil, million kişiler ediler.
 Adamlar toplanıp, episiniñ ikâyesini diñley berecek olsalar, olarğa çalışmağa ve yuqlamağa vaqıt qalmaycaq.
@@ -66,7 +66,7 @@ Vagondaki çot saqal qomşum laqırdını qısqadan kese qoydı:
 — ...Bitirip keleyatqan olsañ, bu şporlarnı niçün çıqarmaysıñ?
 
 Ne deycegimni bilmedim.
-Men okrug manevrlerinde iştirak ettim, at üstünde qarlı dağlardan, ucsız-bucaqsız çöllerden, buzlu özenlerden keçtim... o maña şporlarıñnı niçün çıqarmaysıñ, dey.
+Men okrug manövrlerinde iştirak ettim, at üstünde qarlı dağlardan, ucsuz-bucaqsız çöllerden, buzlu özenlerden keçtim... o maña şporlarıñnı niçün çıqarmaysıñ, dey.
 Qıymetli yolcu, men daa olarnıñ davuşını eşitip toymadım!
 Onıñ nağmelerini daa çoq kişiler diñlemek kerekler.
 Bunı saña aytıp añlatmaq mümkün degil.
@@ -95,7 +95,7 @@ Direktor ayret içinde keri çekildi:
 
 — Bilmeyim.
 Biz çeşit yerlerde hızmet ettik.
-Men... keldım.
+Men... keldim.
 İnstitutnı bitirmek isteyim.
 
 — İnstitutnı? — direktor, güya eñsesini biy çaqqan kibi, başını küçlü siltedi,— yoq!
