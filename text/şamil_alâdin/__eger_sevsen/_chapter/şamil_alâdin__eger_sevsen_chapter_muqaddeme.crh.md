@@ -121,10 +121,8 @@ Asiyalı olmay, nesiñ?
 Divardaki kilim üstünde asılı suretiñe köz etem, qaşlarıñ, közleriñ, şaqaq kemikleriñ... tıpqı asiyalı.
 "Bu nasıl terbiyesizlik!" degensiñ sen oña rus tilinde.
 Pek güzel aytqansıñ.
-Tasavur etem: ingliz buña pek taaciplengen ve "Raşen?
-Soviyet?" degen olsa kerek.
-"Ebet, ser.
-Siz kendiñizni ğayet osal tutasıñız!" degendirsiñ!
+Tasavur etem: ingliz buña pek taaciplengen ve "Raşen? Soviyet?" degen olsa kerek.
+"Ebet, ser ,Siz kendiñizni ğayet osal tutasıñız!" degendirsiñ!
 Bilem, bilem...
 Sen inglizce acaip söylenesiñ!
 Onıñ senden ingliz ve rus tillerinde afu istegeni taacipli şey degil.
