@@ -24,7 +24,6 @@ Üsein oca... özü?
 O da yalıboylu, lâkin Kökköz qayda?
 Deñiz qayda?
 Duraqnıñ bu hucur tainatı ve taqsimatı aqqında kimse tüşüngeni yoq.
-Ondan da başqa, Simeiz bette doğğan yalıboylu özüni imtiyazğa aqlı kibi is ete, Qaranğıtlınıñ yalıboylu ekenligini ise kimse bilmey... sezmey.
 Üsein oca bugün mektepten qaytqanda bu hususta tüşündi.
 Tüşündi... ve öz başına külümsiredi.
 “Taliyniñ cilvesi...” dep taşladı içinden.
