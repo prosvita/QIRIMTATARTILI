@@ -106,6 +106,7 @@ Sen olarnı başqa arflerge qoşıp yazasıñ; "T" ve "R"-ni açıq yaz dep sañ
 Mektübiñ, şübesiz, meraqlı.
 Hususan Karaçi aerodromındaki vaqia...
 Men bu levhanı yahşı tasavur etem.
+
 Siz epiñiz yolcular salonında, yahut saninspektor kabinetinde oturasıñız.
 Yuqunçlı hastalıqlarğa qarşı aşlamadan keçkeniñe dair tezkereñ olmaq şart.
 Barayatqan memleketiñde holera, ya da çuma zuur etse, elbette, bunı yapmağa mecbursıñ.
