@@ -102,7 +102,7 @@ Men... keldim.
 Aqılıña bile ketirme!
 Añladıñmı?
 
-Men aytmağa sez tapmadım... sustım.
+Men aytmağa söz tapmadım... sustım.
 
 Direktor, aralıqta turğan lineykağa doğruldı.
 Lâkin bir qaç adım yürgen soñ, çevirilip, baqtı:
@@ -110,16 +110,16 @@ Lâkin bir qaç adım yürgen soñ, çevirilip, baqtı:
 — Yataqhanede geceley bilesiñ!
 Tek bugün!
 
-Qırğız qalpaqlı qart, qamçısını uzun ayaqlı, tığız torunıñ yanbaşı üstüne endirdi, lineyka aralıq içinde közden ğaip olıp ketti.
-Lineyka yoq olğan soñ yüregimdeki hoş hayallarım ve işançım da ğaip oldılar.
+Qırğız qalpaqlı qart, qamçısını uzun ayaqlı, tığız torunnıñ yanbaşı üstüne endirdi, lineyka aralıq içinde közden ğayıp olıp ketti.
+Lineyka yoq olğan soñ yüregimdeki hoş hayallarım ve işançım da ğayıp oldılar.
 Endi ne yapmalı?
 
 Çemodannı elime aldım, Alay bazarına doğru cönedim.
-Yarım saatten soñ çayhanege kirdim.
+Yarım saattan soñ çayhanege kirdim.
 Eski dostum, Taş-Temir aka meni semiz etli plov ve kök çay ile sıyladı.
 "Özüme pişirgen edim,— dedi Taş-Temir aka, külimsirep,— seniñ de qısmetiñ bar eken".
 
-Bir-eki kün keçken soñ men Taşkentte aşayt ceetinden zugürtlik ekenini añladım.
+Bir-eki kün keçken soñ men Taşkentte aşayt ceetinden zügürtlik ekenini añladım.
 Üç yıl evelki bolluq şimdi yoq.
 Adamlar da başqa.
 Yaqın aftalarda ammam körmegen uzun saqallı kişiler... qaydalardandır kelgenler.
