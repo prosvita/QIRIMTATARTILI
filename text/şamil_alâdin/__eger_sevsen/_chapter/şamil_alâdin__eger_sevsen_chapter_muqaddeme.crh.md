@@ -41,7 +41,7 @@ Saba yemeginden soñ Sabira hala öglüginiñ cebinden seniñ mektübiñni çıq
 — Bunı niçün kelgenim kibi bermediñiz? — deyim.
 Sabira hala külümsirey, indemey.
 Onıñ bu areketinde özüne mahsus mantıq olmalı.
-Mektgopte ne yazılsa-yazılsın, adam evelâ yıqanmaq ve aşap toymaq kerek, mektüpni soñra da oqumaq mümkün.
+Mektüpte ne yazılsa-yazılsın, adam evelâ yıqanmaq ve aşap toymaq kerek, mektüpni soñra da oqumaq mümkün.
 O qaçmaz.
 Bu qılıq maña pek hucur kele, lâkin hala içün öyle degil.
 
@@ -52,7 +52,7 @@ Lâkin iş yalıñız bundamı, aceba?
 
 Men cebede eken vaqıtımda hayalım ep sende edi.
 Okopımızğa kirip kelesiñ.
-Ustgoñde öfitser urbası, beliñde nemse parabellumı, ayaqlarıñda eski çızmalar.
+Ustünde öfitser urbası, beliñde nemse parabellumı, ayaqlarıñda eski çızmalar.
 Pogonlarıñ... tankçınıñkimi?
 Atlı askeriñkimi?
 Alla bilsin!
