@@ -24,6 +24,7 @@ Ebet, onıñ da kendisine has kederi olmalı.
 Böyle eken, Sabira hala peyda oldı: "yavaş ol!" degen kibi, parmağını dudağına toqundırıp, meni yataq odasından quvıp çıqardı. 
 — Vanna azır!
 Saña yuvunmaq kerek! 
+
 O işniñ böyle olıp çıqacağını güya evelden bilgen.
 Menim keleyatqanımnı tüşünde körgen, onıñ içün ocaqnı sabadan yaqıp, vannanı qızdırıp qoyğan.
 
@@ -31,10 +32,11 @@ Menim keleyatqanımnı tüşünde körgen, onıñ içün ocaqnı sabadan yaqıp,
 Men, üstümde çapanım, sabalıq yemek stolı başına oturam.
 Ağızıma ne qapsam, lezetli kele.
 Sabira hala, men olmağan vaqıtta, özü ve balalar evde nasıl ömür keçirgenlerini ikâye ete.
+
 Diqqat ile diñleyim: eger Dikkenste tufanğa oğramağan olsam, seniñ ile körüşe bilecek ekenim...
 Furtuna tayyaremizni çoq tutıp turdı.
 
-Saba yemeginden soñ Sabirahala öglüginiñ cebinden seniñ mektübiñni çıqarıp, maña uzata.
+Saba yemeginden soñ Sabira hala öglüginiñ cebinden seniñ mektübiñni çıqarıp, maña uzata.
 
 — Bunı niçün kelgenim kibi bermediñiz? — deyim.
 Sabira hala külümsirey, indemey.
