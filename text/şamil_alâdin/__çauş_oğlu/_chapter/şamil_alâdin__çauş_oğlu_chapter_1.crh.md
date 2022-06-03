@@ -225,9 +225,9 @@ Soñ?
 Bunı esime tüşürmek içün keldiñmi?
 
 – Yoq. – Asânıñ, yüzünde keder sezildi.
-Onda, elbet de, keçmişni hatırlatıp, Çauşnı qasevetlendirmek maqsadı yoq edi. – Men, Mustafa emce, yañlışa da bilem.
-Lâkin oğluñıznıñ adı Dilâver edi..
-degilmi?
+Onda, elbet de, keçmişni hatırlatıp, Çauşnı qasevetlendirmek maqsadı yoq edi.
+ – Men, Mustafa emce, yañlışa da bilem.
+Lâkin oğluñıznıñ adı Dilâver edi degilmi?
 
 – Öyle!
 Öyle! – Çauş asabiy davuşnen cevap berdi.
@@ -238,9 +238,8 @@ Konvert tutıp turğan elini degil, digerini...
 Mustafa ağa dört büklü kâğıtnı alıp açtı.
 O telegramma degen şeyni asıl da sevmey turğan.
 Çünki anda er şey qısqa ola.
-Er şey tesadüfiy, amansız. – Bu yerde imza etiñiz!
-
-Asâ qarındaşını uzattı, özü kene külümsiredi.
+Er şey tesadüfiy, amansız.
+– Bu yerde imza etiñiz! - Asâ qarındaşını uzattı, özü kene külümsiredi.
 Qız memnün.
 O aqlı çıqtı.
 Qartnı taaciplendirdi, qozğadı.
@@ -275,7 +274,7 @@ Kerek maalde iç yerinde olmay.
 Ey, Alla!
 Cıynaq Şefiqa onı daima kişilik odağa alıp kete.
 Endi, eki cam parçasını tapmaq içün ortalıqnı aşır-neşir etmek kerek.
-Amma onsuz bu kâğıt üstündeki böcek şekilli ariflerni bar da, oqu.
+Amma onsız bu kâğıt üstündeki böcek şekilli ariflerni bar da, oqu.
 
 Elini minder astına tıqtı, közlük yoq edi.
 Qalqtı, sağ ayağından aqsay-aqsay içeri odağa ketti.
@@ -306,8 +305,7 @@ Furuncı Nafe onı, aptesiniñ matem merasimine davet etken edi.
 Mecit ağanı, ğaripni, qasevet bastı.
 Er şeyni bıraqıp, qışnıñ ayazında cenazege ketti.
 Ketti... lâkin Nafeniñ oğlu Yaqubnıñ toyuna barıp tüşti.
-Bu telegrammadaki sözlerniñ neticesi de aks manada olıp çıqsa...
-Alla köstermesin.
+Bu telegrammadaki sözlerniñ neticesi de aks manada olıp çıqsa, Alla köstermesin.
 Men deli olurım.
 Mende yürek yorğun ve yufqa.
 Endi sancım tutıp başlay.
