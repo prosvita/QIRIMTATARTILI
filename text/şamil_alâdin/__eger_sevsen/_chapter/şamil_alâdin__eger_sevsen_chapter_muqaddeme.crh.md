@@ -179,7 +179,7 @@ Men, er çeşit qabaatnı afu etmek kerek, demek istemeyim.
 Yer yüzünde, bir-biriniñ ğırtlağını üzip, bir-biriniñ qanı ile ğıdalanuv ğayesini yoq etmek kerek, deyim.
 Bu cietten vekâletiñiz büyük hızmet köstere bilir.
 
-Men tayyarede uçıi keleyatqanda aşağı baqa berdim.
+Men tayyarede uçıp keleyatqanda aşağı baqa berdim.
 Buzlı deryalar, qarlı dağlar, küneşli çeller ve, niayet, pamuq tarlaları ve meyva bağçalarını kördim.
 Er şey insanlarğa bağlı... er keske muabbet ayat kerek.
 
