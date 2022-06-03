@@ -166,8 +166,10 @@ O ise, közlerini azaçıq yuma berip, poçtalyonnıñ qoluna baqa.
 İndemey.
 
 – Sizni, Mustafa emce, añlamaq mümkün degil. – Asâ hihıldap küle.
-Öyle şeñ qız ki, közlerine er şey külkünçli, zevqlı olıp körüne. – Yuqlaydırsıñız belledim, albu ise ayınıq ekensiñiz... – Çauş qızğa da yuqsırap oturğan kibi körüngen.
-Qart adamnıñ tüşünceli vaziyeti yuquğa beñzey. – Oynañız!
+Öyle şeñ qız ki, közlerine er şey külkünçli, zevqlı olıp körüne.
+– Yuqlaydırsıñız belledim, albu ise ayınıq ekensiñiz... – Çauş qızğa da yuqsırap oturğan kibi körüngen.
+Qart adamnıñ tüşünceli vaziyeti yuquğa beñzey.
+ – Oynañız!
 Ebet, oynañız!
 Yoqsa, bir şey bermem.
 Ve aytmam.
