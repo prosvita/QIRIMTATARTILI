@@ -299,7 +299,7 @@ Men, suv çetinde qapaqlanıp yatqan eski qayıq üstüne oturdım, sağ ayağı
 Ayaqqa turğan soñ, etrafıma baqındım.
 Çar-Çaq tar, teren boğaz içinden çıqıp, uvuldı qoparıp, qayalar ve qırlar arasında burğalanıp, uzaqlarğa aqıp ketmekte.
 Boğaznıñ yuqarısında, töpeleri suvuq ve sıcaq avadan yanğan, bürüşken sıra dağlar yükselmekte, artında ise duman içinde qarlı damlar ve yüksek keçitler turmaqtalar.
-Qadim zamanlarda küçlü suvlar bu dalğalarnı kevdelerini oymalağan, derelerniñ suvları taşlarnı ve topraqlarnı urıp-yıqıp, yılğalar ve ucsız-bucaqsız vadiler teşkil etkenler.
+Qadim zamanlarda küçlü suvlar bu dalğalarnı kevdelerini oymalağan, derelerniñ suvları taşlarnı ve topraqlarnı urıp-yıqıp, yılğalar ve ucsuz-bucaqsız vadiler teşkil etkenler.
 Bu deşetli manzaralar suvnıñ küçü sayesinde usulğa kelgenler.
 
 Sağ yalı çır-çıplaq.
@@ -313,10 +313,10 @@ Qarşıdan keleyatqan parom sağ yalığa yaqınlaşa berdi, soñ kelip skelege 
 Kişiler yerge tüşti, bız paromğa toluştıq.
 Yük ağırlaşqan sayın, parom suvğa kömüle ve kenarğa qıyışa berdi.
 Yolcular bunı körip, de sağ, de sol yaqqa cılıştı, parom belki doğrulır dep beklediler.
-Lâkin buña alışıp qalğan paromcı qart özüni sıqmadı, o çette indemey turdı ve, ağızında nas olsa kerek, tosat-tosat yerge tüküre berdi.
+Lâkin buña alışıp qalğan paromcı qart özüni sıqmadı, o çette indemey turdı ve, ağzında nas olsa kerek, tosat-tosat yerge tüküre berdi.
 Niayet, paromğa atlar, arabalar çıqarıldı.
 Qart, qırq adam sayıp aldı, soñ gemi yerinden köçti.
-Yalıda qalğanlar ateş yaqıp, qızınmağa tutındılar.
+Yalıda qalğanlar ateş yaqıp, qızınmağa tutundılar.
 Özenniñ ortasına kelgende paromcı işçiniñ kiyik sadası eşitildi.
 Aylanıp baqtım.
 Qart ellerinen işaret etip, trosnı körsetti: "yardım etiñiz!"
@@ -348,7 +348,7 @@ Men bu adamlarnıñ canlarını nasıl etip qurtardım?
 Olar meni qurtardılar degilmi?
 Soñundan işniñ farqına bardım.
 Suvğa yıqılğan vaqtımda trosnıñ ucu elimde qalğan.
-Irğaq vastasınen trosnıñ ortasını tartıp alğan paromcı, onı ağaçnen yerge basıp, paromnı toqtatkan.
+Irğaq vastasınen trosnıñ ortasını tartıp alğan paromcı, onı ağaçnen yerge basıp, paromnı toqtatqan.
 Qart meni, göñlümni almaq içün, maqtay eken.
 
 Suvuq yelde üstümdeki sılaq şinelim buzlap qaldı, çızmalarımnı çıqarıp, çılğavlarımnı sıqtım.
@@ -361,7 +361,7 @@ Yanımda yaş qadın peyda oldı.
 — Ma!
 İç bir-eki yutum — dedi o, maña nasıldır kirli şişe uzatıp. — Qızarsıñ!
 Özüm içün yasağan edim, çastlı ekensiñ! — soñra közlerinen şişege işaret etip,— dedi: — Şekerden qaynattım.
-Kurskten qalma şey...
+Kursktan qalma şey...
 
 Eki yutum şey içtim.
 Bedenimni ateş aldı.
@@ -418,7 +418,7 @@ Birinci smena!
 
 Çemodanımnı omuzıma urdım, qapunı açtım, çıqmaq içün bosağadan atlaycaqta:
 
-— Sizge ne oldı? — dep qıçırdı o,— üstüiiz-başıñız sılaq!?
+— Sizge ne oldı? — dep qıçırdı o,— üstüñiz-başıñız sılaq!?
 
 Şinelimniñ etegine köz ettim, soñ külümsiredim.
 
