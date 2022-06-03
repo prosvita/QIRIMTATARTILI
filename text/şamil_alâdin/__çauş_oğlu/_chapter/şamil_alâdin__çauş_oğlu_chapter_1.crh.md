@@ -511,7 +511,8 @@ Belki Dilâver öyle istegendir! – Şefiqa yenge başqasınıñ oñaytsız are
 
 – İdraki... – Çauşnıñ çırayı küsti.
 O vaqianıñ tafsilâtını tüşüngen sayın, nasıldır, qolaysızlıqlar tapıp çıqara berdi.
-Özü asabiylendi. – Kim bile?
+Özü asabiylendi.
+– Kim bile?
 Belki seniñ aytqanıñ kibidir, apaqay! – o, qarısınıñ omuzını taptadı. – Belki, kerçekten de, Dilâverniñ idrakidir.
 Amma men bu gece yuqlap olamam.
 
@@ -523,7 +524,7 @@ Oğlan kelgen soñ er şey añlaşılır.
 Oğlumnıñ özü... menim Dilâverim nasıl eken?”
 
 Qafada kene müsibet fikir asıl oldı.
-Barıpta delme teşik olsa?
+Barıp ta delme teşik olsa?
 Telegrammanı arqadaşı berüviniñ sebebi de bunda degilmi eken?
 Taqdir degen şey pek daimiyetsiz.
 Lâkin Mustafa oğlunı bedbaht alında körmek istemey.
@@ -549,7 +550,8 @@ Zeynep güya tankçılar brigadasında arbiy emşire eken, Kubandaki cenklerde e
 Ölgen adamnı tiriltmek mümkünmi?
 Çauşlar kelinniñ ölümine inandılar.
 
-– Dilâver onı pek seve edi. – Şefiqa ağlamsıradı. – Kelse, ne dermiz?
+– Dilâver onı pek seve edi.– Şefiqa ağlamsıradı.
+ – Kelse, ne dermiz?
 
 – Aqiqatnı söylermiz.
 
@@ -720,7 +722,7 @@ Yüregini ne yeñgillendirdi, ne de raatlandırdı.
 Filcannıñ astında qoyu, qara telbe qaldı.
 Çauş filcannıñ içine diqqatnen baqtı.
 Güya bu hucur qara örnekler oña bir şeyler söylemek isteyler.
-Rametli anası... bu örneklerden añlay turğan.
+Rametli anası bu örneklerden añlay turğan.
 Keleyatqan adam kim?
 Niyeti ne?
 Edisini aytıp añlata turğan, Çauş añlamay.
