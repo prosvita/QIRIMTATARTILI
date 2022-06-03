@@ -50,6 +50,7 @@ Bala onıñ sözlerini añladımı añlamadımı, yenge farqına barmadı.
 Bu evde er kes tatarca laqırdı ete.
 Bala ise, ğaliba, añlamadı.
 Kadınnıñ közyaşından sılanğan yüzüne baqtı ve köz qapaqlarını sıq-sıq açıp yaptı. 
+
 – Biz Potiden keldik, – dedi o, cesaretsiz alda ve arqasına aylanıp baqtı.
 Anda, qapunıñ o yaqında, terrasada, beyaz kölmekli adam turmaqta ve balağa parmaqları ile nasıldır işaretler etmekte edi.
 
