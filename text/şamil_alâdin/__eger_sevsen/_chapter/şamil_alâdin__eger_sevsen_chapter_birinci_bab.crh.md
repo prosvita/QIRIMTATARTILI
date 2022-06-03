@@ -211,17 +211,17 @@ Maña arqasını çevirdi.
 — Bekirov!
 
 Sekretar defterini açtı, menim familiyamnı yazıp qoydı.
-
-— Seni artıq Çar-Çak qurucılığına mobilizlendi esap etemiz,— dedi o,— anda şimdi esas mesele — aylanma kanal.
-
+% — Seni artıq Çar-Çak qurucılığına mobilizlendi esap etemiz,— dedi o.
+% Anda şimdi esas mesele — aylanma kanal.
+% Añlaysıñ...
 Eline ştamplı kâğıt aldı, üstüne nelerdir yazğan soñ, ayaqqa turıp, elini maña uzattı.
-Men onıñ elini tutıp, yahşı sıktım.
+Men onıñ elini tutıp, yahşı sıqtım.
 Sıqqanda o külümsiredi.
 Men de külümsiredim.
 Albu ise sekretarnıñ tebessüminiñ maña iç munasebeti yoq, eken.
 Kabinette peyda olğan teri paltolı yaş qız başını sallap, er kesnen selâmlaşıp, çıqtı, soñ stolnıñ yanında toqtalıp, közlerini sekretarga tikledi.
 
-— Tros meselesi ne vaqıt çezilecek? — dep, telükeli davuşnen soradı o. — Yellar içinde daa çoq yürecekmizmi?
+— Tros meselesi ne vaqıt çezilecek? — dep, telükeli davuşnen soradı o. — Yollar içinde daa çoq yürecekmizmi?
 Bugün "Kovrovets" de işten çıqtı.
 Menim smenamda rels, Tulâganovnıñkinde şpal yetişmey.
 Vaziyet böyle eken, meni Baş-Dugümge niçün yolladıñız?
@@ -232,18 +232,18 @@ Ziyade sıqqanım, ğaliba.
 
 Çızmalarımnı yerge küçlüce urıp, keri aylandım, soñ şporlarımnıñ keskin davuşı altında qapuğa doğruldım.
 Keniş merdiven boyu aşağı tüşeyatqanda, qulaqlarımda sekretarnıñ sözleri çıñlamaqta ediler.
-Mavı kölmek ve ştan kiygen yititler, başlarına qırmızı yavluqlar bağlı, bluzkalı qızlar basamaqlar boyu yuqarı köterilmekte ediler.
+Mavı kölmek ve ştan kiygen yigitler, başlarına qırmızı yavluqlar bağlı, bluzkalı qızlar basamaqlar boyu yuqarı köterilmekte ediler.
 
 ...O devirde komsomolnıñ qarışmağan işi yoq edi.
 Magnitkağa, Küznetskke, Zaporojyege eşelonlar yollay, zavodlar qura, teatrler teşkil ete, mollalar ve papazlar iştirak etmegen qızıl toylar oğrunda küreşe ve bütün bu işlerni büyük araret ve aqılnen yapmağa tırışa edi.
 
-Tsement, ağaç ve tezyalar ile yüklü komsomol eşelonlarını er stantsiyada komsomol postları qarşılap ala, teşkere ve poyezdlarnıñ toqtavsız yürüvlerini elde etmek içün oğraşalar.
+Tsement, ağaç ve tezyalar ile yüklü komsomol eşelonlarını er stantsiyada komsomol postları qarşılap ala, teşkere ve poyezdlerniñ toqtavsız yürüvlerini elde etmek içün oğraşalar.
 Memlekette bir kereden yüzlerce zavodlar qurulayatqan vaqıtlarda bu işlerni yapmaq qolay degil edi.
 "Yengil kavaleriya" demir yel stantsiyası başlığınıñ qapusına karikaturalı kâğıtlar yapıştırıp, selektorğa kirmek içün ruhset berilmesini talap ete, ateş köz yigitlerniñ bazıları halq komissarı Sergoğa telegramma yollap, domnalarnıñ çalışuvındaki ziyankârlıqlarnen küreş hususında ciddiy meseleler kötere, şahtalarda müddetten ziyade çalışıcı brigadalar teşkil ete ediler.
 O gürdeli vaqıtlar...
 Biz — qart komsomollar şimdi o devirni sıq-sıq hatırlaymız.
 
-Ebet, bugünniñ komsomolları da acaip yigitler.
+Ebet, bugünniñ komsomolları da acayip yigitler.
 Biri — binakâr injener, digeri muallim, üçüncisi agronom, Taymırde men olarnıñ çeşitlerini kördim.
 
 Ekspeditsiya vaqtında... bir kün dolgan köyü Dudinkadan telegramma keldi.
@@ -260,13 +260,13 @@ Maña, Marstan tüşken adammı eken, dep taaciplenip baqtılar.
 
 — Ya komsomol raykomı talap etken soñ ne yapacaqmız?
 
-Biz olarğa özümizniñ eski, alicenap ananelerimizniñ episini ögretmegenmiz, lâknn olarda, bir vaqıtta bizde olmağan küçlü usullar çoq.
+Biz olarğa özümizniñ eski, alicenap ananelerimizniñ episini ögretmegenmiz, lâkin olarda, bir vaqıtta bizde olmağan küçlü usullar çoq.
 Er devirniñ öz usulı ola eken.
 Men, respublikamıznıñ komsomol Merkeziy Komitetinde, otuzıncı senelerniñ başında üküm sürgen bu alevli müitni hatrime ketirgende, öyle neticege kelem.
 
 …Soqaqqa çıqtım.
 Yüksek selbilerniñ ve kevdeli emenlerniñ töpeleri qarnen örtülgen, qaldırımlar sılaq qar astında tayğaqlanıp qalğanlar.
-Yel boyunda faytonlar ve yunli, qalın ayaqlı atlar yekili droqlar yürmekteler.
+Yol boyunda faytonlar ve yünlü, qalın ayaqlı atlar yekili droqlar yürmekteler.
 Yımşaq qar... çamur.
 Böyle avada şeerde dolana bermekte mana yoq.
 Tez-tez ketmek kerek.
@@ -276,7 +276,7 @@ Darhan arıqnı boylap yüreyatqanda, ayaqlarımdaki çızmalarıma köz ettim, 
 Yazıqlar olsun...
 Saba çötkinen temizlegen ve qadife parçasınen yaltıratqan edim.
 İşte, demir yel stantsiyası.
-Ellerinde baltaları, bıçqıları ve arqalarında çuvalları eecanlı erkekler, ayaqlarında ağır potikleri, yanlarında qırmızı burunlı kiçik balalar — qadınlar... perron boyunda dolanmaqtalar.
+Ellerinde baltaları, bıçqıları ve arqalarında çuvalları eyecanlı erkekler, ayaqlarında ağır potikleri, yanlarında qırmızı burunlı kiçik balalar — qadınlar... perron boyunda dolanmaqtalar.
 
 Kassa qapalı.
 Açıq olğanda bile bilet alacaq kişi yoq.
@@ -288,9 +288,9 @@ Elbette, yolnıñ özüne mahsus qanunı bar: poyezdniñ köçkenine beklemek ke
 Köçken soñ şamata toqtadı, er keske çökmege yer tapıldı.
 Men sıqıntıdan azaçıq qurtuldım.
 Bir elimnen vagonnıñ divarına tayanıp tura bilecek kibi oldım.
-Çemodanmnı qoymağa yer tapqan soñ, onıñ üstüne oturdım.
+Çemodanımnı qoymağa yer tapqan soñ, onıñ üstüne oturdım.
 
-Geceniñ bir vaqıtında Qırğız-Qulaqqa kelip yettik.
+Geceniñ bir vaqtında Qırğız-Qulaqqa kelip yettik.
 Saba ise qurucılıqnıñ kadrlar bölügi elime küçük kâğıt tuttırıp, ekskavator parkına yolladı.
 
 Qırq daqiqa keçken soñ, maşina Çar-Çaqnıñ sağ yalısında toqtadı.
