@@ -353,7 +353,6 @@ O-o!
 
 Lâkin qarısınıñ sesi onı taaciplendirmedi.
 Aksine, daa yengil çevirile başladı.
-Amma ellerini, niçündir, ziyade kermekte edi.
 Şefiqa basamaqlardan töpege çıqtı, bosağa üstünde toqtadı.
 Qocasınıñ şeñlenüvi onı evelâ sevindirdi, soñ kederlendirdi.
 
@@ -462,7 +461,8 @@ Yoldaşı ola bile.
 
 – Şübesiz, – yenge başını salladı.
 Lâkin qocasınıñ aytqanlarına inanmadı.
-O sebepten, meselege özü izaat berdi: – Dilâver biletni, poyezd köçip keteyatqan maalde alğandır.
+O sebepten, meselege özü izaat berdi:
+– Dilâver biletni, poyezd köçip keteyatqan maalde alğandır.
 Ebet, öyle olğandır.
 Telegramma yollamaqnı ise Serverge rica etkendir.
 
