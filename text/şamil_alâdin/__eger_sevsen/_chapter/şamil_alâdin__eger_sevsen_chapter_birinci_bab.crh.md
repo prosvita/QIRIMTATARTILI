@@ -145,20 +145,20 @@ Kerçek, şimdi — dekabr.
 Keç maal.
 
 Lâkin bu — menim qabaatımmı?
-Merkeziy Komitet maña, öz komsomolına, yardım etmege borclı.
+Merkeziy Komitet maña, öz komsomolına, yardım etmege borclu.
 
 Sekretarnıñ qabulhanesi adamlarnen rıqmarıq.
-Saqalları ösük, üstlerindeki kölmekleri tozdan ve terden öz renkini ğaip etken, yañğıravuq sesli yaş kişiler nevbet beklemekteler.
+Saqalları ösük, üstlerindeki kölmekleri tozdan ve terden öz renkini ğayıp etken, yañğıravuq sesli yaş kişiler nevbet beklemekteler.
 Odanıñ içi, vokzal kibi, iñley.
-Kabnnetniñ qapusı de açıla, de qapala, anda, içeride, bir laqırdı, mında, qabulhanede, diger laqırdı.
+Kabinetniñ qapusı de açıla, de qapala, anda, içeride, bir laqırdı, mında, qabulhanede, diger laqırdı.
 Qabulhanede "yengil kavaleriya" teşebbüsçisi Nikiforov aqqında, bugün saba saat altıda ketirilip, alâ platformağa yüklenilmey, yerde yatqan transformatorlar ve Halmat Saatqulovnıñ taşçılar brigadası hususında laf ketmekte.
 
-Bir qaç defa qapunı aralıq etip, başımnı kabinet içine soqup baqtım, maña: "rica etem, buyurıñız!", yahut "sabır etip turıñız!" degen adam olmadı.
+Bir qaç defa qapunı aralıq etip, başımnı kabinet içine soqıp baqtım, maña: "rica etem, buyurıñız!", yahut "sabır etip turuñız!" degen adam olmadı.
 Stol başında qara saçlı, baqır yüzlü, yeşil gimnastörkalı yaş kişi, sol elini araretli sallap, telefon ile laqırdı etmekte.
 
 Qapu yanında turğan taqiyeli yigitten:
 
-— Stol başındaki kim? — dep soradm.
+— Stol başındaki kim? — dep soradım.
 
 — İsrail Artıqov...— dep cevap berdi o.
 "Tsement ketirmeseñiz, sizge qasır bayraq taqdim etecekmiz!
@@ -166,7 +166,7 @@ Ebet, ebet!
 Men şaqa etmeyim".
 
 Beton meselesi bitti degende, kimgedir telefon etip, ekskavator hususında iddalaşa başladı.
-Soñra kâğıt aqqında matbua hane ile çekkeleşip aldı, ondan soñ büyük şkafnı açıp, yanında turğan nasıldır zavodnıñ komsomol yaçeykası kâtibine bir deste yolaqlı kâğıt berdi.
+Soñra kâğıt aqqında matbuat hane ile çekkeleşip aldı, ondan soñ büyük şkafnı açıp, yanında turğan nasıldır zavodnıñ komsomol yaçeykası kâtibine bir deste yolaqlı kâğıt berdi.
 
 — Bu üç gazetağa yetişmek kerek! — dedi oña.
 
@@ -176,13 +176,13 @@ Bu qadarçıq şey!
 Eñ olmağanda eki rulon beriñiz!
 
 Yaçeyka kâtibi qolaylıqnen teslim ola qoyğanlardan degil eken, ayağını şkafnıñ qapağına tiredi, qapattırmadı.
-Artıqov suvuq tebessüm ile onıñ ayağını kenarğa üytep taşladı.
+Artıqov suvuq tebessüm ile onıñ ayağını kenarğa iytep taşladı.
 
 — Bala olma!
 Bunı Sovnarkomnıñ narâdınen aldıq, añladıñmı?
 Qana, cöne! — Artıqov bu arada köşede meni esledi: — Saña ne kerek?
 
-Men çızmalarımnıñ ökçelerini biri-birine urdım, zeñgilerim zıñıldap aldılar.
+Men çızmalarımnıñ ökçelerini biri-birine urdım, zengilerim zıñıldap aldılar.
 Arbiy hızmetteki kibi, tez ve qısqa ibarelernen meramımnı añlatmağa tırıştım, lâkin lafım, ğaliba, uzun olıp çıqtı.
 
 — Adıñ ne? — dep soradı merkeziy komitetniñ sekretarı. 
@@ -195,7 +195,7 @@ Adımnı ayttım.
 — İş böyle, Cevdet! — sekretar birden açıq laqırdığa keçti.
 Çekmecesi içinden küçük defter çıqarıp, elinen üstüne bastı,— oqumaq yahşı şey,— dedi o, menim yüzüme baqmay,— lâkin Çar-Çaqta elektrik-himiya kombinatı qurucılığı başladı.
 Añladıñmı?
-Anda, saña benzer, mazallı kişiler kerekler.
+Anda, saña beñzer, mazallı kişiler kerekler.
 Ket anda!
 
 — Yoq.
