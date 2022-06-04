@@ -116,7 +116,7 @@ Başına esi kelgeninen, Şemsnurğa kiyik-kiyik közetti.
 Bu balağa baq!
 Köresiñmi onı?
 
-– Ebet?
+– Ebet.
 
 – Dilâverim... dey.
 Bu nasıl şey? – Şefiqa tekrar ağladı.
@@ -126,7 +126,7 @@ Kendini şefqatlı zan ettirmek istep, oña mulâyim nazar etti.
 
 – Men Dilâverim, – dedi bala tekrar. – Dilâver Çauşım.
 Niçün meni añlamaq istemeysiñiz?
-Neme taaciplenesiñiz?
+Nege taaciplenesiñiz?
 
 – Sen Dilâver Çauşnıñ oğlusıñmı?
 
