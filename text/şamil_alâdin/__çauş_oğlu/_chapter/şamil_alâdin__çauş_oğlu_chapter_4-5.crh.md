@@ -187,8 +187,7 @@ Zerdali, alma qoydı, büyük meşaqqat ile elde etilgen zeytünni çıqardı, k
 
 Bala, elinde yüzbez, bağçağa çıqtı.
 Pevrenk astına egilip, yuvuna başladı.
-Uzaq, tunçıq yoldan soñ, bu – bir hoş meşğuliyet edi.
-Torun yuvunır eken, Çauş ve Zeverced kelip kirdiler.
+Uzaq, tunçıq yoldan soñ, bu – bir hoş meşğuliyet edi, тorun yuvunır eken, Çauş ve Zeverced kelip kirdiler.
 Olar evde yat balanı kördi, amma taaciplenmediler.
 Çünki Şemsnur olarnı azbar qapu yanında rastketirip, er şeyni añlatqan:
 
