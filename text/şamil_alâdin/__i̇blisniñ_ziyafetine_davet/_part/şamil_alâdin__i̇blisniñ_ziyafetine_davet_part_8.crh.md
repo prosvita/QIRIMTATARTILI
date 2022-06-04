@@ -1,5 +1,7 @@
 Oca toqtadı.
-Üküm-qarar bekler kibi, közlerini Acerge tikledi, sustı. – Tek şumı? – dep soradı qarısı.
+Üküm-qarar bekler kibi, közlerini Acerge tikledi, sustı.
+
+– Tek şumı? – dep soradı qarısı.
 
 – Yoq, soñu olacaq.
 
