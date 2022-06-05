@@ -224,7 +224,7 @@ Kerçekten de, Dilâverniñ özü niçün yoq?
 
 Lâkin sözlerine pek facialı aenk bermedi.
 Şay... söz sırası ayta qoydı, soñ torunınıñ omuzındaki yüzbezni alıp, Şefiqağa uzattı.
-Zeverced üdür qıyamet keldi, Dilâverni quçaqladı, öpti... musafir ise miskin qozu kibi sustı.
+% Zeverced  keldi, Dilâverni quçaqladı, öpti... musafir ise miskin qozu kibi sustı.
 Qartanasınıñ sözleri diqqattan tüşip qaldılar.
 Dilâver olarnı güya eşitmedi.
 
@@ -319,7 +319,6 @@ Bala da qartananı añlamadı.
 Başını aşağı egiltti.
 Sustı.
 
-Şefiqanıñ niçün fiğan kötergenini başqalar abaylamay qaldılar.
 
 – Ebet!
 Medeniy ailelerde adet öyle... – defterden Şemsnurnıñ özüniñ qalbinde raatsızlıq asıl olğanı sezilse de, başqalarnı tenbiyeley berdi, – birevniñ defterindeki şeyni kimse oqumay.
@@ -346,7 +345,8 @@ Onı oqumaq, kerçekten de, yasaq.
 – Öz-özüne... yüreginiñ telqini.
 
 – Bu – aqıldanelik... – Çauş açuvlandı.
-Çünki özü ömürinde kündelik tutqan adam degil ve onda iç bir vaqıt zaruret körmegen. – Men oğlum aqqında haber eşitmek isteyim.
+Çünki özü ömürinde kündelik tutqan adam degil ve onda iç bir vaqıt zaruret körmegen.
+– Men oğlum aqqında haber eşitmek isteyim.
 Başqa şeyniñ menim içün emiyeti yoq.
 
 Qart Mustafanıñ közleri Şefiqağa çevirildi, güya ondan imdat körmek istediler.
