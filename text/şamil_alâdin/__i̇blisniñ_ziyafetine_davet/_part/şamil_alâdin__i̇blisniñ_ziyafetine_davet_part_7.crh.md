@@ -64,8 +64,6 @@ Kimseni körip olamadı.
 Davuş tekrarlandı: – “Köyde on bala oqutmağa aqqıñ bar!
 Ziyade oqutsañ, alğan keliriñe ortaq olacaqmız”.
 
-Ocanıñ ayaqlarında teren kaloşlar, balaqlarınıñ ucları örme çorapları içine tıqılğan, balçıqlı yol boyu tayğalap, çarpınıp kelmekte.
-Qalpağını ve qaşlarını qar basqan.
 Çeresi sılanğan ve qızarğan.
 
 Evniñ qapusını açıp, sofa içine ayaq basqan edi, aşhaneden Acire hanım çıqa qaldı...
@@ -77,7 +75,6 @@ Müjde!
 Añladıñızmı?
 
 Oca tonunıñ cebinden talebe defterleri destesini çıqarıp, olarnı eki elinen köküsi üzerine basqanı alda, qarısına ayretle közetip turdı.
-Evde ayatınıñ, mektepte hızmetiniñ bir ucu-diger ucuna kelmegen vaqıtta, müjde... hucur şey!
 
 – Apaqay!
 Menim qafam bom-boş, – dedi o, zornen külümsirep, – esrarlı sözlerni añlamaq içün qabiliyetim yoq.
@@ -195,8 +192,7 @@ Qalan eserleriñizi, inşalla, ekinci kitabıñızda oqurız.
 Buña eminiz.
 
 Selâm ve itiram ile – Abdureşid.
-1911 s.fevral 9.
-Qarasuvbazar şeeri”.
+1911 s.fevral 9. Qarasuvbazar şeeri”.
 
 Mektüp böyle muqayt ve qısqa edi.
 Üsein oca onda öz şübelerine izaat tapıp olamadı.
