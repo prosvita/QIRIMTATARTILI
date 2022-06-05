@@ -33,7 +33,6 @@ Mektep binasında divarlarnıñ sıvavı tüşken, tavanı aqqan, ders kedikl
 Mında Üsein oca içün er şey çıqılmaz çıtırman dağ olıp köründi.
 O sebepten kimsege indemedi.
 Vaqıtı kelir, yapılacaq işni yapar.
-Şimdilik mevcüt tertipke tabi olmağa mecbur.
 Qaç künler keçken soñ, üyken sınıfta, derslerniñ birinde Osman Aqçoqraqlınıñ “Nenkecan hanım” eserinden balalarğa ayrı kesekler oqup, izaat berip turğan vaqıtında tavan-qış köşesinde qararıp turğan örümçek yuvası közlerine çalındı.
 Pek göñülsizlendi.
 Ama ocanı göñülsizlendirgen amil tek örümçek avı degil edi.
