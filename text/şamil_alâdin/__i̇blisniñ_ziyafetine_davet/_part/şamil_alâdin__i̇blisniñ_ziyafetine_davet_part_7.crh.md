@@ -89,7 +89,8 @@ Oca yersiz hahıldılardan asabiylengen kibi oldı.
 Qızardı, ağardı, lâkin qadınnı ıncıtmağa istemey, sabır etti.
 Sabır ettimi?
 Yoq!
-Tamağına yarçıq sançılğan kibi, boyunını ögge sozıp, taaciplendi, yutqundı: “Acerge ne oldı, aceba?”
+Tamağına yarçıq sançılğan kibi, boyunını ögge sozıp, taaciplendi, yutqundı:
+ “Acerge ne oldı, aceba?”
 
 – Ma! – dedi o qarısına.
 – Tut!
@@ -120,8 +121,7 @@ Sen maña dünyalarnı bağışladıñ!
 Men endi saadetten ve mesudiyetten deli olurım.
 Men bu künni dört yıl bekledim.
 Şimdi köre bildim.
-Ah!
-Bu kün!
+Ah! Bu kün!
 Bu nasıl kün?
 
 – Ulu işlerniñ başlanğıçı meşaqqatlı ola, – dedi Acire hanım.
@@ -143,11 +143,12 @@ Seniñ daima şad ayat sürgeniñni isteyim, ama elimden kelmey.
 “Nalei Qırım”nıñ özü ekimizge ulu ediye.
 
 Üsein küçük kitapçıqnı örnekli, kök cıltına çoq baqıp turdı.
-“Muallim Üsein Toqtarğazı eseri, – dep yazılı edi onıñ cıltı üstünde. – Qarasuvbazar.Z.U. Rogan matbuasında tab olunmıştır.1910 s.”
+“Muallim Üsein Toqtarğazı eseri, – dep yazılı edi onıñ cıltı üstünde.
+ – Qarasuvbazar.Z.U. Rogan matbuasında tab olunmıştır.1910 s.”
  Oca hoşnut ve minnetdar çere ile külümsiredi.
 Kitapnı açtı.
 Közleri, bir vaqıtlarda kendi qolunen yazılıp, çoqtan unutılğan muqaddemege iliştiler.
-“Efendiler!
+“Efendiler !
 “Nalei Qırım”nıñ nazmi bir alim, bir edip degildir.
 Belki bir qaç seneler mektep görmiş, medresede bulunmış, mamafiye, onon beş senelerden beri millete hızmet arzusı ile tatar çocuqlarınıñ başında durmuş bir genç muallimdir...”
 
