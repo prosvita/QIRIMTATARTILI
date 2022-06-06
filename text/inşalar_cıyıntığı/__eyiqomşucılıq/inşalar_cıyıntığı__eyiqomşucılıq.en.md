@@ -75,10 +75,8 @@ A girl with a nice name Evelin came to our class.
 Evelin is Tatar.
 Our teacher offered us to sit at the same desk.
 We became friends.
+After the lessons we go home together,we walk on the same road.
 
-After the lessons we go home together.
-
-I go her way.
 I carry her bag.
 
 On our way we are talking about the news of past and our plans for future.
@@ -86,11 +84,11 @@ On our way we are talking about the news of past and our plans for future.
 Once in one the of week-ends Evelin invited me to visit her family and I met her relatives: father, mother, little brother, grandfather and grandmother.
 We were sitting at a beautiful table, drinking tea with pie and treating ourselves to fruit.
 
-I knew from Evelin’s grandfather and grandmother that they had come to our Kerch from the far Middle Asia.
+I knew from Evelin’s grandfather and grandmother ,I found out where they came from.
+They had come to our Kerch from the far Middle Asia.
 But many years ago, when Evelin and her little brother were not yet born, they lived here, in Crimea, for many-many years.
 
-But on June 22, 1941 the Great Patriotic war began.
-On May 20, 1944 the Tatar population of Crimea was subjected to deportation, it meant the expulsion from its native land.
+But on June 22, 1941 the Great Patriotic war began,on May 18, 1944 the Tatar population of Crimea was subjected to deportation, it meant the expulsion from its native land.
 
 A lot of destroyed deserted villages and farms disappeared from the map of our peninsular.
 
@@ -98,8 +96,7 @@ Now the deported peoples are coming back to Crimea, their Motherland.
 
 More than 70 nations and nationalities live in Kerch.
 
-I recollect very often how Evelin and me were walking in winter to the sea to feed hungry, freezing swans.
-For three years those swans come to us to spend the winter.
+I recollect very often how Evelin and me were walking in winter to the sea to feed hungry, freezing swans,they come to us to spend the winter.
 
 And last summer Evelin left for Moscow.
 I miss her a lot.
