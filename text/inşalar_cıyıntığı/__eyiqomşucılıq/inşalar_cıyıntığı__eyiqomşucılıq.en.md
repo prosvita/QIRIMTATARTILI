@@ -32,17 +32,16 @@ Since those days they have given us their love and care. 
 And it hurts and frightens me to hear when the adults blame the Russians for all our troubles demanding their punishment and deportation.
 
 According to my parents’ memory, in 1988 when we left for Djankoy the relations with the Crimean Tatars were very strained.
+
 And Andrey, an Ukrainian, was the first who gave a hand of friendship and assistance to my father at work.
-When he visited us with his wife Katya, we had a real festival of Crimean Tatar and Ukrainian song's.
+When he visited us with his wife Katya, we had a real holiday.
 
 How pleasant it was when Ira, a great friend of our family, came and congratulated us with Moslem holiday «Kurban bayram» in the Tatar language, kissing my mother’s and father’s hands and pronouncing the words of congratulation with great difficulty but so proudly.
 
-I feel gratitude to the pupils of my former class of school №3.
-Once on the lesson of history the teacher told us about the deportation of Crimean Tatars from Crimea and the reasons — the betrayal of the
-
-Crimean Tatar people during the Great Patriotic War.
-I was the only Crimean Tatar in our class, I was ashamed and terrified.
-I came home in tears and I was afraid to go to school the next day.
+Once on the lesson of history the teacher told us about the deportation of Crimean Tatars from Crimea.
+Аnd the reasons — the betrayal of the Crimean Tatar people during the Great Patriotic War.
+I was the only Crimean Tatar in our class.
+I was ashamed and terrified,I came home in tears and I was afraid to go to school the next day.
 And then my mother showed me our small «home museum », where the letters from the War were kept: yellow pages written in an even, fine, nice handwriting either in Russian or in Latin — my grandfather’s letters.
 She showed me an article from the newspaper «Pravda» from September 25, 1954 where it was written that:
 «Captain Ablyalimov Server Ablyalimovitch is awarded an order of the Patriotic War Second Class » and « killed in battle» notice from 14.06.1949: «Guards captain deputy battalion commander Ablyalimov Server Ablyalimovitch in battle for the Socialist Motherland, faithful to oath of allegiance, having displayed heroism and courage, was killed on 26.03.1945 and buried with military honours.
