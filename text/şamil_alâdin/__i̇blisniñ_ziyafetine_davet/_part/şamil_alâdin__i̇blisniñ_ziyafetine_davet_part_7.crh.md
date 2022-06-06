@@ -370,7 +370,6 @@ Abdureşid efendi Üsein Şamilni ümütsizden peyda oluvından pek eyecanl
 Ayıp degilmi maña?
 
 Toqtarğazı eki adım ileri atqance, Mediyev onıñ yanına yetip keldi, eki dost kişi bir-biriniñ kuçağına atıldılar.
-Sözleri yarım qalğan meclis iştirakçileri, başlarını çevirip, eki kişiniñ körüşüvindeki samimiyetke diqqatle közetip oturdılar.
 
 Al-hatir soraşqan soñ, Mediyev musafirni kişilerge taqdim etti, onı özüniñ yanaşasında yımşaq qırmızı kresloğa oturttı.
 Adamlarnıñ ekserisi şeer belediye başlığına ayret ve tebessümle baqtı.
