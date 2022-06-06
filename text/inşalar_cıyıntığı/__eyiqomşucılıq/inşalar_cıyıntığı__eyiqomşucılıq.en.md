@@ -120,13 +120,14 @@ The school director warned us: «Children, don’t forget that you are cultured 
 And soon they came — young men and women.
 We greeted them and they were smiling, speaking their language and shaking hands.
 While walking around the school they were admiring its beauty and cosiness, saying: «0-o?» and smiling.
-And we understood again — they liked our place.
+And we understood that they like.
 And when we sang a song for them they were applauding cheerfully.
 The director was right, if you want to understand a friend you’ll do it.
 
 Though in real life sometimes it’s rather difficult to gain an understanding.
 My friend Zarinka has a grandmother who likes to explain everything to us.
-Once I asked her: «Why did you come to Crimea and leave your lived-in places?» And she so wisely explained to me that a man had such a nature: on strange land the apples may be of two-fists size while on native land — only burrs, but there is no better place than the native land.
+Once I asked her: «Why did you come to Crimea and leave your lived-in places?»
+And she so wisely explained to me that a man had such a nature: on strange land the apples may be of two-fists size while on native land — only burrs, but there is no better place than the native land.
 
 I remember, when I was in the 1-st form, our teacher read us that some pigeons were once sold from Kiev to Irkutsk.
 During two years they were flying home.
