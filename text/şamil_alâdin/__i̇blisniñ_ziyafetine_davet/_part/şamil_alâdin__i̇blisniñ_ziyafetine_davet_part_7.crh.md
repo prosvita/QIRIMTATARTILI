@@ -232,17 +232,18 @@ Üsein oca cevap berip olamadı, boyunını burdı, omuzlarını qıstı.
 
 – İdarehaneniñ tintilgeni üç afta... – dedi Şeyh-zade.
 – Qapu-pencere gece-kündüz açıq.
-İçerisi aşır-neşir.
+İçerisi aşır- neşir.
 Er kün bu yerge kelem, aylanıp-üyrülip, qaytıp ketem.
 
 – Belki Abdureşid efendi bir çareler körer, – dedi Üsein oca, – qaydan bileyim... belki ükümetke muracaat eter, gazetanı ğayrıdan açtırır?!
 
-– Abdureşid efendi... ebet, bir kere daa tırışsa fena olmaz edi.
+– Abdureşid efendi...
+ebet, bir kere daa tırışsa fena olmaz edi.
 Lâkin iş, zan etsem, endi tek ruhsette degil.
 
 – Daa nede?
 
-– Gazeta çoq borclandı.
+– Gazeta çoq borclandı .
 Abuneden tüşken aqçağa Otuzlı Molla Çelebiniñ bir özünen esap kesip olamaycaqmız.
 Başqalardan alınğan ödünç paralarnı aytmayım.
 Şimdi eñ müim iş – Abdureşid efendini borclardan qurtarıp almaq.
