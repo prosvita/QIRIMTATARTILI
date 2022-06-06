@@ -316,9 +316,6 @@ Men endi yaş degilim.
 – Bu idarege nasıl tüştiñiz, Samson Harlampiyeviç azretleri?
 
 – Nasıl tüştim? – bir közüni yuma berip, azaçıq külümsiregen soñ, koridornıñ törüne, emen qapuğa işaret etti.
-İşançlı dostlarım yoq degil... olar eyiliklerimni unutmaylar.
-Çağırdılar...
-İşim elverişli!
 
 – Kefede işlemeysiñizmi ?
 
@@ -327,8 +324,10 @@ Oca böyle degende, Samson deşetli sarsıntıdan abdırar kibi, küçlü i
 – Anda, Kefede, qardeş, fena iş oldı, – dedi o niayet, – qabaq baña pâtladı.
 Bir yıldan beri burada Bağça Eli volostı idaresindeyim!
 
-Üsein oca onıñ nasıl hızmette ekenini sorap bilmek istedi, yetiştirip olamadı, Trandafilidi yünlü, qalın sol qolunı şapkesiniñ qasnağına toqundırıp, temenna berdi, nallı çızmalarınen tahta töşemeni gürsüldetip, koridor boyu ketti.
-Qapu yanına barğan soñ, artına aylandı, alçaq davuşnen: “Meñlibeyden muqayt ol, muallim! – dedi Üsein Şamilge, – ocalarnı... epiñizni satıcı o dır.
+Üsein oca onıñ nasıl hızmette ekenini sorap bilmek istedi, yetiştirip olamadı.
+ Trandafilidi yünlü, qalın sol qolunı şapkesiniñ qasnağına toqundırıp, temenna berdi, nallı çızmalarınen tahta töşemeni gürsüldetip, koridor boyu ketti.
+Qapu yanına barğan soñ, artına aylandı, alçaq davuşnen:
+“Meñlibeyden muqayt ol, muallim! – dedi Üsein Şamilge, – ocalarnı... epiñizni satıcı o dır.
 Ve tek Harcibiyede degil – bütün volostta.
 Beni belâya qaldıran da şu hamutçı oldı”.
 
