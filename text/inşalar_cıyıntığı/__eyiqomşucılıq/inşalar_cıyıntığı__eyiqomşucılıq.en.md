@@ -43,22 +43,22 @@ Once on the lesson of history the teacher told us about the deportation of Crime
 I was the only Crimean Tatar in our class.
 I was ashamed and terrified,I came home in tears and I was afraid to go to school the next day.
 And then my mother showed me our small «home museum », where the letters from the War were kept: yellow pages written in an even, fine, nice handwriting either in Russian or in Latin — my grandfather’s letters.
-She showed me an article from the newspaper «Pravda» from September 25, 1954 where it was written that:
-«Captain Ablyalimov Server Ablyalimovitch is awarded an order of the Patriotic War Second Class » and « killed in battle» notice from 14.06.1949: «Guards captain deputy battalion commander Ablyalimov Server Ablyalimovitch in battle for the Socialist Motherland, faithful to oath of allegiance, having displayed heroism and courage, was killed on 26.03.1945 and buried with military honours.
+She showed me an article from the newspaper «Pravda» from September 25, 1954.
+«Captain Ablyalimov Server Ablyalimovitch is awarded an order of the Patriotic War Second Class » .
+And « killed in battle» notice from 14.06.1949: «Guards captain deputy battalion commander Ablyalimov Server Ablyalimovitch in battle for the Socialist Motherland, faithful to oath of allegiance, having displayed heroism and courage, was killed on 26.03.1945 and buried with military honours.
 Gospodskiy Dvor, Hungary».
 
 The next day I would not feel hurt with the word «traitors», I went with confidence, I was proud of my people.
 And how grateful I am to the pupils of my class that they had never reminded me about that, never humiliated me and never offended me with that «accusation».
 
-They appeared to be wiser than the teacher and the adults which demand retribution for everything but we, their children and grandchildren, will be punished.
+They appeared to be wiser than the teacher.
+And  from the adults which demand retribution for everything but we, their children and grandchildren, will be punished.
 And we, on the contrary, want to live in friendship,to bring only benefit to our Crimea, to revive it.
 It belongs not to the past but to the present and future, it means that it belongs to us — children.
 The Crimea is a beauty and one mustn’t darken this beauty with evil, misfortune and war.
 
 I suggest to hold «Forum of Friendship» on the Day of Children Defence.
-It will be great showholiday.
-The children of different nationalities living in Crimea in their national costumes would tell the history, culture and customs of their peoples, dancing and singing.
-Then they would join hands, make a big round dance, go around the city, sing the same song in different languages.
+It will be great showholiday,the children of different nationalities living in Crimea in their national costumes would tell the history, culture and customs of their peoples, dancing and singing,then they would join hands, make a big round dance, go around the city, sing the same song in different languages.
 It should be a song about a smile from the cartoon film «Little Racoon».
 
 Maybe we would teach the adults to be friends, to love, to respect each other, not to recollect the past but to live today with hope for a better future.
