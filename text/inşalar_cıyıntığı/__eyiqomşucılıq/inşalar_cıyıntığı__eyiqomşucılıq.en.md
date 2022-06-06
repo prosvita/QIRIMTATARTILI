@@ -144,12 +144,12 @@ __Bahman Vlad, 16 years old, Feodosia city__
 Our world is created in such a way that we live among the people of different nationalities.
 It is clearly seen in our big home — Crimea.
 Russians and Ukrainians, Tatars and Germans, Bulgarians, Greeks, Jewish, Armenians and many other people became good neighbours.
-It is known for a long time that one has not to choose a friend because of his eyes, hair and skin colour.
-The nationalities can’t be good or bad.
-Only concrete people can be good or bad.
+It is known that one has not to choose a friend because of his eyes, hair and skin colour.
+The nationalities can’t be good or bad,only concrete people can be good or bad.
 
 I’m German as to my nationality and I’d like to tell a story of the Crimean Germans.
 The grandfathers of our grandfathers came to Russia long-long ago.
+
 They were famous for their skills and knowledge.
 They were respected for their industry and love for order.
 Russia, Ukraine and Crimea became a homeland for them.
@@ -158,9 +158,7 @@ Many years Germans lived in friendship with other peoples of their new Motherlan
 But a great trouble came to all peoples — the Second World War began.
 All the representatives of German nationality were considered to be enemies because of the worst part of them.
 
-The day of August 18, 1941 became a terrible day for the
-
-Crimean Germans.
+The day of August 18, 1941 became a terrible day for the Crimean Germans.
 They were put into the goods cars sent to Siberia, the Ural, Khazahstan.
 During the long way a lot of people died of cold, hunger and troubles.
 Those who survived found themselves in forest, field, uninhabited places.
@@ -173,7 +171,6 @@ Time cures the wounds.
 The friendship of the Germans and other peoples is strengthening.
 Recently the Festival of German culture was held in Feodosiya and I took part in it.
 This holiday was sincerely greeted by the guests of different nationalities: Russians, Ukrainians, Armenians, Koreans.
-
 The Festival participants and guests acquainted themselves with city history, went sightseeing.
 I learned that in Feodosiya in 1941, 50 000 people were killed: the famous Feodosiya landing.
 Fascism brought a lot of misfortunes to many peoples.
@@ -187,20 +184,18 @@ Germany!
 Germany!  
 Shame  
 Half-map Has pocketed,  
-Astral soul!  
-In olden days — obscured with the fairy tales,  
-Now — is full of tanks...
+In olden days — obscured with the fairy tales,
+ Now — is full of tanks...
 
 Those years were shameful for Germany.
-
 Fascism brought a lot of misfortunes.
-But it is very offensive for me when some boys and girls of my age sometimes call me a fascist.
-Then I try to explain that not all the Germans were fascists.
+
+Some boys and girls of my age sometimes call me a fascist.
+Threfore I am offended and I try to explain that not all the Germans were fascists.
 That’s why now, fifty-six years later, the city could forgive the German people and welcomed them on its land.
-The city has forgiven!
-It was my best impression of the Festival.
+The city has forgiven-it was my best impression of the Festival.
 I’m proud of my Motherland.
-The friendship has won.
+The friendship has won!
 
 The Festival became a holiday.
 We shall build our common Home in Crimea.
