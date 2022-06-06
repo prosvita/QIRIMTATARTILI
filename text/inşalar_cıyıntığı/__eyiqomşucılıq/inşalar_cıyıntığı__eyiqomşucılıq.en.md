@@ -11,25 +11,24 @@ Statelessness means that a person is not a citizen of any country and therefore 
 In Crimea, UNHCR, supports the government of Ukraine in implementing procedures to prevent statelessness and highlighting the benefits of citizenship.
 Together with Governments and other organizations, UNHCR develops and supports prevention activities which contribute to reducing the potential for future conflict.
 The use of these school books in the context of the UNHCR/DRC Tolerance Education Project in Crimea, and with the active participation of students, will assist in reducing intolerance and thus reduce the likelihood of people becoming refugees in the first place.
-
-
 The Tolerance Education Project is also being conducted in the Kyrgyz Republic.
-
 
 ## Home museum
 
 __Osmanova Maye, 15 years old, Junkoi city__
 
 I’m Maye Osmanova, I’m Crimean Tatar, I’m in the 10-th form.
-I’m 15 and I have not lived wise life full of years yet, I have not caught the truth of history, have not gone deep into the discussions of politicians.
+ I have not lived wise life full of years yet, I have not caught the truth of history, have not gone deep into the discussions of politicians.
 I look at this world with half-open eyes, take my first independent steps, try to estimate the present events carefully.
 
 Taking part in the competition «Good-neighbourliness» I don’t hope to win, to get a money prize, no.
-I just want to share that feeling of gratitude, that joy of communication with friends, that inspiration when one wants to be better, kinder, to bring more joy to the people he communicates with.
+I just want to share that feeling of gratitude, that joy of communication with friends.
+That inspiration when one wants to be better, kinder, to bring more joy to the people he communicates with.
 
 When we came to the Crimea from Andigan I was 6 and my sister Lera was 3.
-We had neither grandmother nor grandfather near by: they were substituted by our neighbours — Ljuba and Arkasha, they were Russians.
-Since those days they have given us their love and care as we were their grandchildren.
+We had not neither grandmother nor grandfather near by.
+They were substituted by our neighbours — Ljuba and Arkasha, they were Russians.
+Since those days they have given us their love and care. 
 And it hurts and frightens me to hear when the adults blame the Russians for all our troubles demanding their punishment and deportation.
 
 According to my parents’ memory, in 1988 when we left for Djankoy the relations with the Crimean Tatars were very strained.
