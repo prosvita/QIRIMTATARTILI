@@ -9,11 +9,12 @@ One of the major reasons why people become refugees is because of conflict resul
 UNHCR has also been provided by the United Nations General Assembly with the responsibility of preventing statelessness.
 Statelessness means that a person is not a citizen of any country and therefore cannot make use of the rights and privileges of being a citizen.
 In Crimea, UNHCR, supports the government of Ukraine in implementing procedures to prevent statelessness and highlighting the benefits of citizenship.
-
 Together with Governments and other organizations, UNHCR develops and supports prevention activities which contribute to reducing the potential for future conflict.
-
 The use of these school books in the context of the UNHCR/DRC Tolerance Education Project in Crimea, and with the active participation of students, will assist in reducing intolerance and thus reduce the likelihood of people becoming refugees in the first place.
+
+
 The Tolerance Education Project is also being conducted in the Kyrgyz Republic.
+
 
 ## Home museum
 
