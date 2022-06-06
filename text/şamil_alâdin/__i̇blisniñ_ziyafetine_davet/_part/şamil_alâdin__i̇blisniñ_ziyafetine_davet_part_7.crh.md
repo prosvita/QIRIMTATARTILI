@@ -245,7 +245,7 @@ Lâkin iş, zan etsem, endi tek ruhsette degil.
 
 – Gazeta çoq borclandı .
 Abuneden tüşken aqçağa Otuzlı Molla Çelebiniñ bir özünen esap kesip olamaycaqmız.
-Başqalardan alınğan ödünç paralarnı aytmayım.
+Başqalardan alınğan ödünç paralarnı aytmayım . 
 Şimdi eñ müim iş – Abdureşid efendini borclardan qurtarıp almaq.
 
 – Baş muarrir qayda? – dep soradı Üsein oca.
@@ -293,18 +293,17 @@ Pıştavlınıñ sabırı tükenip, oña başını köterdi.
 – Abdureşid efendi Mediyev ile körüşmek isteyim, – dedi oca.
 
 – Bugün ziyaretçilerni qabul künü degil.
-Çarşenbede kelirsiñ!
+Çarşenbede kelirsiñ !
 
 Men Yalta uyezdinden keldim.
 
-– Farqı yoq, – dedi pıştavlı, endi tatarca, – isteseñ, Erzurumdan kel!
+– Farqı yoq, – dedi pıştavlı, endi tatarca, – isteseñ. Erzurumdan kel!
 
 Karton cıltlı defterni qoltuğına qıstı, qapu betke yürüş etkende, birden toqtaldı.
 
 – Bana baq! – dedi o, artına aylanmayıp.
 – Biz seniñle görüşkenmi edik?
 
-– O!
 Samson Harlampiyeviç cenapları!
 – Ne demek olsun? – dedi Üsein oca, onıñ yanına kelip.
  – Eki yıl evelsi meni Harcibiyeden alıqtırğan ediñiz!
@@ -321,7 +320,7 @@ İşançlı dostlarım yoq degil... olar eyiliklerimni unutmaylar.
 Çağırdılar...
 İşim elverişli!
 
-– Kefede işlemeysiñizmi?
+– Kefede işlemeysiñizmi ?
 
 Oca böyle degende, Samson deşetli sarsıntıdan abdırar kibi, küçlü irkildi, soñra yanaşadaki skemle üstüne oturıp, yavlığınen mañlayındaki terni sile başladı.
 
