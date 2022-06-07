@@ -480,7 +480,7 @@ Notarius ile laqırdı ettiler.
 
 “Mal-mülkmi? – dediler olar, tekrar.
  – Eñ azdan üç biñ kümüşlikmi?
-Yahşı!”
+Yahşı! ”
 
 Eki aftadan soñ...
 Acı Abduramannıñ baqqal tükânı ve qavehanesi İbraim Smulskiyge satıldı.
@@ -489,12 +489,14 @@ Satuv-aluv işi notariusta resmiyleştirilip, senet eyyetke taqdim etildi.
 Üç müteraqqiy yaş kişi resmiy vesiqalar esasında belediyege vekil saylanıldı.
 Çeşit milletlerniñ vekillerinden ibaret şeer duması Abdureşid Mediyevni bir ağızdan şeer upravasınıñ ğalavası, yani özümizniñ tilimizde aytqanda, belediye başlığı sayladı.
 
-– Siz, Üsein efendi, şeerimizni bilesiñiz, – dedi Suleyman Ali... endi yemekniñ ahırı yaqınlağan edi.
+– Siz, Üsein efendi, şeerimizni bilesiñiz, – dedi Suleyman Ali...
+endi yemekniñ ahırı yaqınlağan edi.
  – Suv içmek istegen adam, elinde qopqası, yollarda talağı qatqanca, saqacınıñ peşinden yuvura turğan.
 Qopqası altı kapik.
 Öyle degilmi?
 
-– Öyle! – dedi oca, Mollayevniñ sözlerini tasdıqlap, – Tıpqı Eski Merakeşteki kibi...
+– Öyle! – dedi oca, Mollayevniñ sözlerini tasdıqlap.
+ – Tıpqı Eski Merakeşteki kibi...
 
 Yeñi belediye ne yaptı?
 O faaliyetini müim işten başladı.
@@ -535,7 +537,7 @@ Suleyman Ali efendi bu sözlerni iftiharle söyler eken, musafir, yüregine o
  – Qırım gençligi sizden çoq minnetdar.
 Faqat bugün kördigim levha... oca kene ah, çekti, köküs keçirdi.
 – “Vetan Hadimi” idarehanesindeki musadere, o vahşiylik meni çoq azapladı.
-Siz belediyesiñiz!
+Siz belediyesiñiz !
 Qoluñızda, er alda, akimiyet bar!
 Bu rezaletniñ ögüne çıqıp, toqtatıp olamadıñızmı, Abdureşid efendi?
 
