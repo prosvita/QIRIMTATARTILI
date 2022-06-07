@@ -36,7 +36,7 @@ Bu aqıl ve dülberlik yüksekliklerine qaydan keldik?
 Biz memleketniñ ayatını deñiştiremiz dep tüşündik, amma memleket bizni deñiştirgenini sezmey qaldıq.
 Adalet içün ücümge ketken asker, cesürlik maña kâr ketirecek dep ketmey.
 O elâk olacağını da tüşünmey.
-Mesele, onıñ duşman qurşunından telef ola bileceginde degil, revolütsiya ve onıñ qazançları oğrunda qattı tura bileceginde, kendi Vatanını acaip memleket yapa bileceginde, yani yüzlernen, biñlernen, millionlarnen adamlarnı bahtlı ete bileceginde.
+Mesele onıñ duşman qurşunından telef ola bileceginde degil, revolütsiya ve onıñ qazançları oğrunda qattı tura bileceginde, kendi Vatanını acayip memleket yapa bileceginde, yani yüzlernen, biñlernen, millionlarnen adamlarnı bahtlı ete bileceginde.
 Kişiniñ ögünde böyle alicenap vazife turğanda şahsiy menfaat ne demek ola?
 Böyle daqiqalarda öz şahsiyetini kim tüşüne bile?
 Munafıq!
@@ -46,12 +46,12 @@ Bu da revolütsiyanı mükemmellendirüv oğrunda küreş edi.
 Kerçek, bu uluğayelerini ömürge keçirmek içün ölmek zaruriy degil edi, lâkin biz öz vazifemizni fedakârlıq ve sadıqlıqnen eda ettik, çünki arqamızda yüzlernen, biñlernen millionlarnen kişiler, olarnıñ saadeti, tebessümi, sevgisi bulunmaqta edi.
 
 ...Stol üstünde yatqan soñki saifelerge lampadnıñ zayıf ışığı ura.
-Stolnıñ diger qısımı ve menim, kabinet dep, yanğıravuq söznen adlandırılğan kiçik odamnıñ içi ülkün.
-Yanaşamda turğan setniñ oz yüde ülkünlik içinde...
-Sen eliñni-ayağıñnı astıña toplap, burunıñnı yastıq astına tıqıp, yatasıñ.
-Özüñ, yeñi bab başlağanğa qadar beklemek ve eski bab üstündeki davanı bitirmek meramınen kirgen ediñ.
+Stolnıñ diger qısmı ve menim, kabinet dep, yanğıravuq söznen adlandırılğan kiçik odamnıñ içi ülkün.
+Yanaşamda turğan setniñ özü de ülkünlik içinde...
+Sen eliñni-ayağıñnı astına toplap, burunıñnı yastıq astına tıqıp, yatasıñ.
+Özüñ, yañı bab başlağanğa qadar beklemek ve eski bab üstündeki davanı bitirmek meramınen kirgen ediñ.
 Başımnı seniñ tarafıña çevirip diñlenem, tüm-tüz nefes alasıñ.
-Amma tekarançıq qıbırdanıp yalğan soñ, dudaqlarıñ bir şeyler fısıldadılar, odanıñ içinde kene sukünet ükümran oldı.
+Amma tekarançıq qıbırdanıp yalğan soñ, dudaqlarıñ bir şeyler fısıldadılar, odanıñ içinde kene sükünet ükümran oldı.
 Men ise qalbimdeki büyük islerimnen bu soñki saifelerni yazayatam.
 
 Keçenlerde Çar-Çaqqa bardım.
@@ -60,7 +60,7 @@ Soñki senelerde menim reberligim altında Taymırda ilmiy ekspeditsiya çalış
 Çar-Çaq ile Taymır arasındaki mesafe yaşlıq ile qartlıq arasındaki mesafege musaviy.
 Çar-Çaqnı tanımadım.
 O ösken-büyügen... himiyacılar ve elektrikler şeeri, studentler ve talebeler şeeri olğan.
-Şeerniñ merkezi acaip yeñi evlernen sarılıp alınğan.
+Şeerniñ merkezi acayip yañı evlernen sarılıp alınğan.
 Meydannıñ ortasında toqtadım.
 Çevre-çetime baqındım.
 Eali maña şübeli-şübeli köz etti.
