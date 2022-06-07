@@ -114,19 +114,19 @@ Basit omuzlarımdan öyle küçlü sıqtı ki, kemiklerim şıtırdadılar.
 Soñ qulleniñ töpesine köterile başladıq.
 Maña, plotina başlığı Ataqulov ekenini aytmağan olsalar bile, özüm sezer edim.
 Yuqarı köterileyatqanda, bu merdivenni, nizamnı ve temizlikni körip, bilir edim.
-Albu ise Bassarabanıñ yetişken qızı ve Basitniñ oğlu bar eken, bir afta evelsi eki qoranta bir-birine doğmuş olğanlar.
+Albu ise Bessarabanıñ yetişken qızı ve Basitniñ oğlu bar eken, bir afta evelsi eki qoranta bir-birine doğmuş olğanlar.
 
 Qulleniñ töpesine çıqtıq.
 Etrafqa köz etkende yüregim toqtap qalğan kibi oldı.
 Çar-Çaq boğazı, Hazar-Kend, bizim sotsialist şeerçik ve keniş vadi... uzaqta büyük himiya kombinatı.
 Yanaşada küzgü kibi yıltıravuq derivatsion kanal.
-Menim yoldaşlarım yüregimdeki eecannı sezip, sustı — çoq vaqıt indemey turdılar.
+Menim yoldaşlarım yüregimdeki eyecannı sezip, sustı — çoq vaqıt indemey turdılar.
 Men laqırdı etip başlağanımnı beklediler.
 
-— Soñ, divarlarnıñ qılıfı nasıl? — zeinime başta bu sözler keldiler. — Qavimi?
+— Soñ, divarlarnıñ qılıfı nasıl? — zeinime başta bu sözler keldiler. — Qaviymi?
 
-Basit başını silkitip aldı, soñ Bassarabağa baqtı.
-Bassaraba maña evelâ içten cevap berdi, soñ keskin davuşnen:
+Basit başını silkitip aldı, soñ Bessarabağa baqtı.
+Bessaraba maña evelâ içten cevap berdi, soñ keskin davuşnen:
 
 — Demir kibi tura.
 Oña ne olur belleysiñ? — dedi.
@@ -135,26 +135,26 @@ Mihail menim bu mermer taşlarğa munasebetim olğanını ya unutqan, yahud da a
 — İrada nasıl? — dep soradı menden Basit. — Sağ-selâmetmi?
 
 Oña İrada hususında çoq şeyler ikâye ettim. 
-Bassaraba kene tüşüncege daldı, kene içinden özüne bir şey söyledi, soñ:
+Bessaraba kene tüşüncege daldı, kene içinden özüne bir şey söyledi, soñ:
 
 — Özüñnen ne ketirmediñ? — dedi maña. 
-Men, İradanıñ şimdi ciddiy ilmiy işlerile bant ekenligini ve vaqıtı yoqluğını ayttım.
+Men, İradanıñ şimdi ciddiy ilmiy işleri ile bant ekenligini ve vaqtı yoqluğını ayttım.
 
 — Maşşalla! — dedi Basit. — Men İradanıñ büyük adam olacağını bile edim.
 
-Bassaraba biraz tüşünip turdı, Basitniñ sözleri doğru, degen manada, başını sallap aldı.
+Bessaraba biraz tüşünip turdı, Basitniñ sözleri doğru, degen manada, başını sallap aldı.
 
-Bundan soñ Bassaraba qulleniñ qapusını kilitledi, üçümiz maşinağa oturdıq.
+Bundan soñ Bessaraba qulleniñ qapusını kilitledi, üçümiz maşinağa oturdıq.
 
 Onıñ evine bardıq.
 Sabağa qadar laqırdı etip çıqtıq...
-Çoq vaqialarnı hatırladıq: tsement meselesini... baş idareniñ pervasızlığı yüzünden, beton taşuvnıñ toqtatılğanını, Curayev ve Tursunovnıñ Merkeziy Komitetke ketip, vaziyetni bildirgenlerini ve komissiya kelgende, partiya ve komsomol aktivi çağırılğanını, anda İrada çıqıp reberlikni teñkid etkenini eske tüşürdik.
+Çoq vaqialarnı hatırladıq: tsement meselesini... baş idareniñ pervasızlığı yüzünden, beton taşuvnıñ toqtatılğanını, Curayev ve Tursunovnıñ Merkeziy Komitetke ketip, vaziyetni bildirgenlerini ve komissiya kelgende, partiya ve komsomol aktivi çağırılğanını, anda İrada çıqıp reberlikni tenhit etkenini eske tüşürdik.
 Torizo adamlarğa, bilhassa, Anna Yakovlevnağa, fena muamelede bulunğanı içün İrada onı pek tızıqtırğanını da hatırladıq.
 
-— Ya sen, Cevdet,— dedi Basit, mıyıq astından külip,— özüñniñ yüksek hızmetteki uquqıñdan faydalanıp, bazı işçikler yapqanıñ aqılıñdamı?
+— Ya sen, Cevdet,— dedi Basit, mıyıq astından külip,— özüñniñ yüksek hızmetteki uquqından faydalanıp, bazı işçikler yapqanıñ aqlıñdamı?
 
 Ebet, bazı işçikler yapqan edim.
-Meni Mansurovnıñ muavini tain ettiler.
+Meni Mansurovnıñ muavini tayin ettiler.
 Maşinalarnıñ ekserisi endi derivatsion kanalda olğanından, maña sağ yalığa köçmek kerek oldı.
 Evelâ Karimnen bir evde yaşadıq.
 Soñ taqdir bizni ayırdı.
@@ -170,13 +170,13 @@ Hristofornen beraber hastahanege çaptıq.
 Arhipka onıñ arqasından üç kere finkanen urğan.
 Nikolay eki afta ölüm alında... sandıraqlap yattı, Valâ bir ay onıñ başı ucundan ketmedi.
 Arhipka... onıñ bebeyleri kenişlegen patlaq közleri ep hatirimde...
-Makemeniñ üçünci künü sudya ükümni oquğan vaqıtta ağızından çıqqan deşetli söz... onı da unutmadım.
-Ortalıqnı sukünet bastı.
+Makemeniñ üçünci künü sudya ükümni oquğan vaqıtta ağzından çıqqan deşetli söz... onı da unutmadım.
+Ortalıqnı sükünet bastı.
 Bir qaç daqiqadan soñ elçırpmaları gürledi.
-Bizim yeñi klubda ne qadar adam sığğan olsa, episi ayaqqa qalqıp, makemeniñ ükümini alğışladı.
+Bizim yañı klubda ne qadar adam sığğan olsa, episi ayaqqa qalqıp, makemeniñ ükümini alğışladı.
 Bu adam deryası içinde ümütsizden Rahilni kördim.
 Közleri yaşlı edi.
-Onıñ: "Men saña aytmağanmı edim?" degen sadası işitildi.
+Onıñ: "Men saña aytmağanmı edim?" degen sadası eşitildi.
 Arhipkanıñ azıp-tozıp qalğan aqçil yüzü alâ közümniñ ögünde.
 
 Eki buçuq ay keçken soñ... plotina qurulıp bitirilgen künü Nikolay ve Valânıñ toyu oldı.
