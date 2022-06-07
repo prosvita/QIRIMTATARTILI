@@ -14,15 +14,15 @@ Ondan soñ, haberiñ olsun — bu kitapnıñ özü büyük sevgi!
 Men bu satırlarda, yaş İradanıñ yüregi nasıl işlegenini ve özüniñ Cevdetine nasıl közlernen baqqanını körgende, tekrar ve tekrar hoş duyğularnıñ esirliginde qalam.
 Sevgi bizge rezina çızma ve brezent plaşç kiyip keldi, amma bizni iç bir vaqıt terk etmedi.
 Sen köresiñmi, İrada... menim samaylarıma endi qar yağdı, seniñ başıñda ise bir tel çal saç körünmey.
-Amma ekimiz de — afu et, bunı endi gizlemege mana yoq — ekimiz de bir yaşdamız!
+Amma ekimiz de — afu et, bunı endi gizlemege mana yoq — ekimiz de bir yaştamız!
 
 Men mezkür kitapnı yazar ekenim, gençligimniñ dostlarına bugünniñ közlerinen baqmaq istedim.
 Bahtlı adamlarnıñ tarihı olmay, deyler,— bu doğrumı, bilmeyim.
-Menim nesilim şimdi dünyada eñ büyük zenginlikniñ ve saadetniñ saibi, amma ...tarihı bar.
-Biz eki cean muarebesi kördik.
+Menim neslim şimdi dünyada eñ büyük zenginlikniñ ve saadetniñ saibi, amma ...tarihı bar.
+Biz eki cian muarebesi kördik.
 Qırq yıl içinde duşman mekânımıznı eki kere yaqtı-yıqtı, eki kere viran etti, eki kere ğayrıdan qurdıq.
 Muarebe ne demek?
-Bunı, er alde, eline silâ alıp cenkleşken kişi yahşı bile!
+Bunı, er alda, eline silâ alıp cenkleşken kişi yahşı bile!
 Cenk?
 Men cenk dedimmi?
 Yoq, biz oktâbrniñ qazançlarını mudafaa ettik.
