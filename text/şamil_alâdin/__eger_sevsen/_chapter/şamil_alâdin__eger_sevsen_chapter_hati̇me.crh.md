@@ -84,12 +84,12 @@ Büyük hoşnutlıqnen içtim.
 
 — Ebet, lezetli!
 
-Yol çetindeki pervenkiden yarım qopqa suv alıp, maşinanıñ radiatorına qoygan soñ, köçtim… qırq daqiqadan soñ plotina üstündeki keçidde toqtadım.
+Yol çetindeki pervenkiden yarım qopqa suv alıp, maşinanıñ radiatorına qoygan soñ, köçtim… qırq daqiqadan soñ plotina üstündeki keçitte toqtadım.
 Tanış qırlar, köpürler, özen...
 Aylanma kanalnıñ izlerini qıdırdım, tapalmadım.
 Bizim baraklar olğan yerde balaban selbi ve çinar terekleri ösip çıqqanlar.
-Olarnıñ artından yeñi evlerniñ qırmızı saçaqları körünmekteler.
-Yeñi rayon merkezi.
+Olarnıñ artından yañı evlerniñ qırmızı saçaqları körünmekteler.
+Yañı rayon merkezi.
 Maşinanı toqtatqan yerimde, plotinanıñ kenarında qullege beñzegen dört qatlı, tar bina tura.
 Nevbetçi mehanik bunıñ içinde oturıp, plotinanı ve derivatsion kanalnı idare ete.
 Knopkağa parmağını basa, Çar-Çaqnıñ yolunı kese — suvnı de özenge doğrulta, de kanalğa yibere.
@@ -97,7 +97,7 @@ Qulleniñ töpesindeki meydanğa çıqıp, etrafqa bir baqınsam... dep tüşün
 Amma qulleniñ içine kirmek içün musaade kerektir... tehnikke özümniñ kim ekenimni isbat etmek qolay olmaz.
 Bu divarlarnı qalağan bir men degil... çoq edik.
 
-Qulleniñ çöyün qapusı artında laqırdılar işitildi.
+Qulleniñ çöyün qapusı artında laqırdılar eşitildi.
 Ğıçıldavuq bir ses:
 
 — Sen bare, qapaqlar üstündeki troslarnı deñiştirgeydiñ...— dep öpkelendi.
