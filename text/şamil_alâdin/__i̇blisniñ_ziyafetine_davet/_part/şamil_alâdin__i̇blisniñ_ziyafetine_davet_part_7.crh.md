@@ -441,8 +441,7 @@ Menseitniñ ğayret dairesi keniş edi.
 Öz tükânına ecnebiy memleketlerden ketirilgen türlü mallar... limon, portaqal, hurma, incir, qave yaşçikleri içinden müim vesiqalar çıqa.
 Bular – emigratsiyadaki inqilâpçılarnıñ talimatları, maqaleleri, mektüpleri.
 Tükân saibi olar aqqında erteyarıq tenbi etilgen.
-Türlü casuslar qaynaşqan bu büyük şeer içinde Menseit vesiqalarnı alıp ketip, adamına taqdim ete.
-Bu müim ve mesül iş oña işanılğan.
+Türlü casuslar qaynaşqan bu büyük şeer içinde Menseit vesiqalarnı alıp ketip, adamına taqdim ete, bu müim ve mesül iş oña işanılğan.
 
 Tükândan yat illerge meyva yiberilgende, yaşçikler içine Rusiyedeki gizli bolşevik teşkilâtı kişilerinden emigratsiyadaki adamğa kâğıtlar qoyula.
 Marselde aynı hızmetni, meyva tükânınıñ saibi Jerar Böske eda ete.
