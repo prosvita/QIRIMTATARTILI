@@ -580,7 +580,7 @@ Zan etsem, bizge bir qaç adam olıp, muallim ile köz-közge kelip, qonuşm
 – Ne hususta? – dep soradı Üsein oca.
 – Başqa gazeta teşkili aqqındamı?
 
-– Hayır!
+–Hayır!
 Başqa gazeta hususında şimdi laqırdı ola bilmez, – dedi Mediyev, – laf “Terciman”nıñ ğayeviy usulı üzerinde olmaq lâzim.
 
 – Onıñle bir defa qonuşqan edik, – dedi Üsein oca ve... elindeki sigarnıñ külüni masa üzerindeki qaburçaq küllük içine qaqıp tüşürdi.
@@ -601,7 +601,6 @@ Olarnıñ qafalarında artıq milliy azatlıq tüşünceleri uyandı...
 Bu işni “Terciman” yapmağa borclu.
 Bizde başqa imkân yoq”.
 
-“İnqilâp oldı, ama yeñe bilmedi, – dep cevap berdi Gasprinskiy.
 – Ayatımız evelki kibi... eski amam – eski tas!
 Dümen başında kene burjua.
 Demokratik fikirlerge, gazetamda olğanından ziyade qulaç berip olamayım.
@@ -613,7 +612,8 @@ Fikirimce, beklemek... güzel künler kelgence beklemek kerek!”
 
 Mezkür vaqialar yüz bergen vaqıtta İsmail Gasprinskiy elli yedi yaşında, Abdureşid Mediyev iygirmi sekizde edi.
 Abdureşid efendi anadan doğğanda İsmail Gasprinskiy Simferopol gimnaziyasını ve Voronej askeriy mektebini bitirgen, Moskva Edadiyesinde1 oquğan, rus professorlarında tasil körgen, Parijde, Madridde, Stambulda yaşağan...
-Elgamra sarayındа 23 cazibeli, yarı mağrib , yarı ispan qızları cemiyetlerinde bulunğan, Kairde arap tilinde “Elnahza” gazetasını neşir etken, “Kontinental” zalasında üç yüz altmış adamnıñ ögünde maarif ve medeniyet hususında araretli nutq söylegen, niayet, İdil boylarındaki tuccar İsfendiyar Aqçurinniñ qızı Zöre hanımğa evlenip, artıq üç oğul, üç qıznıñ babası olğan... ebet, bu işler olıp keçken ediler.
+Elgamra sarayındа 23 cazibeli, yarı mağrib , yarı ispan qızları cemiyetlerinde bulunğan, Kairde arap tilinde “Elnahza” gazetasını neşir etken, “Kontinental” zalasında üç yüz altmış adamnıñ ögünde maarif ve medeniyet hususında araretli nutq söylegen, niayet, İdil boylarındaki tuccar İsfendiyar Aqçurinniñ qızı Zöre hanımğa evlenip, artıq üç oğul, üç qıznıñ babası olğan...
+ebet, bu işler olıp keçken ediler.
 
 Bir defa, Üsein Şamil aqqında yeñi malümat tapmaq ümüdinen, hansaray kütüphanesinde eski mecmualarnı qarıştırğan vaqıtımda, İsmail Lömanovnıñ1 eli ile yazılğan vesiqa közüme çalındı.
 Bu vesiqa matbaada basılğanı yoq... daa elyazmada edi.
@@ -634,9 +634,10 @@ Elyazmada denilgenine köre, Gasprinskiy Zıncırlı Medresede tatar gençligi
 Onı bir filcan qave içmege davet ete.
 “Veli-Baba” qavehanesine kirip, salqın ücrede közni ohşar örnekli, yımşçaq minder üzerinde oturıp, qonuşqanda, öz-özlüginden, ayat ve hızmet aqqında laqırdı açıla ki, bu vaqıtta Gasprinskiy musafirniñ kim ekenini bile.
 
-Doğma ayvasıllı Asan Nuri 1860 senesi Stambulğa oqumağa kete.
+Doğma Аyvasıllı Asan Nuri 1860 senesi Stambulğa oqumağa kete.
 Darılmaarif ve Darıltalim mekteplerini bitire, Cemiyet Aliyede, Osmaniyede tasil köre.
-Hariciye nazaretinde çalışa, 1876 senesi türk inqilâpçılarınen beraber Sultan Azizniñ tahttan endirilüvi işinde faal iştirak ete.
+Hariciye nazaretinde çalışa.
+ 1876 senesi türk inqilâpçılarınen beraber Sultan Azizniñ tahttan endirilüvi işinde faal iştirak ete.
 Sultan Abdul-Amitke azırlanılğan suihastqa qoşula.
 Abdul-Amitniñ emirine binaen, polis idaresi hadimleri Asan Nurini ve arqadaşlarını apshanege qapamaq içün qıdırğanlarını añlap, fransız vapurına2 minip, Avropağa qaça, yarım dünyanı döne-dolana, 1879 senesi baba toprağına kelip çıqa.
 Köre ki, ayat bunda da parlaq degil.
