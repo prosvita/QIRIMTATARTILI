@@ -639,7 +639,8 @@ Darılmaarif ve Darıltalim mekteplerini bitire, Cemiyet Aliyede, Osmaniyede tas
 Hariciye nazaretinde çalışa.
  1876 senesi türk inqilâpçılarınen beraber Sultan Azizniñ tahttan endirilüvi işinde faal iştirak ete.
 Sultan Abdul-Amitke azırlanılğan suihastqa qoşula.
-Abdul-Amitniñ emirine binaen, polis idaresi hadimleri Asan Nurini ve arqadaşlarını apshanege qapamaq içün qıdırğanlarını añlap, fransız vapurına2 minip, Avropağa qaça, yarım dünyanı döne-dolana, 1879 senesi baba toprağına kelip çıqa.
+Abdul-Amitniñ emirine binaen, polis idaresi hadimleri Asan Nurini ve arqadaşlarını apshanege qapamaq içün qıdırğanlarını añlap, fransız vapurına2 minip, Avropağa qaça, yarım dünyanı döne-dolana.
+ 1879 senesi baba toprağına kelip çıqa.
 Köre ki, ayat bunda da parlaq degil.
 Halq padişa zulumı altında iñlemekte.
 
@@ -657,7 +658,7 @@ Lâkin böyle çetin usulnen muratqa irmek pek küç olacağı añlaşı
 Qırımnıñ Rusiyege qoşulğanına yüz yıl toluvı kününi qayd etüvge azırlıq ketkende Gasprinskiy, qırımtatarlarınıñ ana tilinde gazeta neşirine ruhset etilmesi içün yalvarıp, imperator azretleri adına arzual yaza.
 Arzualnı alıp, özü Peterburgğa kete.
 Rus tilinde qonuşuvda eyi natıq, İsmail Gaspralı ükümet adamlarına meseleni büyük ustalıqnen añlatıp, olarnı qandırıp, işni yapıp, aftada bir defa olmaq üzre “Terciman” adlı gazeta çıqarılmasına ruhset alıp kele.
-Musaadeni Rusiye içün böyle şüretli künge itaf ile istemege bilüvniñ özü büyük aqıl ve cesaretniñ timsali edi.
+
 Muallimde bu qabiliyetlerniñ episi tapıldı.
 
 1883 senesi onuncı aprelde “Terciman”nıñ birinci sanı çıqqan soñ Asan Nuri Yalı Boyuna avdet ete, muallimlik işinen meşğul ola.
@@ -666,8 +667,7 @@ Asan Nuri esaretniñ, zulumnıñ duşmanı, Yalı Boyu şeerlerinde ve köy
 Saraymenli bay, oqumış kişi, Gasprinskiyniñ dostu Suleyman Acı büyük paralar berip.
 Asan Nurini, ömründe iç körmegen ve bilmegeni alda, Sibirge sürgünden qurtarıp qaldıra.
 Bu işni İsmail efendiniñ ricasına binaen yapa.
-Asan Nuri kürek cezasından qurtula... lâkin sevimli köyünden ve ocalıq hızmetinden marum qala.
-Uyezd idareleriniñ emirleri mücibi Ay Vasıldan quvula, oña ocalıq hızmeti yasaq etile.
+Asan Nuri kürek cezasından qurtula... lâkin sevimli köyünden ve ocalıq hızmetinden marum qala, уyezd idareleriniñ emirleri mücibi Ay Vasıldan quvula, oña ocalıq hızmeti yasaq etile.
 Asan Nuri “Gessen Georgiy” taqılma ad altında türlü vileyatlerde ömür keçirerek, qaç yıllardan soñ Yaltada peyda ola, sabıq şeer idaresi binasınıñ birinci qatında qavehane aça.
 Onıñ küçük kelirinen yavaş-yavaş keçine.
 Qavehane kettikçe pekine, kenişley, beynelmilel “Edebiyat salonı”na çevirile...
