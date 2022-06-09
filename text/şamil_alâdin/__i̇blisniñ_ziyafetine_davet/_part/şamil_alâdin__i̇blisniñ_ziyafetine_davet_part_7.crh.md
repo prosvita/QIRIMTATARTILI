@@ -712,8 +712,10 @@ Tütüncilik ticaretinen oğraşam deseñ, saña sermiyalıq bir qaç bin
 Tatarğa ne kerek?
 Aqça kerek!
 Gazeta degeniñ ne o?
-Kibritni çertip... çetine tiydirseñ, yanıp kete!” Öyle dey de, şah-şah etip, kütür çere ile küle, “Aqça yanıp ketmeymi? – dey oña Gasprinskiy.
- – Kibrit tiydirseñ, aqça da yanıp kete!” “Yo-oq! – dey Acı Selim.
+Kibritni çertip... çetine tiydirseñ, yanıp kete!” Öyle dey de, şah-şah etip, kütür çere ile küle,
+ “Aqça yanıp ketmeymi? – dey oña Gasprinskiy.
+ – Kibrit tiydirseñ, aqça da yanıp kete!”
+ “Yo-oq! – dey Acı Selim.
 – Aqça yanmay... oña kimse kibrit tiydirmey!”
 
 Acı Selim para bermey.
