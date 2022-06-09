@@ -361,7 +361,6 @@ Töşek olmalı.
 Qaranlıqta qarmalanıp turmağa istemedim, soyundım, urbamnı yanaşamda yerge taşlap, yattım.
 
 – Kündüz, kelip, sizni İslâm baynıñ evine çağırdılar, – dedi Saabe apte, menim odamnıñ açıq qapusınıñ bosağasına yaqın kelip. – Oca kelse, aytırım dedim.
-Kelmediñiz!
 
 – Evalla, Saabe apte! – dedim men.
 
@@ -434,7 +433,6 @@ Yarım boğday ekmegi.
 İşte, bu!
 Zan etsem, fena degil!
 Tap sevindim.
-Tünevin Bayraşevskiyniñ evinde denilgeni kibi, suvanlıq duyulmay.
 Yaşamaq mümkün.
 “Lâkin sen, Abdureşid oca, meselege qıymet kesüvde pek aşıqma!
 Bu seniñ birinci künüñ!
