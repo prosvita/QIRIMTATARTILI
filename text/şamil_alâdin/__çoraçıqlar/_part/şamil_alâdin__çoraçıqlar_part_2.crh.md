@@ -550,8 +550,7 @@ Talebeler evlerine qayttılar.
 Men bu müim mesele hususında çoq tüşünip oturdım.
 
 Sınıf defterini şkafqa qoymaq içün ocalar odasına kirdim, İsmail efendi yoq edi.
-Safiye hanımdan soradım:
-
+Safiye hanımdan soradım.
 – Camide, ekindi namazında, – dedi.
 
 Yaya oca da sabadan beri körünmey.
@@ -566,8 +565,7 @@ Kölmegimni kiyip, aqırından çıqtım, Saabe apte meni toqtattı.
 
 – Ketesiñizmi, Abdureşid efendi? – dep soradı.
 
-– Ebet, – dedim men, – Riza ağa çağırğan.
-Barmasam, ayıp olur.
+– Ebet, – dedim men, – Riza ağa çağırğan.Barmasam, ayıp olur.
 
 – Men ögüñizde qabaatlım.
 Tünevin odañızdaki eşyanı cıyıştırıp aldım, bugün qaytarıp yerli-yerine qoydım.
@@ -584,7 +582,6 @@ Men, aqiqaten, taaciplendim.
 Men evimde Allasız adam yaşağanına razı degilim.
 Bugün İsmail efendi keldi...
 Er şey añlaşıldı.
-Men qata işlegenim.
 Afu etiñiz!
 Odañıznıñ donamına bir daa toqunmaycağım.
 Dünya turğanca bu evde yaşañız, itirazım yoq!
@@ -1173,8 +1170,7 @@ Evden çıqqan vaqıtımda qayda ketkenimni Saabe aptege aytmağanıma yazıqsı
 
 – İdaredemi? – dep qaytarıp soradı Saabe. – İdare ters yerde.
 Anda iç bir şey eşitilmey. – Lampatnıñ meltesini köterdi, evniñ içi yarıqlandı. – Mariya aş ketirgen edi.
-Qızdırayımmı?
-Qapınasıñızmı?
+Qızdırayımmı??
 
 – Keç oldı, Saabe apte, – dedim men. – Pek de yoruldım.
 Saba aşarım.
