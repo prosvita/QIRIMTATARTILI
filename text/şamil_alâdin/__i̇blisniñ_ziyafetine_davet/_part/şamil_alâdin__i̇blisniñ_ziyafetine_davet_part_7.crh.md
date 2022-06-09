@@ -794,7 +794,7 @@ Bu aydın, quvetli fikirge diqqat etiñiz!
 
 Müterem Suleyman Ali efendiniñ evindeki bu qonuşmadan soñ, on doquz yıl daa keçer...
 Bekir Çoban-zade Qırım ziyalılarınıñ oktâbr inqilâbındaki hızmetleri hususında söz yürütkende, artıq merum Mediyevni, özüniñ müteber ocasını ve imayecisini hatırlap, onıñ şerefine acayip fikirler söyler.
-O der ki...
+
  “Mediyevniñ eykeli üzerine yazılmaya lâyıq olan bu yuqarıdaki sözler tatar ziyalılarınıñ tarihına kiren eyi saifelerden birini teşkil ider.
 Biz bugün beynelmilel küreş meydanlarında Qırım evlâdı Mediyev içün iftihar ide biliriz.
 Lâkin Mediyev bütün tatar ziyalılarını temsil idiyormı?
@@ -858,7 +858,7 @@ Abdureşid efendi dört defterni qarıştırıp baqtı, soñra dörtüni d
 Siz, Üsein efendi, gençligimiz yolunda yanğan bir mumsıñız!
 
 – Menmi?
-Ah!
+ Ah!
 Abdureşid efendi! – dedi oca, aytmağa başqa söz tapıp olamay.
 – Sizge çoq teşekkürler olsun!
 
@@ -882,7 +882,7 @@ Cıltı üzerindeki türlü itaflarnı, muracaatlarnı, hıtapnı, nidalı ib
 
 – Efendim! – dedi o baynıñ ögüne yüz tüşip.
  – Sizge “Nalei Qırım”nı ketirdim.
-Masharalıqnı körüñiz!
+Masharalıqnı körüñiz !
 Sizniñ, qariyemizniñ atasınıñ, isimi tek vergi ve yasaq müfettişleriniñ kâğıtları üzerinde qol ile yazılı ola.
 Ştanı yamavlı, süme ocanıñ adı kitaplarnıñ birinci betinde basıla.
 Bu ne demek?
@@ -894,7 +894,8 @@ Acı Erbainniñ yufqa, sarı qaşları tüyümçiklendiler.
 Kitapnı qaqıp aldı, sağ ayağını kilim üstüne uzatıp, omuzını divar yastıqqa tayadı, közlerini kere berip kitapqa baqtı.
 Meñlibey ev içinde kezine başladı.
 Bay oquv ve yazuv ceetinden pek küçlü degil edi.
-O sebepten, aşıqmayıp, eceley-eceley oqudı: “Ufaqlı-irili bir çoq qayalar, derin dere, büyük töpe, uvalar...”
+O sebepten, aşıqmayıp, eceley-eceley oqudı:
+ “Ufaqlı-irili bir çoq qayalar, derin dere, büyük töpe, uvalar...”
 
 – Toqta!
 Toqta!
@@ -948,9 +949,11 @@ Ekindi maalinde Üsein oca mektepte işlerinden boşap, evge qaytqanda, Acire
 Tışqa çıqmaq içün qapunıñ zembelegine uzanğan arada içeri Meñlibey kirdi.
 
 – Selâm aleyküm, muallim! – dedi Meñlibey açıq ve yumşaq davuşnen, özü çetke çekilip, Toqtarğazığa yol berdi.
-Ağızından raqı sasığı kelmekte edi. – Sizni körgen bey olsun!
+Ağızından raqı sasığı kelmekte edi.
+ – Sizni körgen bey olsun!
 
-– Meni körmege ne acet! – dedi oca. – Özüñiz doğma beysiñiz!
+– Meni körmege ne acet! – dedi oca.
+ – Özüñiz doğma beysiñiz!
 
 Meñlibey bir şeyler ayttı, lâkin ocanıñ artından qapu özü qapalıp ketti, oca eşitmedi.
 Quçağındaki burumlarınen soqaq boyu ketkende, Camaltı ve Bekir baylarğa, Ebulis-Acığa rastkeldi.
@@ -968,6 +971,7 @@ Adınıñ özü qalbni titretip yibere.
 Çölde bir-birlerine alışıq, muabbet atlar sürüsi ür-serbest otlap yürgende... hariciy biyeniñ biri kelip qoşula, sürüniñ süküt, sakin ömürini viran ete.
 Ebet!
 Bir biye bir sürü atnı saadetten aciz qaldıra.
+
 Bular? – oca arqağa aylanıp, közlerinen Erbainni ve Ebulisni qıdırdı, körip olamadı, çünki yerge endi qaranlıq çökken edi.
  – Bu beş-altı bay, acı ve molla da öyle yapqanlar – Mesud ve letafetli ömürge aqlı bu köyniñ topraqlarını tutıp alğan, cemaatnı aç ve çıplaq qaldırğanlar!”
 
