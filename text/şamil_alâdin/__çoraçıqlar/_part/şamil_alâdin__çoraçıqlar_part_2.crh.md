@@ -628,8 +628,6 @@ Başıma belâ edi, kanaryam,
 Başıma belâ edi!
 
 Köy, özüniñ ananeli ayatını, öz tertibini kütmekte.
-Men ep adımladım.
-Ep tüşündim.
 Küçük köy, lâkin tabiat onıñ adamlarını pak yürekli, dedil etip doğurğan.
 
 Çeşme betten kelip, İslâm baynıñ tahta azbar qapusına yanaşqanımnı sezmey qaldım.
