@@ -3,7 +3,7 @@
 Güzel İrada!
 Men qaytıp keldim.
 Ayuv terisinden tikili yün urbam alâ üstümde.
-Çıqarğanım yoq.
+
 Qış yalıñız Arhangelskdedir bellegen edim, albu ise Moskvada da qar ve ruzgâr edi.
 Tayyarege biletni qolaylı taptım, tekrar yaz ülkesine kelip tüştim.
 Qapunı anahtarımnen açtım...
