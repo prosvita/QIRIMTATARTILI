@@ -919,8 +919,7 @@ Divar yanında, arqasına qañqayıp, çeñgesini töpege köterip, natıqnı y�
 
 Starsanıñ Yaqubı onı yahşı añlap olamadı.
 
-– Atmaq?
-Nasıl?
+– Atmaq? Nasıl?
 
 – İmansızlar!
 Köyümizde ne at qaldırdılar, ne sığır, ne qoyun.
