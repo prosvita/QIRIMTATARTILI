@@ -1320,7 +1320,7 @@ Özüm de unuttım, – dedi Üsein öz-özüne.
  – Lâkin çıqması qolay degil.
 Çöllerde qar, balçıq.
 Bedbaht Qıpçaq... ep ahır içinde.
-Semirmey, ne yapsın?”
+Semirmey, ne yapsın? ”
 
 Albuki vaqıt bayağı olğan.
 Oca alel-acele aşandı, tonunı ve kaloşlarını kiyip, yolğa çıqtı.
