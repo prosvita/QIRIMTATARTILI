@@ -695,9 +695,9 @@ Oqup baqıñız, – dedi Osman Nuri.
 – Menim yüregim böyle şeylerge çıdap olamay”.
 
 Eki parmağınen defterniñ eki saifesini közlerimniñ ögünde tutıp turdı.
-Qoluma bermedi.
+Qoluma bermedi .
 Sözler hattat elinen yazılğan.
-Arab arifleri artıq silinmek istegenler.
+ 
 Men diqqatle oqudım... oqudım, soñra çoq kederlendim.
 
 İsmail Gaspralı, Bağçasaraynıñ iri zenginlerinden Acı Selimge özüniñ mıradını añlata...
@@ -752,7 +752,7 @@ Halqımızda, cemaat hızmetine yardım duyğusı iç olmadımı?
 Bu mümkün degil”.
 
 Bayramlar vaqıtında zemstvo idaresinden ve ayrı şahslardan gazetağa yardım tarzında para kelse, İsmail efendi para yollağanlarnıñ isimlerini “Terciman” saifelerinde derc eter edi ki, olar arasında qırımlılarnıñ adları közge siyrek çar-par edi.
-Muarrirniñ matbaası, eñ olmadıqta, pattasatta şahsiy sımarışlar eda etüv yolunen para qazanıp, özüniñ maaliye vaziyetini tüzetip olamadı.
+
 Basma maşinası sınıq, urufatı zeki ve az... naşir özü daima borclu.
 Otuz üç yıl matbaacılıq etti alda, öz matbaasını ne kârlı istisal ve ne de nefis eserler çıqarıcı sanathane yapa bilmedi.
 Bu hususta fikir etmek içün onıñ vaqıtı da olmadı.
@@ -775,7 +775,7 @@ Belediye reisi oldı.
 İş şunda ki, insannıñ bir nesili bir hızmetni bir devirde başlay... diger nesil o hızmetni diger devirde devam ete.
 Er devirniñ öz siyasiy-iqtisadiy şaraiti ve talapları olğanından, bir devirniñ nesilinden – diger devirniñ hızmetini aynı bir tarzda talap etmek – manasız şey.
 Er kesniñ faaliyeti bir soy şaraitte qulaç almay.
-Lâkin başlamaq... daima küç.
+
 İnqilâp, ğalip kelsin – kelmesin, onıñ aqibetinde mıtlaqa küçlü simalar asıl olalar.
 Beşinci sene qırım tatarında Mediyev kibi inqilâbiy tüşünceli adamnı yarattı.
 Ve tek Mediyevni degil!
