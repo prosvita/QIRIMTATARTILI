@@ -1095,6 +1095,7 @@ O, qocasınıñ kâğıtlar üstünde anda-mında saçılğan sözlerini
 Olarğa alışqan.
 Lâkin er işniñ vaqıtı bar.
 Bu sağır qış gecesinde Acerden yardım beklemek mümkünmi?
+
 Oca ökünçinden köküs keçirdi.
 Köküs keçirir eken, içinden nefesi, çöldeki ruzgâr kibi, uvuldap çıqtı.
 Bu davuş Üseinniñ özüniñ oşuna ketti.
@@ -1113,7 +1114,8 @@ Oca ayretle keri çevirildi.
 – Meni qasevet etmeñiz!
 Gece yuqlamasam, kündüz yuqlarım.
 Menim vaqıtım çoq.
- – Ocanıñ ögündeki defterlerni körip, işniñ farqına bardı. – Geceniñ bey vaqıtında... bu “mollalar” niçün kerek oldılar?
+ – Ocanıñ ögündeki defterlerni körip, işniñ farqına bardı.
+– Geceniñ bey vaqıtında... bu “mollalar” niçün kerek oldılar?
 
 – Men yuqladım, Acer.
 Endi töşekte yatıp olamayım.
