@@ -1165,7 +1165,7 @@ Bir qaç ay evelsi Peterburgğa mahsus adamlar yollayıp, Allanıñ emiri olm
 Eger padişa olarnıñ isteklerini qanaatlendirse, epimiz günakâr olacaqmız.
 Biz, musulmanlar, mollalar, şeriatı bilen adamlar, bu yerde güzel bir muşavere idip, bir arzual yazmaq kerekmiz.
 Ne deysiñiz, cemaat?
-(Adamlara közeter.
+(Adamlara köz eter.
 Aq saqallı, közlükli, qaba qalpaqlı, uzun çekmenli adam ayaqqa qalqar.
 Añlaşılır ki, bu Abdulkelâm efendi).
 
@@ -1243,11 +1243,11 @@ Soñ oqudı.
 Baña qalırsa, bugün yazılan arzual o qadar ibretli, o qadar çirkin ki, onı şeriata uyarmı-uymazmı diye düşünmek bile ayıptır.
 Bu yerde yazılan maddeler mubarek islâm şeriatına degil, dünya yüzünde eñ mecus halqnıñ qanunına bile kelişmez.
 
-İsmail Çelebi.
+İsmail Çelebi .
 Toqta!
 Söyleme!
 (Ayaqqa qal-qar).
-Vazgeç!
+Vazgeç !
 
 Reis.
 (Çañnı qaqaraq, ayaqqa qalqar).
