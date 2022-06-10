@@ -1040,11 +1040,11 @@ Yerinden qalqıp, qomşu odağa kirdi.
  – Şimdi maddem yoq.
 
 Qaranlıq oda içinde kiyiz üstünde çalqağa tüşip, qollarını başı astına qoyıp, yattı.
-Keç maalgece indemedi.
+
 Tavanğa baqtı-baqtı, nelerdir tüşündi.
 Kimerde sağ, kimerde sol qaburğasına çevirildi, kimerde ise basıq iñiltili davuşlar çıqardı.
 Acer bir qaç defa gizliden, açıq qapuğa yaqın kelip, içeri baqtı, bir şey körip olamadı... diñlenip turdı-turdı, qaytıp ketti.
-Qocasını raatsızlamadı.
+Qocasını raatsızlamadı .
 Özü kişilik evde, ulpaqlı – iri yorğan astında, Daniyal ile quçaqlaşıp yattı.
 Yañçıq yuqladılar degende, beşikte Ebabil ağladı.
 Acer turdı.
