@@ -1327,17 +1327,20 @@ Oca alel-acele aşandı, tonunı ve kaloşlarını kiyip, yolğa çıqtı.
 Onıñ mektebindeki derslerniñ başlanuvında ve bitüvinde qattı tertip bar.
 Kimer köylerdeki kibi, derske istegende keldi, istegende ketti... degen şey yoq.
 Lâkin, kimerde Üsein dersten qaytqanda, ocalardan birisiniñ evine musafirlikke kire, onda biraz eglene... evge keççerek kelgen vaqıtı da ola.
-Qapunı açışından özüni elge bere.
+ Qapunı açışından özüni elge bere .
 Acer külümsirey.
 Qocasınıñ qıyafeti oşuna kete.
 Üseinniñ özünde sevinç siyrek al.
 O sebepten onı, siyrek-serpek de olsa, keyfli körüv Acer içün zevqlı.
 Keyf ocanı, adetindekinden ziyade nezaketli ve alicenap yapa.
-O taze, sağlam Acerniñ topuz yanağından öpe, “Seniñ bu pak sevgiñ olmasa edi, men yaşap olmaz edim.
+O taze, sağlam Acerniñ topuz yanağından öpe,
+“Seniñ bu pak sevgiñ olmasa edi, men yaşap olmaz edim.
 Men seniñ sade, köylü yüregiñ, çöllerge beñzer közleriñnen, saf laqırdılarıñnen mesudım!
-Ama sen özüñ, Acer, menim ile bahtlı degilsin!” Acer taaciplene, qocasına elemli közlerinen baqa:
+Ama sen özüñ, Acer, menim ile bahtlı degilsin!”
+ Acer taaciplene, qocasına elemli közlerinen baqa:
 “Men... bahtsızımmı? – ayretlenip soray o ocadan.
-– Niçün öyle deysiñiz?” “Çünki menim durulmaz adetim bar.
+– Niçün öyle deysiñiz?”
+ “Çünki menim durulmaz adetim bar.
 O sebepten, ayatımızda raatlıq yoq.
 Sevgimiz aqaretlene, horlana.
 Men buña pek ıncınam.
@@ -1346,7 +1349,8 @@ Teessüf, episi nafile zamet”.
 “Yoq! – dey Acer, tasalı davuşnen.
 – Qırım halqı sizni tezden pek sevecek-sayacaq!
 İç de unutmaycaq.
-Men... ve oğullarımız, ömür billâ, siznen ferahlanacaqmız!” “Nasıl!
+Men... ve oğullarımız, ömür billâ, siznen ferahlanacaqmız!”
+ “Nasıl!
 Ne vaqıt, sevimli Acer?
 Meni kimse bilmey!
 Kimse tanımay!” “Tanırlar.
@@ -1354,7 +1358,8 @@ Sabır etiñiz!
 Siz ulu edip olacaqsıñız”.
 Üsein refiqasınıñ peyğamber sözlerine quvana, içten ise inanmay.
 
-Bir defa, cuma kününde, Üsein yataq odasında, alçaq masa başında çoq saatlar oturıp, nelerdir yazdı-çızdı... yazdı-çızdı, öz hızmeti ile meşğul Acer, qocasınıñ tosat-tosat kâğıtnı asabiyetle yırtıp, yumarlap, qapu betke atqanını eşitti.
+Bir defa, cuma kününde, Üsein yataq odasında, alçaq masa başında çoq saatlar oturıp, nelerdir yazdı-çızdı...
+yazdı-çızdı, öz hızmeti ile meşğul Acer, qocasınıñ tosat-tosat kâğıtnı asabiyetle yırtıp, yumarlap, qapu betke atqanını eşitti.
 Emiyet bermedi.
 Bu birinci defa sezilgen adise degil.
 
