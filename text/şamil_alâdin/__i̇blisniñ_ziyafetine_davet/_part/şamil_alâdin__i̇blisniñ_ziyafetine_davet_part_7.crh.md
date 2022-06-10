@@ -1360,7 +1360,7 @@ Üsein refiqasınıñ peyğamber sözlerine quvana, içten ise inanmay.
 
 Bir defa, cuma kününde, Üsein yataq odasında, alçaq masa başında çoq saatlar oturıp, nelerdir yazdı-çızdı...
 yazdı-çızdı, öz hızmeti ile meşğul Acer, qocasınıñ tosat-tosat kâğıtnı asabiyetle yırtıp, yumarlap, qapu betke atqanını eşitti.
-Emiyet bermedi.
+Emiyet bermedi .
 Bu birinci defa sezilgen adise degil.
 
 Üyle avğan maalde oca, Acerni öz odasına çağırdı.
