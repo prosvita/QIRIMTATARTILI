@@ -3,7 +3,6 @@
 Ağustosnıñ ekinci aftasında beyaz qayalar arasında qısılı qadimiy tatar şeeriniñ minarelerinde aqşam ezanı oqulğan maalde “Veli-Baba” qavehanesiniñ han-azbarına eki cüyren at yekili araba kelip kirdi.
 Ögdeki sol köpçeginiñ qırşavı boşağan olsa kerek, töşeme taşlar üzerinde şiddetli tasırday ve yerni sarsıta berip, azbarnıñ arqasına taba keçip ketti, yapıq yem anbarınıñ qapusı ögünde toqtadı.
 Atlarnıñ qursaqları terden cibingen, ayaqları tizlerinece tozlanğanlar.
-
 Aydavcı, qısqa yelkeli, qırmızı çereli deliqanlı, qamçısınıñ sapunı anğıçnıñ demir ilmegine tıqtı, bir qolunen atnıñ yanbaşına tirelip, yerge sıçrap tüşti.
 Mögedekniñ ögü boşağan soñ, ucları töpege qaytıq, qara mıyıqlı, yaş kişi çıqtı, köpçekniñ kigiylerine basıp, aşağı endi.
 Üstündeki kostümi biraz bürüşken, galstugınıñ tüyümi çetke cılışqan, qalpağı astından mañlayı üstüne sarqıq perçemine piçen parçası ilişip qalğan.
