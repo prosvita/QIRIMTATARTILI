@@ -722,7 +722,7 @@ Ya adamlar?
 
 Balanıñ kelgeni üç afta oldı.
 Bu vaqıt içinde Çauş oña er şeyni kösterip yetiştirdi – şeerni de, onıñ civarını da, çöllerni de, bağçalarnı da, neer üstünde qurulğan, plotinanı da.
-Dilâver Sır Daryağa balıq tutmağa da barıp keldi.
+Dilâver SırDaryağa balıq tutmağa da barıp keldi.
 Qartbabası bu zenaatqa – can sıqıcı iş dep baqa, torun ise öyle baqmay.
 Demek, bala tınçlıqnı ve sükünetni seve.
 Babası nasıl edi?
