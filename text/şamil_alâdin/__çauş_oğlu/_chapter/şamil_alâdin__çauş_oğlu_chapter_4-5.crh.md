@@ -434,7 +434,8 @@ Matroslar şlang ile yanğınnı söndürmege ıntılalar.
 Bu esnada kapitannıñ qattı emiri eşitile: – Qayıqlar suvğa endirilsin! – dep qıçıra o ekinci yardımcığa... ekinci yardımcı ölü.
 Evelâ yaş balalı qadınlarnı qurtarmaq kerek.
 Lâkin qayıqlar suvğa tüşer-tüşmez, bombalar astında parça-kesek olalar.
-“Dağılıñız! – dep cekire kapitan, qayıqlarda dümen başındaki matroslarğa. – Bir yerde toplanıp turmañız!” Bomba patlavlarından, gemi etrafındaki suv qaynamaqta, eñ cesür deñizciler bile bu ateş yağması içinden çıqalmay çekişeler.
+“Dağılıñız! – dep cekire kapitan, qayıqlarda dümen başındaki matroslarğa. – Bir yerde toplanıp turmañız!”
+Bomba patlavlarından, gemi etrafındaki suv qaynamaqta, eñ cesür deñizciler bile bu ateş yağması içinden çıqalmay çekişeler.
 Balalar deñiz astına ketmekte, analar ise olarnıñ artından özlerini suvğa atıp, elâk olmaqtalar.
 
 Men kögertede turdım.
@@ -462,8 +463,7 @@ Bir şeyler ayttı.
 Añlamadım.
 Bu hususta laqırdı etmek, ğaliba, mümkün degil eken.
 
-– Keçken şey, – dedi o, kederli davuş ile, soñ azaçıq külümsiregen oldı. – Siz tirisiñiz.
-Yarınki künni tüşünmek kerek.
+– Keçken şey, – dedi o, kederli davuş ile, soñ azaçıq külümsiregen oldı. – Siz tirisiñiz, yarınki künni tüşünmek kerek.
 Tezden balañız olacaq.
 
 Qocam aqqında bir şey aytmadı.
@@ -480,8 +480,7 @@ Göspitalden çıqtım.
 Alıma-çulıma köre yaşap turam.
 Er kes öyle.
 Oñaytlı müit hususında tüşünmege acet yoq.
-Kişiler maña: cebe arqasına.
-Orta Asiyağa ket, deyler.
+Kişiler maña: cebe arqasına, Orta Asiyağa ket, deyler.
 Bir qararğa kelip olamayım.
 Dilâver aqqında bir şey bilmek ve, çare olsa, onı körmek isteyim.
 Mında nasıldır suv altı matrosları kelecek... deyler.
