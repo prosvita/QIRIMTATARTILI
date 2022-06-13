@@ -410,7 +410,6 @@ Lâkin bu yürek raatlığı vaqıtından evel asıl oldı.
 Nemse tayyareleri bulutlar artından quzğunlar kibi çıqıp, bizim gemi üzerine atıldılar.
 
 Avada telüke barlığı aqqında sirena ökürdi.
-Kögertege yaqın tüşken ilki bombalardan qozğalğan suvlar, töpeleri körünmez qayalar şekilinde, kök yüzüne köterildi, soñra tekrar aşağı endiler.
 
 Bu deşetli levhanı tasvir etmek qıyın.
 Baştan keçirmek ise – daa da müşkül.
