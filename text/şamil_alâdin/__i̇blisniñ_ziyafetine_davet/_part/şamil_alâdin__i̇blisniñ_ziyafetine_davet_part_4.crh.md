@@ -167,8 +167,8 @@ Abdureşid Mediyev küreşti.
 – Çarizm ile.
 Musavatsızlıq ile!
 
-– Küreşti... lâkin yeñdimi? – Naşir iddetlenip soradı. – Yeñe bilirmi edi? – Yoq, yeñip olamadı.
-Yeñmek içün çoqluq ve halqnıñ birligi kerek.
+– Küreşti... lâkin yeñdimi? – Naşir iddetlenip soradı. – Yeñe bilirmi edi?
+– Yoq, yeñip olamadı.Yeñmek içün çoqluq ve halqnıñ birligi kerek.
 
 – Yeñmek içün küç lâzim, – diye itiraz etti İsmail efendi. – Biz zayıfmız.
 İmperatornıñ qolunda silâlı askeriy küçler bar.
@@ -206,6 +206,7 @@ Aleksandr Nikolayeviç bu laqırdığa qoşulmaq istemedi.
 O, İsmail efendiniñ musafiri, yarın Foti Sala vadiysindeki köylerge ketecek... ne ev saibine, ne de yaş müellifke itiraz etmek niyeti yoq.
 Çünki böyle mulâazalar içün darılfnunda başı eppi belâlarğa qalğan edi.
 Ama bu yerde İsmail efendiniñ soñki sözleri onı subetke küçük ilâve yapmağa mecbur etti.
+
 
 – Bilgi, medeniyet... bular, zulmattan qurtulmaq içün pek az degilmi? – dep taşladı, – ondan başqa, İsmail efendi, siz cealetni, medeniyetsizlikni yalıñız musulmanlarda köresiñiz!
 Niçün, qıymetli muallim?
