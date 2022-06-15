@@ -126,7 +126,9 @@ Bulamadı bunca ekim iş bu derde bir ilâc!”
 
 Naşir, defterni asabiyetle kreslo üzerine bıraqıp, ayaqqa qalqtı.
 
-– Yoq, oğlum! – dedi genç müellifke. – Böyle eserlerni neşir içün bende uquq ve küç yoqtır! – Nasıl eserlerni, qıymetli muallim?
+– Yoq, oğlum! – dedi genç müellifke. – Böyle eserlerni neşir içün bende uquq ve küç yoqtır!
+
+– Nasıl eserlerni, qıymetli muallim?
 
 – Zamanı, şaraiti düşünilmey yazılan eserleri... – dedi Gasprinskiy.
 
