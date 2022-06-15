@@ -31,7 +31,9 @@ İsmail efendi, genç müellifniñ şiirlerini yuquvğa yürekten tutung�
 – Mektepte balalarğa ne oqutasıñız?– dep soradı alçaq ses ile,
 
 – Musulman dini... – dep cevap berdi Üsein oca. – Apteyik keçemiz.
-Andan soñ... ana tili de! – Tek şumı?
+Andan soñ... ana tili de!
+
+– Tek şumı?
 
 Toqtarğazı soñki sualge birden cevap bermege cesaret etalmadı, toqtaldı, lâkin musafirniñ çeresinde hayal inqisarı körgen soñ:
 
