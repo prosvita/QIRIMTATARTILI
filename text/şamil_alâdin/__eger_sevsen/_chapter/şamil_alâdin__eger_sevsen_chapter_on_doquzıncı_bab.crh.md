@@ -21,7 +21,7 @@ Bassaraba aqşamları barakta körüşkende "işler yahşı..." dep taşlay, men
 — Güzel... şimdi epimizniñ maşşallamız bar...— dey edi Bassaraba.
 
 Bu sözler bizni qanaatlendire bile edimi?
-Vaqıtnı saatlergece degil, saniyelergece iq-tisad etmek kerek.
+Vaqıtnı saatlergece degil, saniyelergece iqtisad etmek kerek.
 Maşinanı öyle idare etmeli ki, tsikllarnıñ mıqdarı arta bersin.
 İş tsiklları ğayet adiy areketlerden ibaret — kovşnı yerge tüşürip, töpege köterüv, içindeki topraqnı yığın üstüne yahut platformağa töküv.
 Bu operatsiyanı yarım daqiqada yapmaq mümkün.
