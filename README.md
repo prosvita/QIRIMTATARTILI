@@ -1,4 +1,5 @@
 # Qırımtatar tiline tercime etüv programması
+[![corpora](https://github.com/prosvita/QIRIMTATARTILI/actions/workflows/corpora.yml/badge.svg)](https://github.com/prosvita/QIRIMTATARTILI/actions/workflows/corpora.yml)  
 [[На русском](README.ru.md)]
 
 ## Maqsadımız
