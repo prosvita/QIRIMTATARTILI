@@ -31,12 +31,16 @@ async function run() {
 
         generateSource(path.join(targetDir, 'generated'), data)
         // Rename crh-RU to crh-Cyrl [https://datatracker.ietf.org/doc/html/rfc5646]
-        renameCyrillicSource(path.join(targetDir, 'generated'), data)
+        // renameCyrillicSource(path.join(targetDir, 'generated'), data)
 
-        saveSource(path.join(targetDir, 'source'), data)
-        saveCropusAttributes(path.join(targetDir, 'attributes.txt'), data)
-        saveCropusList(path.join(targetDir, 'list.txt'), data)
+        saveSource(path.join(targetDir, 'source'), data.filter(filterNoCyrillic))
+        saveCropusAttributes(path.join(targetDir, 'attributes.txt'), data.filter(filterNoCyrillic))
+        saveCropusList(path.join(targetDir, 'list.txt'), data.filter(filterNoCyrillic))
     })
+}
+
+function filterNoCyrillic(item) {
+    return item.lang !== 'crh-RU'
 }
 
 function generateSource(generatedDir, data) {
