@@ -158,7 +158,8 @@ O saatke baqmay, lâkin bir tsikl tamam qırq beş saniye içinde olıp çıqa, 
 
 İşten soñ Karim bizge, barakqa keldi.
 
-— Başlağanda pek qorqtım...— dedi maña. — Bir özüm olsam, bir şey degil, körmediñizmi?
+— Başlağanda pek qorqtım...— dedi maña.
+— Bir özüm olsam, bir şey degil, körmediñizmi?
 Ne qadar adam baqıp turdı?
 Yelquvan yerinden qıbırdağanda tros üzülip, kovş yerge tüşip ketken olsa...?!
 Ne olur edi?
