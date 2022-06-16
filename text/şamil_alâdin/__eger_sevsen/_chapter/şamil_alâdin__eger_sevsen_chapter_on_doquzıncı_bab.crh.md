@@ -74,7 +74,8 @@ Bizdeki troslar niçün üzüle bereler?
 Kovş taşqa iliştimi, üzülip kete.
 Amma bazı ekskavatorlarda tros bir yıl içinde bir kere üzülmey.
 Men rıçagnı tutqanda, kovşnıñ ne vaziyette ekenini, avuçımnıñ sarsın-tısından duyam.
-Tros ayaq damarı kibi tartılıp qaldımı, demek, bir şeyge ilişti. — O Nikolaynıñ yüzüne cılp etip baqtı: — öyle degilmi?
+Tros ayaq damarı kibi tartılıp qaldımı, demek, bir şeyge ilişti.
+— O Nikolaynıñ yüzüne cılp etip baqtı: — öyle degilmi?
 
 Soñ er kes öz bilgenini ayttı.
 Ğala-ğula köçti.
