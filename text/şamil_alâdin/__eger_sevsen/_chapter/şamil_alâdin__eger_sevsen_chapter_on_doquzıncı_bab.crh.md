@@ -222,14 +222,16 @@ Men stol başında Zoşçenkonı oquy edim.
 Mansurov baraknı közden keçirdi, niçündir, memnün qaldı.
 Soñ menim elimdeki kitapnı alıp, adını oqup baqtı, külümsiredi.
 
-— Yahşı yaza,— dep taşladı. — Bürokratlarnıñ canını yaqtı.
+— Yahşı yaza,— dep taşladı.
+— Bürokratlarnıñ canını yaqtı.
 
 Men Zoşçenkonı oquğanda, avtor bürokratizmnen küreşe bellemey edim.
 Oquması zevqlı kele edi.
 
 — İşleriñ nasıl?— dep soradı menden Abdulla Sadıkoviç.
 
-— Sırasında,— dedim men. — Lâkin, afu etesiñiz, epimizni alâ yerastı kanalı meraqlandır-maqta.
+— Sırasında,— dedim men.
+— Lâkin, afu etesiñiz, epimizni alâ yerastı kanalı meraqlandır-maqta.
 O qalıp ketecekmi?
 
 — Niçün?
