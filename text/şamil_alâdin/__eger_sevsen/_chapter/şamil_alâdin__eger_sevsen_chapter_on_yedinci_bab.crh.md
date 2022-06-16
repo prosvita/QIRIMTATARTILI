@@ -99,27 +99,19 @@ Kelip-ket, dep yazdıñmı? — dep soradım Hristofordan.
 O dudaqlarınıñ kenarından zornen külümsiredi. 
 — Raatsız olma, Elpide kele qoymaz!
 — Men onı körmek isteyim.
-
-— Sende vicdan barmı?— dedi maña Nikolay, darğın alda,— eçki can derdinde, qasapçı mal...
-
+- Sende vicdan barmı?— dedi maña Nikolay, darğın alda,— eçki can derdinde, qasapçı mal...
 Hristofor közlerini tavanğa tikledi, işitilir-işitilmez davuşnen dedi:
-
 — Baq sen... bir barakta yaşa, bir çanaqtan aşa da, kişi seniñ ayatıña hast olsun!
-
 Nikolay tizleri üstündeki küçük boğçanı açtı, yüzüm, nar, alma ve eki pite alıp, tumboçka üstüne qoydı.
-
 — Bularnı tapqanca üç bazarnı dolanıp çıqtıq,— dedi o,— senden tek bir şey talap etile... tez tüzelip çıq!
-
 Keç olğan edi.
 Biz turdıq.
-
 Özen boyunda küçlü yel esmekte.
 Qattı, ufaq qar yüzlerimizni şıbalamaqta.
 Kelgen-keçken maşina körünmey.
 Cayav ketmege mecbur oldıq.
 Yol boyunda ekimiz yan-yanaşa adımlar ekenmiz, Nikolayğa köz ettim.
 O ğayet kederli edi.
-
 — Şübelenmey bilesiñ,— dedi o maña,— men er şeyni añladım.
 Hristofor yaralanğan ve hastahanege yollanılğan soñ, aqılıñda olsa, men kompressor bölügine kirip baqtım.
 Yıqılğan yerinde, pol üstünde qan tamçılar bar edi.
@@ -135,13 +127,10 @@ Arhipka taşnı alıp, Hristoforğa atqan, amma taş közlegen yerine degil, bir
 Hristofor gurultini işitken, başqa şeyden haberi yoq.
 Adeti üzre, evelâ ne ola?
 Patlav, soñ gurulti.
-
 — Bunı, bilesiñmi, çeşit türlü añlamaq mümkün.
-
 — Yoq.
 Bunı tek bir türlü añlamaq mümkün.
 Madamki Hristofor gurultini işitken, demek, yer patlavından yaralanmağan, çünki yer patlavı işitilgen maalde taş-topraq kesekleri endi tüşecek yerlerine tüşken olalar.
-
 — Öyle tezmi?— dep soradım men.
 
 — Ya ne?
@@ -157,9 +146,7 @@ Arhipka episini nazar itibarğa alğan.
 Lâkin bir şeyge aqılı yetmegen,— Hristofor sağ qala bilecegini tüşünmegen.
 O Hristofornı ekinci taşnen urıp öldüre bile edi, añlaşıla, raqı keder etken.
 Bu bir.
-
 — Bunı isbat etmek qolay degil,— dedim Nikolayğa.
-
 — Qolaymı-qıyınmı, er alda, bu bir.
 Ekincisi, şu!
 Bugün nijniklerden bir yigit menim yanıma keldi.
