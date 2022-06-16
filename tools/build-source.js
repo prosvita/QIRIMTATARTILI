@@ -29,8 +29,9 @@ async function run() {
         }
         fs.mkdirSync(targetDir, { recursive: true })
 
-        // TODO: Rename crh-RU to crh-Cyrl [https://datatracker.ietf.org/doc/html/rfc5646]
         generateSource(path.join(targetDir, 'generated'), data)
+        // Rename crh-RU to crh-Cyrl [https://datatracker.ietf.org/doc/html/rfc5646]
+        renameCyrillicSource(path.join(targetDir, 'generated'), data)
 
         saveSource(path.join(targetDir, 'source'), data)
         saveCropusAttributes(path.join(targetDir, 'attributes.txt'), data)
@@ -59,6 +60,21 @@ function generateSource(generatedDir, data) {
             year: interim.year,
             lang: 'crh'
         })
+    }
+}
+
+function renameCyrillicSource(generatedDir, data) {
+    // Create generated dir
+    fs.mkdirSync(generatedDir, {recursive: true})
+
+    for (const interim of data.filter((item) => item.lang === 'crh-RU')) {
+        const newFilename = path.basename(interim.filename).replace(/\.crh-RU\.md$/, '.crh-Cyrl.md')
+        const genFilename = path.join(generatedDir, newFilename)
+        const text = fs.readFileSync(interim.filename, 'utf8')
+
+        fs.writeFileSync(genFilename, text)
+        interim.filename = genFilename
+        interim.lang = 'crh-Cyrl'
     }
 }
 
