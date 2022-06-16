@@ -262,14 +262,14 @@ O açuvlandı, dudaqlarını salındırdı.
 
 — İskander?
 Olmaycaq şey.
-Kanal, fikirimce, ind eserlerniñ qollarınen yasalğan,— soñra maña pek yaqın kelip, qulağıma yavaştan dedi: — Doğrusını söyle, dostım, arañızda bir şeyler oldımı?
+Kanal, fikirimce, ind eserlerniñ qollarınen yasalğan,— soñra maña pek yaqın kelip, qulağıma yavaştan dedi:
+— Doğrusını söyle, dostım, arañızda bir şeyler oldımı?
 
 Öyle degeni de ne edi... bilmeyim.
 
 — Ne olmaq kerek edi?
 
-— Anda...
-Taşkentte?
+— Anda...Taşkentte?
 
 — Abdulla Sadıqoviç, siz mesül rebersiñiz,— dedim oña,— aip degilmi?
 Men sizge yemin ettim...
