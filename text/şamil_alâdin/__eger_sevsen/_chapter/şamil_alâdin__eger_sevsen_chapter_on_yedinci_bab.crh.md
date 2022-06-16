@@ -177,7 +177,6 @@ Nikolay!— dedim men oña,— kerekmey!
 Sağ qalacaqmı?
 Belli degil.
 Men Arhipkanıñ nişaretli taqletine baqıp, susıp yürecegimmi?
-
 — Susmaq kerekmey.
 Makeme etmek kerek.
 
@@ -188,17 +187,12 @@ Nikolay menim aytqanımnı başqa türlü añladı.
 Yeñini töpege çekip, qalın, qısqa qolunı ögge uzattı.
 
 — Onıñ ince, uzun boyunını bu parmaqlarnen sıqmaq ve insaniyetni bir zevaldan qurtarmaq isteyim.
-
 — Yoq, Nikolay!
 Sen bunı yapmazsıñ!
-
 — Neniñ eşqına?
-
 — Çar-Çaqtaki ayatıñ, kelecegiñ... daa ne deyim saña?
-
 — Men bugün onıñ boğazını sıqmasam, yarın özen yalısında o menim arqama pıçağını qadaycaq.
-
-— Arhipkanı halq makemesine bermek kerek! 
+— Arhipkanı halq makemesine bermek kerek!
 Skelege kelip yettik.
 Parom özenniñ ortasında... bizge taraf kelmekte.
 Üstünde küçük avtomobil, etrafında adamlar.
@@ -210,10 +204,8 @@ Meni eslegeni kibi, başını silkti ve külümsiredi.
 Bu arada kişiler arasında Yekaterina Vasilyevna yalqıldap aldı... ve deral maña arqasını çevirdi.
 Muşuq yalığa er kesten soñ tüşti, kevdesini ögge berip, deve kibi qaqına-qaqına, keniş adımlarnen gidromonitorlar baragı betke cönedi.
 Kandıba onıñ artından baqa berdi.
-
 — Matros körsin közüñ,— dedi o,— yürüşine baq!
 Fıraun padişası!
-
 Biz barakqa barmadıq.
 Doğru işke kettik.
 Ekskavator kene tutarlandı.
@@ -229,131 +221,96 @@ Vaqıt qayda?
 Almazov ile Mahkamovnıñ gece çapqalap, talaqları qattı: Nikolay — çöküçnen boltnı ur!
 Cevdet — yelquvannıñ töpesine çıq!
 Aytam da, pek ağır smena oldı.
-
 Evge qaytıp kelgende, tek Raşidni kördik.
 Qattı hurultısından divarlardaki sılav tökülmekte edi.
 Onı qaburğa tarafına çevirip qoydıq.
 Bir şeyler mırıldandı, ne ekeni añlaşılmadı, kene yuquğa ketti, lâkin huruldamadı.
 Men de yattım.
 Nikolaynıñ yuqlaycağı kelmedi, gitarasını aldı, aqırından yırlap başlağan edi, birden sustı, indemey, oturdı-oturdı, soñra sekirip ayaqqa turdı.
-
 — Bir kere Marselden Barselonağa kete edik... kene ispaniya efsanesi başladı.
 Men Nikolaynıñ ikâyelerini diñlemege seve edim.
-Sevgenimnn bilip, sergüzeştli vaqialarnı çoqça söyley, çünki o, bir şeyni ikâye etkende, diqqatlı diñleseler, quvana edi. — Barselonağa... añladıñmı?
+Sevgenimnn bilip, sergüzeştli vaqialarnı çoqça söyley, çünki o, bir şeyni ikâye etkende, diqqatlı diñleseler, quvana edi.
+— Barselonağa... añladıñmı?
 Adına diqqat et!
 Vahtada ardı-sıra eki defa turğanımdan, soñ derece yorğun edim.
 Kökteki yıldızlar öyle alçaq ediler ki... qısqası, tam İspaniya geceleri.
-
 Lâkin baraknıñ qapusı açıldı.
 Nikolay susetı.
 Bosağa üstünde Valâ köründi.
-
-— Saña ne oldı?— dedi qız gizliden,— betiñde ayret kölgeleri...
+— Saña ne oldı? — dedi qız gizliden,— betiñde ayret kölgeleri...
 Tüşten uyanğan kişige beñzeysiñ.
-
 Men yüz üstünde yata edim.
 Nikolay bir şey aytırmı eken dep bekledim.
 Yoq... qızğa cevap bermedi.
 Valâ Nikolaynıñ yanına oturğanını sezdim.
-
 — Bir türkü söyle, Valâ!— dedi Nikolay,— dülber bir türkü!
-
 — Men türkü söylemege bilmeyim.
-
 — İçmege bilesiñmi?
-
 — Bilem.
 Amma niçün?
-
-— İsteseñ iç, istemeseñ içme! 
+— İsteseñ iç, istemeseñ içme!
 Kene gitara davuşı işitildi.
-
 — Kimge keldiñ?
 Mañamı?
-
 — Saña!
-
 — Yemin etmek içünmi?
-
 — Yoq.
 Yemin etmeycegim.
 Rahil ayttı, sen Arhipkağa qarşı ekensiñ.
-
 — Men?
 Arhipkağa qarşı?
 Sen ne aytasıñ?
 Arhipka — menim eñ yaqın kişim.
 Menim ve Hristofornıñ...
-
 — Şaqa etesiñmi?
-
 — Yoq, kerçek aytam.
 Kene onıñ içün yalvarmağa keldiñmi?
-
 — Arhipka içün degil.
 Rahil içün...
-
 — Özü kelip olamadımı?
-
 Bir talay sessiz oturdılar.
 Soñ qız devam etti.
-
 — Onıñ kimsesi yoq.
-
 — Kimniñ?
-Rahilniñmi?— Nikolay hahıldap küldi. — Rahilniñ kimsesi yoq... ne qadar büyük şefqatsızlıq!
+Rahilniñmi?— Nikolay hahıldap küldi.
+— Rahilniñ kimsesi yoq... ne qadar büyük şefqatsızlıq!
 Siziñ qardaşnı...
 Valkanı ve Rahilnı qurucılıqta bilmegen barmı?
-
 — Söz menim aqqımda degil.
-
 — Rahilniñ namusını qorçalamaq içün kelgen olsañ, çekkelep oturma, ayta qoy!
 Onıñ, mensiz de, mudafaacıları çoq.
-
 — Oña öyleleri kerekmey.
-
 Kandıba indemedi.
-
 — Nikolay!
 Biz bir vaqıtlarda...
-
 — Keçip ketken şey.
 Valâ!
 Qarıştıra berme!
-
 — Keçip ketkenmi aceba?
-
 — Arhipkanıñ ayatınen meraqlanasıñ.
 Ya, ğarip Hristofor?
 Onıñ içün tüşünmeysiñiz?
 Arhipka Hristofornı öldürmek istedi, öldüralmadı.
 Siziñ içün bu — bir şey demek degil.
-
 Nikolaynıñ davuşı keskin, açuvlı çıqtı.
-
 — İş olğan... men ne yapmağa borclım?
 Bu kiçiçik ellerimnen Arhipkanıñ boğazına yapışmaq kerekimmi?
 Siz... erkekler bu dünyada niçün yaşaysıñız?
-
 — Seni deñişti, dep işitken edim.
 Kene eski adetleriñnen qalğansıñ.
-
 — Qıçırma!
 Men episini añladım.
-
-— Añlağan olsañ, ket!— dedi Kandıba. — Meni terk et, miledi!
-
+— Añlağan olsañ, ket!— dedi Kandıba.
+— Meni terk et, miledi!
 Qız çıqıp ketti.
 Nikolay koyka üstünde qaldı.
 Eki elinen caqını tuttı, çoq vaqıt qıbırdamay, nelerdir tüşünip oturdı.
 Oturıp talğan soñ, turdı — yanıma keldi.
-
 — Tur!— dedi maña,— episini işittiñ.
 Daa ne bekleysiñ?
-
 Başımnı köterdim.
-
-— Musafirni... kördiñmi?— Nikolay pek eecanlı edi. — Rica etmege kelgen.
+— Musafirni... kördiñmi? — Nikolay pek eecanlı edi.
+— Rica etmege kelgen.
 Kim içün?
 Sen de öylesiñ, Cevdet!
 Yüregiñ pek yufqa!
