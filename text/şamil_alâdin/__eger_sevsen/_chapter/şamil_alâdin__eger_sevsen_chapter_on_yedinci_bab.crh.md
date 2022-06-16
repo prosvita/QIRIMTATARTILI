@@ -132,7 +132,6 @@ Patlav, soñ gurulti.
 Bunı tek bir türlü añlamaq mümkün.
 Madamki Hristofor gurultini işitken, demek, yer patlavından yaralanmağan, çünki yer patlavı işitilgen maalde taş-topraq kesekleri endi tüşecek yerlerine tüşken olalar.
 — Öyle tezmi?— dep soradım men.
-
 — Ya ne?
 O qadar küç!
 Amma ekskavator yüksek topraq sarpanınıñ artında tura edi, onıñ üstüne taş tüşe bile edimi?
