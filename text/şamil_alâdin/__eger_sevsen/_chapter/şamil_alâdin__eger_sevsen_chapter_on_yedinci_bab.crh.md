@@ -1,29 +1,22 @@
 ## On yedinci bab — Hristofornı ziyaret. Sinor Kroççi
-
 Barakta meni Nikolay bekley edi.
 Koykasınıñ çetine oturğan, aqırından gitara çalmaqta.
 Kirgenim kibi, gitaranı bıraqtı, ayaqqa turıp, mıhtan fufaykasını aldı.
-
-— Hristoforğa keteyik,— dedi o. — Tekâran tüzelgen olsa, laqırdı etip baqmaq kerek.
+— Hristoforğa keteyik,— dedi o.
+— Tekâran tüzelgen olsa, laqırdı etip baqmaq kerek.
 Yoqsa, Arhipka qaçıp kete bile.
-
 — Keteyik... deseñ, keteyik!
-
 Bir buçuq saat keçken soñ Troitsk hastahanesinde edik.
 Hristofornı ufaqça oda içinde taptıq.
 Onıñnen beraber eki adam daa bar edi: biri — şişikçe yüzlü, esli kişi, digeri — sepkilli bet yaş kişi... ekisi de koykaları üstünde oturıp, ayaqlarını yerge sarqıtqan, karta oynaylar.
 Hristofor yuquda.
 Ödeyalınıñ ucu polğa sarqqan, omuzı gips içinde.
-
 Palatanıñ bosağası üstünde toqtaldıq.
-
 — Yuqlağanı çoqtanmı?— dep soradıq, dostımızğa işaret etip.
-
-— Beş daqiqa...— dedi yaş kişi. — Pek az yuqlay.
-
+— Beş daqiqa...— dedi yaş kişi.
+— Pek az yuqlay.
 Palatağa kirdik.
 Yekâne pencere tereklik azbarğa çıqmaqta.
-
 — Biz dava etemiz...— dedi sepkilli bet kişi, qomşusı içün.
 Qomşusı astmanen hasta olmalı, ağır nefes almaqta edi,— yollar hususında.
 O, yollarnı betonlı negiz üstünde yasamaq kerek, dey.
@@ -31,68 +24,48 @@ Men ise böyle qurucılıq yıllarında ziynetli şeyler talap etmek olmaz, sade
 Qatranlı şosse olsa, başqa şey kerekmey.
 O da yol işleri ustası, men de.
 O, betonlı yol yasay, men — qatranlı.
-
 — Öyle olğanda, em qatranlı, em de betonlı yollar qurmaq kerek,— dedi Nikolay.
-
 — Onı bilemiz,— sepkilli kişi itiraz etti,— bizni iqtisadiy tarafı meraqlandıra.
-
 — Sizde ekskavatorlar... nasıl?— dep soradı bizden qomşusı,— Hristofornıñ söylegenine kore...
-
 Oña laqırdı etmek qıyın edi.
 Elinen tamağını tutıp, öksüre berdi.
 Kişi zametlenmesin dep, men aylanma kanaldaki işlerni ve Orconikidzenen olğan laqırdını ikâye ettim.
-
 — Dostıñız pek güzel kişi,— dedi sepkilli bet adam, soñ ayaqqa turıp, qomşusına: — yur, çıqıp, biraz dumanlatayıq!— dedi.
-
 Astmalı kişi köridorğa çıqqan soñ qapunı tars etip qapattı, Hristofor abdırap közlerini açtı, hayli vaqıt tavanğa köz etip yattı.
 Soñ oda içinde başqa kişi barlığını is eterek, başını qıbırdattı, bizni körgeni kibi, sevinçten çeresi şeñlenip ketti.
-
 — E!
 Keldiñizmi?
 Ne güzel oldı... 
 Men Hristoforğa bilgen yañılıqlarımnı ikâye ettim.
-
 — Elpideden mektüp aldım,— dedi o,— yaşayışnı güzel eken.
 Hastahanede ekenimni yazğan edim.
 Mında kelmek... men tüzelgenge qadar yanımda oturmaq istey.
 Oña, elbette, başıma kelgen qazanı yazıp oturmadım.
 Suvuqlandım... başqa şey yoq.
-
 — Hristofor!
 Afu et!— dedi Nikolay,— seniñnen başqa bir şey hususında laqırdı etip almaq isteyim.
-
 — Rica etem!
 Nasıl... başqa şey?
-
 — Sen, kerçekten de, yer patlavı neticesinde yaralandıñmı?
-
 — Bu nege kerek oldı?
-
 — Şay, özüm...
 Çoqtan soramaq isteyim, biraz tüzelgeniñni beklemege mecbur oldım.
-
 — Ebet,— dedi Hristofor ve biraz tüşünip aldı,— yer patlavı vaqıtında yaralandım.
-
 — ...Vaqıtında ekenini bilem... neticesindemi?
 Sualge doğru cevap ber!
 Neden yaralandıñ?
-
 — Bilmeyim.
 Ekim taştan yaralanğansıñ, dedi.
 Men saqlanmaq istegende patlavlar başladı.
 Ekskavatornıñ kögertesinden aşağı tüşip yetiştiralmadım, kompressor bölügine kire qoydım.
 Oña taş kiralmaz, belledim.
 Yer patlavınıñ gurultisi esimde, başqa şey işitmedim.
-
 — Yanıñda kim bar edi?
-
 — Yanımda?
 Eki-üç kişi...
 Arhipkanen beraber yer patlatıcılarğa yardım etip keldik.
 Soñ azaçıq takleştik.
-
 — Takleştiñiz?
-
 — Ebet, qavğa ettik.
 Men oña alçaqsıñ, munafıqsıñ dedim.
 O sogündi.
@@ -104,37 +77,27 @@ Yiplerni yaqa başlağanda, men kögertege çıqıp, Bassarabanıñ kişilerine:
 Saqlanıñız!— dep qıçırdım.
 Soñ içeri kirdim.
 Qaya parçaları mında kelip yetalmaz... yetse bile, ekskavatornıñ tışı tene-kenen örtüli, tenekeniñ astı qalın ağaç, onı teşalmaz belledim.
-
 — Arhipka... bu vaqıtta qayda edi?
-
 — Arhipka?— Hristofor oña taacipli baqtı,— Arhipka da menimnen edi.
-
 Hristofor belini köterip, arqasını yastıqqa tayadı, evelâ maña, soñra Nikolaynıñ yüzüne köz etti.
-
 — Ne?
-Meni Arhipka öldürmek...— sesi qaltıradı üzüldi. — Olmaycaq şey.
-
+Meni Arhipka öldürmek...— sesi qaltıradı üzüldi.
+— Olmaycaq şey.
 Hristofornıñ dalğalı saçlarına, ağarğan ve azğan çeresine köz ettim.
 Batumdaki gürdeli ömüri hatirime keldi...
-
 Mında qaç kün daa yatacaqsıñ?— dep soradı ondan Nikolay,— ekimler ne deyler?
-
-— Daa çoq...— dedi Hristofor tüşünceli alda.— Üç afta daa yatmaq kerek.
+— Daa çoq...— dedi Hristofor tüşünceli alda.
+— Üç afta daa yatmaq kerek.
 Gips alınğanı yoq.
-
 — Üç afta...— Nikolay terenden köküs keçirdi.
-
-— Sen çıqqance biz aylanma kanalnı bitirecekmiz,— dedim men. — Belki kotlovannı da qazıp başlarmız.
-
+— Sen çıqqance biz aylanma kanalnı bitirecekmiz,— dedim men.
+— Belki kotlovannı da qazıp başlarmız.
 — Ebet,— dedi Nikolay,— Hristofor kelgende biz çuqur içinde olacaqmız.
-
 — Bilmeyim, çalışmaq mümkün olurmı?
-
 — Sen oña yazdıñmı?
 Kelip-ket, dep yazdıñmı? — dep soradım Hristofordan. 
 O dudaqlarınıñ kenarından zornen külümsiredi. 
 — Raatsız olma, Elpide kele qoymaz!
-
 — Men onı körmek isteyim.
 
 — Sende vicdan barmı?— dedi maña Nikolay, darğın alda,— eçki can derdinde, qasapçı mal...
