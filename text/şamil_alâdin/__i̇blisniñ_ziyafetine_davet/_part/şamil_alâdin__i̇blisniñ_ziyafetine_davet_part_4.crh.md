@@ -229,7 +229,8 @@ Muallim yavaştan yerinden qalqtı, oda içinde yüre başladı.
 Çoq vaqıt yürdi, indemedi, tek sigar içti.
 Soñra birden toqtaldı.
 
-– Qaç yaşındasıñız? – dep soradı Üsein ocadan. – Yigirmi doquzdam, – dep cevap berdi oca.
+– Qaç yaşındasıñız? – dep soradı Üsein ocadan.
+– Yigirmi doquzdam, – dep cevap berdi oca.
 
 – Yigirmi doquz yaşındasıñız!
 Öylemi? – Onıñ yüzünde Toqtarğazınıñ gençliginden ferahlanuv şevqı sezildi. – Menim “Tonğuçım” neşir olunğanda siz dünyada barmı ediñiz?
