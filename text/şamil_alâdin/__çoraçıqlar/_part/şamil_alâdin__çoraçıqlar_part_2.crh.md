@@ -188,7 +188,8 @@ Laqırdıları, diqqatnen diñlenilse, tatarca qonuşmağa ögrengen Batı Avrop
 Qave başındaki subetimiz vaqıtında bu hususta tüşündim ve, tüşüngen sayın, familiyaları slavân tili yalğamasınen bitkenine baqmadan, olarnı çeşit milletlerge yoradım.
 Yaya efendi menim çereme baqıp, zeinimdeki fikirni bildi.
 
-– Bizler Lehistan tatarlarımız, – dedi maña ve, böyle degende yüzden biraz deñişti, soñra külümsiredi. – Eşitken ediñizmi?
+– Bizler Lehistan tatarlarımız, – dedi maña ve, böyle degende yüzden biraz deñişti, soñra külümsiredi.
+– Eşitken ediñizmi?
 
 – Eşittim... ne demek olsun! – dedim men.
 Safiye hanımnıñ ve Yaya efendiniñ lehistanlı ekenlerini birden ferqlamağanım içün öz-özüme taaciplendim.
@@ -197,7 +198,8 @@ Onıñ ile dostım.
 
 Yaya oca memnün alda tekrar cılmaydı.
 
-– Özüñiz qayda oqudıñız? – dep soradı menden Bayraşevskiy. – Ne bitirdiñiz?
+– Özüñiz qayda oqudıñız? – dep soradı menden Bayraşevskiy.
+– Ne bitirdiñiz?
 
 – Darülmualliminde... – dedim men ve ilâve ettim: – Bitirmedim.
 
@@ -223,7 +225,8 @@ Sorasam, edepsizlik olmazmı, dep tüşündim.
 
 – Sizni mında Yaya Naci yolladı, öylemi? – dedi maña Bayraşevskiy.
 
-– Ebet, – dedim men. – Ya siz...
+– Ebet, – dedim men.
+ – Ya siz...
 Yaya efendi?
 Sizler bu köyge nasıl keldiñiz?
 
@@ -234,7 +237,8 @@ Men ümütsizden oca olıp ketüvimni özüm içün iftiharlı iş esap etkenim 
 Belki... deyim men.
 Aqiqatnı daa bilmeyim.
 
-– Men Yalta zemstvo idaresi maarif şübesiniñ emirine binaen keldim, – dedi Yaya oca. – Endi eki yıldan ziyade.
+– Men Yalta zemstvo idaresi maarif şübesiniñ emirine binaen keldim, – dedi Yaya oca.
+– Endi eki yıldan ziyade.
 
 – Vrangel vaqıtında mında ediñizmi?
 
@@ -262,13 +266,16 @@ Cenk bitti.
 Şuralar akimiyeti keldi.
 Maña saqlanmağa acet qalmadı.
 
-– Yeñi akimiyetniñ siziñ içün yüksek manası barmı? – dep soradım Bayraşevskiyden. – Bar ise, esasen, nede?
+– Yeñi akimiyetniñ siziñ içün yüksek manası barmı? – dep soradım Bayraşevskiyden.
+– Bar ise, esasen, nede?
 
-– Şuralar muqaddes qurum, – dedi Yaya oca. – Men onıñ oğrunda çoq yıllar küreştim.
+– Şuralar muqaddes qurum, – dedi Yaya oca.
+– Men onıñ oğrunda çoq yıllar küreştim.
 
 – O alda, siz bu köyde endi çoq yaşamazsıñız!
 
-– Ne sebepten? – dep soradı o, taaciplenip, köz qapaqlarını sıq-sıq oynattı. – Sabıq ofitser ekenligim içünmi?
+– Ne sebepten? – dep soradı o, taaciplenip, köz qapaqlarını sıq-sıq oynattı.
+ – Sabıq ofitser ekenligim içünmi?
 
 – Hayır.
 Onıñ içün degil.
@@ -282,7 +289,8 @@ Ocanıñ yüzü qızardı.
 Safiye hanım kirdi, ögümizdeki tabaqnı ve boş filcanlarnı alıp çıqtı, soñra eki çanaq baqlalı laqşa şorbası ketirdi.
 Baqla iri ve qaverenkli olğanından, suvu ve laqşası da boyalı edi.
 
-– Buyurıñız oca aşına, – dedi Safiye hanım, – alicenap ve dülber külümsirep. – Bu bizge Memed-Ali beyniñ evinden ketirile.
+– Buyurıñız oca aşına, – dedi Safiye hanım, – alicenap ve dülber külümsirep.
+– Bu bizge Memed-Ali beyniñ evinden ketirile.
 
 “Oca aşı”!
 Demek, İslâm baynıñ evinden maña ketirilecek yemek de böyle olacaq.
@@ -290,7 +298,7 @@ Belki endi ketirgendirler.
 
 – Bu oca aşınen sizni künde qaç kere sıylaylar? – dep soradım.
 
-– Eki kere, – dep cevap berdi Safiye hanım. – Üylelik ve aqşamlıq.
+– Eki kere, – dep cevap berdi Safiye hanım. Üylelik ve aqşamlıq.
 Kimerde künde bir kere.
 Kimerde iç de ketirilmey.
 Bu oca aşı degil, Memed-Aliniñ ırğatları içün pişirilgen yemek.
@@ -300,7 +308,8 @@ Külküsiniñ aenkinde bir mana barlığını sezip, oña ayretle baqtım.
 Baqqanımdan oca ruhsuzlandı, sustı.
 Ağaç qaşığını çanaqqa daldırdı, qarıştırıp baqtı, et ve qartop kesekleri körünip aldılar.
 
-– Buyurıñız, Abdureşid efendi! – dedi maña. – Şorba fena degil.
+– Buyurıñız, Abdureşid efendi! – dedi maña.
+ – Şorba fena degil.
 Aşamaq mümkün. – Özü iri ağaç qaşıqnı toldurıp alıp, qarınğa yolladı.
 
 Köyde bu menim birinci musafirligim.
@@ -315,7 +324,8 @@ Dağlıqtaki ayat olarğa çoq şeyler ögretken.
 
 Evge qaytmaq içün sofağa çıqtım.
 
-– Sınıflardaki işleriñizge yardım kerek olsa, çekinmeñiz, aytıñız, – dedi Yaya oca, elimni küçlü sıqaraq. – Biz yardımğa daima azırmız.
+– Sınıflardaki işleriñizge yardım kerek olsa, çekinmeñiz, aytıñız, – dedi Yaya oca, elimni küçlü sıqaraq.
+ – Biz yardımğa daima azırmız.
 
 Ay yarığı dağlarnı, qayalarnı aydınlatqan.
 Dereniñ suvu buzlağan, ap-aq yolaq olıp qırlar arasında yılan kibi burğalanıp ketmekte.
@@ -338,12 +348,14 @@ Köyde qalübelâdan beri, yazda ve qışta, kündüz ve gece qapu örtilüvi ad
 Qapunı yavaştan qaqtım, içeride areket duyuldı, lâkin qapu açılmadı.
 Saabe apte, qaranlıq ev içerisinden yarıq azbarğa diqqatle baqıp, qapunı qaqıcı kim ekenini körgen, meni tanığan soñ, açtı.
 
-– Saabe apte, yuqlay ediñizmi? – dedim ev saibesine. – Afu etiñiz, biraz keçiktim.
+– Saabe apte, yuqlay ediñizmi? – dedim ev saibesine.
+– Afu etiñiz, biraz keçiktim.
 Eviñizniñ tertibini bilmeyim.
 
 – Tertip er kesniñ evinde bir.
 Şeerde de, köyde de! – dedi Saabe darğın davuşnen. – Qaranlıq tüştimi, adamlar evlerine qaytalar.
-Ve yalıñız adamlar degil... – ayat içindeki lampatnıñ meltesini azaçıq köterdi. – Yuqlay ediñizmi, deysiñiz!
+Ve yalıñız adamlar degil... – ayat içindeki lampatnıñ meltesini azaçıq köterdi.
+– Yuqlay ediñizmi, deysiñiz!
 Yuqlamaq qayda?
 Bu belâlı dünyada gece yuqlamaq mümkünmi?
 Biri kelip qapunı qaqa, Denikin taşlaması, tüfegini köküsiñe tikley – tavuq ber?
@@ -352,7 +364,8 @@ Digeri kele, qolunda örme qamçı, Mahno çapqını... sığırnı ber!
 Qış, yaz... gece, kündüz.
 Yeñi ükümet keldi, dağ aydutlarından ep bir amanlıq yoq.
 Böyle muhataralı gecede közge yuqu kiremi?
-Sağ-selâmet sabanı tapsaq, oña şükür. – O omuzları üstündeki qalın yün şalnı yuqarığa çekip, boyunını örtti, kevdesi ile ögümni kestirip toqtaldı. – Bir daa evge keç kelseñiz, qapunı qaqmañız!
+Sağ-selâmet sabanı tapsaq, oña şükür.
+ – O omuzları üstündeki qalın yün şalnı yuqarığa çekip, boyunını örtti, kevdesi ile ögümni kestirip toqtaldı. – Bir daa evge keç kelseñiz, qapunı qaqmañız!
 Pencereni qakıñız!
 Siz ekeniñizni bileyim!
 
@@ -364,7 +377,8 @@ Biraz daa törge yürgen soñ ayağım yorğan üstüne bastı.
 Töşek olmalı.
 Qaranlıqta qarmalanıp turmağa istemedim, soyundım, urbamnı yanaşamda yerge taşlap, yattım.
 
-– Kündüz, kelip, sizni İslâm baynıñ evine çağırdılar, – dedi Saabe apte, menim odamnıñ açıq qapusınıñ bosağasına yaqın kelip. – Oca kelse, aytırım dedim.
+– Kündüz, kelip, sizni İslâm baynıñ evine çağırdılar, – dedi Saabe apte, menim odamnıñ açıq qapusınıñ bosağasına yaqın kelip.
+– Oca kelse, aytırım dedim.
 
 – Evalla, Saabe apte! – dedim men.
 
@@ -412,7 +426,8 @@ Qızğa içeri kiriñiz dep rica ettim.
 Kirmedi.
 Boğçasını elime tuttırıp, keri çekildi.
 
-– Savutlarnı soñundan kelip alırım, – dedi o. – Riza ağam: “oca üyle yemegine evimizge kelsin” dedi.
+– Savutlarnı soñundan kelip alırım, – dedi o.
+ – Riza ağam: “oca üyle yemegine evimizge kelsin” dedi.
 Riza ağa İslâm baynıñ ekinci oğlu eken.
 Qıznıñ baqışı, laqırdısı meni eyecanğa ketirmekte edi.
 
@@ -466,7 +481,8 @@ O, mektep müdiri, köyniñ imamı, men küçük ocam.
 Balalarnı, olğanı-olacağı, bir kün oquttım.
 
 – Saabeniñ evindesiñmi? – dep soradı menden İsmail muallim.
-Böyle degende, yürüşini deñiştirmedi, başını çevirip, maña baqmadı. – Aş, suv nasıl?
+Böyle degende, yürüşini deñiştirmedi, başını çevirip, maña baqmadı.
+– Aş, suv nasıl?
 
 – Fena degil.
 Lâkin bir şeyge taaciplendim, – dedim oña.
