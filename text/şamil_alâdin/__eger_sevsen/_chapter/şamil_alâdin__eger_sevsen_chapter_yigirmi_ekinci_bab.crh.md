@@ -54,14 +54,12 @@ Deyocegim, episini silip aldım.
 Bassaraba keldi: açuvlı, darğın...
 Çırayına baqılmay.
 Maña selâm bermedi, yüzüme baqmadı.
-Karimden: bu ne demek ola?
-dep soradım.
+Karimden: bu ne demek ola?-dep soradım.
 Saba onı uyantmay ketkenim içün eken!
 
 — Açuvlanmağa ne bar?— dedim Bassarabağa — Biraz raatlandıñ.
 Güzel oldı.
-Ondan soñ..
-men siziñ dayañız degilim.
+Ondan soñ..men siziñ dayañız degilim.
 Özüñiz uyanıñız!
 
 O indemedi.
