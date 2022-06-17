@@ -76,7 +76,8 @@ Devirni nazar itibarğa alsaq, sizni, elbet de, añlamaq mümkün.
 Rica etem!
 İkâyeñizni devam etiñiz!
 
-...Ekinci sınıf ile tanış olğan vaqıtımda, onıñ bazı ceetlerden, birinci sınıf ile sanki bir seviyede ekenligini sezdim, çünki İsmail efendi... – oca bu sefer sözüni özü bölip, maña tiklenip baqtı. – Soñ, bu yerde ne demek kerek?
+...Ekinci sınıf ile tanış olğan vaqıtımda, onıñ bazı ceetlerden, birinci sınıf ile sanki bir seviyede ekenligini sezdim, çünki İsmail efendi... – oca bu sefer sözüni özü bölip, maña tiklenip baqtı.
+ – Soñ, bu yerde ne demek kerek?
 “İsmail arqadaş”mı?
 
 – İsmail Asan oğlu... demege mümkün! – dedim men, – er adamnıñ öz adı bar.
@@ -113,7 +114,8 @@ Bugünniñ hızmeti bitti.
 
 – Tertip şöyle: yarın mektepke, bugün kelgen maaliñizde keliñiz.
 İşiñizni devam etiñiz.
-Safiye hanım... – o, közleriniñ areketinen ocapçege işaret etti. – Safiye hanım menim refiqam.
+Safiye hanım... – o, közleriniñ areketinen ocapçege işaret etti.
+– Safiye hanım menim refiqam.
 
 Men sağ elimni köküsim üzerine qoyıp, azaçıq egildim.
 “Sizler ile yaqın munasebette olacağımdan ğayet memnünim!” dedim.
@@ -147,7 +149,8 @@ Episinde demetlenilgen tütün qoqusı bar.
 Sandıq üstünde töşek, yastıq.
 Yerde kiyiz.
 
-– Ev özümizniñki degil, – dedi Yaya efendi. – Abdulla ağanıñki.
+– Ev özümizniñki degil, – dedi Yaya efendi.
+ – Abdulla ağanıñki.
 Biz bu oda içinde yaşaymız.
 Şorbacı acayip adam.
 Meşur tütünci.
@@ -160,7 +163,8 @@ Safiye hanım menim ögümde, kiyiz üstüne yağbez töşep ketti.
 Bir talaydan soñ qırq yaşlarında, adiy kiyimli, tolu müçeli qadın tabaq üstünde qave ile kirdi.
 Tabaqnı yağbez üstüne qoydı.
 
-– Hoş sefağa keldiñiz, muallim efendi! – dedi, o maña. – Kelgeniñizni bizim balalardan eşittim.
+– Hoş sefağa keldiñiz, muallim efendi! – dedi, o maña.
+– Kelgeniñizni bizim balalardan eşittim.
 Alla sağlığıñıznı bersin.
 Elbet de, yeñi akimiyetke yeñi ocalar hızmet etmek kerekler.
 Rica etem, qavege buyurıñız!
