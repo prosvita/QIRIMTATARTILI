@@ -92,7 +92,9 @@ Desâtnik indemedi.
 
 — Canlarıñız sağ qalğanı içün idareñizniñ içinde bir sigar içmege ruhset etiñiz! — dedi o.
 
-— Bu da ne? — Sigizmund Genrihoviçniñ qaşları mañlayınıñ töpesine çıqtılar. — Niçün eken? — Qart injener öz printsipine sadıq qaldı.
+— Bu da ne? — Sigizmund Genrihoviçniñ qaşları mañlayınıñ töpesine çıqtılar.
+— Niçün eken?
+— Qart injener öz printsipine sadıq qaldı.
 Ruhset etmedi.
 
 Biz, ekskavatorlarnıñ troslarını deñiştirgen soñ, onı haberdar etmege kettik, lâkin ne uçastkada, ne idarede — iç bir yerde tapalmadıq.
@@ -113,8 +115,7 @@ Barakqa qaytıp keldik.
 Urbalarımıznı deñiştirdik — kimerde deñiştirmey edik — çay içmege oturdıq.
 Hristofor ile Karim aşhanege ketkenler.
 
-Ötmekni qalay içindeki sıcaq suvğa batırıp aşasañ, şekerni tişlep, artından bir yutum sıcaq suv içseñ…
-bu dünyada eñ lezetli şey.
+Ötmekni qalay içindeki sıcaq suvğa batırıp aşasañ, şekerni tişlep, artından bir yutum sıcaq suv içseñ…bu dünyada eñ lezetli şey.
 Çavdar ötmegi olsa, daa yahşı.
 
 Men Nikolayğa köz ettim.
