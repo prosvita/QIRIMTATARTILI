@@ -51,8 +51,8 @@ Birinci sarsıntınıñ artından ekinci sartsıntı duyuldı.
 Bir-birimizge baqıştıq, közlerimizni aqaytıp, susıp qaldıq.
 Sarsıntılar pek küçlü degil edi.
 
-— Olucı şeyler,— dedi Raşid. — bir defa men qır üstünde tura edim.
-Öyle silkitti ki... şaşmalap, balaban qayanıñ yanına yuvurıp keldim, biraz turğan soñ, onıñ astına kirdim.
+— Olucı şeyler,— dedi Raşid.
+— Bir defa men qır üstünde tura edim ,öyle silkitti ki... şaşmalap, balaban qayanıñ yanına yuvurıp keldim, biraz turğan soñ, onıñ astına kirdim.
 Niçün?
 Bar añla!
 Bir daa, bayırnıñ töpesinden aşağı qar obaları taya başladılar.
@@ -81,7 +81,9 @@ Biz idare ögüne kelgende, Menjevetskiy desâtnikni tazirlemekte edi.
 
 — Men sizni tenbiylegen edim.
 Bu — seysmik rayon, yalını bekitmek kerek degen edim.
-Şimdi, kördiñizmi, ne olıp çıqtı? — Bizge muracaat etip, sözüne devam etti: — Biz yalıda tura edik.
+Şimdi, kördiñizmi, ne olıp çıqtı?
+— Bizge muracaat etip, sözüne devam etti:
+— Biz yalıda tura edik.
 Men olarğa yalını nasıl etip bekitmek mümkünligini añlata, Aleksey İvanoviç ise — Menjevetskiy desâtnikni körsetti,— maña itiraz eteyata edi: yalı qaviy, bir şey olmaz, dey edi.
 İşte, kördiñizmi?..
 
