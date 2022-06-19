@@ -1190,7 +1190,7 @@ Dostunen sağlıqlaşqanda, öz adresini qaldıra, cenkten soñ mıtlaqa körü�
 Cenk bite.
 Seit Osman işke yerleşken ve ev tapqan soñ, tesadüfen Terziniñ ailesi ile körüşe, amma Kerim yoq.
 Budapeşt yanlarında elâk olğan.
-Qarısı da yoq, o qırqbeşincide ölgen.
+Qarısı da yoq, o qırq beşincide ölgen.
 Oğlu Server qalğan, alapçesi qart, zayıf qadınnen ömür keçirmekte.
 Oña balanı asramaq küç.
 Seit Osmannıñ yüregi yanıq ile tola.
