@@ -41,7 +41,9 @@ Toqtarğazı soñki sualge birden cevap bermege cesaret etalmadı, toqtaldı, 
 
 – Ocanıñ özünden?– musafirniñ davuşında inamsızlıqqa beñzer aenk sezildi. – Nasıl manada?
 
-– Bilesiñizmi..?– Üsein oca, mında, muallimniñ evinde özüni jandarmeriya qulaqlarından ve közlerinden uzaqta serbestçe is ete başlasa kerek ki, musafirge öz fikirini açıqça añlatmağa ıntıldı. – İş şunda ki, oca istese... şeerden uzaqta, çöllük köyde, ğayeviy cesaretine ve bilgi pişkinligine, “eger istese” deyim men tekrar, balalarğa bazı dünyaviy fenler de oquta bile.
+– Bilesiñizmi..?
+– Üsein oca, mında, muallimniñ evinde özüni jandarmeriya qulaqlarından ve közlerinden uzaqta serbestçe is ete başlasa kerek ki, musafirge öz fikirini açıqça añlatmağa ıntıldı.
+ – İş şunda ki, oca istese... şeerden uzaqta, çöllük köyde, ğayeviy cesaretine ve bilgi pişkinligine, “eger istese” deyim men tekrar, balalarğa bazı dünyaviy fenler de oquta bile.
 Anda, çöllükte, urâdniklerni ve pristavlarnı yarım çuval boğday ununa satın almaq mümkün.
 Olar, kerek olsa, susmağa da bileler.
 
@@ -49,10 +51,12 @@ Olar, kerek olsa, susmağa da bileler.
 
 – Üç ay qadar... – dep cevap berdi Üsein oca.
 
-– Üç ay... az! – Samoyloviç oña qanaatsız közlerinen tiklenip baqtı. – Üç ay içinde balalarğa endeseniñ episini ögretip olamazsıñ.
+– Üç ay... az! – Samoyloviç oña qanaatsız közlerinen tiklenip baqtı.
+ – Üç ay içinde balalarğa endeseniñ episini ögretip olamazsıñ.
 
 – Doğru.
-Müddet pek küçük. – Üsein oca peterburglı musafirniñ fikiri ile razı oldı. – Öyle vaqıtta yarım çuval un daa bermege mecbursıñ.
+Müddet pek küçük. – Üsein oca peterburglı musafirniñ fikiri ile razı oldı.
+ – Öyle vaqıtta yarım çuval un daa bermege mecbursıñ.
 Başqa çare yoq!
 
 – Yarım çuvalnı daa kimniñ anbarından alasıñız?
@@ -71,7 +75,8 @@ Nasıl iş ile meşğulsiñiz?
 
 – Bağçasarayğa ne vaqıt keldiñiz?
 
-– Tünevin, – dedi Samoyloviç. – Aqmescitte qırımtatar, tili sarf-nausı hususında lektsiya oqudım, anda İsmail efendi ile körüştik.
+– Tünevin, – dedi Samoyloviç.
+– Aqmescitte qırımtatar, tili sarf-nausı hususında lektsiya oqudım, anda İsmail efendi ile körüştik.
 Meni faytonına oturtıp mında ketirdi.
 Özüm Bağçasaraynı sevem.
 İsmail muallimniñ davetini red etip olamadım.
@@ -135,20 +140,23 @@ Naşir, defterni asabiyetle kreslo üzerine bıraqıp, ayaqqa qalqtı.
 – Men bellesem, beyazğa daima – beyaz, qarağa – qara demek kerekmiz.
 Öyle degilmi, muallim? – dedi Üsein oca.
 
-– Şübesiz...– İsmail Gasprinskiy musafirniñ fikirini tasdıqlap, başını eki kere qaqıttı. – Er şeyniñ öz adı, oz tainatı var.
+– Şübesiz...– İsmail Gasprinskiy musafirniñ fikirini tasdıqlap, başını eki kere qaqıttı.
+– Er şeyniñ öz adı, oz tainatı var.
 Ve Abdureşid efendi bu ceetten aqlı edi.
 Kendiñize malüm, er şeyge özüniñ adını qoydı.
 Qaraya – qara dedi, beyaza – beyaz...
 Siz diqqat etiñiz! – naşir yerinden qalqtı, divarğa yaqın bardı, ayaq uclarında köterilip, yüksek raftan “Vetan hadimi”niñ birinci sanını aldı, onıñ baş maqalesinden bazı kelimelerni oqup kösterdi. – “yazacağımız vaqia ve adiseler ne qadar accı olursa – olsun, oldığı kibi yazılacaq...
 Yeñini – illüminatsiya, hiyaneti – kiramet, qarğayı – bülbül, viraneyi – gülistan diye tasvir itmeyecegiz.
 Doğruya – doğru, egriye – egri demek, meslek ve vazifemizdir.
-Halq namı aldında eyi ve fena yapılan işleri ağalarnıñ, beylerniñ hatiri, sofularnıñ taqvalığı, şeyhlarnıñ kerameti ürmetine yalan-yañlış arz etmeyecegiz...” – İsmail efendi bunıñle oquvını kesip, gazetanı qaytarıp rafqa qoydı. – Ebet!
+Halq namı aldında eyi ve fena yapılan işleri ağalarnıñ, beylerniñ hatiri, sofularnıñ taqvalığı, şeyhlarnıñ kerameti ürmetine yalan-yañlış arz etmeyecegiz...” – İsmail efendi bunıñle oquvını kesip, gazetanı qaytarıp rafqa qoydı.
+ – Ebet!
 Mediyev işke böyle, araretli kirişken edi.
 Söyleñiz, “Vetan hadimi” ne qadar yaşadı?
 
 – Eki yıl, – dedi Toqtarğazı, – lâkin namus-vicdan ile yaşadı.
 
-– “Terciman” yigirmi yedi yıldan beri yaşamaqta, – dedi İsmail efendi, iftihar ile. – Siziñ fikiriñizce o namussız – vicdansız yaşamaqtamı?
+– “Terciman” yigirmi yedi yıldan beri yaşamaqta, – dedi İsmail efendi, iftihar ile.
+ – Siziñ fikiriñizce o namussız – vicdansız yaşamaqtamı?
 “tercimannıñ” saifelerinde halq menfaatına aks fikirler kördiñizmi?
 
 “Vetan hadimi” üzerindeki laqırdı genç müellifni eyecanğa ketirdi, çünki onıñ doğuvında ve faaliyetinde Üsein ocanıñ da ciddiy hızmetlerini, onıñ qapatıluvı yüreginde teren yara açtı.
@@ -167,15 +175,19 @@ Abdureşid Mediyev küreşti.
 – Çarizm ile.
 Musavatsızlıq ile!
 
-– Küreşti... lâkin yeñdimi? – Naşir iddetlenip soradı. – Yeñe bilirmi edi?
+– Küreşti... lâkin yeñdimi? – Naşir iddetlenip soradı.
+ – Yeñe bilirmi edi?
 – Yoq, yeñip olamadı.Yeñmek içün çoqluq ve halqnıñ birligi kerek.
 
-– Yeñmek içün küç lâzim, – diye itiraz etti İsmail efendi. – Biz zayıfmız.
+– Yeñmek içün küç lâzim, – diye itiraz etti İsmail efendi.
+ – Biz zayıfmız.
 İmperatornıñ qolunda silâlı askeriy küçler bar.
 
-– İmperator, şübesiz, küçlü, – dedi Üsein oca, yarı kinâye tarzında. – Ama zayıf halqlar birleşseler, küçlü imperatornı yeñe bilirler.
+– İmperator, şübesiz, küçlü, – dedi Üsein oca, yarı kinâye tarzında.
+– Ama zayıf halqlar birleşseler, küçlü imperatornı yeñe bilirler.
 
-– Birleşseler..! – Ev saibi musafirniñ sözlerini acizlikle tekrarladı. – Birleşmek içün añlı olmaq şart.
+– Birleşseler..! – Ev saibi musafirniñ sözlerini acizlikle tekrarladı.
+ – Birleşmek içün añlı olmaq şart.
 Biz añdan uzaqmız.
 Çünki qafalarımıznı cealet quruttı, közlerimizniñ şefaatını çaldı.
 İleri halq olmaq içün oqumalımız, müteraqqiy bilgiler ve fikirler ile silâlanmalımız, o, müteraqqiy fikirlerni kendi tilimizge, naqil idip, kendi mekteplerimizde, medreselerimize kirdirmeye çalışmalımız!
@@ -233,9 +245,11 @@ Soñra birden toqtaldı.
 – Yigirmi doquzdam, – dep cevap berdi oca.
 
 – Yigirmi doquz yaşındasıñız!
-Öylemi? – Onıñ yüzünde Toqtarğazınıñ gençliginden ferahlanuv şevqı sezildi. – Menim “Tonğuçım” neşir olunğanda siz dünyada barmı ediñiz?
+Öylemi? – Onıñ yüzünde Toqtarğazınıñ gençliginden ferahlanuv şevqı sezildi.
+ – Menim “Tonğuçım” neşir olunğanda siz dünyada barmı ediñiz?
 
-– Yoq, – dedi Üsein oca. – Men “Tonğuç”ıñızdan eki ay soñ doğdım.
+– Yoq, – dedi Üsein oca.
+– Men “Tonğuç”ıñızdan eki ay soñ doğdım.
 
 – Ondan eki yıl keçkende adamlar “Terciman”nı oquy başladılar... alâ oqumaqtalar.
 “Terciman” çıqmağan olsa... kim bile?
@@ -259,7 +273,8 @@ Merkeziy Rusiyede yeñi inqilâbiy küçler quvamına kelmekteler.
 Olar memlekette yeñi ayat quracaq, serbest yaşaycaqlar.
 Oca bu küreşlerde faal iştirak etecek.
 
-– Buğavlarnı qırmaq... bana, ğaliba, öyle dediñiz! – naşirniñ hatirine, Üsein oca, daa yañçıq, halqlarnıñ horluğı hususında qonuşqanda aytqan sözleri keldi. – Men Parijde yaşağanda, “Kommunist manifesti”niñ fransızca naşirini oqudım.
+– Buğavlarnı qırmaq... bana, ğaliba, öyle dediñiz! – naşirniñ hatirine, Üsein oca, daa yañçıq, halqlarnıñ horluğı hususında qonuşqanda aytqan sözleri keldi.
+– Men Parijde yaşağanda, “Kommunist manifesti”niñ fransızca naşirini oqudım.
 Bir defa degil, qaç defalar.
 “Kommunistler ittifaqı”na kirmek içün oqumadım.
 O, vaqıtta Avropada o teşkilâtnıñ maiyetini tasavur etkenler ğayet az edi.
@@ -315,7 +330,8 @@ Muallim bu tamçilerni musafirlerden gizlemege tırışmadı ve atta yavluğ�
 Üsein oca, özüniñ eyecanğa kelgen qalbini raatlandırmaq içünmi, bilmem niçün, ayaqqa qalqtı, eki qolunen özüniñ kevdesini eki yaqqa quçaqladı, ne yapmaqnı ve ne aytmaqnı bilmey, muallimniñ ögünde dalğın alda, indemey turdı.
 
 – Otur!
-Otur, oğlum! – dedi oña muallim. – Menim böyle alda oluvım birinci defa degil.
+Otur, oğlum! – dedi oña muallim.
+ – Menim böyle alda oluvım birinci defa degil.
 Siz elemlenmeñiz!
 
 Üsein Şamil yerine oturdı.
@@ -364,13 +380,15 @@ Musulmanlar Rusiyede özlerini yat adam is etmegenleriniñ ve rus adamları il
 Eger biz, Rusiyedeki türk-tatarlarnıñ ruslaşuvı ve, bunıñle beraber, olarnıñ bu usul ile birleştirilüvini elde etüv mümkün degil degen fikirge keldik ise, olarnı fende ve tasilde musavat ve üriyet esasında ahlâqiy ceetten birleştirmek ve yaqınlaştırmaq kerekmiz.
 
 Musulmanlarnıñ rus medeniyetine yaqınlaşuvı, olarnıñ fikriy seviyesini ve bilgisini yükseltüp yolu ile yapıla bilinir, bu ise yalıñız tatar tiliniñ mektepte ve edebiyatta vatandaşlıq içtimaiy añ keregi derecede azır ve gazetanıñ özü vatandaşlıq uquqını endi elde etken.
+
+
+
 Menim vaziyetim ağır, öyle olsa da, gazetam, abunecilerniñ miqdarı ceetinden ep ilerilemekte ve al-azırda gazeta Rusiyeniñ er bir köşesinde bulunmaqta.
 
-– Qaç dane olar sizde? – dep soradı Sankt-Peterburgdan musafir olıp kelgen Aleksey
+– Qaç dane olar sizde? – dep soradı Sankt-Peterburgdan musafir olıp kelgen Aleksey Filippov.
 
-Filippov.
-
-– Endi üç yüzden ziyade! – dep cevap berdi naşir ve gazeta miqdarınıñ küçükliginden utanıp, azaçıq qızardı, soñra devam etti: – Menim alım ağır... yalıñız maddiy ceetten degil, gazetanıñ neşir oluv şaraiti itibarı ile de qıyın.
+– Endi üç yüzden ziyade! – dep cevap berdi naşir ve gazeta miqdarınıñ küçükliginden utanıp, azaçıq qızardı, soñra devam etti:
+ – Menim alım ağır... yalıñız maddiy ceetten degil, gazetanıñ neşir oluv şaraiti itibarı ile de qıyın.
 Rusiye musulmancılığı özüniñ şarqtaki ve künbatıdaki dindaşlarından çoq ceetten farqlı.
 Rusiye musulmancılığı ruslar vatanınıñ menfaatını bilmey, onı duymay, ruslar vatanınıñ qaari-qaseveti ve sevinçi aqqında tasavurı yoq, Rusiyeniñ umumdevlet faaliyeti, ğayreti oña añlaşılmay.
 Rus tilini bilmeyüvi onı rus fikirlerinden ve edebiyatından uzaqta tuta.
@@ -388,14 +406,15 @@ Oquyıcılarım arasında şimdi bile İsmail muallim bizni mısqıllay belleg
 Men özümde iç bir vaqıt öyle fikir olmağanını ve olmaycağını olarğa çeşit usullarnen isbat etmege mecbur olam.
 Maña inanalarmı, bilmeyim, er alda, özlerini maña inanğan kişiler etip köstereler.
 
-– Ebet! – dedi Filippov tüşünceli alda. – Bilgi seviyeleri böyle alçaq oquyıcılar içün gazeta neşir etmek ğayet küç olsa kerek.
+– Ebet! – dedi Filippov tüşünceli alda.
+ – Bilgi seviyeleri böyle alçaq oquyıcılar içün gazeta neşir etmek ğayet küç olsa kerek.
 
-– Musaadeñizle... – dedi Gasprinskiy. – Zan etsem, sizge gazetadaki çoq adiseler malüm degil.
+– Musaadeñizle... – dedi Gasprinskiy.
+ – Zan etsem, sizge gazetadaki çoq adiseler malüm degil.
 Men gazetamda maarifatnı memleketniñ, yani Rusiyeniñ umumiy menfaatları ile sıqiy bağlı surette qoymaq istegende, özümde iç bir türlü fena fikir yoqluğına din-qardaşlarımnı qandırmaq pek küç oldı.
 Bilesiñizmi ne yaptılar?
 Meni halqıma ve islâm dinine munafıqlıqta qabaatladılar.
 Men, Rusiye musulmanlarına – rus adamı ile añlaşmaq oldıqça qolay ekenini isbat ettim, rus adamı er kesni ve er şeyni barıştırıcı ve birleştirici, er şeyde üstün kelici sabırlılığı ile uquqına saipligini tanuv yolu ile ola bile.
-
 Menim beş seneden beri neşir etmekte oldığım “Terciman”nıñ doğuvı köstere ki, onıñ içün ulu ekenligini isbat ettim.
 Menim közlerime, ruslarğa qarardan ziyade göñül beresiñ degen qabaatnı türttiler, öz milletiñe qıyanetlik yapasıñ, dediler.
 O vaqıtta men ıncındım.
@@ -415,6 +434,8 @@ Özüm içün netice yaptım.
 – Öyle.
 Menim dindaşlarımnıñ rus vatandaşlarımızğa sıqiy alda yaqınlaşuvı zarur ekenligine qaniy olup gazeta çıqara başladım.
 Men bu zaruretni öz gazetamda etraflıca teşviqat etem ve eminim ki, bu ğaye menim qabile qardaşlarımnın añında vira keniş yer işğal etmekte.
+
+
 Ama “İsmail Mustafa oğlunın, soyadı, yani familiyası – Gaspralı edi.
 Adiy tatar familiyası.
 Böyle familiyalı şahsqa yüksek içtimaiy tabaqa adamları ile yaqın munasebette bulunmaq mümkün degil, — dep yaza Asan Kara. — İsmail muallimge basmahaneni işletmek içün aqça... çoq aqça kerek.
@@ -427,6 +448,7 @@ Olarğa ticaret, qazanç kerek edi.
 Bu ne?
 
 İsmail Gasprinskiy öz ayatındaki esapsız meşaqqatlarğa çıdap, gazetanı otuz eki yıl neşir etti.
+
 O, memleketniñ parlaq kelecegini – rus halqı ile yaqın munasebette kördi.
 
 “Rusiyede eñ çoq miqdarlı ve eñ belli-başlı halq – ruslardır, olar diger çeşit qabileler ile birlikte muabbet ve dostane yaşavda pek siyrek sezilgen bahtlı tabiatqa malikler.
