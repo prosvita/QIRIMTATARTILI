@@ -30,7 +30,8 @@ İsmail efendi, genç müellifniñ şiirlerini yuquvğa yürekten tutung�
 
 – Mektepte balalarğa ne oqutasıñız?– dep soradı alçaq ses ile,
 
-– Musulman dini... – dep cevap berdi Üsein oca. – Apteyik keçemiz.
+– Musulman dini... – dep cevap berdi Üsein oca.
+– Apteyik keçemiz.
 Andan soñ... ana tili de!
 
 – Tek şumı?
@@ -39,7 +40,8 @@ Toqtarğazı soñki sualge birden cevap bermege cesaret etalmadı, toqtaldı, 
 
 – Kimerde... iş ocanıñ özünden de bağlı ola, – diye ilâve etti.
 
-– Ocanıñ özünden?– musafirniñ davuşında inamsızlıqqa beñzer aenk sezildi. – Nasıl manada?
+– Ocanıñ özünden?– musafirniñ davuşında inamsızlıqqa beñzer aenk sezildi.
+– Nasıl manada?
 
 – Bilesiñizmi..?
 – Üsein oca, mında, muallimniñ evinde özüni jandarmeriya qulaqlarından ve közlerinden uzaqta serbestçe is ete başlasa kerek ki, musafirge öz fikirini açıqça añlatmağa ıntıldı.
@@ -105,9 +107,12 @@ Tütünden burunına ğayet hoş qoqu urdı.
 – Bu nasıl tütün?– dep soradı Toqtarğazıdan. – Qaysı köyden?
 
 – Tatar Osmandan, – dep cevap berdi oca.
-O tütünni, qoqusından bildi. – Özenbaş bette öyle köy bar!
+O tütünni, qoqusından bildi.
+ – Özenbaş bette öyle köy bar!
 
-– Acayip qoqu. – Samoyloviç pek hoşlandı. – Tüsi efsaneviy.
+– Acayip qoqu.
+ – Samoyloviç pek hoşlandı.
+ – Tüsi efsaneviy.
 Altınrenk.
 
 Aleksandr Nikolayeviç sigar yasadı, yerinden qalqıp, pencere yanına bardı, sigarını yaqtı, azaçıq içine çekken soñ, tışqa, azbarğa közetti.
@@ -123,7 +128,8 @@ Digeri Çufut Qalede.
 Musafir, bu manzaranı seyir etip turğan vaqıtta, yorğun ve tınıq davuş eşitip, arqasına çevirildi.
 Naşir işaret parmağınıñ ucunı kâğıt üstüne basqanı alda, bunarlı közleri ile Toqtarğazınen qonuşmaqta edi.
 
-– “Kim kiyer altın tac, kimi bir pula muhtac...” – Gasprinskiy oña şiirden satırlar oqup köstermekte. – Bu ne demek, Üsein efendi?
+– “Kim kiyer altın tac, kimi bir pula muhtac...” – Gasprinskiy oña şiirden satırlar oqup köstermekte.
+ – Bu ne demek, Üsein efendi?
 Bağlı közlerle atılan taş!
 Öylemi?
 Muallim kene oqudı: – İş viren toq, işçi aç.
