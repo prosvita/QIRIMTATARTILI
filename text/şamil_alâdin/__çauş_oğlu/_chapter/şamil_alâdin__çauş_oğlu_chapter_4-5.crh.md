@@ -756,8 +756,8 @@ Onıñ özü adamnı davet ete: birevni tınç dülberlikke, digerni gürdeli ay
 – Demek, er alda, deñiz?..
 
 Gizlemek ne kerek, Çauş torunında öz oğlunı körmek istedi.
-Yazıq ki, bala babasını bilmey, onıñ sımasını yüreginde, qaldırmağan.
-Madamki ip üzülgen, Çauş onı bağlamağa tırışacaq.
+Yazıq ki, bala babasını bilmey, onıñ sımasını yüreginde qaldırmağan.
+Madamki yip üzülgen, Çauş onı bağlamağa tırışacaq.
 Tek oña keder etmesinler, balanı ondan almasınlar, balanıñ diqqatını boş şeylerge celp etmesinler.
 
 Lâkin celp ettiler.
@@ -795,8 +795,9 @@ Onıñ davuşı da pek qattı çıqmadı. – Tek musafir olsun, törümiz daima
 Adam, ne sebepten kelse kelsin, musafirperverlik borcu ev saibinden nezaket talap ete.
 O sebepten Çauş ve Seit Osman bir-birleriniñ ellerini yahşı etip sıqtı ve külümsirediler.
 Kerçek, bu pek sevinçli çere ile yapılmadı, çünki ekisiniñ de çerelerinde kerginlik ve ihtiyat açıqtan açıq sezilmekte edi.
-Çauşnıñ baqışında: “Sen, qart şeytan!
-Saña daa ne kerek oldı! – degen sual saqlı edi. – Sen başqasınıñ evine boştan boşqa kelmezsiñ... men bilem!” Er alda, ev saibi musafirniñ sağlığı-selâmetliginen, yaqın ve uzaq doğmuşlarınıñ evalınen meraqlandı.
+Çauşnıñ baqışında: “Sen, qart şeytan, saña daa ne kerek oldı! – degen sual saqlı edi.
+– Sen başqasınıñ evine boştan boşqa kelmezsiñ... men bilem!”.
+Er alda, ev saibi musafirniñ sağlığı-selâmetliginen, yaqın ve uzaq doğmuşlarınıñ evalınen meraqlandı.
 Seit Osman da öyle yapqan soñ ava aqqında laf açıldı.
 Seit Osman, soñki dört kün içinde araret ziyade köterilgeni sebebinden, işlemege taqatı yetişmegeninden şikâyetlendi.
 Soñ, Ura Tepa bette yer tayğanı aqqında laf oldı.
@@ -845,13 +846,15 @@ Lâkin Mustafa musafirniñ laqırdısına itibar bermedi.
 Bir talaydan soñ, stol üstünde asıl da yoq ötmek ufaqlarını cıyıştırğan oldı.
 Musafir, bunı sezip, teşebbüsni öz eline aldı.
 
-– Başıñızğa em sevinç, em keder tüşti... – dedi o, Çauşqa. – Sevinç, çünki torun peyda oldı, keder çünki oğluñız ebediyen ğayıp.
+– Başıñızğa em sevinç, em keder tüşti... – dedi o, Çauşqa.
+– Sevinç, çünki torun peyda oldı, keder çünki oğluñız ebediyen ğayıp.
 Ğayet mürekkep vaziyet, men añlayım...
 Er alda, keldim.
 
 Seit Osman bu sözlerni, elbette, qolay-qolay ayta qoymadı.
 
-– Şeriat qanunlarına közlerimni yumıp keldim... – dedi o, tekrar. – Bunı añlamaq kereksiñiz, Mustafa ağa!
+– Şeriat qanunlarına közlerimni yumıp keldim... – dedi o, tekrar.
+ – Bunı añlamaq kereksiñiz, Mustafa ağa!
 
 Bu inat adam ne istey?
 Keçmişteki vaqianı artıq unuttımı?
