@@ -6,6 +6,7 @@ on:
     - master
     paths:
     - text/**/*.md
+  pull_request:
 
 jobs:
   build:
@@ -44,7 +45,7 @@ jobs:
         for regFile in `ls target/corpora/registry/*_reg`; do
             regName=`basename ${regFile}`
             docker run -t --rm -w /corpora -v "$(pwd)/target/corpora:/corpora" \
-                eltedh/nosketch-engine:3.0.0 \
+                eltedh/nosketch-engine:4.0.0 \
                 compilecorp --no-ske --no-align ${regName}
         done
 
@@ -53,7 +54,7 @@ jobs:
         for regFile in `ls target/corpora/registry/*_reg`; do
             regName=`basename ${regFile}`
             docker run -t --rm -w /corpora -v "$(pwd)/target/corpora:/corpora" \
-                eltedh/nosketch-engine:3.0.0 \
+                eltedh/nosketch-engine:4.0.0 \
                 compilecorp --no-ske --recompile-align ${regName}
         done
 
