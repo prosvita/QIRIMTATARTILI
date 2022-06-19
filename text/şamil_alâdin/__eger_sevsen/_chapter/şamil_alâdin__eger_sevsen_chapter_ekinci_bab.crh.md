@@ -22,7 +22,7 @@ Kimerisi hızmette, kimerisi ise, ğaliba, çoqtan evge qaitıp kelgen.
 
 Bu Çar-Çaq qurucılığınıñ sotsialist şeerçigi.
 Sotsialist şeerçik degende, memleketimizde buña beñzer diger şeerçikler közümniñ ögüne keleler.
-Yalıñız menim körgenimni isaplasam, elliden ziyade.
+Yalıñız menim körgenimni esaplasam, elliden ziyade.
 Neftçilerniñ şeerçikleri kömürcilerniñ şeerçiklerine beñzeyler.
 Bularda evlerniñ azbarları, soqaqları ve prospektler asfaltnen örtüli.
 Er yer asfalt.
