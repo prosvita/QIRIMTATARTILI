@@ -410,7 +410,8 @@ Qıznıñ omuzları qaltıramaqta edi.
 Bir kün baqam, Nikolay yoq...
 Çar-Çaqqa ketken.
 
-— Men saña ayttım...— Nikolay tekrar qaytıp, öz koykası üstüne oturdı. — Ketecegim dedim.
+— Men saña ayttım...— Nikolay tekrar qaytıp, öz koykası üstüne oturdı.
+— Ketecegim dedim.
 
 — Seniñ yüregiñ taştan, Nikolay.
 Sen bayat insansıñ!
