@@ -170,14 +170,12 @@ Etrafını qaza berdik.
 Eki saatten ziyade qazdıq.
 Dört haneli truba... aylanma kanalnıñ divarı içinden çıqıp aşağı kete.
 Üstündeki lâpek taşnı ne lom, ne kirka — iç bir şeynen qıbırdatmaq mümkün olmadı.
-
 İrada, topraq yığını üstünde turğan ekskavatornıñ kovşı aşağı endirilmesini emir etti.
 Emir eter eken, niçündir, maña baqtı.
 Men, emir maña ait dep, töpege — ekskavatorğa tırmaştım.
 Almazov, İradanıñ ne demek istegenini añlağanca, men rıçag başına oturdım.
 Kovşnı muqaytlıqnen aşağı — adamlarnıñ ortasına tüşürdim.
 Kovş tüşeyatqanda İrada elleriniñ areketlerinen maña çeşit işaretler etip turdı.
-
 — Solğa-solğa!
 Bir parça daa!
 Toqta!
@@ -186,37 +184,22 @@ Yavaş!
 Biraz daa!
 Oldı!
 Oldı!
-
 Ey, İrada Sen ne qadar añlaşılmaz, ne qadar mürekkep qızsıñ!
-
 O kene elini köterdi: yuqarı!
 Tekaran solğa!
 Yeter!
 Endi al!.. çetke, taşnı çetke çek!
-
 Çetkemi?
 Baş üstüne!
 Men kovşnıñ tişlerini taşnıñ ucuna ketirdim, elimnen ekinci rıçagqa bastım, köndelen tros tartıldı... baqtım, taş yerinden köçti.
-Trosnı kene tarttım, taş sol tarafqa qıyıştı, astından truba deligi körüne başladı.
-"Çek!
-qorqma!" — İrada aşağıdan cesürane emirler bermekte... ustalığını köstermekte devam etti.
-Kimge?
-Mañamı?
-Tursunovqamı?
-Yoqsa taşnıñ etrafında ağızlarını açıp qalğan adamlarğamı?— "Çek!
-Taşnı tamamınen çekip, çetke çıqar".
-Men köndelen trosnı ziyade çektim.
-Balaban, ağır taş güdürdedi, trubanıñ üstünden tayıp, endekke tüşti.
-"Yetti!
-Tüş endi".
-
+Trosnı kene tarttım, taş sol tarafqa qıyıştı, astından truba deligi körüne başladı. 
+%
 Taş alınğan soñ kanalnıñ üstünde bir buçuq metr keñlikte teşik açıldı.
 İçinde suv uvuldamaqta.
 Menjevetskiy trubanıñ içine uzun tayaq tıqtı, suv onı üytep taşladı.
 Aqıntı küçlü.
 Menjevetskiy tayaqnı çıqarıp, sılaq yeriniñ uzunlığını baqtı.
-
-— Doqsan beş santimetr. 
+— Doqsan beş santimetr.
 Soñra tayaqnı tekrar suv içine tüşürdi. 
 Biz, onıñ emire binaen, on metr uzaqqa çekilip, ekinci çuqurnı qaza başladıq.
 Trubanı tez taptıq.
@@ -230,118 +213,84 @@ Bu yerde kanal Çar-Çaq betke çevirilmekte.
 Kene trubanıñ üstüni açtıq.
 Raşid töpeden sarqqan kovşnı üytep, taşnıñ ucuna doğrulttı, kovş trubanıñ qapağına urunıp, kenarını sındırdı, soñ taşnı çetke çekip aldı.
 Taşqa tayanıp turğan Raşid abındı, elindeki feneri trubanıñ içine tüşip ketti, onıñ peşinden özü ğaip oldı.
-
-İrada deşetli sesnen qıçırdı.
-
-— Cevdet!
-Tez!
-Tez!
-
+%
 Men ekinci çuqurğa çaptım.
 Onıñ yanında yatqan sırıqnı alıp, trubanıñ üstüne köndelen qoydım, eki elimnen sırıqnı tutıp, ayaqlarımnı aşağı, trubanıñ içine sarqıttım.
 Suvnıñ aqıntısı ayaqlarımnı çetke üytep yiberdi.
 Belime insan teni toqundı...
 Raşid.
 O, can alâmetinen ayaqlarıma yapışıp, yuqarı tırmaştı.
-
 Men kimniñdir sesini işittim, amma ne degenlerini añlamadım.
 Raşid kene süründi, tekrar suz içine yıqıldı.
 Aqıntı onı çekkelep alıp ketti.
-
-Basit!— Bassaraba öz yardımcısını ögge üytedi,— çap!
+Basit! — Bassaraba öz yardımcısını ögge üytedi, — çap!
 Çap!
-
 Bir qaç saniye keçer-keçmez Raşid üçünci teşikniñ tübünde peyda oldı, Basitniñ ayaqlarına ilişip, toqtaldı.
 O endi kanalnıñ içinde, ayaq üstünde turmaqta edi.
-
-— Altı adam...
-Tez!
-Altı adam...— dep qıçırdı Menjevetskiy,— maña yaqın keliñiz!— Kimdir, elini Raşidke uzattı, töpege çekip çıqardı.
+— Altı adam... Tez!
+Altı adam... — dep qıçırdı Menjevetskiy, — maña yaqın keliñiz! — Kimdir, elini Raşidke uzattı, töpege çekip çıqardı.
 O, çıqqan soñ, balıq kibi, şap etip yerge tüşti.
 Aynı şu el Raşidni köterip, çetke üytep taşladı.
-
 Kim?
 Bu cesürlikni yapqan kim?
 Bassaraba... ekenligini sezgen soñ er kes taaciplendi.
 
 — Tez!
 Tez!..
-"Mavı qayağa" ketiñiz!— dedi Sigizmund Genrihoviç.
+"Mavı qayağa" ketiñiz! — dedi Sigizmund Genrihoviç.
 Mında er iş onıñ emirinen oldı.
-
 İşte, böyle... kanalnı açtıq, suvunı kördik.
 Daa ne yapacaqmız?
 Bizim ekskavatornıñ işi toqtatıldı.
 Maşinamıznı beş metr kenarğa çekip taşladıq.
-
 Yerastı kanalınıñ tarihını söylep bitirmek kerekim.
 Asaratiqacılar Menjevetskiyniñ fikirini tasdiq ettiler.
 Bu — qadim kanal.
 Teessüf ki, onı betonnen qapatmaq kerek oldı.
 Meraqlı şey, aylanma kanalnıñ çetindeki bu kanalnıñ ustünde açılğan teşiklerden birisini tıqatqan soñ, bizim Sotsialist Şeerçikten üç kilometr uzaqta, dağ içinde yeñi çoqraq peyda oldı.
-
 Çar-Çaq şeerine yoluñız tüşse, suvundan içip baqıñız.
 Bu — çoqraq suvu.
 Yerniñ terenliginden çıqqan, salqın, lezetli suv, qısmen bu qadim kanal boyu kelip, magistral yolğa qoşulğan suv.
-
 Evge kelgen soñ, bugünki işimiz hususında fikirleştik.
 Arhipka bizge qaşana berdi:
-
-— Keşfçiler… geologlar!— dep mısqılladı,— men de bir çomıp çıqqan olsam... suvu şifalı, deyler.
-
-— Temaşa körmek isteysiñmi?— dep soradı Nikolay menden,— şimdi bu şakalnıñ...
-
-— Şakalnıñ?— Arhipka onıñ aytqanını işitti, añlap olamadı,— nasıl şakalnıñ?
-
+— Keşfçiler… geologlar! — dep mısqılladı, — men de bir çomıp çıqqan olsam... suvu şifalı, deyler.
+— Temaşa körmek isteysiñmi? — dep soradı Nikolay menden, — şimdi bu şakalnıñ...
+— Şakalnıñ? — Arhipka onıñ aytqanını işitti, añlap olamadı, — nasıl şakalnıñ?
 Kandıba közüni qıptı.
-
-— Senden sorayım...— Arhipkanıñ yüregi deşetli şey sezdi,— ne yapmaq isteysiñ?
-
-— Sabır et!— dedi oña Nikolay, soñ bizge muracaat etti: — maña baqıñız!
+— Senden sorayım... — Arhipkanıñ yüregi deşetli şey sezdi,— ne yapmaq isteysiñ?
+— Sabır et! — dedi oña Nikolay, soñ bizge muracaat etti: — maña baqıñız!
 Hristofor yer patlavından yaralanmadı.
 Yer patlavı vaqıtında Arhipka...
-
 — Kim?
-
 — Sen!
-
 — Men?
-
 — Sen.
 Sen onı öldürmek içün urdıñ, amma öldüralmadıñ!
-
 — Menmi?
-
 — Sen!
 Sen!
 Men bugün bu adamlarnı seniñ belâñdan qurtaracağım.
-
-— Menim belâmdan?— Arhipka koykanıñ ucundan sıçrap, ortadaki stol üstüne çıqtı, ondan polğa tüşti, soñ qapu yanındaki kürsüni ilindirip alıp, töpege köterdi, şay qatıp qaldı.
+— Menim belâmdan?
+— Arhipka koykanıñ ucundan sıçrap, ortadaki stol üstüne çıqtı, ondan polğa tüşti, soñ qapu yanındaki kürsüni ilindirip alıp, töpege köterdi, şay qatıp qaldı.
 Kandıba aqırın adımlarnen oña taba torüş etti, elinden kürsüni çekip aldı, balaban, küçlü qolunen Arhipkanıñ köküsinden üytedi, Arhipka divarğa barıp urundı, pol üstüne yıqıldı.
-
 O bu davuşsız areketlerden qorqtı.
 Özüni qorçalaycaq adam olmağanını bilip, aqırından yerinden turdı, barıp koykası üstüne yattı.
-
 — Alçaq insan...
-Hristofornı öldürmek istedi,— Nikolay devam etti,— vaşiylik keçer-keter belledi.
+Hristofornı öldürmek istedi, — Nikolay devam etti, — vaşiylik keçer-keter belledi.
 Niçün öldürmek istedi, bilesiñizmi?
 Çünki Hristofor onıñ bütün sırlarını...
-
 — Yalan aytasıñ!
 Men Hristoforğa toqunmadım.
-
 — Sen sus!
-Men makeme degilim.
+- Men makeme degilim.
 Onı makemede añlatırsıñ!
 Tur!
-
 Biz bir şey aytmadıq.
 Raşid bir şeyler söylemek içün ağızını açtı, Nikolay onı toqtattı.
-
 — Otur!
 Sen qarışma!
 Men bu parazitni öldürmek istegen edim.
-Öldürgen olsam, qarışa bi-lir ediñ. — Açuvından komgok kesilgen alda Arhipkağa çevirildi,— öldürmeycegim!
+Öldürgen olsam, qarışa bilir ediñ. — Açuvından komgok kesilgen alda Arhipkağa çevirildi,— öldürmeycegim!
 
 — Ne yapmaq isteysiñ?— dep ökürdi Arhipka. — Meni qayda davet etesiñ?
 
