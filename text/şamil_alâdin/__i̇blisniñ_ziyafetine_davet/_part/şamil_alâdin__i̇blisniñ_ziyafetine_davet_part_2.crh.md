@@ -55,14 +55,15 @@ Köşede beyaz yaqalı qırcıman kişiler domino oynaylar.
 Qaysı yeñe, qaysı yeñile, kenarda turıp bilmek küç, ama ardını kesmey, şaqıldap küle berüvleri ziyaretçilerni taaciplendire.
 Şaqıldı çıqqan sayın kişiler, qaşlarını yüksekke köterip, yelkelerini burıp, köşege baqalar.
 Külgenler – bazirgân oğulçıqları, keyfliler.
-Yüksek dolap üstündeki grammofonda AşırUsta “Ne eylediñ, ne eylediñ sen baña?” degen efkârlı türküni söylemekte.
+Yüksek dolap üstündeki grammofonda Aşır Usta “Ne eylediñ, ne eylediñ sen baña?” degen efkârlı türküni söylemekte.
 
 Adamlarnıñ başları üzerinde sigar tütüni, insan teri ve azaçıq da qave qoqusı qarışıq, renksiz duman asılıp turmaqta.
 
 Bizim musafirler divar dolabı yanında yer tapıp, oturdılar.
 Oturğanları kibi, öglerinde qırmızı fesli, aqçıl betli garson peyda oldı.
 
-– Efendi azretlerine ne lâzim? – o sağ elini köküsi üzerine qoyıp, belinecek egildi. – Yemekmi?
+– Efendi azretlerine ne lâzim? – o sağ elini köküsi üzerine qoyıp, belinecek egildi. 
+– Yemekmi?
 Qavemi?
 
 – Eki qave, – dedi Üsein.
