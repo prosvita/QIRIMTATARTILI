@@ -1,5 +1,4 @@
 ## On sekizinci bab — Yur! Kettik!
-
 Barakta altı adammız.
 Hristofor yoq Karim yoq.
 Raşid kitap oquy.
@@ -7,29 +6,25 @@ Raşid kitap oquy.
 Eki-üç söz oquy, toqtay.
 Bir şeyler tüşüne, soñ kene oquy.
 Yavaş oqusa añlamay eken.
-Kandıba onıñ oquğanını diñlep oturdı, soñ ökelendi: — Pek yavaş oquysıñ — dedi oña.
+Kandıba onıñ oquğanını diñlep oturdı, soñ ökelendi:
+— Pek yavaş oquysıñ, — dedi oña.
 Lâkin kitaptaki kimer sözler onıñ yüregini tırmalağan kibi oldı.
 Gitarasını aldı, muzıkağa beñzegen bir şeyler uydurmaq istedi, çıqmadı... gitaranı bıraqtı.
-
 ...Bir çerik asır evelsi menimnen ömür keçirgen bu kişilerni şimdi hatirime ketirgende eecanlanam.
 O kişiler, tasil ve terbiye ceetinden pek küçlü olmasalar da, namuslı, vicdanlı ediler.
 Bir kün dülgerler baragından adam kelip, Şpitsbergenge ketüv laqırdısını çıqardı.
 Anda kömür ocaqlarına adam kerek eken.
 İstegen kişige ketmek mümkün.
 Aylığı üç qat ziyade... urba, aş — episi ayrı isaplana, maaşqa kirmey.
-
 Epimiz alevlenip kettik.
 Şpitsbergen?
 Suvuq qayalar, qırlar?
 Buzlu okean?
 Bir şey demek degil!
 Amma ne qadar sergüzeşt körecekmiz.
-
-— Ketesiñmi?— dep soradım İradadan.
-O, keteceklerniñ vesiqalarını papkalarğa qoyıp, üstlerine familiyalarını yazıp azırlamaqta edi,— Şpitsbergenge ketesiñmi?
-
-— Ya siz?— kederli közlerini maña doğrulttı,— özüñiz ketesiñizmi, Cevdet?
-
+— Ketesiñmi? — dep soradım İradadan.
+O, keteceklerniñ vesiqalarını papkalarğa qoyıp, üstlerine familiyalarını yazıp azırlamaqta edi, — Şpitsbergenge ketesiñmi?
+— Ya siz? — kederli közlerini maña doğrulttı, — özüñiz ketesiñizmi, Cevdet?
 — Men..?
 Siz, İrada, maña darılasıñız.
 Amma, men qabaatlı degilim.
@@ -39,28 +34,21 @@ Para qazanmaq içün degil, sizge körünmemek, sizni asabilendirmemek içün...
 Uzaq memlekette yaşap, siziñ asretligiñizni çekmek içün keterim.
 Men bilem...
 Siz, Yekaterina Vasilyevnanı manaçıq etip, menden yüz çevirdiñiz.
-
-— Cev-det!— o keskin ve kiyik sesnen qıçırdı,— siz ne yapmaq isteysiñiz?
+— Cevdet! — o keskin ve kiyik sesnen qıçırdı, — siz ne yapmaq isteysiñiz?
 Meni körme-mek, unutmaq içün ketmek isteysiñizmi?
 Menden ne fenalıq kördiñiz?
-
 — Ne fenalıq?
 Daa nasıl fenalıq körecek edim.
 Tursunov yoq vaqıtta menimnen eglendiñiz.
 Tursunov kelgen soñ, siziñ içün yabaniy kişi oldım.
-
 — Siz?
 Siz menim içün yabaniy kişi?
 Kim ayttı?
-
 — Er şey aytılmay.
 Bazı şeyler biline.
-
 — Men siziñnen ciddiy laqırdı etmek isteyim, Cevdet!
-
 — Ne hususta?
 Daa ne tüşünip taptıñız?
-
 İradanıñ yanında çoq turalmadım.
 Çünki qalbim kedernen tolğan edi.
 Kettim.
@@ -68,30 +56,24 @@ Qaç künler keçken soñ iş deñişti...
 Anna Yakovlevna komsomol Merkeziy Komitetinen laqırdı etip, Şpitsbergenge ketüvni toqtattı.
 Men İradanı sınamaq içün: ketem...
 Moskvağa mektüp yazıp, Şpitsbergenge ketem... dedim.
-
 İrada ağladı.
-
-— O yabaniy memlekette ne bar?— dedi şınşıqlap,— qalıñız, Cevdet!
+— O yabaniy memlekette ne bar? — dedi şınşıqlap, — qalıñız, Cevdet!
 Çar-Çaqnıñ nesi fena?
-
 Şimdi bu satırlarnı yazayatqanda Nikolaynıñ adetlerini ayrıca hoşnutlıqnen hatırlayım.
 O kitaplarnen pek meraqlana, lâkin özü oqumağa sevmey edi.
 Alışmağan...
-Raşid yavaş oqusa da, er alde, boş vaqıtını kitapnen keçirmege seve... kitaplarğa inana, kitaplarda yazılğan vaqialarnıñ episiniñ aqiqat ekenini bile edi.
-
+Raşid yavaş oqusa da, er alde, boş vaqıtını kitapnen keçirmege seve...
+Kitaplarğa inana, kitaplarda yazılğan vaqialarnıñ episiniñ aqiqat ekenini bile edi.
 ...Tünevin aqşam bizim Seyyarege özüniñ aqranları musafirlikke keldiler.
 Olar Pikassonı modernizmge ziyade qapılğanı hususında davalaştılar.
 Birisi Lui Aragonnıñ "Kurba"sını oquğan.
 İmpressionizm, dedi.
 Mone, Dega, Pisaronnıñ levhaları aqqında perişan laqırdı ettiler.
-
 Seyyare olarğa "Noktürnnı" çaldı.
 Royal başından turğan soñ, musafirler Gilelsni ve Van Klaybernni maqtadılar.
-
 Bizim balalarımız, studentlerimiz böyle aqıllı, körgü daireleri böyle keniş adamlar.
 Kerçek, biz özümiz de evelkisi kibi degilmiz.
 Ayat da başqa: mürekkep, ciddiy.
-
 Men institutnıñ aqşam işlegen bölüginde oquy, kommunal evde yaşay edim.
 Odamız yufqa divar — karkasnen bölüngen.
 Kündüzleri boş olmaq içün, yılda bir qaç ay gece smenasında çalışam.
@@ -100,11 +82,8 @@ Bazan ev içinde saatlernen dolanıp, quçağımdaki balanı sallay, ağlavını
 Çünki anda, divar artında, başqası da ders azırlamaqta.
 İrada saat dörtte işten kele, men altıda institutqa ketem.
 Gece elektrik stantsiyasına yuvuram... anda montör hızmetindem.
-
 O seneleri eñ çoq telmirgen şeyim — yuquğa toymaq edi.
-
 Biñ doquz yüz qırq bir senesiniñ yazında diplomnı qorçaladım ve ilki istraat künüm iyunniñ yigirmi ekinci künü oldı.
-
 Öz-özüme deyim: ömürimde çoq küçlükler kördim, episini yeñe bildim.
 Şimdi, gençlikni emekte terbiyelemek kerek, deyler.
 Bu — güzel.
@@ -121,35 +100,27 @@ Kerçekten de, bu matüv bir qıznıñ mektübi.
 Lâkin yazğan meselesi yaşlıqnıñ belli bir qısımı içün tipik şey.
 "Qıymetli redaktsiya!
 Men bir studentka olıp, adiy işçini sevem, bu doğru olurmı..."
-
 Şimdi, baraktaki eski dostlarımnı hatırlap, taaciplenem: cısmiy ve ruhiy ceetten ne qadar sağlam ekenmiz!
-
 Barakta altı adam qaldıq, dedim.
 Nikolay kitapnıñ çabik oqulğanını istedi, çünki kitap meraqlı keldi.
 Gitarasını koyka üstüne attı, Raşidni diñledi.
-
 Bassaraba, adeti üzre, eski maşina detallerini tamirnen meşğul.
 Evge er kün demir parçaları ketire, ocaq yanında, polda daima qatran tamğaları ola.
 Bassaraba endi er şeyni bu yerde yapa.
 Köşede teneke savutlar içinde qatran ve kerosin tuta.
 Onıñ fikirine köre, mehanikadan eñ müimi — detalniñ temiz oluvı.
 Oña bir kişi yardım etecek olsa:
-
 — Toqta,— dey,— evelâ bulaşıq yerini yuvayıq, soñ belli olur.
-
 Bassaraba qarardan ziyade yüksek boylu, aqçil ve tar betli, arıq adam.
 Burunı, uzunlığından başqa, üzülip tüşken kibi, birden bitip kete.
 Güya bundan evel süyrü eken de, soñundan bıçılıp alınğan.
 Hristofor bir kere bunı oña söyledi.
 Arhipka teren manalı şey aytqan olıp:
-
-— Yoq,— dedi oña,— bu tabiatnıñ şaqası. 
+— Yoq, — dedi oña, — bu tabiatnıñ şaqası.
 Bassaraba indemedi.
 Amma soñundan, söz başqa şey hususında ketkende, küldi.
-
 — Bıçılğanı da ne?
 Anam nasıl doğurğan olsa, öyle tura,— dedi.
-
 Onıñ bütün eglencesi — detaller...
 Daima bir şeyni tamirnen meşğul.
 Lâkin bu adet — bir hucurlıq degil, mehanikağa sevgi.
