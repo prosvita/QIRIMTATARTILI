@@ -18,7 +18,8 @@ Aydavcı, qaşqa cüyrenniñ ağızlığını almaq içün tamaqsasını 
 
 – Bilem men... – dedi Ümer.
 Özüne ali bala dep baqılğanına, ğaliba, tekaran ıncındı.
-İndemey hamutlarnı ve cügenlerni çıqardı, nohtalarnı keçirdi, niayet, ilâve etti. – Atlarnıñ qasevetini çekmeñiz, Üsein emce!
+İndemey hamutlarnı ve cügenlerni çıqardı, nohtalarnı keçirdi, niayet, ilâve etti. 
+– Atlarnıñ qasevetini çekmeñiz, Üsein emce!
 Özüñizniñ işiñizni baqınız!
 
 – Geceni mögedek astında keçireceksiñ.
