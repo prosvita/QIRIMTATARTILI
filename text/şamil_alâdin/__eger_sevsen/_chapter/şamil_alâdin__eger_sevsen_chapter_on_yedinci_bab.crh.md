@@ -2,7 +2,7 @@
 Barakta meni Nikolay bekley edi.
 Koykasınıñ çetine oturğan, aqırından gitara çalmaqta.
 Kirgenim kibi, gitaranı bıraqtı, ayaqqa turıp, mıhtan fufaykasını aldı.
-— Hristoforğa keteyik,— dedi o.
+— Hristoforğa keteyik, — dedi o.
 — Tekâran tüzelgen olsa, laqırdı etip baqmaq kerek.
 Yoqsa, Arhipka qaçıp kete bile.
 — Keteyik... deseñ, keteyik!
@@ -12,45 +12,45 @@ Onıñnen beraber eki adam daa bar edi: biri — şişikçe yüzlü, esli kişi,
 Hristofor yuquda.
 Ödeyalınıñ ucu polğa sarqqan, omuzı gips içinde.
 Palatanıñ bosağası üstünde toqtaldıq.
-— Yuqlağanı çoqtanmı?— dep soradıq, dostımızğa işaret etip.
-— Beş daqiqa...— dedi yaş kişi.
+— Yuqlağanı çoqtanmı? — dep soradıq, dostımızğa işaret etip.
+— Beş daqiqa... — dedi yaş kişi.
 — Pek az yuqlay.
 Palatağa kirdik.
 Yekâne pencere tereklik azbarğa çıqmaqta.
-— Biz dava etemiz...— dedi sepkilli bet kişi, qomşusı içün.
-Qomşusı astmanen hasta olmalı, ağır nefes almaqta edi,— yollar hususında.
+— Biz dava etemiz... — dedi sepkilli bet kişi, qomşusı içün.
+Qomşusı astmanen hasta olmalı, ağır nefes almaqta edi, — yollar hususında.
 O, yollarnı betonlı negiz üstünde yasamaq kerek, dey.
 Men ise böyle qurucılıq yıllarında ziynetli şeyler talap etmek olmaz, sade topraq yolnen de kifayetlenmek mümkün, deyim.
 Qatranlı şosse olsa, başqa şey kerekmey.
 O da yol işleri ustası, men de.
 O, betonlı yol yasay, men — qatranlı.
-— Öyle olğanda, em qatranlı, em de betonlı yollar qurmaq kerek,— dedi Nikolay.
-— Onı bilemiz,— sepkilli kişi itiraz etti,— bizni iqtisadiy tarafı meraqlandıra.
-— Sizde ekskavatorlar... nasıl?— dep soradı bizden qomşusı,— Hristofornıñ söylegenine kore...
+— Öyle olğanda, em qatranlı, em de betonlı yollar qurmaq kerek, — dedi Nikolay.
+— Onı bilemiz, — sepkilli kişi itiraz etti, — bizni iqtisadiy tarafı meraqlandıra.
+— Sizde ekskavatorlar... nasıl? — dep soradı bizden qomşusı, — Hristofornıñ söylegenine kore...
 Oña laqırdı etmek qıyın edi.
 Elinen tamağını tutıp, öksüre berdi.
 Kişi zametlenmesin dep, men aylanma kanaldaki işlerni ve Orconikidzenen olğan laqırdını ikâye ettim.
-— Dostıñız pek güzel kişi,— dedi sepkilli bet adam, soñ ayaqqa turıp, qomşusına: — yur, çıqıp, biraz dumanlatayıq!— dedi.
+— Dostıñız pek güzel kişi, — dedi sepkilli bet adam, soñ ayaqqa turıp, qomşusına: — yur, çıqıp, biraz dumanlatayıq! — dedi.
 Astmalı kişi köridorğa çıqqan soñ qapunı tars etip qapattı, Hristofor abdırap közlerini açtı, hayli vaqıt tavanğa köz etip yattı.
 Soñ oda içinde başqa kişi barlığını is eterek, başını qıbırdattı, bizni körgeni kibi, sevinçten çeresi şeñlenip ketti.
 — E!
 Keldiñizmi?
 Ne güzel oldı... 
 Men Hristoforğa bilgen yañılıqlarımnı ikâye ettim.
-— Elpideden mektüp aldım,— dedi o,— yaşayışnı güzel eken.
+— Elpideden mektüp aldım, — dedi o, — yaşayışnı güzel eken.
 Hastahanede ekenimni yazğan edim.
 Mında kelmek... men tüzelgenge qadar yanımda oturmaq istey.
 Oña, elbette, başıma kelgen qazanı yazıp oturmadım.
 Suvuqlandım... başqa şey yoq.
 — Hristofor!
-Afu et!— dedi Nikolay,— seniñnen başqa bir şey hususında laqırdı etip almaq isteyim.
+Afu et! — dedi Nikolay, — seniñnen başqa bir şey hususında laqırdı etip almaq isteyim.
 — Rica etem!
 Nasıl... başqa şey?
 — Sen, kerçekten de, yer patlavı neticesinde yaralandıñmı?
 — Bu nege kerek oldı?
 — Şay, özüm...
 Çoqtan soramaq isteyim, biraz tüzelgeniñni beklemege mecbur oldım.
-— Ebet,— dedi Hristofor ve biraz tüşünip aldı,— yer patlavı vaqıtında yaralandım.
+— Ebet, — dedi Hristofor ve biraz tüşünip aldı, — yer patlavı vaqıtında yaralandım.
 — ...Vaqıtında ekenini bilem... neticesindemi?
 Sualge doğru cevap ber!
 Neden yaralandıñ?
@@ -74,36 +74,36 @@ O maña söz qatıp baqtı, men indemedim.
 Soñ ökelendi, meni kirkanen uracaq oldı.
 Lâkin bunıñ işke munasebeti yoq.
 Yiplerni yaqa başlağanda, men kögertege çıqıp, Bassarabanıñ kişilerine: Qaçıñız!
-Saqlanıñız!— dep qıçırdım.
+Saqlanıñız! — dep qıçırdım.
 Soñ içeri kirdim.
 Qaya parçaları mında kelip yetalmaz... yetse bile, ekskavatornıñ tışı tene-kenen örtüli, tenekeniñ astı qalın ağaç, onı teşalmaz belledim.
 — Arhipka... bu vaqıtta qayda edi?
-— Arhipka?— Hristofor oña taacipli baqtı,— Arhipka da menimnen edi.
+— Arhipka? — Hristofor oña taacipli baqtı, — Arhipka da menimnen edi.
 Hristofor belini köterip, arqasını yastıqqa tayadı, evelâ maña, soñra Nikolaynıñ yüzüne köz etti.
 — Ne?
-Meni Arhipka öldürmek...— sesi qaltıradı üzüldi.
+Meni Arhipka öldürmek... — sesi qaltıradı üzüldi.
 — Olmaycaq şey.
 Hristofornıñ dalğalı saçlarına, ağarğan ve azğan çeresine köz ettim.
 Batumdaki gürdeli ömüri hatirime keldi...
-Mında qaç kün daa yatacaqsıñ?— dep soradı ondan Nikolay,— ekimler ne deyler?
-— Daa çoq...— dedi Hristofor tüşünceli alda.
+Mında qaç kün daa yatacaqsıñ? — dep soradı ondan Nikolay, — ekimler ne deyler?
+— Daa çoq... — dedi Hristofor tüşünceli alda.
 — Üç afta daa yatmaq kerek.
 Gips alınğanı yoq.
-— Üç afta...— Nikolay terenden köküs keçirdi.
-— Sen çıqqance biz aylanma kanalnı bitirecekmiz,— dedim men.
+— Üç afta... — Nikolay terenden köküs keçirdi.
+— Sen çıqqance biz aylanma kanalnı bitirecekmiz, — dedim men.
 — Belki kotlovannı da qazıp başlarmız.
-— Ebet,— dedi Nikolay,— Hristofor kelgende biz çuqur içinde olacaqmız.
+— Ebet, — dedi Nikolay, — Hristofor kelgende biz çuqur içinde olacaqmız.
 — Bilmeyim, çalışmaq mümkün olurmı?
 — Sen oña yazdıñmı?
 Kelip-ket, dep yazdıñmı? — dep soradım Hristofordan. 
 O dudaqlarınıñ kenarından zornen külümsiredi. 
 — Raatsız olma, Elpide kele qoymaz!
 — Men onı körmek isteyim.
-- Sende vicdan barmı?— dedi maña Nikolay, darğın alda,— eçki can derdinde, qasapçı mal...
+- Sende vicdan barmı? — dedi maña Nikolay, darğın alda, — eçki can derdinde, qasapçı mal...
 Hristofor közlerini tavanğa tikledi, işitilir-işitilmez davuşnen dedi:
 — Baq sen... bir barakta yaşa, bir çanaqtan aşa da, kişi seniñ ayatıña hast olsun!
 Nikolay tizleri üstündeki küçük boğçanı açtı, yüzüm, nar, alma ve eki pite alıp, tumboçka üstüne qoydı.
-— Bularnı tapqanca üç bazarnı dolanıp çıqtıq,— dedi o,— senden tek bir şey talap etile... tez tüzelip çıq!
+— Bularnı tapqanca üç bazarnı dolanıp çıqtıq, — dedi o, — senden tek bir şey talap etile... tez tüzelip çıq!
 Keç olğan edi.
 Biz turdıq.
 Özen boyunda küçlü yel esmekte.
@@ -112,7 +112,7 @@ Kelgen-keçken maşina körünmey.
 Cayav ketmege mecbur oldıq.
 Yol boyunda ekimiz yan-yanaşa adımlar ekenmiz, Nikolayğa köz ettim.
 O ğayet kederli edi.
-— Şübelenmey bilesiñ,— dedi o maña,— men er şeyni añladım.
+— Şübelenmey bilesiñ, — dedi o maña, — men er şeyni añladım.
 Hristofor yaralanğan ve hastahanege yollanılğan soñ, aqılıñda olsa, men kompressor bölügine kirip baqtım.
 Yıqılğan yerinde, pol üstünde qan tamçılar bar edi.
 O vaqıtta diqqat ettim: taş güya qapudan kirgen.
@@ -131,7 +131,7 @@ Patlav, soñ gurulti.
 — Yoq.
 Bunı tek bir türlü añlamaq mümkün.
 Madamki Hristofor gurultini işitken, demek, yer patlavından yaralanmağan, çünki yer patlavı işitilgen maalde taş-topraq kesekleri endi tüşecek yerlerine tüşken olalar.
-— Öyle tezmi?— dep soradım men.
+— Öyle tezmi? — dep soradım men.
 — Ya ne?
 O qadar küç!
 Amma ekskavator yüksek topraq sarpanınıñ artında tura edi, onıñ üstüne taş tüşe bile edimi?
@@ -142,10 +142,10 @@ Olar ekskavatornıñ tek damı üstüne tüşe bile ediler.
 Bu taş, niçündir, qapudan kirgen?!
 Hristofor patlavnıñ gurultisini işitken olsa, demek, patlavdan soñ yaralanğan.
 Arhipka episini nazar itibarğa alğan.
-Lâkin bir şeyge aqılı yetmegen,— Hristofor sağ qala bilecegini tüşünmegen.
+Lâkin bir şeyge aqılı yetmegen, — Hristofor sağ qala bilecegini tüşünmegen.
 O Hristofornı ekinci taşnen urıp öldüre bile edi, añlaşıla, raqı keder etken.
 Bu bir.
-— Bunı isbat etmek qolay degil,— dedim Nikolayğa.
+— Bunı isbat etmek qolay degil, — dedim Nikolayğa.
 — Qolaymı-qıyınmı, er alda, bu bir.
 Ekincisi, şu!
 Bugün nijniklerden bir yigit menim yanıma keldi.
@@ -159,7 +159,7 @@ Rahilniñ etegi" dedi.
 Üstünde yolaqlı kölmek, qısqa ton ve qara furajka...
 Elbette, Muşuq.
 Qaya patlamazdan evelmi?
-Soñmı!?— dep soradım.
+Soñmı!? — dep soradım.
 Patlamazdan evel, dedi.
 Bizde patlavlar, elbette, çoq olalar.
 O yahşı bilmey...
@@ -167,22 +167,20 @@ O yahşı bilmey...
 Nikolay yolnıñ ortasında toqtaldı.
 Maña çevirilip, közlerimniñ içine baqıp turdı.
 
-— Muşuq, Arhipka... bu kişilernen esaplaşmaq kerek,— dedi o, yavaştan,— sen kimsege indeme!
+— Muşuq, Arhipka... bu kişilernen esaplaşmaq kerek, — dedi o, yavaştan,— sen kimsege indeme!
 Men özüm baqarım.
 
 — Saqın...
-Nikolay!— dedim men oña,— kerekmey!
+Nikolay! — dedim men oña, — kerekmey!
 
-— Niçün?— dep cekirdi o, tınç qaranlıq içinde,— Arhipka menim dostımnı öldürmek istedi... tesadüfen sağ qaldı.
+— Niçün? — dep cekirdi o, tınç qaranlıq içinde, — Arhipka menim dostımnı öldürmek istedi... tesadüfen sağ qaldı.
 Sağ qalacaqmı?
 Belli degil.
 Men Arhipkanıñ nişaretli taqletine baqıp, susıp yürecegimmi?
 — Susmaq kerekmey.
 Makeme etmek kerek.
-
 — Makeme?
 Men de öyle tüşünem.
-
 Nikolay menim aytqanımnı başqa türlü añladı.
 Yeñini töpege çekip, qalın, qısqa qolunı ögge uzattı.
 
@@ -204,7 +202,7 @@ Meni eslegeni kibi, başını silkti ve külümsiredi.
 Bu arada kişiler arasında Yekaterina Vasilyevna yalqıldap aldı... ve deral maña arqasını çevirdi.
 Muşuq yalığa er kesten soñ tüşti, kevdesini ögge berip, deve kibi qaqına-qaqına, keniş adımlarnen gidromonitorlar baragı betke cönedi.
 Kandıba onıñ artından baqa berdi.
-— Matros körsin közüñ,— dedi o,— yürüşine baq!
+— Matros körsin közüñ, — dedi o, — yürüşine baq!
 Fıraun padişası!
 Biz barakqa barmadıq.
 Doğru işke kettik.
@@ -237,13 +235,13 @@ Kökteki yıldızlar öyle alçaq ediler ki... qısqası, tam İspaniya geceleri
 Lâkin baraknıñ qapusı açıldı.
 Nikolay susetı.
 Bosağa üstünde Valâ köründi.
-— Saña ne oldı? — dedi qız gizliden,— betiñde ayret kölgeleri...
+— Saña ne oldı? — dedi qız gizliden, — betiñde ayret kölgeleri...
 Tüşten uyanğan kişige beñzeysiñ.
 Men yüz üstünde yata edim.
 Nikolay bir şey aytırmı eken dep bekledim.
 Yoq... qızğa cevap bermedi.
 Valâ Nikolaynıñ yanına oturğanını sezdim.
-— Bir türkü söyle, Valâ!— dedi Nikolay,— dülber bir türkü!
+— Bir türkü söyle, Valâ! — dedi Nikolay, — dülber bir türkü!
 — Men türkü söylemege bilmeyim.
 — İçmege bilesiñmi?
 — Bilem.
@@ -272,7 +270,7 @@ Bir talay sessiz oturdılar.
 Soñ qız devam etti.
 — Onıñ kimsesi yoq.
 — Kimniñ?
-Rahilniñmi?— Nikolay hahıldap küldi.
+Rahilniñmi? — Nikolay hahıldap küldi.
 — Rahilniñ kimsesi yoq... ne qadar büyük şefqatsızlıq!
 Siziñ qardaşnı...
 Valkanı ve Rahilnı qurucılıqta bilmegen barmı?
@@ -300,13 +298,13 @@ Siz... erkekler bu dünyada niçün yaşaysıñız?
 Kene eski adetleriñnen qalğansıñ.
 — Qıçırma!
 Men episini añladım.
-— Añlağan olsañ, ket!— dedi Kandıba.
+— Añlağan olsañ, ket! — dedi Kandıba.
 — Meni terk et, miledi!
 Qız çıqıp ketti.
 Nikolay koyka üstünde qaldı.
 Eki elinen caqını tuttı, çoq vaqıt qıbırdamay, nelerdir tüşünip oturdı.
 Oturıp talğan soñ, turdı — yanıma keldi.
-— Tur!— dedi maña,— episini işittiñ.
+— Tur!— dedi maña, — episini işittiñ.
 Daa ne bekleysiñ?
 Başımnı köterdim.
 — Musafirni... kördiñmi? — Nikolay pek eecanlı edi.
@@ -328,11 +326,9 @@ Er kesniñ boynuna asıla bermez.
 Bir kişini bilsin.
 Sen de öyle… de birisini acıysıñ, de digerini.
 Aqiqatnı acımaysıñmı?
-
 Men Nikolaynı tınçlandırmaq istedim.
 O ise açuvlandı.
 Elindeki gitarasını koykası üstüne attı, qapunı tars qapatıp çıqıp ketti.
-
 Men de onıñ artından çıqtım.
 Küneş endi yük-sekke köterilgen.
 Aqılıma ne keldi, bilmeyim.
@@ -343,14 +339,12 @@ Qapunı qapattım, topraq yığınları boyu Hazar-Kend betke kettim.
 Aşağıda...
 Çar-Çaq yalısında adamlar yer qazmaqtalar.
 Olarnıñ arasında Menjevetskiyni, Curayevni, Tursunovnı esledim, qalğanları üstlerine brezent urba kiygenler, tanımaqnıñ çaresi yoq.
-
 — Cevdet!
 Sizsiñizmi?
-
 Çevirilip baqtım — İrada.
 O alâ ciddiy ve suvuq edi.
-
-Oña gece smenasındaki vaqianı... soñ Hristofor ile körüşüvimizni ikâye ete başlağan edim, yanaşamızdaki topraq yığını artından adam sesleri işitildi.
+Oña gece smenasındaki vaqianı...
+soñ Hristofor ile körüşüvimizni ikâye ete başlağan edim, yanaşamızdaki topraq yığını artından adam sesleri işitildi.
 Tursunov ve Curayev töpege köterilmekte ediler.
 Yanlarında hoş çereli qız.
 Qıznıñ üstünde yengil palto.
@@ -360,58 +354,46 @@ Yanaşasında santraç paltolı eki erkek kişi... başlarında şlâpaları.
 Potikleri üstünden getrler.
 Erkeklerniñ ekisi de, estrada artistleri kibi, bir soy kiyingenler.
 Betten de bir-birlerine beñzeyler.
-
-— Bu yerde ne yapasıñız?— dep soradı Curayev.
+— Bu yerde ne yapasıñız? — dep soradı Curayev.
 Sual menden ziyade İradağa ait ekenligi sezildi.
-
 — Bekirov maña Duranidiniñ ahvalı hususında ikâye etmekte.
-
 Santıraç paltolı kişilerniñ biri cebinden maşinkasını çıqarıp yaqtı, çubuğını tutandıracaq oldı.
 Çubuq tutanmadı.
-
-— Vyeter,— dedi rusça, aciz alda. 
+— Yel, — dedi rusça, aciz alda.
 Terciman deral tercime etti.
-
 — Yel küçlü... dey senor Marki.
-
-— Onı añladıq, Tursunov başını qaqıttı. 
+— Onı añladıq, Tursunov başını qaqıttı.
 Terciman qız külümsiredi.
-
-— Afu etiñiz!— dedi o,— men alışqanım. 
+— Afu etiñiz! — dedi o, — men alışqanım.
 Curayev qurucılıq aqqında izaatnı devam etti.
-
 Bu adamlar — italyanlar... gidrotehnika inşaatlarınıñ proyektlerini tertip eteyatqan İsveçre firmasınıñ vekilleri.
-
-— Gazetalarıñız pek qıçırıqlaylar,— dedi senor Kroççi,— dünyada er şey, reportörlarnıñ tevsiyesinen degil de, altın sayesinde yapıla.
+— Gazetalarıñız pek qıçırıqlaylar, — dedi senor Kroççi, — dünyada er şey, reportörlarnıñ tevsiyesinen degil de, altın sayesinde yapıla.
 Altın — tezyalar ve maşinalar demek.
 Şu kanalnı bir ayda qazıp çıqmaq mümkün edi.
-Quvvet, işkuzarlıq kerek. — O Tursunovqa çevirildi. — Siz, evellerde elektrik küçü yetişmey edi, dediñiz.
+Quvvet, işkuzarlıq kerek.
+— O Tursunovqa çevirildi.
+— Siz, evellerde elektrik küçü yetişmey edi, dediñiz.
 Amerikada ve Germaniyada azır dizeller bar... istegeniñiz qadar.
 Niçün olardan satın almaysıñız?
-
 — Biz aylanma kanalnı öz müddetinden bir ay evel bitirecekmiz,— dedi Curayev.
-
 — İşittim.
 Pek yahşı.
 Siziñ tilde buña darbeli brigada deyler.
 Bizde ise — cebriyet, yüksek faiz...
 Episi — bir şey.
-
 Curayev Baş Dugümdeki iş usullarını sabırlı surette añlattı: bizdeki fabrikalar, şahtalar, gidrostantsiyalar halqnıñ malı, dedi olarğa.
 Biz özümiz içün çalışamız.
 Öz sanayımız meydanğa kelgen soñ halq raat ve zengin ömür sürecek.
-
-— Buña...— Marki italyanca ayttı.
-Terciman çevirdi. — Buña, ğaliba, kapitalistik memleketlerniñ peşine yetmek ve ozıp keçmek, deyler öylemi?
-
+— Buña... — Marki italyanca ayttı.
+Terciman çevirdi.
+—Buña, ğaliba, kapitalistik memleketlerniñ peşine yetmek ve ozıp keçmek, deyler öylemi?
 — Ebet, öyle deyler.
 Şübelenesiñizmi?
-
-— Senora öz küçüne adden-aşıq işanğanğa beñzey,— dedi Marki İradanı kösterip,— bu elbette, yaş qız içün afu etilecek şey.
-
-— Senora smena injeneri,— dedi Curayev,— menim kibi.
-
-— Gençlik içün yol açıq...— Marki bu sözlerni kinâye tarzında ayttı, soñ ilâve etti: — Menim içün de yol açıq edi.
+— Senora öz küçüne adden-aşıq işanğanğa beñzey, — dedi Marki İradanı kösterip, — bu elbette, yaş qız içün afu etilecek şey.
+— Senora smena injeneri, — dedi Curayev, — menim kibi.
+— Gençlik içün yol açıq...
+— Marki bu sözlerni kinâye tarzında ayttı, soñ ilâve etti:
+— Menim içün de yol açıq edi.
 Kaprini bilesiñizmi?
 Men o adada doğdım.
 Anakapri degen yer de bar... yüksek, çıplaq qayalıq.
@@ -422,31 +404,29 @@ Maña siziñ, yaş injenerlerniñ, er şeyden haberdar olmaq içün tırışqan�
 Anakapri yolunıñ er santimetri menim köz yaşım ve mañlay terimnen quruldı.
 Eger yolnı yasap olamasam, firma meni hızmetten quvacaq edi.
 Men bu acaip senorita ve onıñ yanındaki yigit çağımda qıyın yaşadım.
-
-— Menim injenerlik yolum yengil ve sade,— dedi İrada.
-
-— Öyle...— Marki köküs keçirdi,— siziñ yoluñız sade.
+— Menim injenerlik yolum yengil ve sade, — dedi İrada.
+— Öyle... — Marki köküs keçirdi, — siziñ yoluñız sade.
 Ya siziñ indemez dostıñız?
 O da injenermi?
-
 — Yoq.
 O — işçi.
 Adiy nijnik.
-
-— Nijnik?..— Kroççi taaciplendi.
-Onıñ er şeyge taafjiplengen adeti bar eken...— Siziñ memleketiñizde er şey zevqlı, er şey acaip.
+— Nijnik?
+— Kroççi taaciplendi.
+Onıñ er şeyge taaciplengen adeti bar eken...
+— Siziñ memleketiñizde er şey zevqlı, er şey acaip.
 Amma biz işke başqa ceetten baqamız.
-Biz başqa dünyadan kelgen adamlarmız!— O, bala kibi, utansırap külümsiredi. — Emin oluñız, Curayev efendi, men kapitalist degilim!
+Biz başqa dünyadan kelgen adamlarmız!
+— O, bala kibi, utansırap külümsiredi.
+— Emin oluñız, Curayev efendi, men kapitalist degilim!
 Men injenerim.
 Sovet ler Birligi içün namus ve vicdan ile çalışam.
 Menim içün eñ müimi — yapqan proyektlerim.
 Em sovetler içün, em de kapitalistler içün quram.
 Menim içün farqı yoq.
 Men siyasetniñ tışında yaşağan adamım.
-
 — Siyasetniñ tışında...
-Meraqlı şey,— dedi Marki. — Men başqa türlü tüşünem.
-
+Meraqlı şey, — dedi Marki. — Men başqa türlü tüşünem.
 Olar topraq yığınından tayıp, aşağı tüşerek, "Mavı qayağa" doğruldılar.
 İrada olarnen ketti.
 Men qaldım.
