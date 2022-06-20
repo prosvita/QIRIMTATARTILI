@@ -39,7 +39,8 @@ Ondan başqa hızmetler de bar.
 Emce ve yenge burskün poyezdge minip, Kefe betke ketecekler.
 Olarnıñ özlerini ve eşyalarını vokzalğa alıp ketmek kerek.
 
-– Bilseñ... yahşı, – dedi emce. – Biz içeride olurmız.
+– Bilseñ... yahşı, – dedi emce. 
+– Biz içeride olurmız.
 İşiñ bitken soñ, kir!
 Qapınırmız.
 
