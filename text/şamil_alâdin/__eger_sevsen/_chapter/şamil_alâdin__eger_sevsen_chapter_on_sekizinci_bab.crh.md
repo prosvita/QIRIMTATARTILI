@@ -31,34 +31,7 @@ Amma, men qabaatlı degilim.
 Eger bu küskünligiñiz, menden yaqañıznı qurtarmaq içün olsa... ne yapmalı?
 Elbet de, Şpitsbergenge keterim.
 Para qazanmaq içün degil, sizge körünmemek, sizni asabilendirmemek içün... keterim.
-Uzaq memlekette yaşap, siziñ asretligiñizni çekmek içün keterim.
-Men bilem...
-Siz, Yekaterina Vasilyevnanı manaçıq etip, menden yüz çevirdiñiz.
-— Cevdet! — o keskin ve kiyik sesnen qıçırdı, — siz ne yapmaq isteysiñiz?
-Meni körme-mek, unutmaq içün ketmek isteysiñizmi?
-Menden ne fenalıq kördiñiz?
-— Ne fenalıq?
-Daa nasıl fenalıq körecek edim.
-Tursunov yoq vaqıtta menimnen eglendiñiz.
-Tursunov kelgen soñ, siziñ içün yabaniy kişi oldım.
-— Siz?
-Siz menim içün yabaniy kişi?
-Kim ayttı?
-— Er şey aytılmay.
-Bazı şeyler biline.
-— Men siziñnen ciddiy laqırdı etmek isteyim, Cevdet!
-— Ne hususta?
-Daa ne tüşünip taptıñız?
-İradanıñ yanında çoq turalmadım.
-Çünki qalbim kedernen tolğan edi.
-Kettim.
-Qaç künler keçken soñ iş deñişti...
-Anna Yakovlevna komsomol Merkeziy Komitetinen laqırdı etip, Şpitsbergenge ketüvni toqtattı.
-Men İradanı sınamaq içün: ketem...
-Moskvağa mektüp yazıp, Şpitsbergenge ketem... dedim.
-İrada ağladı.
-— O yabaniy memlekette ne bar? — dedi şınşıqlap, — qalıñız, Cevdet!
-Çar-Çaqnıñ nesi fena?
+% 
 Şimdi bu satırlarnı yazayatqanda Nikolaynıñ adetlerini ayrıca hoşnutlıqnen hatırlayım.
 O kitaplarnen pek meraqlana, lâkin özü oqumağa sevmey edi.
 Alışmağan...
@@ -130,70 +103,51 @@ Onıñ içün ekipajına qasır bayraq berildi.
 Bassaraba bu bayraqnı barakqa ketirip, ülkün köşede divarğa tayandırıp qoydı.
 Barağımızda böyle masharalıqqa yol bermeymiz, dep baqtıq, Bassaraba indemedi.
 Arhipka bayraqnı ilip aldı, azbarğa çıqarıp, çinarnıñ töpesine asacaq oldı, Bassaraba şaqıldap küldi.
-
-— Zevqlı adamlarsıñız...— dedi bizge,— bayraq daima bayraqtır.
+- Zevqlı adamlarsıñız... — dedi bizge, — bayraq daima bayraqtır.
 Qasırmı, yipekmi...
 Sizge ne?
-
 Bir kün barakqa keldik, bayraq yerinde yoq edi.
 Onı endi kommunhozğa bergenler.
-
 Bassarabanıñ yardımcıları da, özü kibi, yuvaş adamlar.
 Üyken nijnigi Basit Atakulov qırmızı yanaqlı, yaş yigit.
 Qaşları ve saçları qarardan ziyade gür ve tunç qara.
-
 Dört yaşında ekende tezyada topraq savutlar yasağan.
 Babası ayrette qalğan, Onıñ yasağan meşrebesini peçke qoyıp qızdırğan.
 Bu, ilki savut, özüniñ aytqanına köre, alâ evde tura eken.
-Ondan soñ Basit ayaqnen aylanıcı tezya tögeregini işke öyle güzel uydurğan ki, pek çoq ustalar onı çağırıp, öz tezyalarını tüzettirgenler.
-
+Ondan soñ basit ayaqnen aylanıcı tezya tögeregini işke öyle güzel uydurğan ki, pek çoq ustalar onı çağırıp, öz tezyalarını tüzettirgenler.
 Basit kimerde közlerini qapatıp, evde tezyada nasıl çalışqanını, ayaqlarınen daireni nasıl aylandırğanını, eki elinen küçük balçıq topaçından nasıl etip savut şekillendirgenini, soñra, savutnıñ astında öz tamğasını nasıl qoyğanını bizge körsete edi.
-
 O, tez ve güzel çalışmaq içün, yeñi usullar tüşünip çıqarğan.
 Soñ baba ve oğul arasında dava çıqqan.
 Basit, qaç kereler belgisiz adamlar, şeerde yoq, tansıq boyalarnı kontraband yolunen ketirip, satıp ketkenlerini sezip, babasına, bu işten vazgeçmesini rica etken.
 Babası boyanı keri qaytarmağa istemegenini körip, özü evni terk etken.
-
 Ataqulov, Bassarabanıñ indemezligine... onıñ sözsiz, işmarnen berilgen emirlerine alışqan.
 Olarnıñ beraber çalışqanlarını körmek pek meraqlı.
-
 Nikolay kitap diñlep bezdi, ğaliba, aqırından turdı, kelip menim koykama oturdı ve tumboçka üstünde yatqan defterimni açıp baqtı.
 Bu arada qapu açıldı.
 Bosağa üstünde Mansurov köründi.
-
 — Qalqıñız!
-Epiñiz ayaqqa qalqıñız!— dep qıçırdı o.
+Epiñiz ayaqqa qalqıñız! — dep qıçırdı o.
 Biz, şaqa bellep bekledik.
-
-— Avralmı?— dep soradı Kandıba.
-
+— Avralmı? — dep soradı Kandıba.
 — Avral.
 Epiñiz peşimden yürüñiz!
 Anda Menjevetskiy ve geologlar bekleyler.
-
 — Andası... qayda?
-
-— Siziñ ekskavatorıñız yanında,— dedi Mansurov, soñ emirge beñzer qattı sözlernen devam etti: — Bir de biriñiz Almazovqa barıp aytıñız!
-O da kelsin!
+— Siziñ ekskavatorıñız yanında, — dedi Mansurov, soñ emirge beñzer qattı sözlernen devam etti:
+— Bir de biriñiz Almazovqa barıp aytıñız!O da kelsin!
 Yerastı kanalınıñ üstüni siziñ uçastkañızda açacaqmız.
-
-— Dünyada belâ az edi...— dedi Arhipka,— bir dane daa tapıldı.
+— Dünyada belâ az edi... — dedi Arhipka, — bir dane daa tapıldı.
 Episi bizim başımızğa kelip tüşe.
 Bu yerastı kanalları olmasa, Menjevetskiy ne yapar edi?
-
-— Seniñ başıña belâ tüşkeni yoq... bundan soñ tüşecek,— dedi Kandıba.
-
+— Seniñ başıña belâ tüşkeni yoq... bundan soñ tüşecek, — dedi Kandıba.
 Arhipka onı añlamadı.
-
 Biz çar-çabik kiyinip, baraktan çıqtıq.
 Bassaraba ve Ataqulov qaldılar.
 Olar tez cıyışınuvnıñ ne ekenini bilmeyler.
-
 Aylanma kanalnıñ içi daa qaranlıq.
 Yerastı kanalınıñ üstüni niçün böyle maalde açmaq kerek oldı?
 Bilgen adam yoq.
 Montörlar trans-kiosknı tertipke qoydı, kabellerni teşkerdi, uçastkanı öyle yarıqlandırdılar ki, iç bir yerde qara kölge qalmadı.
-
 Menjevetskiy özüniñ nişan qoyğan yerini bizge körsetti.
 Qazma ve lom alıp, yerni teşkeley başladıq.
 Topraqnıñ üstü buzlağan.
@@ -204,10 +158,8 @@ O, ellerini paltosınıñ ceplerine soqıp, baş parmaqlarını tışarıda qald
 Birinci çuqurnı nafile qazayatqanımıznı añlağan soñ başqa yer kösterdi.
 Bir metr qadar qazdıq, Raşidniñ kirkası tars etip, qattı şeyge urundı.
 Ekinci kere siltegende kene qattı şeyge urıp, çetke tayıp ketti.
-
 Menjevetskiy onıñ yanına keldi, kirkanı elinden alıp, özü qaza başladı.
 Biz balaban topraq keseklerini kenarğa sürdik.
-
 Çuqurnıñ tübünde yalpaq taş köründi.
 Epimiz, keşfciler ve tedqiqatçılar kibi, eecanğa keldik.
 Ne olur eken?
