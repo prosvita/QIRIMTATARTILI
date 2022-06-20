@@ -230,7 +230,6 @@ Endi bizni öpkeley: deñiştiñiz, nezaketli oldıñız.
 
 — Biz kim edik,— dedi Kandıba,— aydutlarmı?
 Hırsızlarmı?
-Yol basarlarmı?
 A?
 
 — Pâtireçyede kim ediñ?
