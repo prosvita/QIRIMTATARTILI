@@ -166,13 +166,10 @@ O yahşı bilmey...
 
 Nikolay yolnıñ ortasında toqtaldı.
 Maña çevirilip, közlerimniñ içine baqıp turdı.
-
-— Muşuq, Arhipka... bu kişilernen esaplaşmaq kerek, — dedi o, yavaştan,— sen kimsege indeme!
+— Muşuq, Arhipka... bu kişilernen esaplaşmaq kerek, — dedi o, yavaştan, — sen kimsege indeme!
 Men özüm baqarım.
-
 — Saqın...
 Nikolay! — dedim men oña, — kerekmey!
-
 — Niçün? — dep cekirdi o, tınç qaranlıq içinde, — Arhipka menim dostımnı öldürmek istedi... tesadüfen sağ qaldı.
 Sağ qalacaqmı?
 Belli degil.
@@ -183,7 +180,6 @@ Makeme etmek kerek.
 Men de öyle tüşünem.
 Nikolay menim aytqanımnı başqa türlü añladı.
 Yeñini töpege çekip, qalın, qısqa qolunı ögge uzattı.
-
 — Onıñ ince, uzun boyunını bu parmaqlarnen sıqmaq ve insaniyetni bir zevaldan qurtarmaq isteyim.
 — Yoq, Nikolay!
 Sen bunı yapmazsıñ!
