@@ -133,7 +133,9 @@ Lâkin küzgüge bu qadar çoq baqıp oturmaq mümkünmi?
 
 — Can sıqıntısı! — dedi o keñ kevdesini doğrultıp,— Cevdet şimdi ne yapmaq istey? — dep soradı.
 
-— Yuqlamaq! — dedim men. — Daa ne yapmaq mümkün.
+— Yuqlamaq! — dedim men.
+
+— Daa ne yapmaq mümkün.
 
 — Yuqlamaq?
 Yoq, men öyle yapıp olamayım ve... sevmeyim.
@@ -145,7 +147,9 @@ Nikolay açtı.
 Bosağa üstünde Valâ Sinitskaya köründi.
 Üstünde temiz beyaz kofta, ve yeñi mavı yubka.
 
-— Rica etem! — Nikolay qıznı içeri davet etti ve onı, özüne sezdirmey, közden keçirdi. — Nasıl ülkelerden keldiñ?
+— Rica etem! — Nikolay qıznı içeri davet etti ve onı, özüne sezdirmey, közden keçirdi.
+
+— Nasıl ülkelerden keldiñ?
 
 — Özümizniñ yaqlardan...
 Saña keldim, Nikolay!
