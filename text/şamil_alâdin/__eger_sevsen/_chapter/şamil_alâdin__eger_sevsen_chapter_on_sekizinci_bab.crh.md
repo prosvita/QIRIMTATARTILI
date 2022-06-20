@@ -120,11 +120,10 @@ Arhipka teren manalı şey aytqan olıp:
 Bassaraba indemedi.
 Amma soñundan, söz başqa şey hususında ketkende, küldi.
 — Bıçılğanı da ne?
-Anam nasıl doğurğan olsa, öyle tura,— dedi.
+Anam nasıl doğurğan olsa, öyle tura, — dedi.
 Onıñ bütün eglencesi — detaller...
 Daima bir şeyni tamirnen meşğul.
 Lâkin bu adet — bir hucurlıq degil, mehanikağa sevgi.
-
 Bassarabanı işte çıqımsız degenleri, yalan.
 Tek, bir defa planını toldıralmadı...
 Onıñ içün ekipajına qasır bayraq berildi.
