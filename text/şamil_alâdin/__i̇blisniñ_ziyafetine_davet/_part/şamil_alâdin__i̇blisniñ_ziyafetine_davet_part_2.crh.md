@@ -76,7 +76,8 @@ Qalpaqnıñ saibi inadiye indemedi.
 “Yarım kün mögedek astında çalqanğan adamğa neler ilişmez!..” dep tüşündi, ğaliba, ve mıyığınıñ uclarından tutıp, töpege qaytara başlağan edi, hızmetçi qave ketirip, masa üstüne qoydı, özü kenarğa çekilip, ayaq üstünde, indemey turdı.
 Musafir hızmetçiniñ areketsiz turuvını bağşış beklevge yorap, eki parmağını celetiniñ cebine soqqan arada, yanlarında beyaz kostümli, közlükli Adam peyda oldı.
 
-– Ey, Allayım! – dedi közlükli adam yumşaq davuş ile. – Şamil efendi!
+– Ey, Allayım! – dedi közlükli adam yumşaq davuş ile. 
+– Şamil efendi!
 Sizmisiñiz?
 
 Musafir aqırından yerinden qalqtı, kendine uzatılğan qolnıñ saibine ayretle baqtı-baqtı, niayet, tanıdı.
