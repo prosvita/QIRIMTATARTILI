@@ -355,7 +355,8 @@ Aptesi ve özü anasınıñ ihtiyarında qalğan.
 Yıllar keçkenler.
 Bir defa bazarda pirniç hırsızlağanda yaqalanıp, Belomor qurucılığına tüşken.
 
-— Menim hucur taqdirim bar...— dedi Sinitskaya. — Nikolay ise buña ep külkünen baqıp keldi.
+— Menim hucur taqdirim bar...— dedi Sinitskaya.
+— Nikolay ise buña ep külkünen baqıp keldi.
 
 Taqdiri, kerçekten de, başqalarınıñkine çoq beñzemey edi.
 O, kanalda ekende, yahşı çalışqan, mektepte oquğan.
@@ -368,7 +369,7 @@ Musaabe vaqıtında adamnıñ mıyığı qıbırday bergen.
 Bu Valânıñ alâ esinde.
 Kişi Valânıñ taqdiri içün eecanlanğan.
 Qız oña doğmuş aptesi hususında ikâye etken.
-Aptesi "Martin İden" ni oquy eken.
+Aptesi "Martin İden"ni oquy eken.
 Anası bir kün: "Bıraq bu kitapnı!
 Ket, keziñiz!
 Yoqsa, Yaşkanı elden qaçırırsıñ" degen.
