@@ -230,7 +230,8 @@ Ama bu yerde İsmail efendiniñ soñki sözleri onı subetke küçük ila
 Niçün, qıymetli muallim?
 Rusiyede bütün milletler aynı vaziyette... kerçek, olarnıñ zenginleri de bar, fuqareleri de!
 
-– Öyle, Eskender efendi! – dedi muallim. – Caillik ve fuqarelik bütün milletlerde bar.
+– Öyle, Eskender efendi! – dedi muallim.
+– Caillik ve fuqarelik bütün milletlerde bar.
 Lâkin musulmanlar dünyada ğaripler.
 Belki buña musulman dininiñ ğayet irticalığı sebeptir?!
 
@@ -366,7 +367,8 @@ Soñra, yolğa, çıqıp, tozlu yol boyu Orta Medrese betke adımlağanda, b
 
 Asan Kara, mezkür ikâyetniñ müellifi, bu yerçikke kelgende, mevzudan biraz çetke çıqıp, İsmail Gasprinskiy, keçken asırnıñ soñunda ve bu asırnıñ başında Şarq halqları içün nasıl adam olğanını ve, söz kelimi, elli yıl daa keçken soñ bazı adamlarnıñ tasavurında nasıl adam ola bilecegi aqqında küçük izaat bere.
 
-“Eger, oquyıcı, büyük maddiy ve içtimaiy marumiyet müitinde yaşap, bütün ayatını mazlum halqlar menfaatı içün hızmetke sarf etken bu adam hususında aqiqatnı bilmese, ulu adaletsizlik olur! — dep yaza müellif. — Men devlet hadimi degilim.
+“Eger, oquyıcı, büyük maddiy ve içtimaiy marumiyet müitinde yaşap, bütün ayatını mazlum halqlar menfaatı içün hızmetke sarf etken bu adam hususında aqiqatnı bilmese, ulu adaletsizlik olur! — dep yaza müellif.
+ — Men devlet hadimi degilim.
 Şu sebepten, İsmail efendiniñ siyasiy ve içtimaiy faaliyetine qıymet kesmeyim.
 Men onıñ aqqında halqnıñ medeniyetini yükseltüv oğrunda ulu işler yapqan adam sıfatında yazam.
 
@@ -376,7 +378,7 @@ Men ne diye bilir edim?
 Yalıñız şunı ki, Gasprinskiy aqqında bir fikirge kelmek içün, onıñ yaşağan ve işlegen devirindeki devlet qurumını teren sürette ögrenmek kerek.
 O sayede İsmail muallimni añlamaq mümkün.
 
-Men aşağıda, Gasprinskiyniñ ayrı maqalelerinde ve “Terciman” saifelerinde kendi eli ile yazğan fikirleri üstünde toqtalacağım.
+%
 
 İsmail Gasprinskiy, rus tilinde yazğan ilki maqalesinde özüniñ siyasiy tüşüncelerini ğayet aydın ve açıq sürette ifade ete.
 Dey ki, dünya boyunca seyaatlarım vaqıtında yaptığı muşaedelerim neticesinde, boysundırılğan, umumen, yabaniy qabilege, başqa iç bir halq, bizim üyken qardaşlarımız – ruslar kibi merametli ve temizqalpli munasebet köstermey.
@@ -387,7 +389,7 @@ Eger biz, Rusiyedeki türk-tatarlarnıñ ruslaşuvı ve, bunıñle beraber, 
 
 Musulmanlarnıñ rus medeniyetine yaqınlaşuvı, olarnıñ fikriy seviyesini ve bilgisini yükseltüp yolu ile yapıla bilinir, bu ise yalıñız tatar tiliniñ mektepte ve edebiyatta vatandaşlıq içtimaiy añ keregi derecede azır ve gazetanıñ özü vatandaşlıq uquqını endi elde etken.
 
-
+Menim beş seneden beri neşir etmekte oldığım “Terciman”nıñ doğuvı köstere ki, onıñ içün ulu ekenligini isbat ettim.
 
 Menim vaziyetim ağır, öyle olsa da, gazetam, abunecilerniñ miqdarı ceetinden ep ilerilemekte ve al-azırda gazeta Rusiyeniñ er bir köşesinde bulunmaqta.
 
@@ -420,10 +422,10 @@ Maña inanalarmı, bilmeyim, er alda, özlerini maña inanğan kişiler eti
 Men gazetamda maarifatnı memleketniñ, yani Rusiyeniñ umumiy menfaatları ile sıqiy bağlı surette qoymaq istegende, özümde iç bir türlü fena fikir yoqluğına din-qardaşlarımnı qandırmaq pek küç oldı.
 Bilesiñizmi ne yaptılar?
 Meni halqıma ve islâm dinine munafıqlıqta qabaatladılar.
-Men, Rusiye musulmanlarına – rus adamı ile añlaşmaq oldıqça qolay ekenini isbat ettim, rus adamı er kesni ve er şeyni barıştırıcı ve birleştirici, er şeyde üstün kelici sabırlılığı ile uquqına saipligini tanuv yolu ile ola bile.
-Menim beş seneden beri neşir etmekte oldığım “Terciman”nıñ doğuvı köstere ki, onıñ içün ulu ekenligini isbat ettim.
-Menim közlerime, ruslarğa qarardan ziyade göñül beresiñ degen qabaatnı türttiler, öz milletiñe qıyanetlik yapasıñ, dediler.
-O vaqıtta men ıncındım.
+%
+
+%
+%
 “Men – rusım, aynı zamanda, musulman ve tatar olıp qalam” dedim, çünki menim fikirimce, Rusiye musulmanlarınıñ menfaatı umumrusiye menfaatı ile sıqiy bağlı edi.
 
 – Söyleñiz, Gasprinskiy efendi, siz tatarsıñızmı? – dep soradı Sergey Filippov.
@@ -441,22 +443,22 @@ Özüm içün netice yaptım.
 Menim dindaşlarımnıñ rus vatandaşlarımızğa sıqiy alda yaqınlaşuvı zarur ekenligine qaniy olup gazeta çıqara başladım.
 Men bu zaruretni öz gazetamda etraflıca teşviqat etem ve eminim ki, bu ğaye menim qabile qardaşlarımnın añında vira keniş yer işğal etmekte.
 
-
 Ama “İsmail Mustafa oğlunın, soyadı, yani familiyası – Gaspralı edi.
 Adiy tatar familiyası.
-Böyle familiyalı şahsqa yüksek içtimaiy tabaqa adamları ile yaqın munasebette bulunmaq mümkün degil, — dep yaza Asan Kara. — İsmail muallimge basmahaneni işletmek içün aqça... çoq aqça kerek.
-O sebepten, İsmail Mustafa oğlu öz familiyasını Gasprinskiy yaptı, özüni yüksek cemiyetlerde zadekân dep taqdim etti.
-Bu usul naşirge munasebetni biraz deñiştirdi.
-Kamer mırzalar oña, az olsa da, ödünçke para berdiler.
-Bu “cümertlik”ni Qrımda eki-üç mırza birer defa kösterdi.
-Soñra vazgeçtiler.
-Olarğa ticaret, qazanç kerek edi.
-Bu ne?
+%
+%
+%
+%
+%
+%
+%
+%
+%
 
-İsmail Gasprinskiy öz ayatındaki esapsız meşaqqatlarğa çıdap, gazetanı otuz eki yıl neşir etti.
+%
 
-O, memleketniñ parlaq kelecegini – rus halqı ile yaqın munasebette kördi.
+%
 
-“Rusiyede eñ çoq miqdarlı ve eñ belli-başlı halq – ruslardır, olar diger çeşit qabileler ile birlikte muabbet ve dostane yaşavda pek siyrek sezilgen bahtlı tabiatqa malikler.
-Sade rus adamınıñ yüreginde başqa halq içün asetlik, duşmanlıq, hayriyetsizlik yoqtır”.
+%
+%
 Gasprinskiy bu satırlarnı “Terciman”nıñ 1884 senesi sekizinci yanvar sanında yazdı.
