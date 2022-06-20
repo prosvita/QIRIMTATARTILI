@@ -156,7 +156,9 @@ Saña keldim, Nikolay!
 Elbette beklemegendirsiñ?!
 
 — Beklemegen?..
-Er vaqıt bekley edim. — Kandıba bugün tınç ve şeñ edi. — Oturıñız!
+Er vaqıt bekley edim. — Kandıba bugün tınç ve şeñ edi.
+
+— Oturıñız!
 Nice yazlar, nice qışlar keçti... kim içün rica etmege keldiñ, miledi?
 
 — Öyle demege utanmaysıñmı, Nikolay? — Valânıñ canı ağırdı.
@@ -179,14 +181,19 @@ Men olardan qorqmayım.
 
 — Yok, men şay, özüm... — Nikolay lafnı uzatmaq istemedi.
 
-— Men kettim... — dedim men Nikolayğa,— biraz dolanıp keleyim. — Krovat üstünden turdım.
+— Men kettim... — dedim men Nikolayğa,— biraz dolanıp keleyim.
+
+— Krovat üstünden turdım.
 
 — Otur! — Nikolay razı olmadı,— bir yaqqa ketmeyceksiñ!
 Laf bar.
 
 Tekrar oturdım.
 
-— Men seni unutmadım. — O Valânen sözüni devam etti. — Bir kere kommutatornıñ qapusını qaqıp baqtım, yoq ediñ.
+— Men seni unutmadım.
+— O Valânen sözüni devam etti.
+
+— Bir kere kommutatornıñ qapusını qaqıp baqtım, yoq ediñ.
 
 — Ne vaqıt?
 
