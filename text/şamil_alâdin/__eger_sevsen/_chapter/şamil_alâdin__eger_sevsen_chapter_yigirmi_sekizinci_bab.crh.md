@@ -309,7 +309,8 @@ Men!
 — Sen nasıl insansıñ, Nikolay?! — Artıq özümni tutalmadım. — Qız derdiñden ölecek.
 Özüñni sıqmaysıñ!?
 
-— Qarışma, Cevdet,— dedi Nikolay qaba davuşnen. — Bu Krasnânskayanıñ kabinetindeki meclis degil.
+— Qarışma, Cevdet,— dedi Nikolay qaba davuşnen.
+— Bu Krasnânskayanıñ kabinetindeki meclis degil.
 Bunda reislikni yürek yapa.
 Aşıquv er vaqıt faydalı netice bermey.
 Sen Valânı bilmeysiñ!
