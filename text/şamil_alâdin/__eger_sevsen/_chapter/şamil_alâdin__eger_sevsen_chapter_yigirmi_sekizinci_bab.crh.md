@@ -590,6 +590,7 @@ Ne qararğa keldiñ?
 Keteceksiñmi?
 
 — Yoq,— dedim men,— ketmeycegim. 
+
 Em ketmedim.
 Koykamnıñ üstüne sozulıp yattım.
 İndemedim.
@@ -621,8 +622,7 @@ Men onı añladım.
 — Çoqtanmı? — dep soradım.
 
 O eski-püskü redikulinden kâğıt çıqardı.
-Blanknıñ üstünde "Gvardiyalı üyken serjant Kandıba N.
-N." dep yazılı edi.
+Blanknıñ üstünde "Gvardiyalı üyken serjant Kandıba N.N." dep yazılı edi.
 
 — Cayav askerde hızmet ete edimi? 
 Valâ başını salladı: "ebet!"
