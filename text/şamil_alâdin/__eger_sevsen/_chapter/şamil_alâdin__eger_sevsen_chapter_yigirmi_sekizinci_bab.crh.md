@@ -57,7 +57,6 @@ Niçün?
 Bar añla!
 Bir daa, bayırnıñ töpesinden aşağı qar obaları taya başladılar.
 Qaydan çıqtılar, bilmeyim?
-Qar, buz parçaları iñildep, gürüldep aşağı yuvarlandılar.
 
 Raşid qar aqıntısını ikâye etip turğanda, ayaqlarımıznıñ astında — yer üstünde, yılan keçip ketken kibi, tar çatlaq asıl oldı.
 Menjevetskiy betteki yüksek bayırnıñ, aşağı, özenge taba cılışa başlağanını kördik.
