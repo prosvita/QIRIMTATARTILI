@@ -5,7 +5,8 @@ Selime uzaqta, Or qapu bette, emcesiniñ evinde apansızdan vefat etkenini yazal
 
 Bir kün evel pek şeñ eken...
 Cevdetten mektüp kelmedimi? — dep sorağan.
-Zavallı Selime... ne men oña, ne o maña iç bir vaqıt mektüp yazğanımız yoq.
+Zavallı Selime...
+ne men oña, ne o maña iç bir vaqıt mektüp yazğanımız yoq.
 Körüşmegenimiz ise çoq vaqıt oldı.
 Men onıñ hatrine nasıl etip keldim aceba?
 Aqşam emcesiniñ kelgenini beklegen.
