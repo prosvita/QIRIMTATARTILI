@@ -35,13 +35,11 @@ Olarnı — tif hastalığını, tilencilikni, ğarip külbelerni, hatirde tutma
 Daima kelecekni tüşüne.
 Şimdiki zaman ve istiqbal...
 Ayat bu eki ölçü çerçivesinde doğa ve öle.
-Eger menden, niçün keçmişni hatirge ketirdiñ, dep sorasalar, men: insanlarnıñ ebediy hasiyeti isap etilgen cesürlikni, erlikni, azamatlıqnı, qısqası, emek sayesinde usulğa kelgen bütün şeylerni ve atta pek çoq işlerni insan yerine — kibernetik maşinalar icra etecek kommunizm devirinde bile kemalatqa kele berecek şeylerni, estafeta kibi ilerideki nesilge teslim etüv eşqına hatirge ketirdim,— dep cevap berir edim.
 
-Men baraklardan ibaret Sotsialist şeerçikniñ balçıqlı soqaqları boyu adımlağan vaqtımda, elbette, bu şeyler hususında tüşünmey edim.
 Başqa şey hususında tüşüne edim.
 Bu yerdeki emekçi halq başqalarına acaip evler qurıp bergen, amma özüniñ başı töpesinde adam aqıllı damı yoqlığı ne ikmet eken, dep tüşüne edim.
 
-Kelgen-keçken kimse yeq.
+Kelgen-keçken kimse yoq.
 Pencerelerniñ birisini qaqtım.
 Qapu açıldı, burunıma buhar ve sabun qoqusı urdı.
 Çamaşırhane eken.
@@ -50,7 +48,8 @@ Qapu açıldı, burunıma buhar ve sabun qoqusı urdı.
 
 Çilter öglükli esli qadın qapu ögüne çıqtı.
 
-— Sol tarafta üçünci ev...— dedi o, elinen uslubsız baraknı kösterdi. — Yeñi kelgenlerdensiñ, öylemi? — ve menim cevabımnı beklemey, devam etti. — Şimdi halq ep mında yağa.
+— Sol tarafta üçünci ev...— dedi o, elinen uslubsız baraknı kösterdi.
+ — Yeñi kelgenlerdensiñ, öylemi? — ve menim cevabımnı beklemey, devam etti. — Şimdi halq ep mında yağa.
 Putövkanen keldiñmi?
 
 Men başımnı köküsim üstüne qaqıttım.
@@ -63,7 +62,7 @@ Ekinci barak yaqın eken.
 Qapunı qaqtım.
 Cevap bergen olmadı.
 Tekrar qaqtım.
-Dübürdiler, insan sadaları işitildi.
+Dübürdiler, insan sadaları eşitildi.
 Qapunı üytedim, qolaylıqnen açılacaqqa beñzemedi, sapından tutıp, bar küçümnen özüme çektim, ğıçıldap artına qadar açıldı.
 Ayretlenip, bosağa üstünde toqtap qaldım.
 
@@ -84,12 +83,11 @@ Bosağa üstünde hayli vaqıt turdım, meni abaylağan adam olmadı.
 Belki aselet qulaq asmadılar!
 Sarışın kişi, niayet, içeri kirgen suvuqtan qaltırap, başını köterdi.
 
-— Qapunı kim açtı? — dep ayqırdı o, lâkin meni körgen soñ, yastıqnı atmaq içün elini tepege kötergeni alda, taaciplenip, yerinde susıl qaldı.
+— Qapunı kim açtı? — dep qıçırdı o, lâkin meni körgen soñ, yastıqnı atmaq içün elini tepege kötergeni alda, taaciplenip, yerinde susıl qaldı.
 
-— Mümkünmi? — dep qıçırdım men,— kirmege mümkünmi?
+— Mümkünmi? — dep qıçırdım men, — kirmege mümkünmi?
 
 — Kire ber! — dedi sarışın kişi ve yastıqnı soñki defa olaraq oyuncılarnıñ başları üzerine fırlatıp yiberdi.
-Aleket bunıñ ile bitti.
 
 İçeri kirdim.
 Qapunı qapatqan soñ, selâm berdim.
@@ -108,19 +106,20 @@ Niçün?
 Meni ekinci barakqa yolladılar.
 
 — Pardon, je vu pri müsye! — dedi sarışın kişi, kibirli surette.
-"Canım, bu adamlar nasıl tilde laqırdı eteler?" dep taaciplendim men. — Cöne!
+"Canım, bu adamlar nasıl tilde laqırdı eteler?" dep taaciplendim men.
+
 Mında ekskavatorcılar yaşaylar.
 
-— Bilem,— dedim men ve onıñ ögünden keçip, divarnıñ yanına keldim, çemodanımnı tsement pol üstüne qoydım, arqamdaki torbanı çıqarıp taşladım.
+— Bilem, — dedim men ve onıñ ögünden keçip, divarnıñ yanına keldim, çemodanımnı tsement pol üstüne qoydım, arqamdaki torbanı çıqarıp taşladım.
 Kişiler menim bu serbest areketlerimni begenmegen kibi köründiler.
 
 — Qana, çabik ol!
 Ayın bu yerden! — dediler olar tekrar,— mında ekskavatorcılar...
 
-— İşittim,— dedim men sertçe davuşnen.
+— Eşittim, — dedim men sertçe davuşnen.
 
-— İşitken olsañ, qatayıp turğanıñ ne?
-Yoqsa, seni aylanma kanalğa yelladılarmı?
+— Eşitken olsañ, qatayıp turğanıñ ne?
+Yoqsa, seni aylanma kanalğa yоlladılarmı?
 
 — Ebet! — dedim men. — Aylanma kanalğa.
 Lâkin dalğıcılarnıñ bu işke ne munasebetleri bar?
@@ -129,14 +128,14 @@ Oyuncılarnıñ biri yaqın keldi.
 
 — Raqıñ barmı? — dep soradı menden ve yasama sesnen şaqıldap küldi.— Raqıñ olsa, bizde qal!
 
-— Raqım yeq, lâkin qapınmaq isteseñiz, tapmaq mümkün (Afu etiñiz, efendim).
+% — Raqım yоq, lâkin qapınmaq isteseñiz, tapmaq mümkün.
 
 — ...Çünki dalğıcılarnıñ episi siziñ qardaştan.
-Ordudan kelgenler! — dedi sarışın kişi,— lâkin sen otur!
+Ordudan kelgenler! — dedi sarışın kişi, — lâkin sen otur!
 Dalğıcı olacağıñ kelmese, bizde qal! — soñ keskin davuşnen qıçırdı: — Hristofor!
 Çay...
 
-— Raqı! — oyuncı ep inatlandı,— seniñ çayıñ kimge kerek?
+— Raqı! — oyuncı ep inatlandı, — seniñ çayıñ kimge kerek?
 Raqı ketirsin!
 
 Baraknıñ uzaq, qaranlıq köşesinden keñ müçeli, quvurçıq saçlı, sağ közüne qara meşin bağlı kişi peyda oldı.
