@@ -79,20 +79,22 @@ Musafir hızmetçiniñ areketsiz turuvını bağşış beklevge yorap, eki 
 – Ey, Allayım! – dedi közlükli adam yumşaq davuş ile. 
 – Şamil efendi!
 Sizmisiñiz?
-
 Musafir aqırından yerinden qalqtı, kendine uzatılğan qolnıñ saibine ayretle baqtı-baqtı, niayet, tanıdı.
 
-– Afız! – dedi musafir alâ emniyetsizlikle. – Azizim!
+– Afız! – dedi musafir alâ emniyetsizlikle. 
+– Azizim!
 Dünya, aqiqaten, tar eken!
 Kele-kele “Veli-Baba”da tapıştıq!
 
 Quçaqlaştılar.
 Sevinç ve hoşnutlıqle bir-biriniñ arqalarını taptadı, şaqalaştı ve üytekleştiler.
 
-– Körüşmegenimiz endi qaç yıl? – dedi Afız. – Artıq esabını unuttım.
+– Körüşmegenimiz endi qaç yıl? – dedi Afız.
+– Artıq esabını unuttım.
 Qaysı yaqlardan buyurdıñız?
 
-– Köyden kelemiz, – musafir yanındaki zevcesine işaret etti. – Rica etem.
+– Köyden kelemiz, – musafir yanındaki zevcesine işaret etti. 
+– Rica etem.
 Refiqam Acire hanım!
 
 Afız kevdesini aşağı egiltti... egilttikçe, doğrulttı.
@@ -100,12 +102,14 @@ Qadınnıñ qolunı tutmalımı?
 Onıñle Avropa adeti mücibi körüşmek mümkünmi, degilmi, aldırıp olamadı.
 
 – Ğayet hoşnutım... – dedi Acire hanımğa.
-Ve onıñ quçağındaki balağa işaretle, soradı: – Çocuq oğlanmı?
+Ve onıñ quçağındaki balağa işaretle, soradı: 
+– Çocuq oğlanmı?
 Qızmı?
 
 – Oğlumız Daniyal.
 
-– Maşalla! – dedi Afız efendi, törelik qaidesine riayetle. – Acayip oğlan.
+– Maşalla! – dedi Afız efendi, törelik qaidesine riayetle. 
+– Acayip oğlan.
 Ösecek, büyüycek.
 İtimal, acayip devirde yaşaycaq!
 Kim bilir?
