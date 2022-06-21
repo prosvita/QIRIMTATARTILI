@@ -507,7 +507,8 @@ Qapuğa çevirilip baqtıq.
 İçeri Hristofor kirdi.
 
 — Qaçtı,— dedi o birden,— Karimnen beraber aşhanede edi.
-Çekkelep mında ketireyata edim, qurtuldı, qaçıp ketti. — O, tek şimdi, Valânı esledi: — Men kimni körem?
+Çekkelep mında ketireyata edim, qurtuldı, qaçıp ketti.
+— O, tek şimdi, Valânı esledi: — Men kimni körem?
 Selâm, Valâ!
 
 — Aleyküm selâm, Hristofor!
