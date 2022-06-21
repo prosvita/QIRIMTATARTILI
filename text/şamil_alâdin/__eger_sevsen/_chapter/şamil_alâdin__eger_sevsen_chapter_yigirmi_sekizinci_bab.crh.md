@@ -150,7 +150,7 @@ Bosağa üstünde Valâ Sinitskaya köründi.
 
 — Nasıl ülkelerden keldiñ?
 
-— Özümizniñ yaqlardan...
+%
 Saña keldim, Nikolay!
 Elbette beklemegendirsiñ?!
 
@@ -258,7 +258,6 @@ O, artıq, qurucılıqta yoq.
 
 — Kim?
 Arhipkamı?
-Saña bir şeyler oldımı şu, Nikolay?!
 Arhipka bir yaqqa ketmedi.
 O mında senden intiqam aluv peşinde.
 
