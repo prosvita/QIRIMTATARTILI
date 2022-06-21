@@ -167,7 +167,7 @@ Babam kütükniñ üstünden turdı, o, bağçada bizni küreştirgen vaqıtta, 
 Dülger menim kelüvim şerefine bir meşrebe şarap içti ve maña bütün kün gür qaşları astından tüşünceli köz etip yurdi.
 Amma menim küreş usullarımnı begendi.
 
-Künlerden bir kün, men, baznam ötip olsa kerek; "babam, meni Taras Bülba kibi, yumruqlarını sıqıp qarşılay" dep yiberdim.
+Künlerden bir kün, men, baznam ötip olsa kerek: "babam, meni Taras Bülba kibi, yumruqlarını sıqıp qarşılay" dep yiberdim.
 
 Bu babamnıñ pek oşına ketti: "men Taras Bülbanı bilem,— dedi babam,— onıñnen Qızıl-Yar yarmalığında körüştim".
 
@@ -175,7 +175,7 @@ Bu babamnıñ pek oşına ketti: "men Taras Bülbanı bilem,— dedi babam,— o
 Nasıl etip?"
 
 Yazlıq tatilniñ soñunda Taşkentke qaytqanda Kavkazdan keçtim.
-Batumda yemiden tüşkenim kibi, demir yel vokzalına çaptım.
+Batumda gemiden tüşkenim kibi, demir yel vokzalına çaptım.
 Lâkin halq... maña beñzegen studentler ğayet çoq edi.
 Şu künü poyezdğa bilet alamadım.
 
@@ -197,7 +197,7 @@ Delfinlerniñ kimerde insanğa yaqın kelip, qanatlarınen bedenine ilişip keç
 
 Apansızdan yanımda davuşlar işitildi.
 Bana yalıda yatqan kişiler... ziy-çuv olıp, etrafımda yaldamaqta ediler.
-Olardan birisi: "Tez-tez qaytmaq kerek,— dedi digerine,— yoqsa, haçapuriniñ lezeti qaçar".
+Olardan birisi: "Tez-tez qaytmaq kerek, — dedi digerine, — yoqsa, haçapuriniñ lezeti qaçar".
 Qız, yanaşamdan keçer eken, başını maña çevirip:
 
 — Sizni de davet etemiz! — dedi ve iri, beyaz tişçlerini körsetip külümsiredi, soñra: — eger razı olsañız... — dep ilâve etti.
