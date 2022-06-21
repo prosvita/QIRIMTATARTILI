@@ -332,7 +332,8 @@ Amma Valâ terk etti... andan çıqıp ketti.
 
 Valâ aqqında öyle laqırdı ettik ki, güya özü yanımızda yoq edi.
 
-— Valâ qayda yaşay, bilesiñmi?..— Men sözümni devam ettim,— Bilmeysiñ!
+— Valâ qayda yaşay, bilesiñmi?..
+— Men sözümni devam ettim,— Bilmeysiñ!
 
 — Baraktan köçkenimni Muşuq bilgen.
 Meni tenbiylemege kelgen edi...— Valâ şınşıqlay berdi,— menim aqqımda ağızıñdan bir söz çıqar, seni eki qısımğa bölerim...— dedi maña,— Başıñ sağda, ayaqlarıñ solda!
