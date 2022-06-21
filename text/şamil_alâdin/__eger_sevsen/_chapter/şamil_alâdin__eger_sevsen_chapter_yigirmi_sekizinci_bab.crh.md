@@ -484,8 +484,10 @@ Yañlış yaptı!
 
 — Özünden qaçqan sevgini qıdırmaq... ne kerek?
 
-— Bunı sen söyleysiñ, öylemi? — Nikolay küldi. — Demek, sevgi senden ketse, onı qıdırmaq kerekmey?
-Men başqa türlü tüşüne edim. — Qayda köçtiñ? — dep soradı Nikolay Valâdan.
+— Bunı sen söyleysiñ, öylemi? — Nikolay küldi.
+— Demek, sevgi senden ketse, onı qıdırmaq kerekmey?
+Men başqa türlü tüşüne edim.
+— Qayda köçtiñ? — dep soradı Nikolay Valâdan.
 
 — Men o vaqıtta sarğuş edim...— dedi Valâ. — Ve bütün ayatıma tükürmege azır edim.
 Em tükürir edim…
