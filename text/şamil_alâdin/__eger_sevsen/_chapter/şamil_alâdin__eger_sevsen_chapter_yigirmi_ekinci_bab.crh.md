@@ -208,9 +208,7 @@ Mansurov ekskavator üstünden yerge sıçradı, tribunağa çapıp ketti.
 
 Birinci maşinadan Yoldaş Ahunbabayev çıqtı.
 Ekincisinden Torizo...
-Çoqtan-çoq musafirler:
-
-halq komissarları, alimler, zavod işçileri.
+Çoqtan-çoq musafirler:halq komissarları, alimler, zavod işçileri.
 Olar minber yanına keldi, bizimnen selâmlaştılar.
 Curayev şapkasını töpege köterip, salladı.
 Halq tındı.
