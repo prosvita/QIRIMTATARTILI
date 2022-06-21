@@ -555,7 +555,8 @@ Tekrar oqup baqtım, soñ qatlap, cebime qoydım.
 
 — Bir şey de...
 
-— Men, ğaliba, meseleni añladım,— dedi Valâ ve maña közüni qıptı. — Acizlenmeñiz, Cevdet!
+— Men, ğaliba, meseleni añladım,— dedi Valâ ve maña közüni qıptı.
+— Acizlenmeñiz, Cevdet!
 Er şey sırasında olur.
 Menim sizge tevsiyem şu: sevmek isteseñiz — seviñiz, lâkin menim kibi, başıñıznı ğayip etmeñiz!
 
