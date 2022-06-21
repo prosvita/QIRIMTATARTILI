@@ -665,7 +665,8 @@ Divar artından:
 Laqırdı eteyatqanlar — eki student qızlar edi.
 
 — Men yoruldım.
-Sabırım qalmadı,— dedi Valâ. — Böriskanı Karamatqa qaldırıp, özüm orduğa ketmek isteyim.
+Sabırım qalmadı,— dedi Valâ.
+— Böriskanı Karamatqa qaldırıp, özüm orduğa ketmek isteyim.
 Çıdayalmayım... almasalar, partizanlıqqa keterim.
 
 — Niçün, Valâ?
