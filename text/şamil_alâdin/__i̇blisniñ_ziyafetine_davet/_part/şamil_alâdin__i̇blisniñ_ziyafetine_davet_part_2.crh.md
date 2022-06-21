@@ -138,7 +138,6 @@ O subetke serbest ceriyan bermek istedi, çünki özü resmiy laqırdığa 
 Azğanımmı?
 Semirgenimmi?
 Siz, eski dostum da, öyle...
-
 – Tekaran eslice körünesiñiz.
 Kerçek... bu tabiiy şey.
 O qadar vaqıt keçti!
