@@ -126,14 +126,15 @@ Meni añladıñızmı, Musa?
 
 Afız efendiniñ soñki üç sözü hususiy emiyetke emir olıp, onı ayrıca ğayret ve tamlıq ile eda etmek kerek.
 Bu şartlı sözlerniñ manası Garoz Memetke malüm.
-
 – Şübesiz, şorbacı!
 
 Hızmetçi art-artına dört adım çekildi, soñra ğayıp oldı.
 
 – Sizni birden tanıp olamadım, Afız, tasavur etesiñizmi? – dedi musafir.
-O subetke serbest ceriyan bermek istedi, çünki özü resmiy laqırdığa alışıq adam degil. – Zanımca, deñişkensiñiz! – Er kes öyle dey, faqat nasıl deñişkenimni kimse aytmay. – Femi efendi zevqlanıp küldi. –
-
+O subetke serbest ceriyan bermek istedi, çünki özü resmiy laqırdığa alışıq adam degil.
+– Zanımca, deñişkensiñiz! 
+– Er kes öyle dey, faqat nasıl deñişkenimni kimse aytmay. 
+– Femi efendi zevqlanıp küldi. –
 Azğanımmı?
 Semirgenimmi?
 Siz, eski dostum da, öyle...
