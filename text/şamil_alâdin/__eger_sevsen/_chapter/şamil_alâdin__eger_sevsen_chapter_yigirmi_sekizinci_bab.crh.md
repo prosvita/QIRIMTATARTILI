@@ -428,7 +428,8 @@ Valâ devam etti:
 
 — Öyle, hırsız kibi, gizliden çıqıp ketmek...
 
-— Bu öpke niçün, Valâ? — dep soradı Kandıba. — Men saña: evlenirmiz... bir yaqlarğa ketermiz degenmi edim?
+— Bu öpke niçün, Valâ? — dep soradı Kandıba.
+— Men saña: evlenirmiz... bir yaqlarğa ketermiz degenmi edim?
 Seni işandırğanmı edim?
 
 — Yoq.
