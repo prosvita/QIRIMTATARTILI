@@ -43,7 +43,8 @@ Yandım-yaqıldım, amma közlerimden yaş çıqmadı.
 Tek, göñlümniñ üzerinde bir bürüşik daa asıl olğanını sezdim.
 Elpidege bularnıñ episini yazdım.
 Bu mektübimde onıñnen, ilki defa olaraq, bir dost sıfatında laqırdı ettim.
-"Şimdi menim, senden ğayrı, yaqın kişim yoq,— dep yazdım.— Elbet de, yahşı yigitler barlar... söz kelimi, Raşid, Hristofor, Karim, Nikolay.
+"Şimdi menim, senden ğayrı, yaqın kişim yoq,— dep yazdım.
+— Elbet de, yahşı yigitler barlar... söz kelimi, Raşid, Hristofor, Karim, Nikolay.
 Lâkin men olarnıñ ögüne barıp, derdimni aytıp olamam.
 Selime vefat etti... işittiñizmi?
 demege mecalım yetmez.
