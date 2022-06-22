@@ -202,12 +202,12 @@ Qız, yanaşamdan keçer eken, başını maña çevirip:
 
 — Sizni de davet etemiz! — dedi ve iri, beyaz tişçlerini körsetip külümsiredi, soñra: — eger razı olsañız... — dep ilâve etti.
 
-Vu teklifke yigitler de qoşuldılar.
+Bu teklifke yigitler de qoşuldılar.
 Biri urum tilinde rica etti, digeri acar tilinde, üçüncisi türk tilinde.
 Soñundan añlağanıma köre, bu üç tilniñ üçü de olarnıñ ana tilleri eken.
 
 Niayet, epimiz yalığa doğruldıq.
-Men yigitlerniñ artına yetmek içün suvnı şapırtıp-köpürtip, ögge ıntılğanda, qıznıñ acnz davuşını işitip, arqama çevirildim.
+Men yigitlerniñ artına yetmek içün suvnı şapırtıp-köpürtip, ögge ıntılğanda, qıznıñ acuv davuşını işitip, arqama çevirildim.
 
 — Meni açıq deñizde qaldırıp ketmek isteyñizmi? — dedi o maña, azaçıq külümsirep,— ne aşıqasıñız?
 Ep bir Hristofornıñ peşine yetalmazsıñız.
@@ -251,7 +251,7 @@ Yüklü gemi kelse, hızmet çıqsa, artel ve brigadağa adam qabul etile turğa
 İşsizlikke, can sıqıntısına beñzegen bu ayat, aqiqatta, öyle degil edi.
 
 Men şimdi stil qurbanlarını, ecnebiy memleketten ne kelse, episine secde etici bazı yigitlerni körem.
-O sağlam kevdeli, yanıq çereli, hızmetsever yaşlar qayda... bıcaqlarını yumarlap, sol omuzları üzerine qoyup yürgen, azırğa duacı, bu nişaretli kişiler qayda?
+O sağlam kevdeli, yanıq çereli, hızmetsever yaşlar qayda... 
 
 Biz Duranidiniñ evinde on bir şişeni tüplegen ve haçapuri yegen soñ, Hristofor meni özüne qardaş dep bilgenini söyledi ve evlerinde bir afta musafir olıp qalmamnı talap etti.
 
@@ -263,21 +263,20 @@ Onıñ türkü söylegen adeti bar edi.
 Elpide yüksekçe boylu, ince belli qız...
 Onıñ qaverenki çeresi ve tığız müçesi araretli, şeñ ömürniñ timsali edi.
 
-İnstitutqa barsañ, meni dostlarıña aytıp, yıllar boyu külip, mısqıllap yürersnñ...— dey edi Elpide,— mıyeqıllasañ mısqıllay ber!
+İnstitutqa barsañ, meni dostlarıña aytıp, yıllar boyu külip, mısqıllap yürersnñ...— dey edi Elpide,— mısqıllasañ mısqıllay ber!
 Ne yapmalı?
 Men seni sevem!
 İnce Qayanıñ üstüne çıqalmay turğan vaqıtıñda begendim, birden zecanğa keldim.
 Hristofor ise açuvlandı, meni öldürecek oldı.
-Amma ekiñiz tanışç olğan soñ, seni o da sevdi.
+Amma ekiñiz tanış olğan soñ, seni o da sevdi.
 Şimdi Hristofor saña menden ziyade aşıq.
 Men endi seni Hristofordan künleyim.
-İşitesiñmi, Cevdet?
+Eşitesiñmi, Cevdet?
 
-— İşitem, işitem... menim sevimli Elpidem! 
-İşite edimmi, aceba?
+— Eşitem, еşitem... menim sevimli Elpidem!
+Eşite edimmi, aceba?
 İnsan kimer vaqıtta yüreksiz, duyğusız yaşay...
 Canavarnıñ özü kibi.
-Men qayıq içinde Elpideniñ qararğan... yoq, qararğan degil, deñiz suvı ve küneş nurı altında kerbar renkini alğan acaip ayaqları ucunda oturıp, onıñ mavı közlerine baqam, lâkin... közümizdeki Gulâranı körem.
 Elpideniñ ise yüregi sade, özü namuslı.
 Menim ayatımda böyle saf sevgi, saf muabbet, böyle araretli öpüşler daa oldımı aceba?
 
@@ -286,7 +285,7 @@ Baq közlerime!
 Köresiñmi?
 Eger yalan söylesem, olarnı oyup alsınlar!
 Başımnı kesip, Kabuleti yolu üstündeki yüksek şımşır teregine saçlarımdan asıp qoysınlar.
-İşitesiñmi, Cevdet?
+Eşitesiñmi, Cevdet?
 Eger ömürimde, başqasını, seni sevgenim qadar sevgen olsam... lâkin yalvaram, maña öyle şübeli baqma!
 Şimdiçik özümni deñizge atarım!
 Baq!
@@ -316,15 +315,16 @@ Elpide bu hucur tarihnı işitken soñ, kene ağlap yiberdi ve bu günanı maña
 
 — Menmi? — onıñ közleri intiqam ile yandılar.
 Şimdi boğazıma yapışır belledim, lâkin yoq... elindeki gitaranı fırlatıp yiberdi, gitara qayıqnıñ astındaki sılaq tahtağa urıp, devamlı-asretli sağır davuş çıqararaq, susıp qaldı.
-Men onı elime aldım. — Dmitriy ile eki defa dansigge bardım, onı sevgi isap etesiñmi?
+Men onı elime aldım.
+— Dmitriy ile eki defa dansigge bardım, onı sevgi еsap etesiñmi?
 Toqta sen...
 Sen meni...— onıñ közlerinde kene yaşlar asıl oldılar.
-Hayli vaqıt keçken soñ, Elpide meni sevgeni içün tekrar yemin etti.
+Hayli vaqıt keçken soñ, Elpide meni sevgeni içün tekrar emin etti.
 
 Bu qıznıñ tabiatında añlaşılmaz, taacipli şeyler çoq edi; sevinçten — kederge öyle tez ve ümütsizden keçe edi ki, men kimerde şaşmalay edim.
 Amma muabbetleşmekniñ çaresini de tez tapa edi.
 
-Ey-va!
+
 Dünyada er şey keçip ketkeni kibi, bu bir aftada keldi-keçti.
 Hristofornıñ ve Elpideniñ dostları meni ozğarıp vokzalğa keldiler.
 Poyezd köçkende Elpide ağladı, men özüm de ağlayyazdım.
@@ -341,12 +341,12 @@ Hristofor vayıldap, elinen közüne yapışqan ve şu arada başı aylanıp yer
 Elpideniñ tabirince Hristofornıñ eki qopqa qanı aqqan.
 Onı lineykağa qoyıp, hastahanege ketirgenler.
 Vir buçuq aydan soñ evge qaytıp barğan.
-Sağ közü yeq eken.
+Sağ közü yоq eken.
 
 Elpide diger mektübinde evelki Hristofornıñ artıq yoq ekenini, onıñ vefat etkenini... hastahaneden tamamınen başqa adam qaytıp kelgenini yazğan edi.
 Hristofor evden çıqmay, plâjğa barmay, eski dostlarınen körüşüvden qaçına, pek tüşkün olıp qaldı, dep şikâyetlengen edi.
 
-Eppi vaqıt keçken soñ men qart Duranidiniñ evlengeni, Hristofornıñ ise evde qalmaq istemegeni haberini işittim.
+Eppi vaqıt keçken soñ men qart Duranidiniñ evlengeni, Hristofornıñ ise evde qalmaq istemegeni haberini еşittim.
 Elpideniñ özüniñ de evden qaçmaq niyeti barlığını añladım, çünki cadı Vasila, Elpndeniñ ve Hristofornıñ üstüne qıçıra bermekten başqa şey bilmey eken.
 
 Elpide evni bıraqıp ketmek istey...
