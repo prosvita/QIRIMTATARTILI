@@ -606,11 +606,11 @@ Onı er kes saya-seve.
 Dneprden keldi.
 
 Köpür bette parovoz sızğırdı.
-Yel azaçıq yarıqlandı, biz özen yalısına kelip yettik.
+Yоl azaçıq yarıqlandı, biz özen yalısına kelip yettik.
 Tezden yeñi smena başlaycaq, amma men daa Hristofordan özüm içun müim şeyni sorap yetiştiralmadım.
 Hristofor, ğaliba, bunıñ farqına bardı.
 
-— Elpideden mektüp kelmegeni çoq vaqıt oldı,— dep taşladı. — O şimdi Batumda yaşamay, haberiñ barmı?
+— Elpideden mektüp kelmegeni çoq vaqıt oldı, — dep taşladı. — O şimdi Batumda yaşamay, haberiñ barmı?
 Yüregim ne ise yımşap ketti.
 Hristofor devam etti: — Kabuletide çay fabrikasında işley.
 Vasila ile bir evde yaşamaq istemey,— şay degen soñ, Hristofor birden toqtaldı, tiklenip, közlerime baqtı. — Sen ne?
