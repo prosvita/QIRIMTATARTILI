@@ -487,7 +487,8 @@ Añlamadı.
 Soñ yanıma kelip oturdı.
 
 — Sizge ne oldı, Cevdet aka?
-Keyfiñiz yoqmı?— dep soradı menden. — Bir şey aşamaysıñız. — Ögüme sıcaq qartop ezmesi tolu çanaqnı sürdi.
+Keyfiñiz yoqmı?— dep soradı menden.
+— Bir şey aşamaysıñız. — Ögüme sıcaq qartop ezmesi tolu çanaqnı sürdi.
 Zornen de olsa, kene qapındım.
 Karamat türtip qaşıqnı polğa tüşürdi, egilip onı ala-yata edim, qulağıma gizliden: "İrada sizni bekley..." dep fısıldadı, ketip tekrar Karimniñ yanına oturdı.
 Yavaştan köridorğa doğruldım.
