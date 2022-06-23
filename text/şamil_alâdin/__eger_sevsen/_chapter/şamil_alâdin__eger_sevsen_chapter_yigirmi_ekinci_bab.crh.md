@@ -530,7 +530,6 @@ Soñ, nasıl?
 
 Yekaterina Vasilyevna bir şeyler işitken.
 Amma becerip aytalmay.
-Özü zır-sarğuş.
 
 — Bu üfürtme şeyni kimden işittiñiz?
 
