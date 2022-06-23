@@ -338,7 +338,7 @@ Onı Yekaterina Vasilyevna özü çıqıp qarşılap aldı.
 Köridor içinde toqtatıp, yanağından öpti, gizliden maña köz qıptı: "o vaqıtta saña da böyle yapqan edim... soñ, ne oldı?Öldüñmi bundan?" demek istedi.
 
 — Va-ay, Karim!— dep qıçırdı Yekaterina Vasilyevna. — Tıpqı maşinistniñ özü olğansıñ.
-Eniñe-boyuña öskensiñ.
+%
 Yüzüñ aqçıl renk alğan, bürüşken.
 Güya on yıl yuqu körmegensiñ.
 Karamatnı çağırdım.
