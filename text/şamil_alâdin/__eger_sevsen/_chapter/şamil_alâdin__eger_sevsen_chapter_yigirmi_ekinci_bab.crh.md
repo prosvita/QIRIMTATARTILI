@@ -406,7 +406,7 @@ Soñra doğralmağan qapısta, şalqam ve saire.
 
 Musafirlerniñ sayısı arta berdi.
 Bizim baraknıñ bütün ealisi mında edi.
-Raşidni isapqa qoşmasaq...
+%
 Toqtabayev da keldi.
 Tursunov da.
 
