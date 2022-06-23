@@ -395,7 +395,7 @@ Terenden köküs keçirdim.
 — Böyle yaşaysıñızmı? — dedim Hristoforğa. 
 Onıñ çeresinde keder sezildi ve cevap berecegi yerde, teren nefes aldı.
 
-— Begenmediñmi?— dep soradı sarışın kişi.
+— Begenmediñmi? — dep soradı sarışın kişi.
 
 — Sen ne?
 Mında er şey jevupri yahut silvuple bellediñmi?
@@ -407,7 +407,7 @@ Ecnebiy sözçikler de bundan kelip çıqsalar kerek.
 Kerçek, böyle azamatlı kevdege tögerek yüz ve mavı közler iç kelişmeyler.
 Lâkin...
 
-— Ayta ber! — dedi kişi maña, Hristoforğa çevirilip — ferm lâ port!2 — dep taşladı.
+— Ayta ber! — dedi kişi maña, Hristoforğa çevirilip — ferm lâ port! — dep taşladı.
 
 Hristofor sesini çıqarmay, barıp qapunı qapattı, sarışın kişi ise maña ücümini devam etti:
 
@@ -416,11 +416,7 @@ Yoqsa appartamentimizni begenmediñmi?
 
 Maña oqtala bergenine pırtlazlana başladım.
 
-— Begenilecek şey körmeyim! — dedim men. —
-
-Rica etem, buyurıñız! (frans.). 
-Qapunı qapat (frans.).
-
+— Begenilecek şey körmeyim! — dedim men. 
 Qayda baqsañ balçıq, kir, örümçek yuvası amma bunıñ içinde yaşağan kişiler toreadorlarğa beñzeyler.
 Sarışın kişiniñ beti evelâ kom-gok oldı, soñ küldi.
 
@@ -431,9 +427,9 @@ Zevqlı!
 
 Hristofor menim ögüme, qaynağan suv tolu teneke meşrebe ketirip qoydı.
 
-— Gazeta olsa töşer edik... qaydan alasıñ? — dedi o, öz-özüni aqlağan olıp,— mahorka içip bitirdiler... şaqalâar!
+— Gazeta olsa töşer edik... qaydan alasıñ? — dedi o, öz-özüni aqlağan olıp, — mahorka içip bitirdiler... şaqalâar!
 
-— Dört küvert içün...— dedi sarışın kişi,— dediler ve centlmenler, rica etem, stolğa buyurıñız! — şay degen soñ, oyuncılardan birine çevirilip,— tut stolnıñ ucundan, koykağa yaqın çekeyik! — dedi o,— kimge aytam!
+— Dört küvert içün...— dedi sarışın kişi,— lediler ve centlmenler, rica etem, stolğa buyurıñız! — şay degen soñ, oyuncılardan birine çevirilip,— tut stolnıñ ucundan, koykağa yaqın çekeyik! — dedi o,— kimge aytam!
 
 Lâkin oyuncı özüni sıqmadı.
 Bayağı vaqıt qıbırdamay oturdı, soñ ayaqqa turdı, entir-tentir ocaqnıñ yanına bardı, arıq ellerini tar, oyuq köküsi üzerine haçladı.
@@ -443,7 +439,7 @@ Güzel... ya ne aşaycaqmız?— dedi oña, açuvlanıp.
 
 — Yeter! — dedi Hristofor,— felsefeniñ, kerekligi yoq!
 
-— Yezdir başımdan! — arıq kişi qoyu, mot sezlernen sögündi.
+— Yezdir başımdan! — arıq kişi qoyu, mаt sezlernen sögündi.
 
 — Bunı köresiñmi, Arhipka! — sarışın kişi yumruğını kösterdi.
 
@@ -513,10 +509,10 @@ Başqa şey qalmadı.
 Episini sıpıştırdıq.
 Keç keldiñiz!
 
-— Raqı olsa edi,— dedi komendant tüşkün sesnen,— amma böyle quru...
+— Raqı olsa edi, — dedi komendant tüşkün sesnen, — amma böyle quru...
 Onıñ ne yeriniñ lezetinn baqacaqsıñ?
 
-— Komendnant yalq etil maña baqtı: — Yeñi kişi sizsiñizmi?— dep soradı. 
+Komendnant yalq etil maña baqtı: — Yeñi kişi sizsiñizmi? — dep soradı.
 Men başımnı salladım.
 
 — Yuriñiz menimnen!
@@ -530,7 +526,7 @@ Familiyamnı söyledim.
 
 — Bekirov?
 Maña ise Petâ emce deyler! — dedi komendant resmiy davuşnen ve közleri çemodan üstüne tüşti. — Seniñkimi?
-Kilitlen, çetke qoy,— dep emir etti.
+Kilitlen, çetke qoy, — dep emir etti.
 
 Arqama teşek, yastıq, çızma sıqınıp qaytıp kelgende barakta kimse yoq edi.
 Koykamnı pencerege yaqın çekip, üstüne töşek ve yorğan töşedim.
@@ -562,7 +558,7 @@ Ne oldı?
 Yarım saat keçken soñ men, Hristofor ve Arhipka beraber qaranlıq gecede yolğa çıqtıq.
 
 — Kene üç kişimiz.
-Daima üç kişi,— Arhipka nişaretli sezlernen sögündi,— Kandıba er kün bir marifet körsete,— o Hristofornıñ omuzından türtti: —Dostuña ayt, onıñ içün hızmet ete bermege vaqıtım yoq!
+Daima üç kişi,— Arhipka nişaretli sezlernen sögündi, — Kandıba er kün bir marifet körsete,— o Hristofornıñ omuzından türtti: — Dostuña ayt, onıñ içün hızmet ete bermege vaqıtım yoq!
 
 Arhipka biraz ögge ketken soñ, Hristofor menimnen yanaşalap yurdi.
 
@@ -601,7 +597,7 @@ Niçün?
 
 — Bilımeysiñmi?
 Anna Yakovlevna.
-Vaş Dugümniñ büyügi.
+Baş Dugümniñ büyügi.
 Bir şeyni ayttımı — bitti.
 Ne yapsa, işçilernen añlaşıp yapa.
 Bilgen şeyi olsa, cangoñülnen añlata.
