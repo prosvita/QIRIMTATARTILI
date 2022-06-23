@@ -274,7 +274,8 @@ Nikolaynen ekimiz onı qoltuqlap aldıq.
 Elleri açıq alda çapıp keldi, Hristofornı quçaqladı, yanağından öpti.
 
 — Keldiñizmi, qıymetli Hristofor?
-Keldiñizmi?— dep tekrarladı o. — Ne qadar güzel.
+Keldiñizmi?— dep tekrarladı o.
+— Ne qadar güzel.
 Sizni yiberdilermi?
 
 Hristofor qıznıñ sualine cevap bermedi.
@@ -294,7 +295,8 @@ Biz Hristofornı alıp, Almazovnıñ evine musafirlikke kettik.
 Raşid bizimnen ketmedi.
 O başqasınıñ evine barmağa işandırğan.
 
-— Böyle olıp çıqacağını bilmedim,— dedi o. — Bilgen olsam, iç vade bermez edim.
+— Böyle olıp çıqacağını bilmedim,— dedi o.
+— Bilgen olsam, iç vade bermez edim.
 
 — Qızğa vade bergen olsañ, iş qolay,— dedi Almazov,— seni de, onı da bizge alıp keteyik.
 Kimge baracaqsıñ?
@@ -311,7 +313,8 @@ Bu — onıñ evi ekenini bizge añlatmağa tutunğanda, qapu açıldı.
 
 — Beki-rov!
 Sizni mında nasıl yeller alıp keldi?— dedi qadın sesi.
-Baqsam, Yekaterina Vasilevna, üstünde yeñsiz, qısqa anter. — Ne öyle baqasıñız?
+Baqsam, Yekaterina Vasilevna, üstünde yeñsiz, qısqa anter.
+— Ne öyle baqasıñız?
 Tanımaysıñızmı?
 
 — Buyur, Cevdet!— Andrey Zaharoviç, Yekaterina Vasilyevnanı çetke çekip, kirmege yol açtı,— bu menim evim.
