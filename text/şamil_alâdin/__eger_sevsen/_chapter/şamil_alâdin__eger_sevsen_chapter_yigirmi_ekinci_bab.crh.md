@@ -557,7 +557,8 @@ Lâkin özüñizge malüm men sizden iç bir şey gizlemeyim.
 Yahşı yigitsiñiz, Cevdet.
 O vaqıtta aramızda bir şey olmağanı yahşı.
 Siziñ içün yahşı, menim içün, bilmeyim...
-Men sizni begene edim. — Yekaterina Vasilyevna ökünçli davuş ile söylenmekte edi,— lâkin, Cevdet, menim kibileri siziñ içün degil.
+Men sizni begene edim.
+— Yekaterina Vasilyevna ökünçli davuş ile söylenmekte edi,— lâkin, Cevdet, menim kibileri siziñ içün degil.
 Siz, namuslı yigitsiñiz.
 Men bilmedim.
 Endi bu tarihnı İradağa tafsilâtlı surette ikâye etip, işiñizni tüzetmek isteyim.
