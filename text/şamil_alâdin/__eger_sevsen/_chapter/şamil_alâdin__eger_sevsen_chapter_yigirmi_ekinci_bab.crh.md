@@ -609,7 +609,8 @@ Bir qaç kere körüştik.
 
 — Eki kere körüştik dediñiz!
 
-— Belki ziyadecedir. — Yekaterina Vasilyevna kene küldi.
+— Belki ziyadecedir.
+— Yekaterina Vasilyevna kene küldi.
 Onıñ külüşi eki manalı degil edi,— ne farqı bar?
 Doğrusı öyle degilmi, Cevdet?
 Menim şeytanlarımnı qozğamañız!
