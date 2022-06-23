@@ -575,7 +575,9 @@ Lomakovnı bilmeyim...
 Bir gece ondan suv alğansıñız.
 Barakta...
 
-— Muşuq?!— laklı kartuzı, santıraç bıcağı, qaşları üstüne sarqqan bir top quvurçıq saçı közlerimniñ ögüne keldiler. — Menim degen kişim olsa...— Muşuqnıñ biçimini tasvir ete başladım.
+— Muşuq?!— laklı kartuzı, santıraç bıcağı, qaşları üstüne sarqqan bir top quvurçıq saçı közlerimniñ ögüne keldiler.
+
+— Menim degen kişim olsa...— Muşuqnıñ biçimini tasvir ete başladım.
 
 — Onıñ özü!
 Bilmeyim degeniñiz ne?
