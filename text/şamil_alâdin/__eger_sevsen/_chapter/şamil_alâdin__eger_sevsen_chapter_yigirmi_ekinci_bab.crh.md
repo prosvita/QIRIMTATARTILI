@@ -449,7 +449,8 @@ Qana, köterdik!
 
 — Hanım azretleri?— Karim başınen kuhnâ tarafqa işaret etti,— olar içmeyceklermi?
 
-— Roza, Katâ,— Almazov qadınlarnı davet etti. — Sizni bekleymiz.
+— Roza, Katâ,— Almazov qadınlarnı davet etti.
+— Sizni bekleymiz.
 
 Rozaliya Nikolayevna ve Yekaterina Vasilyevna kirdiler.
 Tek özleri degil, olarnen beraber Karamat da bar edi.
