@@ -335,8 +335,7 @@ Bu arada qadınlar kuhnâda ve köridorda qarıştı, çapqaladılar.
 
 İçeri kirip, oturdıq degende, Karim peyda oldı.
 Onı Yekaterina Vasilyevna özü çıqıp qarşılap aldı.
-Köridor içinde toqtatıp, yanağından öpti, gizliden maña köz qıptı: "o vaqıtta saña da böyle yapqan edim... soñ, ne oldı?
-Öldüñmi bundan?" demek istedi.
+Köridor içinde toqtatıp, yanağından öpti, gizliden maña köz qıptı: "o vaqıtta saña da böyle yapqan edim... soñ, ne oldı?Öldüñmi bundan?" demek istedi.
 
 — Va-ay, Karim!— dep qıçırdı Yekaterina Vasilyevna. — Tıpqı maşinistniñ özü olğansıñ.
 Eniñe-boyuña öskensiñ.
@@ -353,13 +352,16 @@ Ev saibine beñzegen.
 — Arhipkanı çıqarıp yibergenler.
 Haberiñiz barmı?— dedi Karim. — Komendnanttan işittim.
 
-— Arhipkanımı?— Andrey Zaharoviçniñ yüzü titislendi. — Niçün?
+— Arhipkanımı?— Andrey Zaharoviçniñ yüzü titislendi.
+
+— Niçün?
 
 — Olmaycaq şey...— Kandıba inanmadı.
 
 — Ne vaqıt?
 Nasıl çıqarğanlar?
-Petâ emce tafsilâtını bilmey,— dedi Karim. —Amma pek qasevetlene.
+Petâ emce tafsilâtını bilmey,— dedi Karim.
+—Amma pek qasevetlene.
 Parom işçileri körgenler.
 Azğan-tozğan.
 Çar-Çaqtan ketecegim, degen.
