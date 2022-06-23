@@ -366,7 +366,8 @@ Parom işçileri körgenler.
 Azğan-tozğan.
 Çar-Çaqtan ketecegim, degen.
 
-— Çıqqan olsa, bir baş barakqa çapar edi. — Kandıba kene inanmadı,— çemodanı bizde.
+— Çıqqan olsa, bir baş barakqa çapar edi.
+— Kandıba kene inanmadı,— çemodanı bizde.
 Onıñ içün çemodan ne demek, bilesiñizmi?
 
 — Alçaq adam!— dedi Bassaraba.
@@ -381,12 +382,15 @@ Men elinden çekip, toqtattım.
 Eki ğarip militsioner.
 İşini kimse teşkergeni yoq.
 
-— Çemodanını qıdırıp ille kelecek,— dedim men. — Eger kerçekten de boşalğan olsa...
+— Çemodanını qıdırıp ille kelecek,— dedim men.
+— Eger kerçekten de boşalğan olsa...
 
 — Arhipka barakqa kelmez,— dedi Karim. — Nikolay olmasa edi, başqa mesele.
 Kelip körünse, özüne yaramay olacaq.
 
-— Arhipkanı aqlağan olsalar...— dedi Basit. — Eger qabaatlı olmasa...— o Hristoforğa köz etip aldı. — Baş Dugümge çoqtan qaytıp kelir edi.
+— Arhipkanı aqlağan olsalar...— dedi Basit.
+— Eger qabaatlı olmasa...— o Hristoforğa köz etip aldı.
+— Baş Dugümge çoqtan qaytıp kelir edi.
 Neden qorqacaq?
 
 — Arhipkanıñ çıqarılıp yiberilgeni bir şey degil,— dedi Karim,— amma Nikolay onı qapattıruvda aqsız olıp çıqsa... o vaqıtta iş fena olur.
