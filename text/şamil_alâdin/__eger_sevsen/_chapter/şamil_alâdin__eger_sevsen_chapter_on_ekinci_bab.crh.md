@@ -41,7 +41,8 @@ A! Yeñi yıl.
 Toyğanca aşadım.
 Stol başından turayatqanda, Sabira hala yanıma keldi.
 
-— Aqşam yemegine kelmege unutma! — dep tenbiyledi meni. — Saat on birde!
+— Aqşam yemegine kelmege unutma! — dep tenbiyledi meni.
+— Saat on birde!
 Adetiñni bilem... aqşam yemegine kelmege erinesiñ!
 Arqadaşlarıña da ayt, kelsinler.
 Ürükli ve qapıstalı piroglar olacaq.
@@ -49,8 +50,7 @@ Arqadaşlarıña da ayt, kelsinler.
 Qoşaf içinde ürükniñ özüniñ yoqluğı... borşçnıñ etsiz ekenligi de şunıñ içün eken de! 
 Özümniñ tüşüncelerimni apansızdan Sabira halağa aytıp yiberdim.
 O alıp köçti — dünyanı yıqayazdı.
-"Burunıñnı er şeyge tıqma!
-Erkek ol!— elindeki çomuçnı köterdi, az qaldı başıma endirecek edi,— öşekçi cadı olma!"
+"Burunıñnı er şeyge tıqma!Erkek ol!— elindeki çomuçnı köterdi, az qaldı başıma endirecek edi,— öşekçi cadı olma!"
 
 O bugün kişilerni güzel yemeknen sıylamaq istey.
 Az aşap, çoq içseler, ziyade sarğuşlana, soñundan qavğa ve kötek çıqa, amma böyle künde raqısız ve şarapsız, tek yemeknen kifayetlenmek mümkün olmaycağından, Sabira hala bütün çeberligini qoyıp, piroglar pişirmege azırlanmaqta eken... men onıñ ağırğan suyeline bastım.
