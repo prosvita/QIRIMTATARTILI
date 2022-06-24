@@ -141,8 +141,7 @@ Saqın, bir daa, men maşinanı toqtatmağance, rubilnikni çıqarma!
 Lâkin men... 
 Ne, men?
 Ne, men? 
-Qabaat mende! — dedi Mansurov,— maña.
-qıçır.
+Qabaat mende! — dedi Mansurov,— maña qıçır.
 Oña ne qıçırasıñ? — Mansurov kögerteniñ ucuna kelip, Andrey Zaharoviçke emir etti. — Toqtat işni!
 
 — Niçün?
