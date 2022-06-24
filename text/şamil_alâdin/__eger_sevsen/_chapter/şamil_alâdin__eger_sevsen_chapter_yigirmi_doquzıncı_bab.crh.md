@@ -408,7 +408,8 @@ Dünyada ırız-edep degen şey bar...
 Bekirov kim?
 Adiy nijnik.
 
-— Adiy nijnik...— İrada onıñ sözlerini tekrarladı. — Siz ise injenersiñiz.
+— Adiy nijnik...— İrada onıñ sözlerini tekrarladı.
+ — Siz ise injenersiñiz.
 
 Qız başını töpege kötere berip, qattı ve acele adımlarnen baraklarğa doğru ketti.
 Belki biraz yürgen soñ toqtalır, maña bir şeyler söyler belledim.
@@ -418,7 +419,8 @@ Soñ men de cönedim.
 
 Evde Nikolay ve Karim çay içmekte ediler.
 
-— Soñki gecem...— dedi Karim, kiçik közlerini ziyade kerip maña baqtı. — Yarın Baş Dugümde meni köralmaycaqsıñız!
+— Soñki gecem...— dedi Karim, kiçik közlerini ziyade kerip maña baqtı.
+— Yarın Baş Dugümde meni köralmaycaqsıñız!
 
 — Niçün?
 
@@ -427,15 +429,15 @@ Evde Nikolay ve Karim çay içmekte ediler.
 
 — Nikolay?
 
-— O mında qala,— Karim qalqtı, azbarğa çıqıp ketti. — Bir daqiqaçıq...
+— O mında qala,— Karim qalqtı, azbarğa çıqıp ketti.
+— Bir daqiqaçıq...
 
 — Yazıqlar olsun...— dedi Nikolay, köküs keçirip,— soñuna qadar bir yerde olmaycaqmız.
 
 — Yalıñız bir çare bar,— dedim men,— Karimge sıq-sıq musafirlikke barıp turacaqmız.
 Dostnı unutmaq olmay.
 
-— Dostnı.
-ebet... lâkin ketken-kete, aqibet, unutıla,— dedi Nikolay,— çare yoq, Cevdet, bizge de Batumğa ketmek kerek.
+— Dostnı ebet... lâkin ketken-kete, aqibet, unutıla,— dedi Nikolay,— çare yoq, Cevdet, bizge de Batumğa ketmek kerek.
 Sen, Hristofor ve men, üçümiz...
 Plotina bitken soñ,— o qolunı omuzım üstüne qoydı, mavı közlerini süze berip, külümsiredi,— seni mında tutqan ne bar?
 Evel qafañ içinde İrada tura edi.
@@ -455,7 +457,8 @@ Men çinar tübünde olıp keçken vaqianı söyledim.
 Ondan soñ barakta oturalmadım.
 Yüregimni öyle eecan bastı ki, Kandıbanıñ laqırdısı qulağıma kirmedi.
 
-— Nikolay,— dedim men. — Şimdi maña bir şey söyleme.
+— Nikolay,— dedim men.
+— Şimdi maña bir şey söyleme.
 Başımda esim yoq.
 
 Çıqtım.
