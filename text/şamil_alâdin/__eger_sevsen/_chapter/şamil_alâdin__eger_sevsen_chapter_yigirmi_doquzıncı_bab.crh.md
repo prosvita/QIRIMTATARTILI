@@ -155,7 +155,8 @@ Qayda körüngen şey?
 Almazov bizge eleslenip baqtı.
 Mansurov bunı esledi.
 
-— Ne oldı? — dep soradı Abdulla Sadıkoviç. — Aqılıña bir şey daa keldimi?
+— Ne oldı? — dep soradı Abdulla Sadıkoviç.
+— Aqılıña bir şey daa keldimi?
 
 — Kran...— dedi Almazov açuvlanıp,— kran, añladıñmı?
 
