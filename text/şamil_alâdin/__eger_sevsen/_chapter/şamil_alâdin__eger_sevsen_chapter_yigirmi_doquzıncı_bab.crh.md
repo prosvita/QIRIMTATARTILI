@@ -284,7 +284,9 @@ Kabinadan kişi tüşti.
 
 — Şadmanova?!
 Gecelein bu ne demek? — qız davuşnıñ saibini tanıdı: Vahid Tursunov...
-Elektrik bölügi başlığı. — Qana, oturıñız! — qıznı kabinağa çağırdı. — Çabik oluñız!
+Elektrik bölügi başlığı.
+— Qana, oturıñız! — qıznı kabinağa çağırdı.
+ — Çabik oluñız!
 Belki parom qapalğance yetiştirirmiz?
 
 Lâkin yetiştiralmadılar.
