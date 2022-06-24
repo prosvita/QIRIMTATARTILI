@@ -154,19 +154,23 @@ O qadar vaqıt keçti!
 Men eslice körünemmi? – musafirden tekrar soradı.
 
 Şamil endi uyğunsızlıqta qaldı.
-
 Afız darılmaq üzremi, yoqsa dostunıñ fikirini taqdirlemek isteymi?
-Er alda, Şamil öz sözüni tasdıqlap, yavaştan başını salladı: – Baq, bu doğru!
-Bu dostça – dedi Afız. – Men, aqiqaten, qartaydım!
+Er alda, Şamil öz sözüni tasdıqlap, yavaştan başını salladı: 
+
+– Baq, bu doğru!
+Bu dostça – dedi Afız.
+ – Men, aqiqaten, qartaydım!
 
 – Evlisiñizmi, Afız efendi?
 
 – Hayır!
 Evli degilim.
 Şeerniñ güzel qızları büyük miras saiplerine qocağa çıqtılar.
-Men quru qaldım. –Afız musafirge beyaz çerçiveli közlügi üstünden baqtı, subetdeşi ne der eken dep, bekledi.
+Men quru qaldım. 
+– Afız musafirge beyaz çerçiveli közlügi üstünden baqtı, subetdeşi ne der eken dep, bekledi.
 Musafir indemedi.
-Afız tekrarladı: – Ebet!
+Afız tekrarladı: 
+– Ebet!
 Quru qaldım!
 Men er vaqıt, er müim şyden quru qala turğanım, hatiriñizdemi?
 
