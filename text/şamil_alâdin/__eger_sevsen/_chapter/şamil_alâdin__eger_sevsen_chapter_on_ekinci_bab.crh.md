@@ -71,7 +71,7 @@ Sabira halanı tors mezep demek doğru olmaz edi, çünki o bazan ğayet nezaket
 Etrafıñızğa köz etiñiz, adamlar ne ile meşğuller?
 Aylanma kanalğa barmaq-kelmek, yuqlamaq ve aşhanede tıqınmaq.
 Zavodlarda ve fabirikalarda tseh başlığı bar, tseh ustası bar, baş injener bar, olar bir-birlerine iş buyuralar, icrasını teşkereler.
-Biri-digeriniñ nşini yapmasa, büyüklerine barıp şikâyet ete, mıradlarına ireler.
+Biri-digeriniñ işini yapmasa, büyüklerine barıp şikâyet ete, mıradlarına ireler.
 Bizde, baraklarda, kişilerniñ ömüri bir Petâ emcege bağlı.
 Aşhanede komandan kim?
 Men, Sabira hala!
