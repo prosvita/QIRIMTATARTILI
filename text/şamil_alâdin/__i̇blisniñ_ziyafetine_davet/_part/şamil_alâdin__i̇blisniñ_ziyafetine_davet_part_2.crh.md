@@ -8,6 +8,7 @@ Mögedekniñ ögü boşağan soñ, ucları töpege qaytıq, qara mıyıq
 Üstündeki kostümi biraz bürüşken, galstugınıñ tüyümi çetke cılışqan, qalpağı astından mañlayı üstüne sarqıq perçemine piçen parçası ilişip qalğan.
 Yaş kişiniñ piçenden-miçenden haberi yoq...
 O sebepten anbar yanında kibar çere ile tim-tik turdı.
+
 Arabanıñ töründe taze kök atlar üstünde oturıp kelgen yaş qadın, quçağındaki balanı uzatıp, yerdeki burma mıyıqlığa berdi, özü, erkek kişi kibi, bir ayağını parka üstüne basıp, diger ayağını yerge qoydı, soñra çit divarğa yaqın çekilip, tenine yapışıp qalğan etegini tüzetti, başındaki pullu fırlantasını çezip, örme saçlarını cıyıştırdı, fırlantasınıñ bürüşiklerini yazıp, ğayrıdan başına bağladı.
 Ciazlanuv bitken soñ, yaş kişi balanı qaytarıp qadınğa berdi.
 
@@ -55,6 +56,7 @@ Köşede beyaz yaqalı qırcıman kişiler domino oynaylar.
 Qaysı yeñe, qaysı yeñile, kenarda turıp bilmek küç, ama ardını kesmey, şaqıldap küle berüvleri ziyaretçilerni taaciplendire.
 Şaqıldı çıqqan sayın kişiler, qaşlarını yüksekke köterip, yelkelerini burıp, köşege baqalar.
 Külgenler – bazirgân oğulçıqları, keyfliler.
+
 Yüksek dolap üstündeki grammofonda Aşır Usta “Ne eylediñ, ne eylediñ sen baña?” degen efkârlı türküni söylemekte.
 
 Adamlarnıñ başları üzerinde sigar tütüni, insan teri ve azaçıq da qave qoqusı qarışıq, renksiz duman asılıp turmaqta.
