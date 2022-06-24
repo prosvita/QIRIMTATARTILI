@@ -118,8 +118,11 @@ Ne yapacaqsıñ?
 Kimerde şpalalarnı özümiz taşımağa ve relslerni pekitmege mecbur olamız.
 
 — Qayda bıralqılanıp yurdiñiz? — dep cekirdi üstümizge Hristofor.
-Yüzünde yasama ciddiylik sezildi. — Tez oluñız, yardım etiñiz!
-Kimse yoq... tek özümiz çekişemiz. — O, başından kepkasını çıqarıp, yüzüni sildi. — Baq, yarım saat içinde yol ne qadar uzandı!
+Yüzünde yasama ciddiylik sezildi.
+— Tez oluñız, yardım etiñiz!
+Kimse yoq... tek özümiz çekişemiz.
+— O, başından kepkasını çıqarıp, yüzüni sildi.
+— Baq, yarım saat içinde yol ne qadar uzandı!
 
 Ekskavatornı ögge cılıştırdık, soñ Andrey Zaharoviç kögertege çıqtı, rıçaglarnıñ ögüne oturıp, sol elini köterdi.
 Men rubilnikni keçirdim.
