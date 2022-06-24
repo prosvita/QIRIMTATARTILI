@@ -545,7 +545,8 @@ Menim mektübimde cevap yazuvdan da qıyın edimi?
 
 — Lâkin mektübiñiz...
 
-—...Üç ay evelsi yazılğan edi,— başlağan cümlemni İrada özü bitirdi. — Unutqanım yoq.
+—...Üç ay evelsi yazılğan edi,— başlağan cümlemni İrada özü bitirdi.
+— Unutqanım yoq.
 
 — Kim?
 Bu olıp keçken şeylerde kim qabaatlı?
@@ -560,6 +561,7 @@ Er şey ast-üst oldı.
 Kim ast-üst etti?
 
 — "Mavı qaya"da, qapunı qapata berip, injener Tursunovnen körüştiñiz.
+
 İçeri kirmek istedi... qoymadıñız!
 
 İrada ögümdeki kürsü üstüne oturdı:
