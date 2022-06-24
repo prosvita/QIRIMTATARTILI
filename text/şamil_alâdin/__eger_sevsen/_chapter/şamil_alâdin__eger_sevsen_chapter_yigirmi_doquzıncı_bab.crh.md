@@ -470,7 +470,8 @@ Artıma-ögüme bakmadım.
 Soñra adam kölgesini esledim.
 Oña körünmemek içün toqtaldım, adam da toqtaldı.
 
-— Kimsiñiz? — dep qıçırdı qadın. — Ne kerek?
+— Kimsiñiz? — dep qıçırdı qadın.
+— Ne kerek?
 
 Bir qaç adım ileri yurdim.
 Ögümde idareniñ pollarını yuvucı Manzura apa turmaqta edi.
@@ -484,7 +485,8 @@ Ayrette qaldım.
 — Yoq.
 İç bir şey... olmadı.
 İskanderden kelem.
-Pek ağır. — O yerdeki çuvalnı kösterdi,— belâ!
+Pek ağır.
+— O yerdeki çuvalnı kösterdi,— belâ!
 
 — Beriñiz maña! — dedim men.
 Çuvalnı arqama urdım... kettik.
@@ -506,7 +508,8 @@ Men aşıqam.
 Manzura apa meni toqtatmaq mümkün olmaycağını añladı.
 Tez-tez çuvalnıñ ağızını açtı, içinden eki büyük nar çıqarıp, ellerimniñ içlerine tıqtı.
 
-— Tut! — dedi maña, emir etken kibi. — Qız qardaşım berdi...
+— Tut! — dedi maña, emir etken kibi.
+— Qız qardaşım berdi...
 Namangandan ketirgen.
 
 Yol boyunda narlarnı qaç kere ceplerime qoyacaq olıp çekiştim, öyle balaban ediler ki, üstümdeki sekiz dane cebden birine sığmadılar.
