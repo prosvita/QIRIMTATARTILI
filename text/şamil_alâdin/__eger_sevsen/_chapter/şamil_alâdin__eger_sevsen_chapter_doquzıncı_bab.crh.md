@@ -10,7 +10,8 @@ ne men oña, ne o maña iç bir vaqıt mektüp yazğanımız yoq.
 Körüşmegenimiz ise çoq vaqıt oldı.
 Men onıñ hatrine nasıl etip keldim aceba?
 Aqşam emcesiniñ kelgenini beklegen.
-Emcesi qoyuncılıq sovhozında veterinariya ekimi hızmetinde olıp, insanlardaki bütün hastalıqlarnıñ da şifasını bulucı adam eken...— emcesi kelgen soñ, qız ondan bir meşrebe şarap istegen... ve üç kişi olıp, muabetlik eşqına içkenler.
+Emcesi qoyuncılıq sovhozında veterinariya ekimi hızmetinde olıp, insanlardaki bütün hastalıqlarnıñ da şifasını bulucı adam eken...
+— emcesi kelgen soñ, qız ondan bir meşrebe şarap istegen... ve üç kişi olıp, muabetlik eşqına içkenler.
 İçken soñ, emcesi tüşünceli alda başını sallap alğan, soñ qarısına "Selimeniñ çırayı meni raatsızlandıra..." degen.
 Geceniñ bir vaqıtında yengesi qıznıñ hucur davuşnen qıçırğanını işitken.
 
