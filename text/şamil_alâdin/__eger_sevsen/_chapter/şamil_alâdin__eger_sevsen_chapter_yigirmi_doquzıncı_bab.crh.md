@@ -187,6 +187,7 @@ Sağ yalıda ekinci beton zavodı işlep başladı.
 Onıñ yanında yükleyici stantsiya çalışa.
 Vagonçıqlar tel yollar boyu özenniñ bir yalısından diger yalısına beton taşıylar... beton meselesi endi çezildi.
 
+
 Plotinanıñ divarları kün-künden yükselmekteler.
 Baar kelip yetkenini duymay qaldıq.
 Yağmurlar yağa başladılar.
