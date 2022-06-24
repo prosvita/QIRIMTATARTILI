@@ -300,7 +300,8 @@ Saatkul ata, elinde berdankası, qıp-qırmızı çöyün sobanıñ ögünde otu
 Tursunovnı körgeninen tanıdı... deral ayındı, atılıp ayaqqa turdı: — yañçıq... biraz qızınayım dep kirdim, çıqacaq olıp otura edim. — Qart özüni aqlamağa tırıştı.
 Çar-Çaq yalısında, elektrik stantsiya donatması... relsler, şpallar, ağaçlar obalanıp yatmaqta ediler.
 
-— Yat, Saatqul ata... yuqla! — dedi Tursunov ve şaqıldap küldi. — Seniñ totlı demirleriñ kimsege kerekmey!
+— Yat, Saatqul ata... yuqla! — dedi Tursunov ve şaqıldap küldi.
+— Seniñ totlı demirleriñ kimsege kerekmey!
 
 — Totlı demirler?!
 E-e!
