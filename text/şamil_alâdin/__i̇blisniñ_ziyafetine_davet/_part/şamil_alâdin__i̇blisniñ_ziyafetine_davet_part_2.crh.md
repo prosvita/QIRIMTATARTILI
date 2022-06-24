@@ -174,7 +174,8 @@ Afız tekrarladı:
 Quru qaldım!
 Men er vaqıt, er müim şyden quru qala turğanım, hatiriñizdemi?
 
-Bu eki genç adam medresede beraber oquğan, bir ücrede üç adam olıp yaşağan ediler – üçüncisi aqqında söz öz nevbetinde olacaq. – Medreseden soñ, Şamil muallimlik etti.
+Bu eki genç adam medresede beraber oquğan, bir ücrede üç adam olıp yaşağan ediler – üçüncisi aqqında söz öz nevbetinde olacaq.
+Medreseden soñ, Şamil muallimlik etti.
 Afız ne iş ile meşğul oldı, Üseinniñ haberi yoq.
 Medresege kelgen vaqıtlarında Afıznıñ adı – Femi edi.
 Üsein Kökközden Şamil olıp keldi.
