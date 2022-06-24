@@ -20,7 +20,7 @@ Köyimizde anası bu haberni işitken soñ, bizim evge kelgen, anama episini sö
 Amma qıznıñ babasına bir şey aytalmağan.
 
 Ağamnıñ mektübi meni pek kederlendirdi.
-Köyimizni hatırladım.
+Köyimizni hatırladım .
 Onıñ soqaqları boyu dolanayatqanımnı kördim.
 Evimizniñ qapusı ögündeki aylançıq soqaq ile derege tüşeyatqanda, aylanıp artıma baqtım: sofada anam otura.
 O, artımdan baqıp, öglüginen közleriniñ yaşlarını sile.
@@ -551,7 +551,8 @@ Kandıbanıñ özü.
 Başıma, kim bile, nasıl belâ kelecek!?
 Okeanda furtuna, piratlar... bilesiñizmi?
 Uzaq yolğa çıquv arfesinde sizge hoşnudlıq ediyesi taqdim etmek isteyim.
-Nemseler buña: klâyde froyde deyler. —Matrosnıñ yüzü bulutlandı. — Qabul etmeseñiz, meni, deñizcini, kederlendireceksiñiz.
+Nemseler buña: klâyde froyde deyler. —Matrosnıñ yüzü bulutlandı.
+— Qabul etmeseñiz, meni, deñizcini, kederlendireceksiñiz.
 Eger qabul etseñiz, meni bahtlı eteceksiñiz".
 Deñizci öyle külümsiredi ki, dünyada iç bir erkek böyle usta külüp olamaz edi.
 
@@ -564,9 +565,11 @@ Nikolay onı añladı.
 
 "Men tanımağan — bilmegen adamımnıñ elinden ediye nasıl etip alayım?"
 
-"Bunıñ iç zararı yoq,— dedi deñizci, azaçıq külümsiredi. — Buña Batum, deyler.
+"Bunıñ iç zararı yoq,— dedi deñizci, azaçıq külümsiredi.
+ — Buña Batum, deyler.
 Mında er şey alicenaplıqnen nefes almaqta.
-Bu yeşil dağlarnı köresiñizmi? — Matros, töpesi brezent ile örtüli kafeniñ penceresi artında açılğan acaip manzaranı körsetti. — Bu deñiz, bu küneş ne demek?
+Bu yeşil dağlarnı köresiñizmi? — Matros, töpesi brezent ile örtüli kafeniñ penceresi artında açılğan acaip manzaranı körsetti.
+ — Bu deñiz, bu küneş ne demek?
 Bu dülberlik..."
 
 "Küneş... deñiz, dağlar!
@@ -621,7 +624,9 @@ Nikolay, Pâtireçyede bulundı.
 Seniñ haberiñ barmı?
 Lagerde degil, verbovkanen... öz isteginen çalıştı.
 Arhipkanen ekisi anda tanış olğanlar.
-Mında rastkelişkenleri kibi takleşip başladılar. — Bu yerde Hristofor sustı, biraz diñlenip turdı, soñra ağız arap: — Bizim injenerde kitap yoqmı?— dep soradı.
+Mında rastkelişkenleri kibi takleşip başladılar.
+ — Bu yerde Hristofor sustı, biraz diñlenip turdı, soñra ağız arap:
+ — Bizim injenerde kitap yoqmı?— dep soradı.
 
 — Bilmeyim,— dedim men.
 
