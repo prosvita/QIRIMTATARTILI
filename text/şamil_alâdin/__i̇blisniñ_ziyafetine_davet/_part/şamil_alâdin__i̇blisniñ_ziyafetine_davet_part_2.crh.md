@@ -185,10 +185,9 @@ Şamil bugün-gece eski ve yeñi adlarını çift qullanıp kelmekte.
 
 – Sizni Stambulda oquy, dep eşitken edim, – dedi musafir ve, laqırdını devam etmek içün azır sözler qıdırır eken, özüniñ galstugını tutıp baqtı.
 Onıñ tüyümi, paqıl kibi, kölmeginiñ yaqası astına kirip ketkenini seze qalıp, tez-tez tüzetti.
-Tüyüm rezina üstünde yasalğan.
-Oca boyunını qıbırdatqan sayın, tüyüm sol yaqqa cılışa bere.
-Tüyümni yerine qoyğan soñ, oca lafını devam etti: – Darılfnunda oquy ekensiñiz... doğrumı? – dep soradı o Afız efendiden. – Özüm asılını bilip olamadım.
-
+Tüyümni yerine qoyğan soñ, oca lafını devam etti: 
+– Darılfnunda oquy ekensiñiz... doğrumı? – dep soradı o Afız efendiden.
+– Özüm asılını bilip olamadım.
 – Yoq.
 Stambulda degil edim, – dedi Afız. – Fikret Şerif ile Peterburgda institutqa imtian berdik, qabul etildik.
 Oqumaq menim içün munasip olmadı.
