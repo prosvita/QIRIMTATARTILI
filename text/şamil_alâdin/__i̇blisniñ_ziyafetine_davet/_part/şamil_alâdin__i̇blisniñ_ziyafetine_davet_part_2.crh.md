@@ -81,6 +81,7 @@ Musafir hızmetçiniñ areketsiz turuvını bağşış beklevge yorap, eki 
 – Ey, Allayım! – dedi közlükli adam yumşaq davuş ile. 
 – Şamil efendi!
 Sizmisiñiz?
+
 Musafir aqırından yerinden qalqtı, kendine uzatılğan qolnıñ saibine ayretle baqtı-baqtı, niayet, tanıdı.
 
 – Afız! – dedi musafir alâ emniyetsizlikle. 
@@ -117,9 +118,11 @@ İtimal, acayip devirde yaşaycaq!
 Kim bilir?
 
 Bala yuqlap olamay, şınşıqlay bermekte edi.
+
 Acire hanım onı qolları üstünde sallamaqta oldığı alda, Afıznıñ iltifatlı sözlerine, başını sallayaraq, öz minnetdarlığını ifa etti.
 
 Afız efendi oturmaq içün yer qıdırıp, etrafına baqınır eken, hızmetçi onıñ astına deral kürsüni cılıştırıp qoydı, özü çetke çekildi.
+
 Afız efendi oturğan soñ, hızmetçini işmarle özüne yaqın çağırdı.
 
 – Garoz Memetke aytıñız, musafirler... – o közleriniñ areketinen Şamil efendini kösterdi, – ürmetli musafirler içün eyi yataq azırlasın.
@@ -128,24 +131,28 @@ Meni añladıñızmı, Musa?
 
 Afız efendiniñ soñki üç sözü hususiy emiyetke emir olıp, onı ayrıca ğayret ve tamlıq ile eda etmek kerek.
 Bu şartlı sözlerniñ manası Garoz Memetke malüm.
+
 – Şübesiz, şorbacı!
 
 Hızmetçi art-artına dört adım çekildi, soñra ğayıp oldı.
 
 – Sizni birden tanıp olamadım, Afız, tasavur etesiñizmi? – dedi musafir.
 O subetke serbest ceriyan bermek istedi, çünki özü resmiy laqırdığa alışıq adam degil.
-– Zanımca, deñişkensiñiz! 
+– Zanımca, deñişkensiñiz!
+ 
 – Er kes öyle dey, faqat nasıl deñişkenimni kimse aytmay. 
 – Femi efendi zevqlanıp küldi. –
 Azğanımmı?
 Semirgenimmi?
 Siz, eski dostum da, öyle...
+
 – Tekaran eslice körünesiñiz.
 Kerçek... bu tabiiy şey.
 O qadar vaqıt keçti!
 
 – Eslice?
 Men eslice körünemmi? – musafirden tekrar soradı.
+
 Şamil endi uyğunsızlıqta qaldı.
 
 Afız darılmaq üzremi, yoqsa dostunıñ fikirini taqdirlemek isteymi?
