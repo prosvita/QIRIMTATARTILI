@@ -382,7 +382,8 @@ Gecelik sergüzeştiñizniñ resmiy şaatı olğanımnımı?
 Men sizge, özümden ziyade inana edim, İrada!
 Meni aqaretlediñiz!
 
-— Siziñ bir şeyden haberiñiz yoq, Cevdet! — İrada kiyik sesnen qıçırdı. — İç bir şey bilmeysiñiz!
+— Siziñ bir şeyden haberiñiz yoq, Cevdet! — İrada kiyik sesnen qıçırdı.
+— İç bir şey bilmeysiñiz!
 
 — Bilmey edim... şimdi bildim!
 
