@@ -9,7 +9,7 @@ Altı adamnıñ bir ayda qazanğan parasından Andrey Zaharoviçniñ ve Nikolayn
 Nikolay, üyken nijnik olğanı içün, bizden qırq kümüş ziyade ala.
 
 Men kelgenimden beri üçünci defa maaş alayatam.
-Eki ay, bir kün kibi, keldi-keçti,
+Eki ay, bir kün kibi, keldi-keçti.
 
 Bugün smenanı teslim eteyatqan vaqıtımızda, Toqtabayev iri, etli köz qapaqlarını aqırından aralıq etip, külümsiredi.
 Aralıq etkende, közleri eki dane üçköşe quvuş şekilini aldılar.
