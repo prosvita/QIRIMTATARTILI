@@ -273,7 +273,7 @@ Ne maşina, ne insan... çım-çırt edi.
 Onıñ da aqılına partkomnıñ divanları keldi, lâkin soñundan bu fikirden qorqtı.
 "Ketmeli... yolda maşina çoq.
 Çaresi tapılır" dep tüşündi.
-Yüre berdi.
+%
 Dört kilometr qadar yol yurdi, maşinağa beñzegen şey rastkelmedi.
 Ögden esken küçlü, suvuq yelge qarşı ketmek qıyın edi.
 Paromğa yaqınlaştı... alâ kimse yoq.
