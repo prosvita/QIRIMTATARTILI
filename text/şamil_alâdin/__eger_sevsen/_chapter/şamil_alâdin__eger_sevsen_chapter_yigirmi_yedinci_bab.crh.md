@@ -311,13 +311,13 @@ Bu mümkünmi?
 Mansurov qarıq davuşnen küldi.
 
 — Şadmanova kişi almaq istese, he-he-he, emin oluñız, Vahid Samatoviç, begengen adamçıqlarını çoqtan saylap alğandır.
-Qasevet etmeñiz!
+%
 — Mansurov, pek teren ve aqıllı laqırdı etem dep, özüniñ bu eki adam arasındaki şahsiy munasebetlerden haberdar ekenini sezdirip aldı.
 Tursunov bunı sezmegen oldı.
 
 — Alğan olsa, yahşı... bunıñ içün İradanı maqtamaq kerek,— dedi Tursunov,— demek, Abdulla Sadıkoviç, siziñnen keliştik.
-Şaymı?
-Keliştikmi?
+%
+%
 
 — Er şey emir etkeniñiz kibi olur! — Mansurov sağ elini köküsine qoydı,— bir ekskavatornı yalıda qaldırmaq isteyim.
 Mümkünmi?
