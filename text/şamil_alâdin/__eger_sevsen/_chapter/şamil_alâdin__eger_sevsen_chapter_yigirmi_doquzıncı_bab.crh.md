@@ -622,8 +622,10 @@ Soñ qomşu odağa çıqtı.
 Özüm de qalqtım.
 Pencere ögüne keldim.
 Özen yalısındaki yarıqlarğa baqıp turdım.
-Hayli vaqıttan soñ İrada peyda oldı. — Çinar tübünde olğan laqırdıdan soñ evge keldim,— o laqırdısını devam etti,— öküngenimden, ağladım.
-Men ağladım... bunı sizge aytayatam, Cevdet! — Şay degende İrada tahta üstündeki küçük yastıkñı çekip aldı, astındaki narlar tığırıp, yerge tüşip kettiler.
+Hayli vaqıttan soñ İrada peyda oldı.
+— Çinar tübünde olğan laqırdıdan soñ evge keldim,— o laqırdısını devam etti,— öküngenimden, ağladım.
+Men ağladım... bunı sizge aytayatam, Cevdet!
+— Şay degende İrada tahta üstündeki küçük yastıkñı çekip aldı, astındaki narlar tığırıp, yerge tüşip kettiler.
 Qız ayrette qaldı.
 
 — Bu ne?
