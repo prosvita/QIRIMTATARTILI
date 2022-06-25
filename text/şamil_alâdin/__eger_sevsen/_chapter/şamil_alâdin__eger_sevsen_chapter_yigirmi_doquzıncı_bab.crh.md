@@ -61,7 +61,7 @@ Men yengil nefes aldım, yanaşada Tursunov olmağan vaqıtta men bazı muvafaqi
 Klubdan aşhanege kirdik.
 Epimizni bedava yemeknen: etli borşç, zapekanka ve birer stakan sıcaq sütnen sıyladılar.
 Mındaki aşçı bizim Sabira haladan ziyade talapkâr olmalı.
-Bizde sıcaq süt körüngen şey degil.
+%
 
 Aşap bitirgen soñ tecribe alışıp-berişüv başladı.
 Lâkin yemekten ve kinodan soñ kimseniñ laqırdı etecegi kelmedi.
@@ -89,7 +89,7 @@ Evde divarnı azaçıq tıqıldatqan olsa, yetecek edi.
 Soñki vaqıtlarda Abdulla Sadıkoviç kotlovanda sıqça buluna, ğaliba, yeñi naçalnikniñ közüne körünmek istey.
 Kotlovanğa kele, yapılıp bitirilmegen bir iş tapıp, adamlarnı ızğıştıra.
 
-Topraq yığınları üstünde ve kotlovan içinde yer patlatıcılar kezeler.
+%
 Olar keniş çuqurlar aça, içlerine patlayıcı maddeler qoya, bikford tellerini çektireler.
 Bugün bizni ekskavatordan alıp, yer patlatıcılarğa yardım içün yolladılar.
 
@@ -309,7 +309,7 @@ Tursunovnı körgeninen tanıdı... deral ayındı, atılıp ayaqqa turdı: — 
 E-e!
 Anda, totsız demirler de bar.
 Episi içün mesulim.
-Muşuq bir aydan berli qoqlanıp yüre.
+5
 Episini körem...
 
 Şoför, yaş yigit, sobanıñ ögünde sozuldı, başını yerge qoyar-qoymaz huruldap qaldı.
@@ -594,7 +594,7 @@ Biz, o vaqıtta, qavğa ete edik.
 
 — Yer patlatıcılar bürosına kete edim.
 Tursunov artımda peyda oldı.
-Yalvardım-yalqardım, peşimden qalmadı.
+%
 Daima küsüp yürgen kişi, o künü, pek şeñ edi.
 Özüniñ reber tayin etilüvi hususında Torizonıñ emirini beklemekte eken.
 
