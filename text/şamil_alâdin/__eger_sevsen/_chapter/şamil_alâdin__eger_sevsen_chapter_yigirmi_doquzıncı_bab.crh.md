@@ -45,7 +45,8 @@ O, adınıñ soñuna "han" qoşulıp aytılğanını, niçündir, istemey edi.
 Men qızğa birindeki kere "İradahan" dedim.
 Açuvlandırmaq istedim.
 
-— Niçün şay belleysiñiz? — dedim men tekrar. — Evelina!?
+— Niçün şay belleysiñiz? — dedim men tekrar.
+— Evelina!?
 Ne?
 Fena qızmı?
 Filmler, elbette, bir-birinden uzaqlar, amma... doğrusını aytsam, kinoda "Çapayev"ni artist oynağanına inanacağım kelmedi.
