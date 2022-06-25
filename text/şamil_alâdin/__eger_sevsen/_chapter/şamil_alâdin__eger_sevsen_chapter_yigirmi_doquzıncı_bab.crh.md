@@ -503,9 +503,12 @@ Mında onıñ qulbesi bar edi.
 — Sağ oluñız!
 Men aşıqam.
 
-— Qayda? — qartiy taaciplendi. — Sizge qışlaqta kim kerek?
+— Qayda? — qartiy taaciplendi.
+— Sizge qışlaqta kim kerek?
 
-— Maña... sanitariya idaresi... ilâc. — Yalannı patlattım. — Barakta adam hasta.
+— Maña... sanitariya idaresi... ilâc.
+— Yalannı patlattım.
+— Barakta adam hasta.
 
 Manzura apa meni toqtatmaq mümkün olmaycağını añladı.
 Tez-tez çuvalnıñ ağızını açtı, içinden eki büyük nar çıqarıp, ellerimniñ içlerine tıqtı.
