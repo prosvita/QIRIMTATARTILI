@@ -139,7 +139,8 @@ O işniñ farqına barmadı,— elektrik küçü yoqmı?
 Kögertege çıqtım, közlerimnen işaret etip Mansurovnı körsettim. — "Büyügimiz emir etti!"
 
 — Sen delirdiñmi?
-Rıçag çıqarılmay tura toknı kesmek mümkünmi? — Maşinist pek açuvlandı. — Kim ruhset etti?
+Rıçag çıqarılmay tura toknı kesmek mümkünmi? — Maşinist pek açuvlandı.
+— Kim ruhset etti?
 Maşinanı işten çıqarmaq isteysiñmi?
 Saqın, bir daa, men maşinanı toqtatmağance, rubilnikni çıqarma! 
 Lâkin men... 
