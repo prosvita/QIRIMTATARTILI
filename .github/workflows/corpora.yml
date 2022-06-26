@@ -6,7 +6,6 @@ on:
     - master
     paths:
     - text/**/*.md
-  pull_request:
 
 jobs:
   build:
