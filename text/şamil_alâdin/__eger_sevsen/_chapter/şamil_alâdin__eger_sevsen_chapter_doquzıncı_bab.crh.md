@@ -32,15 +32,16 @@ Köyde bulunğan olsam, elbet de, öyle olur edi.
 Bu haber Taşkentte, bizim institutnıñ yataqhanesinde de yanıqlı isler doğurır edi.
 
 Aqılımda... studentniñ biri, sevgili qıznıñ vefat etkeni hususında mektüp alğanda, ziyade qasevetlengen edi.
-Lektsiğa barmadı.
+Lektsiğa barmadı .
 Köridorlar boyunda sesiz-soluqsız dolandı yurdi.
 Yorulğan soñ krovatına yatıp, tüşündi.
 Qomşu korpusta yaşağan qızlar kelip, yanıqtan ölüp qalğan bu yigitni seyir etti, atta ağladılar.
 
-Şimdi mında, barak içinde, maña da bir de-bir kişige derdimni aytmaq kerek, edi... lâkin kimge?
+Şimdi mında, barak içinde, maña da bir de-bir kişige derdimni aytmaq kerek, edi...
+lâkin kimge?
 Stol başında Elpidege mektüp yazmağa qurundım.
 Ağamdan mektüp alğanımnı, qıznıñ vefat etkenini yazdım.
-Yandım-yaqıldım, amma közlerimden yaş çıqmadı.
+Yandım- yaqıldım, amma közlerimden yaş çıqmadı.
 Tek, göñlümniñ üzerinde bir bürüşik daa asıl olğanını sezdim.
 Elpidege bularnıñ episini yazdım.
 Bu mektübimde onıñnen, ilki defa olaraq, bir dost sıfatında laqırdı ettim.
