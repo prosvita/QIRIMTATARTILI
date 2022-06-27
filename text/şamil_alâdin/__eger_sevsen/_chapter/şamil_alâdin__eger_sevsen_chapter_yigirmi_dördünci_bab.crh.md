@@ -172,7 +172,7 @@ O sebepten Anna Yakovlevna bir qararğa kelalmay, bekley.
 
 O yüregindeki bütün areketini, bütün arzularını hızmetke sarf etmekte.
 Qocası sağ olğanda, balaları Vadim Semönoviçni — yaqın kişimiz, dep bile ediler.
-Anna Yakovlevna bir işke qıymetni, qocasına baqıp kese edi.
+%
 Qocası buña ne der eken, qocası nasıl yapar eken, dep tüşüne ve onıñ kibi yapa edi.
 
 Anna Yakovlevna on altı yaşında ekende evden, patriarhal, diniy qorantadan çıqıp ketken ve professional inqilâbcı yoluna mingen.
