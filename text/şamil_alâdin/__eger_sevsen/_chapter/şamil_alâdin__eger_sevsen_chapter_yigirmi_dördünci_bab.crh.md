@@ -41,6 +41,7 @@ Belki asıl da bilmeydir?
 
 Men İradağa nişanlanğan, bunı er kes bilgen soñ, qısqası, olacaq şey olğan soñ, siz, Sabira hala, menimnen ne qadar nazlı ve nezaketli olıp ketken ediñiz, esiñizdemi?
 "İrada sizsiz, siz de İradasız yaşap olamaycaqsıñız..." degen ediñiz.
+
 İradanıñ hatiri içün maña, İradadan yahşı muamele körsete ediñiz.
 İradanıñ hatiri içün bizim evimizni, bizim ekimizni ve, birinci nevbette, balalarımıznı terbiye etüvni öz üzeriñizge aldıñız!
 Men Volgo-Donda Tsımlâ plotinası qurğanda, İrada otpusk vaqıtında maña kelgen: balalar evde, Sabira halasınen beraber qaldılar, degen edi.
