@@ -236,7 +236,8 @@ Gece ekskavatornıñ trosı üzülse, aman çöküçni alıp, çuqurğa çapamı
 Özüñni alâ nijnik isap etesiñ.
 İsteseñ — çap, istemeseñ çapma, özüñniñ işiñ!
 Seniñ bu hızmet içün adamlarıñ bar!— dedi Hristofor.
-Soñ sol elinen yavaştan sağ eliniñ tirsegini köterip, yastıqnıñ üstüne qoydı. — Amma maaşıñ arttı.
+Soñ sol elinen yavaştan sağ eliniñ tirsegini köterip, yastıqnıñ üstüne qoydı.
+— Amma maaşıñ arttı.
 Bizim qardaşnıñki kibi degil, öylemi?
 
 — Öyle.
