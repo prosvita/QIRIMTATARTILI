@@ -188,8 +188,10 @@ Onıñ tüyümi, paqıl kibi, kölmeginiñ yaqası astına kirip ketkenini 
 Tüyümni yerine qoyğan soñ, oca lafını devam etti: 
 – Darılfnunda oquy ekensiñiz... doğrumı? – dep soradı o Afız efendiden.
 – Özüm asılını bilip olamadım.
+
 – Yoq.
-Stambulda degil edim, – dedi Afız. – Fikret Şerif ile Peterburgda institutqa imtian berdik, qabul etildik.
+Stambulda degil edim, – dedi Afız. 
+– Fikret Şerif ile Peterburgda institutqa imtian berdik, qabul etildik.
 Oqumaq menim içün munasip olmadı.
 Babam hastalandı.
 Bıraqıp qayttım.
