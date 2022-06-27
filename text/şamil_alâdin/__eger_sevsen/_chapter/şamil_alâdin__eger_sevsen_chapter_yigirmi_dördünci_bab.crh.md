@@ -181,9 +181,9 @@ Arbiy senelerdeki dostluq — evlenüv ve yaşayış içün eñ müim emel isap 
 Sanayı Akademiyasında oquğan vaqıtlarında Vadim Semönoviç ürmetke lâyıq kişi edi.
 Onıñ içün Anna Yakovlevna mında onıñnen rastkelgende pek sevindi.
 Qocasınıñ dostı, özüniñ vatandaş muarebesi şaraitında fikirdeşi — işkir kişi.
+
 Kerçek, Anna Yakovlevna, injener ve tehniklerniñ meclisinde Vadim Semönoviçniñ laqırdısını begenmegen edi.
-Lâkin soñundan: "A!
-Torizonen munasebetini bozmaq istemey, bu da devirniñ serpindisi..." dep tüşüngen, unutmaq istegen edi.
+Lâkin soñundan: "A!Torizonen munasebetini bozmaq istemey, bu da devirniñ serpindisi..." dep tüşüngen, unutmaq istegen edi.
 Neni?
 Tek Vadim Semönoviçniñ sözlerinimi?
 Bu hususta soñundan da davalaşmaq mümkün.
@@ -193,6 +193,8 @@ Bu açuvlanuv oña bazı hayallardan qurtulmağa yardım etti.
 Bu saba men sevginiñ hucur ceetleri hususında çoq tüşündim.
 Niçün?
 Bilmeyim.
+
+
 
 Nikolay ve Hristofor kirdiler.
 Şimdi olar er yerde beraber yüreler.
