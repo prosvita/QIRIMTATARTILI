@@ -23,8 +23,7 @@ Vadim Semönoviç ise omuzlarını qısa — bir şey aytmay.
 
 — Niçün indemeysiñiz?
 Niçün boynuñıznı qısa beresiñiz?— dep cekire Torizo onıñ üstüne,— grafigiñiz qayda?
-Kene...
-"maña munasebeti yoq sebeplerden ötrü bozuldı" demek isteysiñizmi?
+Kene..."maña munasebeti yoq sebeplerden ötrü bozuldı" demek isteysiñizmi?
 
 Vadim Semönoviç susa — indemey.
 
