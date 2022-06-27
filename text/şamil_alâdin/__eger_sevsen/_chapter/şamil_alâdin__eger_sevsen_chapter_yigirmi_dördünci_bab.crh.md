@@ -250,7 +250,8 @@ Nikolayğa nasıl, bilmeyim, amma saña... sen ev-barq saibi olmaq tedarigindesi
 Bu saba Hristofornıñ keyfi yerinde edi.
 
 — Soñ?
-Aqşamğa qadar böyle yataqlay bereceksiñmi?— dep soradı o, ayaqlarını koykadan yerge tüşürip. — Men aşamaq isteyim.
+Aqşamğa qadar böyle yataqlay bereceksiñmi?— dep soradı o, ayaqlarını koykadan yerge tüşürip.
+— Men aşamaq isteyim.
 Ekşi qapısta şorbasımı?
 Makaronmı?
 Ne olsa-olsun.
