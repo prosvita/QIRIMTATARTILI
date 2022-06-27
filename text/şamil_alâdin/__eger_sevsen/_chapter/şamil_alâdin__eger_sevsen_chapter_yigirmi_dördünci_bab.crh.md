@@ -79,7 +79,7 @@ Niçün?
 Onıñ dülberligi ve cazibeli areketleri içünmi?
 Yoq!
 İş tek onda degil.
-İş, zanıma qalsa, onıñ yüreginiñ lekesizliginde...
+%
 Lâkin dülberligini de inkâr etmem.
 Dülberlik — İrada demek.
 
