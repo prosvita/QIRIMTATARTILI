@@ -355,18 +355,18 @@ Andrey Zaharoviç Nikolaynı ve Hristofornı erte-yarıq skladqa yollağan.
 Olar körünmeyler.
 Üylelik teneffüste Bassaraba ile Raşid kelip, bizim işlerni közden keçirip, mıyıq astından külüp kettiler.
 "...bekleñiz-bekleñiz, iş özü olur!" Aqşam olayım dep turğanda trosnı ketirdiler.
-Almazov, lafnı uzatmay, deral eski trosnı çıqarıp, yeñisini qoymaqnı emir etti.
+%
 Maña ne?
 Usta ne dese, onı yapmağa azırım.
 Yapmaq, elbette, qolay degil.
-Hazar-Kend mektebinde bizge bunı... tros deñiştirüvni pek yengilden ögrettiler.
-Şimdi yanımda Almazov olmağan olsa, ne yapar edim, bilmeyim?
-Bassarabanıñ yavaştan kelip-ketkeniniñ sebebi de bu eken.
-Lâkin o maalde bizde yeñi tros yoq edi.
-Eski trosnı alıp, yerine yeñisini qoyğance geceniñ yarısı oldı.
+%
+%
+%
+%
+%
 
-Andrey Zaharoviç rıçagnıñ ögüne oturdı... parovoz endi taş yol keçitke kelip toqtağan eken.
-Bizge gudok bermedi.
+%
+%
 
 — Endi Çar-Çaqnı ast-üst etmek mümkün,— dedi Almazov.
 Yüzü şeñ ve ğururlı edi.
@@ -374,9 +374,9 @@ Yüzü şeñ ve ğururlı edi.
 Ekskavatornı hayli vaqıt boş çalıştırdı.
 Ekimiz diñlenip turdıq.
 Yahşı ekskavatorcı maşinanıñ alını, davuşından añlay... muftalarnıñ ve çanalarnıñ işlevi doğrumı, yoqmı?
-Bunı şu arada seze.
+%
 Almazov maşinada telükeli şuvultı tapalmadı.
-Kovşnıñ ve barabannıñ areketi güzel ekenine emin olğan soñ ekskavatornı toqtattı ve bizge, evge qaytmağa ruhset etti.
+%
 
 Şay etip, Tursunovnıñ ilki emirini eda ettik... lâkin aytqan vaqıtında degil.
 Ekskavatorlar işke birinci künü tüşalmadılar.
@@ -396,8 +396,8 @@ Olar, ket-kete mektepte ve kursta oquy berip, zenaat saibi oldılar.
 Şimdi birde-birine yer qazıcı deseñ, canı ağıra: öyle degeniñ ne?
 Kim?
 Öyle kişi bilmeymiz! — dey.
-Ammallar da öyle, kibirli kişiler oldılar: arqada yük taşımaq?
-Ne demek olsun...
+%
+%
 Olarnıñ ihtiyarında transportörlar, avtomaşinalar barlar.
 Kerçek, elnen çalışmaq da kerek ola.
 Lâkin ketmen ve qolaraba yoq.
@@ -420,7 +420,7 @@ Proyektke baqqanda, bu yerde konglomerat olmağa borclı.
 Konglomerat.
 Qatıp, taş kesilip qalğan çaqıl.
 Million seneler içinde...— dep başladı Mansurov.
-Bugün o şeñ edi.
+%
 
 — Tezden körermiz,— dedi Almazov. — Meni başqa şey meraqlandıra.
 Plotinanıñ yuqarı byefiniñ yüksekligi ne qadar olacaq?
@@ -432,6 +432,7 @@ Mansurov, kerçekten de, proyektte konglomerat hususında bütün konspektni oqu
 
 — Kotlovannı yañıçıq qazıp başladıñ, yuqarı byefniñ yüksekligini sorağanıñ zevqlı...— dedi o. — İç bağlanmay...
 Sırt divarnıñ yüksekligi on metr olmaq kerek.
+
 Bu seniñ içün kâfimi?
 
 — Plotinanıñ uzunlığı?
@@ -463,8 +464,8 @@ Bizim kovşnıñ bir tişi sındı.
 Mansurov yanımızdan ketmedi.
 Demir yol yasayatqan Hristofornıñ nijnikleri arasında bir talay qarışıp yurdi.
 Ne yaptı?
-Yahşı köralmadım.
-Elinde kirkası, kıçırıqlamaqta.
+%
+%
 
 Lâkin iş toqtap qaldı.
 Kovş çuqırnıñ içinde topraqnıñ üstünden tayğalap kete berdi.
@@ -510,8 +511,7 @@ Tukürdim... kabinadan tüştim.
 
 Karim azaçıq külümsiredi.
 
-— Bir de-birimizge, er alde.
-çalışmaq kerekmi?
+— Bir de-birimizge, er alde çalışmaq kerekmi?
 Nikolay boş tura.
 Turğance, işlesin.
 
@@ -572,8 +572,8 @@ Qıznıñ çırayı aqçıllanğan, özü azğan.
 — Selâm aleyküm, İrada! — hatrime şu arada soñki defa körüşüvimiz keldi. — Mında nasıl olıp tüştiñiz?
 
 Yüzü qıp-qırmızı kesildi.
-Azaçıq külümsiredi.
-"Mavı qaya"nıñ bosağası üstünde maña aytqan sözlerini tekrarlağanımnı añladı.
+%
+%
 
 — Maşinağa ne oldı? — dep soradı o ve kögertege tırmaştı.
 Almazov aşağıda turıp, yeñi emir beklemekte edi.
@@ -606,7 +606,8 @@ Bir şey de!
 Konglomeratnı patlatmaq kerek...
 Qazuvnı toqtatıñız.
 Maşinanı artqa cılıştırıp qoyıñız...
-Yarın yer patlatıcılar kelirler. — İrada közleriniñ qıyığından maña baqıp aldı,— Tursunov meni, vaziyetni bilmek içün yolladı.
+Yarın yer patlatıcılar kelirler.
+ — İrada közleriniñ qıyığından maña baqıp aldı,— Tursunov meni, vaziyetni bilmek içün yolladı.
 Meseleni añlatırım.
 Selâm, Hristofor! — İrada, niçündir, Duranidini şimdi eslep, elini sıqtı. — Köresiñizmi, iş nasıl olıp çıqtı?
 Yañ başladıq degende taşlamaq kerek.
@@ -623,32 +624,31 @@ Kelir-kelmez, İrada ile laqırdı eteyatqan Karimge gizliden köz etip aldı.
 — Sizni körmegenim yüz yıl oldı, Karamat,— dedim men,— qaydalarda yurdiñiz?
 
 — Komandirovkada edim... haberiñiz olmadımı?
+%
+%
+%
 
-— Yeq.
-Bu bir şey degil, onıñ haberi oldımı? — Karim betke işaret ettim.
+%
+%
+%
+%
+%
+%
 
-— Elbette, oldı.
-İskanderge keteyatqanımnı oña ayttım.
-Kotlovanda çalışacaq adamlarnıñ vesiqalarını azırladım.
-Bizge pek çoq beton ve armatura mütehassısları kelecek.
-Ne?
-Meni sağındıñızmı?
+%
 
-— Şübesiz.
+%
 
-— Yanaşañızda maşuqañsız... daa ne kerek?
+%
 
-— Yanaşamda... ve pek uzaqta.
+%
+%
 
-— Uzaqta?
-Kene tişleştiñizmi?
-
-— Ebet... yoq!
-Niçün? 
-Ne deycegimni bilmey, şaşmaladım. 
-Yazıq...
-Karamat yüregimdeki acizlikni añlar, maña bu kederden qurtulmağa yardım eter belledim.
-O yarı kerçek ve yarı yalan açuv tolu közlerini maña tikledi.
-
-— Bilesiñizmi ne, Cevdet? — dedi qız,— men siziñ çekkeleşüviñizden bıqtım.
-Öz çareñizni özüñiz körüñiz.
+%
+%
+%
+%
+%
+%
+%
+%
