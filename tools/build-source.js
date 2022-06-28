@@ -97,10 +97,10 @@ function saveSource(sourceDir, data) {
 function saveCropusAttributes(attributesFile, data) {
     fs.writeFileSync(attributesFile,
         [{
-            filename: 'Filename',
-            author: 'Author',
-            title: 'Title',
-            year: 'Year'
+            filename: 'filename',
+            author: 'author',
+            title: 'title',
+            year: 'year'
         }, ...data].map((item) => `${item.filename}\t${item.title}\t${item.author}\t${item.year}\n`).join(''))
 }
 

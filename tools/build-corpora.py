@@ -242,7 +242,7 @@ def create_reg_files(langs, align_files, attribute_names, registry_path, vertica
     with open('%s/%s_reg' % (registry_path, langId), 'w') as fr:
       # friendly_name, path, vertical, fullref, doc, aligndef, aligned
       fullref = ','.join(['doc.%s' % a for a in attribute_names])
-      attrs = '\n'.join(['  ATTRIBUTE %s' % a for a in attribute_names])
+      attrs = '\n'.join(['  ATTRIBUTE %s' % a.lower() for a in attribute_names])
       aligned_to = []
       for key, afid in align_files.items():
         if key[0] == langId:
