@@ -27,7 +27,8 @@ Sizge ne oldı?
 — Qan...— dedim men,— yaralandıñızmı?
 
 — Ne yerimde? — o taaciplendi.
-Qolunen yüzüni sıypap aldı, parmaqlarını közlerine yaqın ketirip baqtı, qan körgen soñ yüzüni çetke çevirdi. — Qan?
+Qolunen yüzüni sıypap aldı, parmaqlarını közlerine yaqın ketirip baqtı, qan körgen soñ yüzüni çetke çevirdi.
+— Qan?
 
 — Neden yaralandıñız?
 
