@@ -77,7 +77,8 @@ Biz köçmege oñaytlanğanda kene kiyik sesnen qıçırdı.
 — Bıraqıñız!
 Men yuralmayım! — dedi o,— ayağıma bir şey oldı.
 
-— Pertildimi yoqsa? — dep soradı Menjevetskiy. — Potikleriñni çıqarıp baqmaq kerek.
+— Pertildimi yoqsa? — dep soradı Menjevetskiy.
+— Potikleriñni çıqarıp baqmaq kerek.
 
 İradanı qar üstüne oturttıq.
 Raşid yavaştan potigini tuttı, özüne çekmek istedi...
@@ -85,7 +86,8 @@ Raşid yavaştan potigini tuttı, özüne çekmek istedi...
 
 Qıznıñ bu vaziyeti bizden ziyade Sigizmund Genrihoviçni kederlendirgeni sezildi.
 
-— Bilesiñizmi ne, balalar? — dedi o, biraz vaqıt tüşünip turğan soñ. — Keç olayata.
+— Bilesiñizmi ne, balalar? — dedi o, biraz vaqıt tüşünip turğan soñ.
+— Keç olayata.
 İş böyle ketse, biz epimiz bu sağır delik içinde qalırmız.
 Qalsaq, sabağa qadar epimiz buzlarmız.
 İrina Şadmanovnanı Qadırğa alıp keteyik!
