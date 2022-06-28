@@ -87,7 +87,8 @@ Tañ maalinde penceremiz qaqıldı.
 Alel-acele turdıq, kiyindik, tışarı çıqayatqanda, Raşidniñ yeñi stol üstündeki çaynikke ilişti, çaynik yuvarlanıp tsement polğa tüşti.
 Basit uyandı, zar-zornen közlerini açıp, bizge bunarlı közlerini tikledi:
 
-— Ne oldı? — dep cekirdi o. — Siz... ecüz-mecüzler!
+— Ne oldı? — dep cekirdi o.
+— Siz... ecüz-mecüzler!
 Yuqlamağa yatacaqsıñızmı, yoqmı?
 
 — Selâm, doktor! — dedi oña Raşid, qapunıñ sapından çekeyatqanı alda,— sizge şeñ ömür keçirmek qısmet olsun!
@@ -106,7 +107,8 @@ Biz itiraz etmedik.
 Ürük, şükürler olsun... çoq.
 Aşağan soñ ellerimzge dörter qutu balıq konservası, birer qatalaq kolbasa ve birer dane de çavdar ötmegi tuttırdı.
 
-— Yolluq! — dedi hala ve sol közüni azaçıq qısa berip, maña: — İrada içün raatsızlanam! — dep taşladı. — Yol pek sarp.
+— Yolluq! — dedi hala ve sol közüni azaçıq qısa berip, maña: — İrada içün raatsızlanam! — dep taşladı.
+— Yol pek sarp.
 Dağ başındaki keçitte qar teren, deyler.
 Nasıl keçersiñiz, bilmeyim.
 Yalvaram, Cevdet, onıñ yanından ayırılma!
@@ -131,7 +133,8 @@ Soñ esime yaşçik tüşti,— tünevin siz...— dep başlağan edim, injener 
 
 — Ol-may-caq...
 Añlaşıldımı?
-Onıñ içindeki zaruriy aletlerni rükzaqqa aldım. — Soñ terseyip soradı: — dostıñız qayda ketti?
+Onıñ içindeki zaruriy aletlerni rükzaqqa aldım.
+— Soñ terseyip soradı: — dostıñız qayda ketti?
 
 — Haberim yoq.
 
