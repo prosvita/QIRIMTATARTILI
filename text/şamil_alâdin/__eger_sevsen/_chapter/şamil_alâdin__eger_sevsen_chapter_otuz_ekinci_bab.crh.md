@@ -155,7 +155,8 @@ Bir çette toban töşelgen, üstünde kişi yatqan.
 Bularnı kim qaldırıp ketken?
 İrada toban üstünde yantaydı, biz ateş yaqtıq.
 
-— İptidaiy ömür...— dedi İrada, şaqıldap küldi. — Kim ümüt eter edi?!
+— İptidaiy ömür...— dedi İrada, şaqıldap küldi.
+— Kim ümüt eter edi?!
 
 Biz onıñ yanına çöktik.
 Sustıq.
@@ -188,7 +189,8 @@ Sigizmund Genrihoviç elinde çöküçi, taştan-taşqa avuştı, bir kesekni di
 — Bunıñ özü kâfiy...— dedi o, İradağa muracaat etip,— nasıl, İrina Şadmanovna?
 Ayaq yatıştımı?
 
-— Sızlavı, evelkine köre, az,— dep cevap berdi İrada. — Siz?
+— Sızlavı, evelkine köre, az,— dep cevap berdi İrada.
+— Siz?
 
 — Mına baqıñız! — oña nümünelerni kösterdi. — Bu yerde, qaya töpesinde, elbette, onıñ hasiyetini tain etmek qıyın, o laboratoriyanıñ işi... lâkin terkibinde çaqmaq taşnıñ nisbeten, çoqluğı körünip tura.
 Curayev aqlı eken.
