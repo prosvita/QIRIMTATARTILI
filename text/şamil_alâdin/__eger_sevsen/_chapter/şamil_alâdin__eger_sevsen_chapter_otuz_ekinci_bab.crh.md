@@ -114,7 +114,8 @@ Ekimiz kene qoltuqtarına kirdik.
 — Sigizmund Genrihoviç,— dedim men,— karyerge yol uzaqmı?
 
 — Bu niçün kerek oldı? — injener eleslendi. — Endi az qaldı.
-Çatlaq qayanı köresiñmi? — O, qala şekilinde yükselip turğan çıplaq sırımnı kösterdi.
+Çatlaq qayanı köresiñmi?
+— O, qala şekilinde yükselip turğan çıplaq sırımnı kösterdi.
 Aramızdaki mesafe bir kilometrden çoq degil edi.
 
 — Töpesine çıqsaq oldı.
