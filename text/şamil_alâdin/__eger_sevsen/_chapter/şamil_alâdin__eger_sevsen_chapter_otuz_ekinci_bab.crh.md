@@ -192,7 +192,8 @@ Ayaq yatıştımı?
 — Sızlavı, evelkine köre, az,— dep cevap berdi İrada.
 — Siz?
 
-— Mına baqıñız! — oña nümünelerni kösterdi. — Bu yerde, qaya töpesinde, elbette, onıñ hasiyetini tain etmek qıyın, o laboratoriyanıñ işi... lâkin terkibinde çaqmaq taşnıñ nisbeten, çoqluğı körünip tura.
+— Mına baqıñız! — oña nümünelerni kösterdi.
+— Bu yerde, qaya töpesinde, elbette, onıñ hasiyetini tain etmek qıyın, o laboratoriyanıñ işi... lâkin terkibinde çaqmaq taşnıñ nisbeten, çoqluğı körünip tura.
 Curayev aqlı eken.
 Bu beneklerni bu bürtüklerni köresiñizmi?
 Biotit...
