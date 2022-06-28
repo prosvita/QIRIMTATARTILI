@@ -163,12 +163,14 @@ Sustıq.
 Menjevetskiy bunı sezdi.
 
 — Bu daqiqadan itibaren siz rahibe oldıñız! — dedi İradağa,— ateşni muafaza eteceksiñiz.
-Biz ise bunıñ içün sizge qurban ketecekmiz...— Menjevetskiy rükzagını açtı, içinden aşayt çıqara başladı. — Evelâ siziñ kotletleriñizni qurban etecekmiz, soñra qıymetli taşlarnı...
+Biz ise bunıñ içün sizge qurban ketecekmiz...— Menjevetskiy rükzagını açtı, içinden aşayt çıqara başladı.
+— Evelâ siziñ kotletleriñizni qurban etecekmiz, soñra qıymetli taşlarnı...
 
 Biz, ruhtan tüşüvni bilmegen bu keskin fikirli, şeñ adamğa ürmet etip alıştıq.
 Yemekten soñ o İradanıñ yarası ile meşğul oldı, tizi şişip çıqqan.
 
-— Pek güzel! — Sigizmund Genrihoviçniñ davuşı doktor sesine beñzedi. — Başımnı kestirem... bu sınıq degil.
+— Pek güzel! — Sigizmund Genrihoviçniñ davuşı doktor sesine beñzedi.
+— Başımnı kestirem... bu sınıq degil.
 Adiy pertilüv. — İradanıñ çeresi, kerginlikten, ap-aq oldı, dudaqlarını ep tişlemekte edi,— hasta, qasevet etmeñiz!
 Episi keçip-keter,— injener şaqalaşa berdi niayet, teşkerüviniñ ahırında: — qattı şeynen bağlap, tınç yatmaq kerek,— dedi.
 
