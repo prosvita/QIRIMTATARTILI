@@ -164,7 +164,8 @@ Qapu ögünde Menjevetskiy peyda oldı.
 — Raşid keleyata! — dedi Curayev.
 Soñ ilâve etti. — Siz, Sigizmund Genrihoviç, yigitler içün raatsızlanmañız!
 
-— Ya, vaqıt? — o, sol yeñini yuqarı çekip, Curayevke saatini kösterdi. — Yol qarlı...
+— Ya, vaqıt? — o, sol yeñini yuqarı çekip, Curayevke saatini kösterdi.
+— Yol qarlı...
 Aqşamğace barıp yetalmamız.
 Tez ol!
 Tez! — dep qıçırdı Raşidke.
@@ -185,7 +186,8 @@ Yaşçik qayda?
 — Yaşçik olmaycaq! — Menjevetskiyniñ sözlerini tekrarladım.
 
 — Öyle olsa, ma!
-Tut! — tüfekni elime tuttırdı. — İradanı mudafaa etersiñ!
+Tut! — tüfekni elime tuttırdı.
+— İradanı mudafaa etersiñ!
 
 — Yavaş ol! — dedim oña,— men İradanı tüfeksiz de mudafaa ete bilirim.
 
