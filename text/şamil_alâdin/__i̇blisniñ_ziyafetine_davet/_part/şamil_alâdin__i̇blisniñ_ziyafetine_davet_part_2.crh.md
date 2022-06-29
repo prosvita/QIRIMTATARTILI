@@ -285,6 +285,7 @@ Aziz efendiniñ vefatından ocanıñ niçün haberi olmadı!
 Bunda... bu ailede Üsein Şamil daima sevimli adam degilmi edi?
 Adam?
 Yoq... oğullardan biri edi.
+
 Oca çoq tüşündi.
 Bu adiseni bir muammağa beñzetti... kederlendi.
 “Bir mektüpçik yazıp yollamaq... vaqianı bildirmek mümkün edi!
