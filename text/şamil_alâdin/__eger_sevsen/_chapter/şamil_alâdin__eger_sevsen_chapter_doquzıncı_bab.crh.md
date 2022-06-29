@@ -65,7 +65,7 @@ Olğanı-olacağı eki söz... lâkin bu sevgimizniñ simvolı olıl qalğan edi
 Simvol... sevgi!
 Acaip sözler!
 Lâkin bunıñ endi ne faydası bar?
-Asıl da, Elpidego şimdi ni-çün mektüp yazdım?
+Asıl da, Elpidegе şimdi niçün mektüp yazdım?
 Şimdiki Elpide, dört sene evelki Elpidemi?
 
 Böyle yanıq ve keder içinde baraktan çıqtım.
