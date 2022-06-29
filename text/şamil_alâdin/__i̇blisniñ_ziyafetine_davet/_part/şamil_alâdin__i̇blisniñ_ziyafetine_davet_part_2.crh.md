@@ -228,7 +228,8 @@ Cevap eşitilmedi.
 Oca onıñ çeresindeki aqçıl renkni eslegen soñ, yalınayaq qor üstüne basqan kibi, sıçrap turdı.
 
 – Afız!
-Sizge ne oldı? – dep qıçırdı, Üsein oca, Feminiñ omuzlarından silkiterek. – Niçün indemeysiñiz?
+Sizge ne oldı? – dep qıçırdı, Üsein oca, Feminiñ omuzlarından silkiterek. 
+– Niçün indemeysiñiz?
 
 – Babam hastalandı... vefat etti, – dedi Afız.
 
