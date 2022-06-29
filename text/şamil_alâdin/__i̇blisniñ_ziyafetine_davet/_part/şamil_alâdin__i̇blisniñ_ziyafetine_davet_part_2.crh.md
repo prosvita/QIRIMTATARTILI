@@ -298,7 +298,8 @@ Oca onı şimdi añladı.
 Aziz efendi sağlığında efkâr umumiye ögünde sade adamlarnıñ tayanğıçı olıp körünmege sevse de, özüniñ zenginligi içün yüksek cemiyette imtiyazlı yer işğal ettigini unutmay edi.
 O sebepten cenazesinde yüksek şahslar bulundılar.
 Öyle olmaq kerek edi.
-“Adam sen de!.. deyler Ay Petri yaqtaki köylüler.
+“Adam sen de!.. 
+deyler Ay Petri yaqtaki köylüler.
 Qulaq asma! – degen manada.
 Bizim içün eñ müimi “yüksek, yahut alçaq adamlar” degil.
 Biz bilemiz ki, Üseinni bu ailede er kes seve-saya edi.
