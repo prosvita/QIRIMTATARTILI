@@ -496,9 +496,11 @@ Qaranlıq bayağı qoyulaşqanından, yüzüni yahşı köralmadım.
 — Mermer tapıldı,— dep fısıldadı o,— mermer tapılğan yerde yol da tapılır.
 Öyle degilmi, Cevdet!
 
-— Şübesiz! — dedim men keskin ve sozuq sesnen, güya İrada yarım kilometr uzaqta edi. — Siz bütün yol boyu indemediñiz, neler tüşünip keldiñiz?
+— Şübesiz! — dedim men keskin ve sozuq sesnen, güya İrada yarım kilometr uzaqta edi.
+— Siz bütün yol boyu indemediñiz, neler tüşünip keldiñiz?
 
-— Menmi? — o, dülber davuşnen, külümsiredi. — Plotinanı...
+— Menmi? — o, dülber davuşnen, külümsiredi.
+— Plotinanı...
 Anda işler tezden bitecek.
 Bitse, men ne yapacağım?
 
