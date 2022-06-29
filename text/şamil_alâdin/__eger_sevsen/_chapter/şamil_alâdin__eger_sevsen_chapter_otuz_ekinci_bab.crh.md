@@ -291,7 +291,7 @@ Başı... canlı isbat.
 — Korqmağa ne bar?
 Bütün işni bu özü yaptı...— tüfekni kösterdi.
 
-— Ümüt etmegen edim,— dedim men, şaqanen. 
+— Ümüt etmegen edim,— dedim men, şaqanen.
 Raşid küstü.
 
 — Bunı maña birev bağışladı belleysiñmi?
