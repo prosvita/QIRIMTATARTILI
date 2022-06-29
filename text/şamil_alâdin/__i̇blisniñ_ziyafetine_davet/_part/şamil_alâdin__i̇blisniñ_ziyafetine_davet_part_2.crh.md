@@ -258,15 +258,18 @@ İç bir idareden teklif kelmedi.
 Niayet, bir kün Üsein Şamil küçük mektüp aldı.
 Mektüpteki sözler quru ve qabaca ediler.
 
-“Cenap Üsein Şamil efendi Qarasuvbazardaki Ministr tatar mektebine usul-i cedid ders muallimi lâzim.
+“Cenap Üsein Şamil efendi 
+Qarasuvbazardaki Ministr tatar mektebine usul-i cedid ders muallimi lâzim.
 “Terciman”da ilânıñıznı oquyıp, Sizi muallimlige davet etmeye qarar verdim.
 Seneviy maaşıñız üç yüz kümüş.
 Oquv vaqıtı alafranga tertibi ile saat on ekiden – dörde qadardır.
 Şakirtlerniñ miqdarı otuz-otuz beş bala.
 Yılda eki ay tatil.
+
 Sabadan üyleyece vaqıtıñız er kün boş olacaq.
 Bu vaqıt içinde şahsiy dersler alıp işleye de bilirsiñiz!
 Mezkür mektübiñ cevabını imal etmeyip, yazıp-yollamañız rica olunır.
+
 Qarasuvbazar Ministr tatar mektebiniñ rus tili muallimi Abdureşid Mediyev.
 1905 senesi, yanvar 19.”
 
