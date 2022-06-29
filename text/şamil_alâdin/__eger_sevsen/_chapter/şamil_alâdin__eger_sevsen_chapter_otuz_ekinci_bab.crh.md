@@ -421,7 +421,8 @@ Daa nasıl...
 
 Bir-birimizniñ közlerimizge baqtıq, men İradanıñ yanağından öpmek istedim, o bu arada menden:
 
-— Niçün öyle bunarlı közlernen baqasıñız? — dep soradı. — Siz, ğaliba, bir şeyden saqınasıñız... bir şeyden qorqasıñız.
+— Niçün öyle bunarlı közlernen baqasıñız? — dep soradı.
+— Siz, ğaliba, bir şeyden saqınasıñız... bir şeyden qorqasıñız.
 Neden?
 Men bilmek isteyim.
 Mında... bizim baraklardan uzaqta, qışlaq çayhanesi içinde bilmek isteyim.
@@ -439,7 +440,8 @@ Onıñ sebebi ne ola bilecek?
 Lâkin qız sebep qıdırsa.
 deral tapar.
 
-— İtimal... lâkin sebep tapqan tek qızlar degil. — dedi İrada. — Maña bir alicenaplıq yapa bilesiñizmi?
+— İtimal... lâkin sebep tapqan tek qızlar degil, — dedi İrada.
+— Maña bir alicenaplıq yapa bilesiñizmi?
 
 — Ne demek olsun?!
 
