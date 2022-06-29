@@ -339,10 +339,12 @@ İqtisatta tecribeli babasınıñ vefatından soñ Femige qocaman tesarufatn�
 Suade hanımnıñ tevsiyesine binaen, tabananı şeerde belli zengin Acı-Selimge sattı.
 Arşın mal tükânını bütünley qapattı, hızmetçilernen esap kesti.
 Tükânnıñ binasını qomşu tuccarğa kirağa berdi.
+
 Aileniñ ihtiyarında baqqal tükânı ve “Veli-Baba” han azbarı, qavehanesi qaldı.
 Ana ile oğul, keçinmek içün bularnı kâfi kördiler.
 Suade hanım artıq esli qadın.
 Femi ise ticaretke pek berilgen adam degil.
+
 Lâkin olardaki sermiya bir qaç nesilge daa başlarını tik tutıp yürmege, kibar ibareler ile qonuşmağa imkân berecek.
 
 Oquv yıllarında “sen” dep qonuşqan bu yaş kişiler – Üsein yigirmi doquz yaşında, Femi otuz birde – şimdi, belki sezgendirsiñiz, bir-birlerine “siz” dep muracaat etmekteler.
