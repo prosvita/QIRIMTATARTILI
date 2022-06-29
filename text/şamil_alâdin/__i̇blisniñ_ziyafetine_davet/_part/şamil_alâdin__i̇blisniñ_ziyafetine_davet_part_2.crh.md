@@ -373,7 +373,8 @@ Bu yahşı adetmi, fenamı... aytıp olamayım.
 Er alda, bunda nasıldır bir esas yoq degil.
 
 – E! – dedi Üsein Şamil.
-Başını aqırından eki-üç defa aldğa-artqa salladı. – Kimerde, bilesiñizmi... vaqıt olğanda, oğraşam.
+Başını aqırından eki-üç defa aldğa-artqa salladı.
+ – Kimerde, bilesiñizmi... vaqıt olğanda, oğraşam.
 
 – Yoq... aqiqaten begendim.
 
