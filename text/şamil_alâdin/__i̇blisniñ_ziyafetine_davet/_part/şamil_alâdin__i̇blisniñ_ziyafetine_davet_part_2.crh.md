@@ -252,6 +252,7 @@ Oca da qıznı sevdi.
 Soñ gizli sevgi alemge duyuldı.
 Aqibette, Üsein... qıznıñ anasından kötek aşap, Beş Palavnı terk etmege mecbur oldı.
 Üsein oca hızmet qıdırıp, gazetada ilân tab etti.
+
 Künler keçti.
 İç bir idareden teklif kelmedi.
 Niayet, bir kün Üsein Şamil küçük mektüp aldı.
