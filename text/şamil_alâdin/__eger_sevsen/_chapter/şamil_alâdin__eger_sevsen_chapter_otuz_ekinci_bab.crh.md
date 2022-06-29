@@ -460,13 +460,15 @@ Er vaqıt öyle degil.
 Arttan yavlıqnıñ tüyümçigini çezdim, soñ yavluqnı çekip almaq istedim, qurtulmadı.
 Yapışqan.
 
-— Çekiñiz! — dedi İrada. — Qorqmañız! 
+— Çekiñiz! — dedi İrada.
+— Qorqmañız!
 Tarttım... yavluq yaradan qurtuldı, lâkin üstünde qanlı qabuq qaldı.
 Yaradan qan aqıp ketti.
 
 — Nafile çezdik! — dedim İradağa,— qan çıqtı.
 
-— Çıqsın...— İrada özüni sıqmadı. — Toqtar.
+— Çıqsın...— İrada özüni sıqmadı.
+— Toqtar.
 
 Şimdi qız pervasız yaş bala kibi edi.
 Onı özüme çektim, bağrıma bastım, dudaqlarınıñ çetinden öptim.
