@@ -307,6 +307,7 @@ Şimdi de seveler.
 Aziz efendi oña yardımlar etti... fuqare Toqtar aqaynıñ oğlu ekeni içün yapmadı.
 Yoq!
 İşniñ tarihı ğayet sade.
+
 Bir defa Afız müderisten resmiy ruhset alıp, evge keldi.
 Yanında özü kibi genç kişi bar edi.
 
