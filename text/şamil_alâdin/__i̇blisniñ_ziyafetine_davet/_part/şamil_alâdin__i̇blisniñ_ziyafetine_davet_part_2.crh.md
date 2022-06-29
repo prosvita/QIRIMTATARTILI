@@ -233,9 +233,11 @@ Sizge ne oldı? – dep qıçırdı, Üsein oca, Feminiñ omuzlarından silki
 
 – Babam hastalandı... vefat etti, – dedi Afız.
 
-“Vefat etti...” Bu sözler Üseinniñ qalbini kuyutip yiberdiler.
+“Vefat etti...” 
+Bu sözler Üseinniñ qalbini kuyutip yiberdiler.
 
-– Aziz efendimi? – dep soradı o tekrar, çünki Afıznıñ sözleriniñ manasını tekmil tasavur etip olamadı. – Ata neden hasta edi?
+– Aziz efendimi? – dep soradı o tekrar, çünki Afıznıñ sözleriniñ manasını tekmil tasavur etip olamadı. 
+– Ata neden hasta edi?
 
 Afız sustı.
 Ocanıñ neler degeni qulağına kirmedi.
