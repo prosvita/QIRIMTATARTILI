@@ -350,16 +350,20 @@ Lâkin olardaki sermiya bir qaç nesilge daa başlarını tik tutıp yürmeg
 Oquv yıllarında “sen” dep qonuşqan bu yaş kişiler – Üsein yigirmi doquz yaşında, Femi otuz birde – şimdi, belki sezgendirsiñiz, bir-birlerine “siz” dep muracaat etmekteler.
 Bunıñ, elbette, sebepleri bar.
 O zamanda ekisi de bir ruhiy seviyede olıp, bir uquqqa saip... qollarından kelgen iş, yalıñız oquv... para bar ise, babasınıñ cebinde edi.
+
 Şimdi sermiyanıñ şorbacısı Femi.
 O paralı, demek ki küçlü.
-Üsein Şamil... köy ocası: Elinde maddiy akimiyet yoq.
+Üsein Şamil... köy ocası.
+Elinde maddiy akimiyet yoq.
 Femi – başqa.
 Onıñ vicdanı üzerinde Cemiyet Hayriye hızmetleri bar.
-O şeer ağalarınıñ biri... öz lâyıqatını saqlamaq, ufaq rutbeli adam ile subet vaqıtında onıñ şahsiyetine fahriy unvan taqıp, qonuşmaq kerek.
+O şeer ağalarınıñ biri... 
+öz lâyıqatını saqlamaq, ufaq rutbeli adam ile subet vaqıtında onıñ şahsiyetine fahriy unvan taqıp, qonuşmaq kerek.
 Üsein muallimniñ faaliyeti de, yüksek cemiyetniñ közüne çarpmaycaq hızmet degil.
 Femi bunı bile ve añlay.
 
-– Yaqında “Terciman”da eserleriñizni oqudım... – dedi Femi efendi musafirge. – Begendim.
+– Yaqında “Terciman”da eserleriñizni oqudım... – dedi Femi efendi musafirge. 
+– Begendim.
 Ebet!
 Güzel.
 Kerçek, men taaciplenmedim, çünki bu meil sizde çoqtan sezilgeni hatirimde.
