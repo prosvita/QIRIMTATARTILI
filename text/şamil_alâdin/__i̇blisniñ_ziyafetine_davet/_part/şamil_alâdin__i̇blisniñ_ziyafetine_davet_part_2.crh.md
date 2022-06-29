@@ -198,16 +198,21 @@ Bıraqıp qayttım.
 
 – Fikret Şerif... oqudımı?
 
-– Oqudı... şimdi çöl bette...
-Demiryol qurucılığında. – Afıznıñ hatirine, ğaliba, müim adise keldi, beñzi birden türlendi.
+– Oqudı... 
+şimdi çöl bette...
+Demiryol qurucılığında. 
+– Afıznıñ hatirine, ğaliba, müim adise keldi, beñzi birden türlendi.
 Bir talay indemey oturdı, niayet:
-
 – Onıñle körüşüv arzuñız yoqmı? – dep soradı.
 
 – Körüşüv...
-Fikret ilemi? – Üsein oca teren nefes aldı. – Bilesiñizmi, Femi efendi?
+Fikret ilemi? 
+– Üsein oca teren nefes aldı. 
+– Bilesiñizmi, Femi efendi?
 Fikret kibi adamdan red etmek, onı unutmaq... cinayet olur edi!
-Ama çoq vaqıt evelsi attığı oq alâ köküsime saplı turmaqta... yüregim alâ qanamaqta. – Biraz tüşüngen soñ, ilâve etti: – Bilmeyim.
+Ama çoq vaqıt evelsi attığı oq alâ köküsime saplı turmaqta... yüregim alâ qanamaqta. 
+– Biraz tüşüngen soñ, ilâve etti: 
+– Bilmeyim.
 Yollar ayırıldı... itimal, bir daa körüşip olamamız.
 
 Fikret Şerifniñ eske tüşürilüvi Üsein ocanı eyecanğa ketirdi.
