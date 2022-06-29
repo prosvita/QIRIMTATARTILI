@@ -410,11 +410,11 @@ Tışarıda damnıñ saçağından salınğan uzun buz keseginden yerge suv taml
 Teren köküs keçirdim.
 "Baar... baar keleyata".
 
-— Cevdet! — dedi İrada ökünçli davuşnen. — Meni ömürim boyunca çekiştireceksiñizmi?
+— Cevdet! — dedi İrada ökünçli davuşnen.
+— Meni ömürim boyunca çekiştireceksiñizmi?
 Bunda ne tapasıñız?
 Menim qazam qorqunçlı degil... keçer-keter.
-Amma siz?..
-siziñ yoluñızda bir mana bar edi...
+Amma siz?..siziñ yoluñızda bir mana bar edi...
 Tursunov.
 O endi çetke çekildi.
 Daa nasıl...
