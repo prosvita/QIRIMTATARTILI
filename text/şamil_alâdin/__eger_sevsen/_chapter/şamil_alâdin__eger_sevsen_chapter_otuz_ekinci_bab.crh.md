@@ -367,7 +367,8 @@ Maña yürmek qıyın.
 Mermerni bayır etegine tüşürmek içün lebödka teklif ettim.
 Curayev razı olmadı.
 Şimdi, seniñ sözleriñe baqsaq... kene Curayev aqlı olıp çıqtı.
-İradağa egildi. — Nasıl?
+İradağa egildi.
+— Nasıl?
 Ağıramı? — dep soradı.
 
 — Sınıq ve çıqıq yoq,— dedi qız,— Qadır aka öyle dedi.
