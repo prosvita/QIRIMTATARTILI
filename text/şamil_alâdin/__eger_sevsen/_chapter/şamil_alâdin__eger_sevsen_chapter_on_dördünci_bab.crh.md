@@ -1,17 +1,13 @@
 ## On dördünci bab — Margaritanıñ aqibeti
-
 İşlegen yerimizde qum tabaqası peyda oldı.
 Bu qum beton yasamaq içün keyfiyetli tanıldı.
 Evellerde parovozlar qumnı yigirmi kilometr uzaqtan dumpkarlarnen ketire ediler, şimdi uzaqqa ketmek kerekmey.
-
 Ekskavator çuqur içinden gece-kündüz qum çıqarmaqta.
 Demir yol yasalsa, ekskavator qazğan qumnı platformağa derrik vastasınen yüklep alıp ketmek mümkün.
-
 Bu fikir Krasnânskayanıñ özünde doğdı, lâkin şpal ve rels yetişmedi.
 İş qaldı.
 Bizim ekskavatorğa yaqın barıp yanaşa bilecek demir yol yasamaq da mümkün olmadı, çünki sarı topraq üstünde qurulğan demir yol ağır yükli vagonlarnı köteralmay.
 Böyle topraq bir defa bizim ekskavatornı uçurumdan aşağı yuvarlatayazğan edi.
-
 Qısqası, demir yol hususında laqırdı etmege — ettik, amma işni yapmağa kelgende, netice çıqmadı.
 Bugün komsomol komitetiniñ meclisine demir yol injeneri ve beton zavodı vekili çağırıldı.
 Meclisniñ reisi İrada sözni evelâ zavod vekiline berdi.
