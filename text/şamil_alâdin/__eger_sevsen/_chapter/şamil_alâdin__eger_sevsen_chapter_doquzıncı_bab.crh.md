@@ -73,7 +73,8 @@ Aşhanede Hristofornı rastketirdim.
 Üylelik yemegini aşap bitireyata edi.
 
 — Arhipka aqlı eken,— dedi o, menüda yazılğan "gulâşnı" körsetip,— bizni nenen sıylaylar... köresiñmi?
-Özüñ "yengil kavaleriyasıñ!" Niçün bir çareler körmeysiñ?
+Özüñ "yengil kavaleriyasıñ!"
+ Niçün bir çareler körmeysiñ?
 
 Men kuhnâ betke... aş almağa kettim.
 Birincini, ekincini, üçüncini — episini birden ketirip stol üstüne qoydım.
@@ -83,14 +84,12 @@ Oña kisel deyler.
 — Elpideni körmek isteysiñmi? — dedi maña apansızdan Hristofor.
 Ötüm patlayyazdı.
 
-Albu ise, Hristofor onıñ yeñi süretini alğan, özüniñ dülber qız qardaşınen, tek menim degil, başqalarnıñ da ögünde maqtanacağı kelgen.
 Elpide beyaz anternen çıqqan.
 Çeresi tınç ve miskin.
 Onı böyle durğun iç körmegen edim.
 Daima ateş, furtuna edi, Yanında hoş körümli yigit bar.
 Galstugı yerinde köbelek.
 Külecegim keldi.
-Atta küldim de.
 Batumda yaşağan bütün kiyevler, üç qara ayğır yekili taçankanıñ üstüne oturıp, boyunlarına köbelek taqıp resim aldıralar.
 O dekorativ atlar menim vaqtımda da bar ediler.
 Bazar yanında...
@@ -108,12 +107,15 @@ Men cevap bermedim.
 — Menimmi?
 Yoq!
 
-— Yalan aytasıñ. — O Elpideniñ laqırdısını devam etti,— menim içün tesadüfiy şey.
+— Yalan aytasıñ.
+— O Elpideniñ laqırdısını devam etti,— menim içün tesadüfiy şey.
 Lâkin bunı beklemek mümkün edi.
 Yigitnen Krasnodarğa ketecegim, dep yaza.
-Aptekada çalışa eken. — Böyle degende, Hristofornıñ davuşında azaçıq ğurur bile sezildi.
+Aptekada çalışa eken.
+ — Böyle degende, Hristofornıñ davuşında azaçıq ğurur bile sezildi.
 
-"Sen onıñ nasıl kişi ekenini qaydan bilesiñ...— dep tüşündim men. — İczacımı?
+"Sen onıñ nasıl kişi ekenini qaydan bilesiñ...— dep tüşündim men.
+ — İczacımı?
 Nijnikmi?
 Bunıñ ne emiyeti bar?
 Tek sevgi olsun..."
