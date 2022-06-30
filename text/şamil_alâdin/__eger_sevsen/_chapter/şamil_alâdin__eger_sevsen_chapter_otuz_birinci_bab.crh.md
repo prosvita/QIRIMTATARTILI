@@ -445,7 +445,8 @@ Sağlığı nasıl?
 — Şükür allağa,— dep cevap berdi Qadır aka,— bir şeyge şikâyet etme.
 Yoluñız qaysı tarafqa?
 
-— Aqın-Sayğa! — dedi injener. — Anda azaçıq işimiz bar.
+— Aqın-Sayğa! — dedi injener.
+— Anda azaçıq işimiz bar.
 
 — Böyle, keç maaldemi?
 
