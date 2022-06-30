@@ -211,7 +211,8 @@ Sabanıñ kök dumanı içinde susqan şeerçikniñ damları üstünden yükseli
 
 — Tez qaytıp keliñiz! — dedi bizge.
 
-— Qısmet olsa...— dedi Menjevetskiy, yürüşini devam etti,— dağlarda böten vaqıt ğaip etüvde ne mana? — Bu sözlerden soñ, o toqtaldı, Curayevke aylandı: — Meseleni menim aytqanım kibi al etermiz!
+— Qısmet olsa...— dedi Menjevetskiy, yürüşini devam etti,— dağlarda böten vaqıt ğaip etüvde ne mana?
+— Bu sözlerden soñ, o toqtaldı, Curayevke aylandı: — Meseleni menim aytqanım kibi al etermiz!
 Öyle degilmi?
 
 Curayev özüniñ razı ekenligini körsetip, başını salladı.
@@ -250,7 +251,8 @@ Ameliyatnı Sibirde keçtim.
 Soñ Donbassqa kettim,
 
 — Öylemi?
-Evel Özbekistanda yaşağanıñıznı bilmey edim,— dedi İrada, hoş külümsirep. — Elbette, bir halq arasında yaşar ekensiñ, onıñ tilini bilmek yahşı.
+Evel Özbekistanda yaşağanıñıznı bilmey edim,— dedi İrada, hoş külümsirep.
+— Elbette, bir halq arasında yaşar ekensiñ, onıñ tilini bilmek yahşı.
 Men öyle belleyim... lâkin cönemege vaqıt degilmi?
 
 — Ebet, bizge aşıqmaq kerek...
