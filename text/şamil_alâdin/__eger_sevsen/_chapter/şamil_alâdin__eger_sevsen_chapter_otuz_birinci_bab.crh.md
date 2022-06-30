@@ -560,7 +560,7 @@ Raşidnen ekimizniñ vaziyetimiz de pek sevinçli degil.
 Raşidniñ ayaqlarında rezina çızmalar... qarğa batmay, lâkin er adımda tayıp yıqıla.
 Ayaq üstünde turalmay.
 Menim ayağımda arbiy çızmalar.
-Tüblerine nal mıhlı.
+%
 Qar usttande turalmayım, adım sayın qar teşile, saplanıp qalam.
 Tizden qar içinde yürem.
 Kimerde qarnıñ üstüne çıqam... çıqtım degende kene qar astına tüşip ketem.
