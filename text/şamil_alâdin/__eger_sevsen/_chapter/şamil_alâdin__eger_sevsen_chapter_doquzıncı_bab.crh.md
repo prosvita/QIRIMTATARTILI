@@ -129,7 +129,7 @@ Diger yaqıma aylandım, ögümde Nikolay turmaqta edi.
 Olar yüregimdeki keder ve asretni añlağanlar.
 
 Ne qadar vaqıt keçti?
-Bilmeyim.
+Bilmeyim .
 Yuqu içinde:
 
 — Zararı yoq, er şey keçer keter...— degen davuşnı işitip, uyandım.
