@@ -65,7 +65,7 @@ Amma çöyün ve çelikniñ er bir kilogrammı hususiy devlet isabına alınğan
 Curayev onı mer-mernen qaplanılmasını teklif etti.
 Mermer ocağı ise dağda...
 Baş Dugümden yigirmi beş kilometr uzaqta.
-Bu qomşu qışlaq dehqanlarına çoqtan malüm.
+%
 Özen boyunda yaşağan ealiniñ bütün nesilleri şu vaqıtqa qadar onıñ taşından ev qurıp kelgenler.
 Curayev karyerni körgeni yoq, amma onıñ aqqında çoq işitken.
 
