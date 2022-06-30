@@ -291,7 +291,7 @@ Añlaşıldı... qız yoruldı.
 
 — Toqtayıq... biraz raatlanıñız! — dedim men İradağa.
 
-— Yoq,— dedi o, qatıy surette. — Kerekmey!
+— Yoq,— dedi o, qatıy surette, — Kerekmey!
 Kamzolnı kiygenime peşman etem.
 Dögmeleyim — sıcaq ola, çezem — suvuq.
 
