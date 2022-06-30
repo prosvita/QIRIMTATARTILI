@@ -23,14 +23,6 @@ Buzlu okean?
 Bir şey demek degil!
 Amma ne qadar sergüzeşt körecekmiz.
 — Ketesiñmi? — dep soradım İradadan.
-O, keteceklerniñ vesiqalarını papkalarğa qoyıp, üstlerine familiyalarını yazıp azırlamaqta edi, — Şpitsbergenge ketesiñmi?
-— Ya siz? — kederli közlerini maña doğrulttı, — özüñiz ketesiñizmi, Cevdet?
-— Men..?
-Siz, İrada, maña darılasıñız.
-Amma, men qabaatlı degilim.
-Eger bu küskünligiñiz, menden yaqañıznı qurtarmaq içün olsa... ne yapmalı?
-Elbet de, Şpitsbergenge keterim.
-Para qazanmaq içün degil, sizge körünmemek, sizni asabilendirmemek içün... keterim.
 % 
 Şimdi bu satırlarnı yazayatqanda Nikolaynıñ adetlerini ayrıca hoşnutlıqnen hatırlayım.
 O kitaplarnen pek meraqlana, lâkin özü oqumağa sevmey edi.
@@ -112,7 +104,7 @@ Bassarabanıñ yardımcıları da, özü kibi, yuvaş adamlar.
 Üyken nijnigi Basit Atakulov qırmızı yanaqlı, yaş yigit.
 Qaşları ve saçları qarardan ziyade gür ve tunç qara.
 Dört yaşında ekende tezyada topraq savutlar yasağan.
-Babası ayrette qalğan, Onıñ yasağan meşrebesini peçke qoyıp qızdırğan.
+Babası ayrette qalğan, onıñ yasağan meşrebesini peçke qoyıp qızdırğan.
 Bu, ilki savut, özüniñ aytqanına köre, alâ evde tura eken.
 Ondan soñ basit ayaqnen aylanıcı tezya tögeregini işke öyle güzel uydurğan ki, pek çoq ustalar onı çağırıp, öz tezyalarını tüzettirgenler.
 Basit kimerde közlerini qapatıp, evde tezyada nasıl çalışqanını, ayaqlarınen daireni nasıl aylandırğanını, eki elinen küçük balçıq topaçından nasıl etip savut şekillendirgenini, soñra, savutnıñ astında öz tamğasını nasıl qoyğanını bizge körsete edi.
@@ -228,7 +220,8 @@ Basit! — Bassaraba öz yardımcısını ögge üytedi, — çap!
 Bir qaç saniye keçer-keçmez Raşid üçünci teşikniñ tübünde peyda oldı, Basitniñ ayaqlarına ilişip, toqtaldı.
 O endi kanalnıñ içinde, ayaq üstünde turmaqta edi.
 — Altı adam... Tez!
-Altı adam... — dep qıçırdı Menjevetskiy, — maña yaqın keliñiz! — Kimdir, elini Raşidke uzattı, töpege çekip çıqardı.
+Altı adam... — dep qıçırdı Menjevetskiy, — maña yaqın keliñiz!
+ — Kimdir, elini Raşidke uzattı, töpege çekip çıqardı.
 O, çıqqan soñ, balıq kibi, şap etip yerge tüşti.
 Aynı şu el Raşidni köterip, çetke üytep taşladı.
 Kim?
@@ -291,75 +284,54 @@ Raşid bir şeyler söylemek içün ağızını açtı, Nikolay onı toqtattı.
 Sen qarışma!
 Men bu parazitni öldürmek istegen edim.
 Öldürgen olsam, qarışa bilir ediñ. — Açuvından komgok kesilgen alda Arhipkağa çevirildi,— öldürmeycegim!
-
-— Ne yapmaq isteysiñ?— dep ökürdi Arhipka. — Meni qayda davet etesiñ?
-
-— Sen ne aytasıñ?— dedim men Nikolayğa,— bir şey añlamayım!
-
+— Ne yapmaq isteysiñ? — dep ökürdi Arhipka. — Meni qayda davet etesiñ?
+— Sen ne aytasıñ?— dedim men Nikolayğa, — bir şey añlamayım!
 — Tezden añlarsıñ.
 Mında mürekkep şey yoq.
-Tur!— dedi o, Arhipkağa,— Qırğız Qulaqqa ketecekmiz!
-
+Tur!— dedi o, Arhipkağa, — Qırğız Qulaqqa ketecekmiz!
 — Ne içün?
-
 — Duranidini bu alğa ketirgeniñ... onı öldürmek istegeniñ içün.
 Hristofor hastahaneden çıqqan soñ bile adamğa beñzemeycek.
 Tur!
 Menimnen keteceksiñ!
-
 — Men?
-Seniñnen?— o koykasından turdı,— Arhipkanı operativ bölükke alıp kete bilecek adam daa doğğanı yoq.
-
+Seniñnen? — o koykasından turdı, — Arhipkanı operativ bölükke alıp kete bilecek adam daa doğğanı yoq.
 — Öyle belleysiñmi?
 Şimdi menimnen keteceksiñ.
 Men alıp ketecegim.
-
 — Sen?
 Bilesiñmi ne, Kandıba?
 Bu Pâtireçye degil!
-
 — Degil.
 Lâkin menimnen keteceksiñ!
-
 — Hristofor yer patlağan vaqıtta yaralandı.
 Bunı er kes bile.
 Çekil!
 İlişe berme!
 Özüñ içün yahşı olmaz.
-
 — Qorquzmaq isteysiñmi?
-Men seniñ...— Kandıba eki eliniñ parmaqlarınen Arhipkanıñ boğazından tuttı.
+Men seniñ... — Kandıba eki eliniñ parmaqlarınen Arhipkanıñ boğazından tuttı.
 Arhipka telâşqa tüşti: "Petâ emce!
 öldüreler..." dep qıçırdı.
-
 — Sus, ahmaq!— dedi Nikolay,— bir şey yapmaycağım.
 Men seniñ üçköşe başıñnı bu in-ce yelkeñden üzip taşlamaq istegen edim, Cevdet razı olmadı.
 Oña teşekkür et!
 Menim ise... yapqan alçaqlığıñnı işitkenimden berli saña ellerim qaşınıp yüre.
 Aydı, çıq!
-
 — Seniñnenmi?
-
 — Menimnen!
 Ne?
 Utanasıñmı?
-
 — Saqın, toqunayım, deme!
 Yoqsa, senden tek sılaq tamğa qalır.
 Haberiñ olsun!
-
 — Yur!
-
-— Yezdir başımdan!— dep cekirdi Arhipka ve yumruqlarını sıqıp Nikolayğa taba yurdi. — Saña ne kerek?
-
+— Yezdir başımdan! — dep cekirdi Arhipka ve yumruqlarını sıqıp Nikolayğa taba yurdi. — Saña ne kerek?
 Kandıba onıñ elini tutıp burdı, Arhipka çıdayalmay, yerge otura qoydı.
 Esini toplamağa fursat bermey, süyreklep tışarı çıqardı.
-
-— Deñiz aydutı!
-Pirat!— Arhipka yayğara qopardı.
+— Deñiz aydutı! — Arhipka yayğara qopardı.
 Ketmege istemey, ellerinen qapuğa tireldi, lâkin Nikolay bıraqmadı. — Yiber, farmozon!
 Çemodanım açıq qaldı...
-
 Kâr etmedi.
 Nikolay üyteklep alıp ketti.
 Bir qaç daqiqadan soñ, pencereden baqtım.
