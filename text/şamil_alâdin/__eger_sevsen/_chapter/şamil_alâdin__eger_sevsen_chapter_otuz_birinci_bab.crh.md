@@ -262,11 +262,11 @@ O da Çar-Çaq kibi, qırlar ve qayalar arasında burğalanıp ketmekte edi.
 Qırlarnıñ töpeleri qar ile örtüli.
 Buzlu yol boyunda araba köpçekleri eki teren iz açqanlar.
 Bu izler boyu yüreyik dedik, ayaqlarımız sığmadılar.
-Ortalap kettik.
+%
 
 Yol de tik bayırğa tırmaştı, de eñişten endi.
 Menjevetskiy yüre berdi.
-O, fikren, nasıldır, ciddiy meseleler al etmekte.
+%
 İrada onıñ artından adımlay.
 İndemey.
 
