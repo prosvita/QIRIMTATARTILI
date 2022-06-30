@@ -578,6 +578,6 @@ Men çuqur içine tığırıp keteyatqanda, yuqarıda İradanıñ kiyik sesini i
 Soñ çızmamnıñ ökçesinen urıp, qar üstünde ayağımnı iliştirmege yuva yasadım.
 Ayaqqa turdım.
 Baqsam — Sigizmund Genrihoviç acele-acele aşağı tayıp tüşeyata.
-Menden altı-yedi metr uzaqta qar ile örtüli İrada yatmaqta; Raşid eki elinen onıñ qoltuqları astından tuttı, köterip ayaqqa tursatacaq oldı.
+Menden altı-yedi metr uzaqta qar ile örtüli İrada yatmaqta, Raşid eki elinen onıñ qoltuqları astından tuttı, köterip ayaqqa tursatacaq oldı.
 Közüme İradanıñ yüzü körünip aldı, soñ kene qar astında gizlendi.
 Mañlayından qan aqmaqta edi.
