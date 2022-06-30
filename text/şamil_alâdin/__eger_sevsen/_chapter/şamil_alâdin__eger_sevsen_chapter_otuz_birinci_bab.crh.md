@@ -371,6 +371,7 @@ Amma endi sizge canı ağırmay.
 Küz maali edi, apansızdan yağmur yağdı, bir qaç saat içinde yolnıñ sarp yerlerinde sel köpürlerni alıp ketti, yolnıñ kimer qısımları uçurımdan aşağı tayıp, özenge tüştiler.
 Yollar tüzetilgenge qadar bir qaç künler beklemek kerek oldı.
 
+
 Qışlaq küçük, ealisi musafirperver.
 Rus injeneriniñ özbekçe laqırdı etüvi kişilerni meraqlandırdı.
 Menjevetskiy kelgeniniñ ertesi künü, can sıqıntısından, qonaqbayğa odun kesmege yardım etecek oldı.
