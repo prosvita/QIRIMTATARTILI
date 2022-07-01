@@ -385,36 +385,50 @@ Şiir tesirli çıqtı.
 Femi efendi medresede ekende şiirler oqumağa bile ve seve turğan.
 
 Balığı yerse balıq,
-
 Bunı taqdir etti halq,
-
 Zuluma insan degil lâyıq,
-
 Kel, yanalım!
 Kel, yanalım!
-
 İsteyelim, aq bir olsun,
-
 Bunıñ içün divan qurulsın,
-
 Bu yola can qurban olsun,
-
 Kel, yanalım!
 Kel, yanalım!
 
 Femi efendi bu yerde toqtaldı.
 Biraz tüşündi... tutuqlandı.
+
 “Tapılsın de...
 Tapılsın deva er derde...” A!
 Im!
 “Qalmasın bir...” yoq, ahırını hatırlap olamadı.
 
-– Acayip şiir... – dedi Femi efendi, niayet, – teren duyğularımızı ifa itmişsiñiz.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+– Acayip şiir... – dedi Femi efendi, niayet, 
+– teren duyğularımızı ifa itmişsiñiz.
+
 Alla razı olsun, Şamil efendi!
 Kim bilir, ebet, kim bilir?
 Vaqıtı kelir, belki siz büyük edip olursıñız!
 
-– Teşekkür sizge, Femi efendi! – dedi Üsein Şamil. – Men kendim, büyük oluvnı degil, zulmet altında hırpalana, ezile, bir avuç qadar qalğan halqımıznı düşünem.
+– Teşekkür sizge, Femi efendi! – dedi Üsein Şamil. 
+– Men kendim, büyük oluvnı degil, zulmet altında hırpalana, ezile, bir avuç qadar qalğan halqımıznı düşünem.
 
 Laf halq taqdirine kelip toqunğanını sezgen Afız qonuşuvnı başqa yolğa çevirdi.
 Bizim şeerge yoluñız nasıl tüşti? – dep soradı musafirden.
