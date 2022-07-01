@@ -457,7 +457,8 @@ Ümer bana Üseinniñ Femi efendi ile oturıp qonuşqanını kördi, yanlar
 Mani olmaq istemedi.
 Bu yerde oturıp, cevizli laqşa aşadı, artından çay içti.
 
-– Meni qasevet etmeñiz, emce! – dedi Ümer. – Men bu binada çoq olam, Femi efendini de bilem.
+– Meni qasevet etmeñiz, emce! – dedi Ümer. 
+– Men bu binada çoq olam, Femi efendini de bilem.
 Mında ekeniñizni oña men ayttım.
 
 Üsein muallim ayrette qaldı.
