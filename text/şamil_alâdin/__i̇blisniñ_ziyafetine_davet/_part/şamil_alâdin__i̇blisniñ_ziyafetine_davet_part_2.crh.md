@@ -416,18 +416,19 @@ Vaqıtı kelir, belki siz büyük edip olursıñız!
 
 Laf halq taqdirine kelip toqunğanını sezgen Afız qonuşuvnı başqa yolğa çevirdi.
 
-Bizim şeerge yoluñız nasıl tüşti? – dep soradı musafirden.
+- Bizim şeerge yoluñız nasıl tüşti? – dep soradı musafirden.
 
-Menimmi?
+- Menimmi?
 Mümkün olsa, İsmail efendi ile körüşmek isteyim.
 
-Çoq eyi, – dedi Femi efendi, – lâkin ata yaqında İndstandan keldi.
+- Çoq eyi, – dedi Femi efendi, – lâkin ata yaqında İndstandan keldi.
 Yorğun olmasa...
 
 – Menim işim büyük degil.
 Zan etsem, onı zamete qoymaz.
 
-– Sizge, Şamil efendi, menim yardımım kerekmi? – dedi Femi efendi. – Kerek olsa, çekinmeñiz!
+– Sizge, Şamil efendi, menim yardımım kerekmi? – dedi Femi efendi. 
+– Kerek olsa, çekinmeñiz!
 İsmail bey ile aramız fena degil.
 
 – Teşekkür!
