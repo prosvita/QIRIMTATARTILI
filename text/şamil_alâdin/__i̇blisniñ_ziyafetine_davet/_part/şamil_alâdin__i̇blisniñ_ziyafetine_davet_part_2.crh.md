@@ -399,30 +399,13 @@ Femi efendi bu yerde toqtaldı.
 Biraz tüşündi... tutuqlandı.
 
 “Tapılsın de...
-Tapılsın deva er derde...” A!
+Tapılsın deva er derde...” 
+A!
 Im!
 “Qalmasın bir...” yoq, ahırını hatırlap olamadı.
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 – Acayip şiir... – dedi Femi efendi, niayet, 
 – teren duyğularımızı ifa itmişsiñiz.
-
 Alla razı olsun, Şamil efendi!
 Kim bilir, ebet, kim bilir?
 Vaqıtı kelir, belki siz büyük edip olursıñız!
