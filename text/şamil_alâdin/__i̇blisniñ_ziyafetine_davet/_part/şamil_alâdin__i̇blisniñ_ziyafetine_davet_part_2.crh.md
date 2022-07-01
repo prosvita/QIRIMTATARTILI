@@ -402,7 +402,8 @@ Biraz tüşündi... tutuqlandı.
 Tapılsın deva er derde...” 
 A!
 Im!
-“Qalmasın bir...” yoq, ahırını hatırlap olamadı.
+“Qalmasın bir...” 
+yoq, ahırını hatırlap olamadı.
 
 – Acayip şiir... – dedi Femi efendi, niayet, 
 – teren duyğularımızı ifa itmişsiñiz.
