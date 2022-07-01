@@ -415,6 +415,7 @@ Vaqıtı kelir, belki siz büyük edip olursıñız!
 – Men kendim, büyük oluvnı degil, zulmet altında hırpalana, ezile, bir avuç qadar qalğan halqımıznı düşünem.
 
 Laf halq taqdirine kelip toqunğanını sezgen Afız qonuşuvnı başqa yolğa çevirdi.
+
 Bizim şeerge yoluñız nasıl tüşti? – dep soradı musafirden.
 
 Menimmi?
