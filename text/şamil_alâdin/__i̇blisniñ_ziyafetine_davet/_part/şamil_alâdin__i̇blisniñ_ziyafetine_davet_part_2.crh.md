@@ -439,14 +439,16 @@ Egilip, şorbacınıñ qulağına nelerdir pısırdadı, soñ çetke çeki
 Şorbacı bir Üsein ocağa, bir de Acire hanımğa közetip aldı.
 
 – Siz, şübesiz, yorğunsıñız, – dedi musafirlerge, – ket raatlanıñız!
-Yarın, inşalla, körüşirmiz, – soñra hızmetçige hıtaben dedi. – Şamil efendige yataq odasını kösteriñiz!
+Yarın, inşalla, körüşirmiz, – soñra hızmetçige hıtaben dedi. 
+– Şamil efendige yataq odasını kösteriñiz!
 
 Afız efendi yerinden qalqtı, musafirlerge “hayırlı gece” tilep, sağlıqlaştı, ağaç merdiven boyu yuqarı qatqa doğurıldı.
 Üsein muallim refiqasınıñ tizleri üstünde yuqlağan balanı quçağına aldı.
 Qadın-qoca hızmetçiniñ peşinden ketkende, pencere yapındaki masa başında Ümerni kördiler.
 Bu maalgece onı hatirge ketirmegenlerine özleri ıncındılar.
 
-– Bir şeyler aşadıñmı, Ümer? – dep soradı ondan Üsein. – Afu et!
+– Bir şeyler aşadıñmı, Ümer? – dep soradı ondan Üsein. 
+– Afu et!
 Biz pek yorulğanmız...
 
 Ümer, er vaqıttaki kibi, mulâyim külümsiredi, başını yavaştan qaqıttı.
