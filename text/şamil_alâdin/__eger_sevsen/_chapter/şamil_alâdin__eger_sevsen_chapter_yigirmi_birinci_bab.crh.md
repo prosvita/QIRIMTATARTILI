@@ -326,7 +326,8 @@ Sabira hala maña inanmay-inanmay baqtı, lâkin inandı.
 Men İrada içün raatsızlanam.
 Daa qoyıp bereyimmi?
 
-Aşayımmı eken?— dep tüşündim men,— Aydı, olmasa, bir çanaq daa!..
+Aşayımmı eken?— dep tüşündim men.
+— Aydı, olmasa, bir çanaq daa!..
 
 — İrada menim öz balam kibi...— Sabira hala tınmadı,— onıñ anası aqayım tarafından maña soy.
 İrada pek inançaq qız.
