@@ -3,7 +3,8 @@ Çıqıp, Acire hanımnı qıdırmaq içün qapuğa doğrulğanda, qapu ac
 
 – Seni ğayıp ettim, – dedi Üsein taaciplenip, – qayda ediñ?
 
-– Bazarğa bardım, – dedi qarısı, köteringi yürekle. – Bu yerge yaqın eken.
+– Bazarğa bardım, – dedi qarısı, köteringi yürekle. 
+– Bu yerge yaqın eken.
 Qadayıf tükânı artında.
 
 Zembil içinden sıcaq piteler, elva, tar boğazlı uzun bardaqta qoyun qatığı çıqarıp, masa üstüne qoydı.
