@@ -190,7 +190,8 @@ Divardaki saat sert-sert tıqılday edi.
 Zıncırına, demir anahtardan ve teneke meşrebeden ğayrı, üç dane saksaul parçası da taqqanlar.
 Endi beş...
 
-— Bugün aşhanede, acarlar aytqanı kibi, palevezeli plâv olmaq kerek...— dedi Nikolay, rezina çızmalarını çıqarayatqanda. — Men yuqlaycağım.
+— Bugün aşhanede, acarlar aytqanı kibi, palevezeli plâv olmaq kerek...— dedi Nikolay, rezina çızmalarını çıqarayatqanda.
+— Men yuqlaycağım.
 
 — Palevezesini bilmeyim,— dedi Raşid,— lâkin palov pişirgenler.
 
