@@ -17,7 +17,7 @@ Ekskavatorımız tar topraq yolağı üstünde çoñqayıp qaldı... bir yaqta a
 Sağ tarafta özen iñley, sol tarafta teren aylanma kanal sozulıp yata.
 Eki kovş topraq alınsa, Çar-Çaqnıñ suvu kanalğa aqacaq.
 
-Soñki künlerde epimiz Curayevniñ smenasında galışamız.
+Soñki künlerde epimiz Curayevniñ smenasında çalışamız.
 Men onıñ tabiatında yeñi hususiyetler taptım.
 Smena vaqtında bizim maşinamızğa kelip, uzaqta topraq yığını üstünde turıp, işniñ ketişatına köz ete, kabinağa minerek, yelquvannıñ areketini teşkere, soñ maña sezdirmey, tüşip kete.
 İrada maşinanıñ vaziyetini Almazovdan sorap bile turğan, Curayev özü kelip teşkere.
