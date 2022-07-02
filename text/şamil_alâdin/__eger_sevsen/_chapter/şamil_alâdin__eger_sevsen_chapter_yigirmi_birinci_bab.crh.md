@@ -115,7 +115,8 @@ Sizden yardım istep keldik.
 Yalıdaki şpallar artından İrada köründi.
 
 — Ne oldı?
-Ne toplandıñız?— dep qıçırdı o, uzaqtan. — Smenanıñ bitmesine üç saat daa bar!
+Ne toplandıñız?— dep qıçırdı o, uzaqtan.
+— Smenanıñ bitmesine üç saat daa bar!
 
 — Qayda ediñ, İra?— dedi Almazov,— dört künden berli kimsege körünmediñ!
 
