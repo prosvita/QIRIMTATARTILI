@@ -88,7 +88,7 @@ Karimniñ maşinası bütün gece işlep çıqtı.
 Biz işittik.
 Şimdi elektrik küçü yoq eken...
 Ekskavatornıñ töpesine çıqıp Ayıq-Burun betke baqtım.
-Yalı tüm-tüz.
+%
 Ekskavatornıñ saçağında çıraq yanmaqta.
 Aşağı tüştim.
 
@@ -303,7 +303,7 @@ Men bilem.
 Ber, biraz palov daa qoyayım!
 
 Sabira hala bugün menim ile niçün bu qadar nezaketli..?
-Farqına baralmadım.
+%
 Oña sertiydim bile!
 Yekaterina Vasilyevna menim içün kim olğan?
 Belki o, Solomon adalarına başqa adamlarnen de ketmege azırdır?!
