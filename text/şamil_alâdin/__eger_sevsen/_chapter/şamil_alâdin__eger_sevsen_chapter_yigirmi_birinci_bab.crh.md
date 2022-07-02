@@ -52,7 +52,8 @@ Men onı töpege çağırmaq içün yerge tüştim.
 
 — Bittimi?— dep soradı Raşid.
 
-— Bitti,— dedim men. — Kanal bitti!
+— Bitti,— dedim men.
+— Kanal bitti!
 
 Tünevin gece men rıçag başında oturğanda: "Barıp ta kanal yarın geceniñ bir vaqıtında bitse, Kandıba, kim bile, nasıl deşetli sadalar çıqarır?.." dep tüşüngen edim.
 Endi bitti... kimse indemedi.
