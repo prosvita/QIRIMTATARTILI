@@ -137,15 +137,8 @@ Taş üstünde turıp, ayağımnı balağım içinden çıqarayatqanda, taydım,
 Turğan soñ, ayaqlarımnı çapalaqlap aqqan suvğa yuvdım, alel-acele çılğavğa sarıp, çızmağa tıqtım.
 Üstümde tek garoz iç ştan qaldı.
 Pamuq ştanımnıñ içine tomalaq taşlar toldırıp, suv teşiginiñ içine qoydım ve eki elimnen tutıp turdım.
-
-
 Suv endi sağ taraftan aqmaqta.
 Şuvuldap aqmay, çıbıra.
-
-
-
-
-
 Bu meni sevindirdi.
 Pamuqlı ştannı basıp turam.
 Aqılıma çeşit şeyler kele... soñ öz-özüme açuvlanam.
@@ -153,6 +146,8 @@ Gece smenası başlağanca... saat on bir buçuqqa qadar bu yerde turmaq kerek.
 Er on daqiqada bir defa qıçırmağa mecburım.
 Smenağa ketken işçiler sesimni işitseler — kelecekler.
 İşitmeseler?
+
+
 
 İrada yoq.
 Eger kelse, anda, yuqarıda, topraq obaları artında ümütsizden Tursunovnen körüşecek.
