@@ -434,7 +434,8 @@ Toqtabayev közlerini lipildetip maña baqtı.
 Kürsüniñ üzerinde yeñi fufayka ve ştan yatmaqta ediler.
 Açıq, yeşil tüslü materialdan... diagonal.
 
-— E! — dedim men. — Komandir forması eken de!
+— E! — dedim men.
+— Komandir forması eken de!
 
 — Özüñe lâyığını taptıq,— dedi Toqtabaev ve öksürerek, eñqastan mıyığınıñ ucunı burdı.
 
@@ -442,9 +443,7 @@ Açıq, yeşil tüslü materialdan... diagonal.
 Yazıp-çızıp qoydım.
 Siziñ balalar imza ettiler.
 Ayaq astında taptalğan, çamurğa bılanğan onı endi qaydan tapacaqsıñ?
-
 "Çatal-Çinar, saat yedi".
 İrada bunı ne içün yaptı?
 Meni aşalamaq, menden intiqam almaq içünmi?
-
 Bir şey añlamayım.
