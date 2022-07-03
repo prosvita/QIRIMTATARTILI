@@ -13,10 +13,8 @@ Amma daa bir ay evelsi bizim ekskavator bu, menim turğan yerimde, işlemekte ed
 Astı tem-tegiz.
 Tezden bu yerde qart Çar-Çaqnıñ gürdeli suvları aqacaq.
 Uvultılı dere içinde plotina qurulacaq.
-
 Taacipli şey.
 Adamlarnıñ elinden böyle işler kele.
-
 İrada alâ yoq.
 Bir qaç dane küçük, tomalaq taşçıqlar tığırıp, kanalnıñ astına tüştiler.
 Başımnı çevirdim, topraq obasınıñ diger tarafından teri paltolı kişi köründi.
