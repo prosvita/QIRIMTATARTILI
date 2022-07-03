@@ -7,8 +7,8 @@ Samimiyetnen degil, mısqıllap küldi.
 
 Külmek asıl da kerek edimi?
 Zeverced oña, er keske belli adetiy şeyni ayttı.
-Özü uydurıp çıqarğanı yeq.
-Ariza degen şey, nasıl olsa olsun: “Meni işke qabul etiñiz!..” degen sezlernen başlay.
+Özü uydurıp çıqarğanı yoq.
+Ariza degen şey, nasıl olsa olsun: “Meni işke qabul etiñiz!..” degen sözlernen başlay.
 
 – Bu – bala bağçası degil, – dep cevap berdi oña tseh başlığı. – Sen adaşqansıñ!
 
@@ -27,7 +27,7 @@ Direktornıñ özü emir etse bile qabul etmem.
 
 – Qabul etersiñiz. – Qız sabırlı, tınç davuşnen öz sözlerini tekrarladı. – Direktor emir etmese de...
 
-Bu endi adden aşıq edi.
+Bu endi adden aşır edi.
 Tseh başlığı artıq külmege istemedi, aksine, qıçırmağa, qaba sözler aytmağa, atta sögünmege istedi.
 Amma Zeverced qaba sözler eşitmedi.
 Tseh başlığını açuvlı niyetlerinen birlikte qaldırıp, çıqtı.
@@ -52,7 +52,7 @@ Turğan yerinde qız başına belâ açtı.
 
 Kâtip ketti.
 Qaydalardadır ve kimlernendir laqırdı etip keldi.
-Bir daqiqada degil, on daqiqada da degil, bir saatta.
+Bir daqiqada degil, on daqiqada da degil, bir saat.
 Lâkin memnün çere ile keldi.
 
 – Bahtlı ekensiñ, – dedi o qızğa. – Kranda şakirt olacaqsıñ.
@@ -74,13 +74,12 @@ Alla bilsin.
 Çünki yigit özü yaş edi.
 
 – Şübesiz... – dedi kâtip.
-Bunıñnen, zavoddaki içtimaiy ömür yalıñız özüniñ üstünde qurulğanını añlatmaq istedi.
 
 – Meni anda iç körmediñizmi?
 
 – Bizde... medeniyet sarayındamı?
 
-– Ebet, sizde... men balet tögereginde eki yıldan beri iştirak etem.
+– Ebet, sizde... men balet tögereginde eki yıldan berli iştirak etem.
 
 Qız, yigitniñ yüzünde acizlik sezse de, indemedi.
 Onı utandırmaq istemedi.
@@ -89,22 +88,22 @@ Ertesi künü Zeverced kranğa çıqtı.
 Töpede turar eken, avada uçqan... ayaqları astındaki yañğıravuq tseh bir yaqlarğa çıqıp keteyatqan kibi keldi.
 Kran ögge, artqa, sağğa, solğa areket etmekte.
 Er şey maşinistniñ maareti ile olmaqta.
-Zeverced te işlep başladı.
+Zeverced de işlep başladı.
 Manivelâğa bastı, krannı tseh töpesindeki eki yaqlama relsler üzerinde yürsetti, amma tecribeli, sabırlı usta onı kimerde toqtattı.
 Bilmegen şeylerini ögretti.
 Ustanıq özü, er şeyni tüşünip taşınıp yapqan adam, krannı köçürse, qaqındırmay silkindirmey alıp kete, yükni tayin etilgen yerine alıp barıp qoya.
-Zevercedke de öyle yapmaqnı ögretti.
+Zevercedge de öyle yapmaqnı ögretti.
 Qız ğayret etti, tez vaqıtta aqiqiy krancı oldı.
-Bir talay vaqıt keçken soñ Şemsnurnı özüne şakirt etip aldı.
+Bir talay vaqıt keçken soñ Şemsnurnı özüne şegirt etip aldı.
 Şimdi ekisi bir-birini deñiştirip çalışalar.
 Tseh başlığı anterli işçilerge alıştı.
-Lâkin qatiy ve inat qızlarğa külümsirep baqqan vaqıtı az ola – daima küsip yüre.
-Atta istisal muşaveresinde Zevercedni maqtağan maalinde bile qaşları çatılğan ola: “ögüñde yüregim irip ketkeni yoq... haberiñ olsun...” demek isteymi... niçün, belli degil.
+Lâkin qatiy ve inat qızlarğa külümsirep baqqan vaqtı az ola – daima küsip yüre.
+Atta istisal muşaveresinde Zevercedni maqtağan maalinde bile qaşları çatılğan ola: “ögüñde yüregim irip ketkeni yoq... haberiñ olsun...” demek isteymi... ne içün, belli degil.
 
 Zeverced bugün zavod qapusından içeri hoş isler ile kirdi, yüregi eyecanlı edi.
 
 O, qalbindeki sırını yolda ğayıp etmemek içün, kimsege baqmadı, kimsenen laqırdı etmedi.
-Fevqulade vazifeni eda içün keteyatqan kibi aşıqtı.
+Fevqulâde vazifeni eda içün keteyatqan kibi aşıqtı.
 Azbar içinde toqtalıp, kelgen keçken er kes ile meraqlanıcı qızlarnıñ yanında da eglenmedi.
 Tünevin bazar künü edi.
 Belki adetten tış bir adise yüz bergendir?
@@ -129,7 +128,7 @@ Keçikip başlaysıñ... birevge daa aşıq oldıñmı?
 Bu sözler şaqa sırasında aytıldımı, ciddiy olaraqmı?
 Zeverced añlap olamadı.
 Qızlarnıñ episi azbarda.
-Niçün eldirekte men keçikem?
+Ne içün eldirekte men keçikem?
 Adamnıñ yüregi böyle etip qırıla, sevinçi böyle öldürile.
 Onı da yapqan kim?
 Eñ yaqın dostu, Şemsnur.
@@ -143,7 +142,7 @@ Tek seniñ degil!
 Zevercedniñ keleyatqan maalde çeresinde sezilgen tebessümi irip ketti.
 Közlerinde ise alâ sevinç yanmaqta edi.
 Şemsnur bunı sezmedimi aceba?
-Dostundan: “Ne yeñilik bar”, dep soramaycaqmı?
+Dostundan: “Ne yañılıq bar”, dep soramaycaqmı?
 
 Yoq, öyle niyet sezilmedi.
 Keteyatqanda koftasınıñ yaqasını dögmeledi, saçlarını tüzetti, aylanma demir merdivenden aşağı aqırın-aqırın tüşe başladı.
@@ -163,7 +162,7 @@ Qız toqtaldı.
 
 – Nasıl mektüpler? – Zeverced taaciplendi. – Biz onı elâk oldı dep bile edik.
 
-Şemsnur, söz Zeverced ile mektüpleşken student üstünde ketmegenini añlağan soñ, qaz kibi, boyunını töpege sozdı.
+Şemsnur, Zeverced ile mektüpleşken student üstünde ketmegenini añlağan soñ, qaz kibi, boynunı töpege sozdı.
 
 – Men sizniñ eviñizdeki sırlarıñıznı qaydan bileyim? – dep taşladı o.
 
@@ -174,7 +173,7 @@ Nasıl?
 
 Zeverced keçken küzde oña ağası aqqında bazı şeyler aytqan edi.
 Şemsnur öz babasından da eşitken edi ğaliba.
-Bir vaqıtlarda Şemsnurlarnıñ evi Çauşlarnen qonşu eken.
+Bir vaqıtlarda Şemsnurlarnıñ evi Çauşlarnen qomşu eken.
 Şemsnur özü de olarnıñ evinde bir defa yaş bir bariyeli körgeni esinde.
 Bu çoqtan olğan şey.
 O vaqıtta episi küçük balalar edi.
@@ -188,8 +187,6 @@ Bularnıñ şeerine keleyata.
 Zevqlı şey.
 Şemsnur bir vaqıtlarda, evde öz başında olğanda, özüni ofitser qadını tasavur etmek istegen edi.
 Taaciplenmege şey yoq qaraman yigitten qoca aqqında qızlarnıñ episi hayallanmağa seve.
-Öyle eken, Şemsnur tüşünip baqmaq, ölçep biçmek kerek.
-Aysa?!
 Zeverced qaç yıllar evelsi, ğaliba, onıñ qarısı cenkte ğayıp olğanını aytqan edi.
 Ebet!
 Ğayıp oldı degen edi.
@@ -202,19 +199,18 @@ Fikir degen şeyden qaçıp qurtulmaq mümkün degil.
 Ne yapmalı?
 Yigirmi beş yaşında ekende öz bahtıñnıñ peşinden avlanmaq kerek ola.
 
-Şemsnur endi merdivenniñ astına tüşken, qapu ögünde toqtalğan edi.
-Bosağadan atlap tışqa çıqıp ketmedi.
+Şemsnur endi merdivenniñ astına tüşken, qapu ögünde toqtalğan edi, bosağadan atlap tışqa çıqıp ketmedi.
 
-– Bunı çar-çapik aytmağanıñ ne? – dedi o Zevercedke.
+– Bunı çar-çapik aytmağanıñ ne? – dedi o Zevercedge.
 
 – Üstüme atıldıñ.
 Ne yapmaq kerek edim?
-Qorçalandım, – Zeverced kederini birden ayta qoydı,
+Qorçalandım, – Zeverced kederini birden ayta qoydı.
 
 – Meni afu et, tuvğançığım!
 Pek yoruldım. – Elinen mañlayını sıypadı, – Ağañ... ne vaqıt kelecek dediñ?
 
-– Burskun.
+% – O birisi kün.
 
 – Güze-el.
 Barıp qarşılaycaqmız!
@@ -237,12 +233,12 @@ Azbardaki çiçekler suvarılğan, yüzümler tübündeki soqaq sipirilgen, suv 
 
 – Bu nasıl qıyafet? – dep qıçırdı o qızına. – Sen qaydan kelesiñ?
 
-– İşten... – dedi Zeverced ve nazarı Şemsnurnıñ üstündeki yeñi anterge tüşti. – Ne vaqıt tiktirdiñ?
+– İşten... – dedi Zeverced ve nazarı Şemsnurnıñ üstündeki yañı anterge tüşti. – Ne vaqıt tiktirdiñ?
 
 – Baarde. – Şemsnur eteklerine baqındı, – Nasıl?
 
 – Hucursıñ.
-Niçün bu vaqıtqace indemediñ?
+Ne içün bu vaqıtqace indemediñ?
 
 – Alemni taaciplendirmek istedim! – dedi Şemsnur.
 
@@ -289,7 +285,7 @@ Zevercedniñ qaşları çatıldılar.
 Men musafirlikke keldim, – dedi Şemsnur yasama nezaket ile, soñ ilâve etti. – Siziñ evde bayram.
 
 Şemsnur ilâkâr qız.
-Yapqan er şeyi samimiy olıp çıqa, er şeyi yürekni areketke ketire.
+
 Yenge qıznıñ tıqıla bergeniniñ sebebini endi sezdi, amma oña bir şey aytıp olamadı.
 Suvuq qız olsa, oña asıl da qulaq asmaz edi, amma bu sıcaq, ayneci.
 
@@ -304,7 +300,7 @@ Zan etsem, ağası hatirinde yoq.
 
 – Hatirimde bar! – dedi Zeverced.
 
-– Menim de esimde, – Şemsnur közlerini azaçıq yumıp, külümsiredi. – Babamnıñ da esinde.
+– Menim de esimde, – Şemsnur közlerini azçıq yumıp, külümsiredi. – Babamnıñ da esinde.
 Dülber yigit edi dey turğan.
 
 – Öyle edi. – Mustafanıñ davuşında asret ve şefqat duyuldı, – Matrabas oğlumnı bilmek kerek.
@@ -322,13 +318,13 @@ O şimdi baş agronom.
 – Demek, tek oğlannı degil, dostumnı da körecegim.
 Kelsin... mor-patilcan turşusı da ketirsin.
 
-Çauş böyle dedi, yüregi ise, niçündir, sızlap aldı.
+Çauş böyle dedi, yüregi ise, ne içündir, sızlap aldı.
 Qart Mustafanıñ yüreginiñ sızlavı Şemsnur içün ne demek ola?
 Qıznıñ meramı – bariyelini körmek... özüni de körsetip, soñ yigitniñ başını noqtalamaq.
 Gençlik, dülber çere ve naz... bular ile yigitni delirtmek küç degil?
 Tasavurında belki oğlan endi bu qıznıñdır.
 
-Ne aqkı bar?
+Ne aqqı bar?
 Çauşnıñ açuvı qozğalıp ketti.
 Şefiqa ile ekimiz bahtımıznı soñunace bekledik, oğlumız adam olsun dep, oña er şeyni berdik.
 Dilâverniñ özü de adamlarnıñ saadeti oğrunda cenk etti, devlet mesut ayat kördi.
@@ -349,7 +345,7 @@ Qız onı dülber ekeni, ofitser ekeni içün degil, er şeyni cemiyet oğrunda 
 
 – Dülber yigit edi, – dedi Mustafa, ağır tüşüncelerden qurtulmaq, Dilâverniñ yaşlığını tasavur etmek içün.
 
-– Ebet, – Şefiqa terenden köküs keçirdi. – Tali bizge acayip oğul bağış etken edi. – Onıñ tasavurında da, eski evlerinde yaşağan vaqıtta qapudan kirip keleyatqan yaş deñizci köründi. – Ah, menim Dilâverim!
+– Ebet, – Şefiqa terenden köküs keçirdi. – Taаli bizge acayip oğul bağış etken edi. – Onıñ tasavurında da, eski evlerinde yaşağan vaqıtta qapudan kirip keleyatqan yaş deñizci köründi. – Ah, menim Dilâverim!
 
 Çauş terrasağa, bu qadınlar cemiyetinde ah-vah dep, köküs keçirip turmaq içün kelmedi.
 Oña söngen çubuğını yaqmaq kerek edi.
