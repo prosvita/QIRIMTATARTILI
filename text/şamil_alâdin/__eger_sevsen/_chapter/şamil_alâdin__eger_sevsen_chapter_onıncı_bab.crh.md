@@ -35,6 +35,7 @@ Beti aqçıl, azaçıq hastacan...
 Belki uzun yol yürgendir, geceleri yuqlamağandır?!
 
 — Siz mında ne yapasıñız?
+
 Men ondan soraycağıma, o menden soradı.
 Ziyade açuvlandım.
 
@@ -44,18 +45,17 @@ Ziyade açuvlandım.
 Aramızda yetmiş beş metr qadarlıq mesafe bar.
 Kanalnıñ keñligi bu qadar.
 
-— Öyle olsa, bekle!— dedi Tursunov. — Bekle, tezden kelir.
+— Öyle olsa, bekle!— dedi Tursunov.
+— Bekle, tezden kelir.
 
 Bu zeerli sözler meni quturttılar.
 
 — Bekleyim... körmeysiñizmi, qıymetli Vahid Samatoviç?
+— Siz meni bilesiñizmi?
+— Bilem.
+— Davuşımda, ğaliba, mısqıl ziyadece edi.
 
-— A!
-Siz meni bilesiñizmi?
-
-— Bilem. — Davuşımda, ğaliba, mısqıl ziyadece edi.
 O taaciplendi, omuzlarını qısıp aldı.
-
 Tekrar etrafıma baqındım, İrada yoq.
 Topraq obasından aşağı kene çaqıllar töküldi.
 Tursunov elini köterip, nasıldır işaretler etti, soñ ğayıp oldı.
