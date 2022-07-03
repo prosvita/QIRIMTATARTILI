@@ -135,7 +135,8 @@ Yuqu içinde:
 — Zararı yoq, er şey keçer keter...— degen davuşnı işitip, uyandım.
 
 — Tur, Cevdet!— Nikolay omuzımnı silkitmekte edi,— er kes ketti.
-Sen qaldıñ!— Yatqan yerimde kerilip ve esnep aldım, zornen közlerimni açtım.
+Sen qaldıñ!
+— Yatqan yerimde kerilip ve esnep aldım, zornen közlerimni açtım.
 Vucudım parça-kesek, ayaqlarıma demir putlıqlar bağlanğan kibi.
 "Bu ne demek?
 Hastalandımmı men?"
