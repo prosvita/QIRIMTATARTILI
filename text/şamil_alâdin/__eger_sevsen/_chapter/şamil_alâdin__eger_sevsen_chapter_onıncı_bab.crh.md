@@ -27,11 +27,9 @@ Kim bar anda?— dep qıçırdım men.
 Adam ekenini kördim, lâkin kim?
 Bilmek meraqlı.
 
-— Men...
-Tursunov.
+% — Men...Tursunov.
 
 Bu, özüniñ barlığından ziyade memnün adamnıñ davuşı edi.
-
 "Tursunov?
 Demek, onıñ kelgeni kerçek?!
 Lâkin bu maalde mında ne yapa?"
