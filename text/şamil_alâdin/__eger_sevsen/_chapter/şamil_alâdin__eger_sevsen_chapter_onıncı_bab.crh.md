@@ -138,8 +138,14 @@ Turğan soñ, ayaqlarımnı çapalaqlap aqqan suvğa yuvdım, alel-acele çılğ
 Üstümde tek garoz iç ştan qaldı.
 Pamuq ştanımnıñ içine tomalaq taşlar toldırıp, suv teşiginiñ içine qoydım ve eki elimnen tutıp turdım.
 
+
 Suv endi sağ taraftan aqmaqta.
 Şuvuldap aqmay, çıbıra.
+
+
+
+
+
 Bu meni sevindirdi.
 Pamuqlı ştannı basıp turam.
 Aqılıma çeşit şeyler kele... soñ öz-özüme açuvlanam.
@@ -314,7 +320,8 @@ Bu ne?— teşik içinden yorğanğa beñzer şeyler çıqarayatqanlarını kör
 — Bekirovnıñ urbaları!— dedi Tursunov.
 
 — Bekirovnıñ?
-Kene Bekirovmı?—Anna Yakovlevna kederli ve taacipli közlerini oynatıp aldı.— Paromda Bekirov, kanalda Bekirov, Zevqlı!
+Kene Bekirovmı?—Anna Yakovlevna kederli ve taacipli közlerini oynatıp aldı.
+— Paromda Bekirov, kanalda Bekirov, Zevqlı!
 
 — Biçare...— dedi Tursunov,— men kelgende çır-çıplaq edi.
 Bu ayazda...
@@ -330,7 +337,7 @@ Meni komendantnıñ kontorasına alıp keldiler.
 Komendnantnıñ qaşları mañlayınıñ töpesine çıqtılar.
 Yüzü ap-aq oldı.
 
-— Beton nçinde?
+— Beton іçinde?
 Menimnen şaqa etme!
 Şaqa etseñ, buhgalteriyağa raport yazarım.
 Urbalarıñnıñ aqqını maaşıñdan beş qat ziyade basıp alır.
@@ -350,30 +357,26 @@ Petâ emce inanmay, tekrar soradı:
 — Men edim!— komendantqa vaqianı añlattım.
 "Lânetli teşikni evelâ fufaykam, soñra ştanımnen tıqattım.
 Adamlar kelgen soñ oyuq içinden çıqarıp yerge taşladılar.
-Çamur içinde ^bastı, ezdiler..."
+Çamur içinde bastı, ezdiler..."
 
 Petâ emce meni diqqatnen diñledi, amma közleri ep polğa mıhlı edi.
 
 — Yetti... mesele belli,— dedi o, soñundan atılıp turdı, elimden qapqaç etti,— yur, kettik!
 
 — Qayda?
-
 — Menim evime!
 Sıcaq çay içmege!
-
 — Çay— oşıma ketti,— maña çay ne kerek?
-
 — Çay!
 Añladıñmı?— çekip alıp ketti. 
 Yol boyunda bir şeyler daa ayttı, er yerim qaltıramaqta edi.
 Diñlep olamadım.
 Küçük odaçıqqa kirdik: "Tez soyun da, töşekke yat",— dedi maña.
 Üstümdeki teri paltonı çıqarayatqanda, Petâ emceniñ közleri bir-birinden uzaqlaştılar.
-Öyle eecanlandı.
+Öyle eyecanlandı.
 
 — Bu ne?
 Tursunovnıñkimi?
-
 — Onıñki.
 
 Petâ emce işniñ ferqına bardı.
@@ -382,7 +385,8 @@ Men yuqlap qalğanım.
 Betime sıcaq urdı.
 Uyandım.
 
-— Qorqma!— dedi komendant.— Bu birinci tedbir.
+— Qorqma!— dedi komendant.
+— Bu birinci tedbir.
 
 O, qalın ödeyallarnıñ üstünden, meni sıcaq ütünen ütülemekte edi.
 
@@ -411,11 +415,13 @@ O, çaqısını çıqarıp, qalay içindeki suvnı qarıştırdı.
 
 — Sağ oluñız, Petâ emce!— dedim men,— evge keteyim!
 
-— Yoq, qardaş... iç bir yaqqa ketmeycek siñ!
+— Yoq, qardaş...
+iç bir yaqqa ketmeycek siñ!
 Yeriñde yatacaq ve susacaqsıñ!
 
 Ödeyallar astında közlerimni yumdım.
-Yumdım degende, İradanıñ sözlerini işittim: "AqşamÇatal-Çinar yanında..." İradanıñ çeresi şeñ edi.
+Yumdım degende, İradanıñ sözlerini işittim: "AqşamÇatal-Çinar yanında..."
+İradanıñ çeresi şeñ edi.
 Bir şeyler daa tüşünmege tedariklendim, amma beyutta qalğanım.
 Tap aqşam uyandım.
 Bir talay vaqıt açıq közlerimnen yattım.
