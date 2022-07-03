@@ -1,4 +1,4 @@
-## Birinci bab — O, olmasa — bu olsın!
+## Birinci bab — O, olmasa — bu olsun!
 
 Vokzal meydanında aqçıl ışıq saçıcı fener direkleriniñ yanında kerbar renkli quru yapraqlar üyrülmekteler.
 
@@ -6,9 +6,9 @@ Büyük şeer suvuq ruzgârlar içinde susqan.
 Men Taşkentni daima şeñ ve gürdeli olğanı içün, begene edim.
 Onı soñki defa bu alında terk etken edim.
 
-Bir qaç sene evelsi üç yaş kişi torbalarımıznı arqalarımızğa urıp, vokzal meydanında adamlar, arabalar ve faytonlar arasında keçeyatqan vaqıtımızda, maña bütün şeer ealisi, daa kimse tarafından keşf etilmegen, işitilmegen, bilinmegen bir ülkege cönemek içün toplanğan kibn kelgen edi.
+Bir qaç sene evelsi üç yaş kişi torbalarımıznı arqalarımızğa urıp, vokzal meydanında adamlar, arabalar ve faytonlar arasında keçeyatqan vaqtımızda, maña bütün şeer ealisi, daa kimse tarafından keşf etilmegen, eşitilmegen, bilinmegen bir ülkege cönemek içün toplanğan kibi kelgen edi.
 
-...Böyle eken, qomşumıznıñ keçken 1959 senesi, student oğlunı qırtış topraqlar ülkesine ozğarğanı hatirime keldi.
+...Böyle eken, qomşumıznıñ keçken 1959 senesi, student oğlunı qırtış topraqlar ülkesine ozğarğanı hatrime keldi.
 Yüksek boylu, sağlam müçeli yigit azbar qapu ögünde turıp, anasını tınçlandırmaqta edi:
 
 — Ağlama!
@@ -20,14 +20,14 @@ Anasınıñ közlerindeki yaşlarnıñ tıyılmağanını körgen student, aman-
 Ey, sıtıq yürek...
 Sen de yer yüzünde erkek olıp doğğansıñ,— dep tüşündim men o vaqıtta,— adamlar cebege kettiler, qart anaylarnıñ közlerinden yaş çıqmadı, bu ise... bir buçuq ay mületnen bereket toplamağa keteyata.
 Hızmet ve şeñlik içinde arqadaşlarınen birlikte vaqıt keçirecek.
-Anda bizim Seyyare de barıp keldi, lâkin poyezdğa keteyatqanda kimsege özüni ozğarmağa ruhset etmedi.
+Anda bizim Seyyare de barıp keldi, lâkin poyezdge keteyatqanda kimsege özüni ozğarmağa ruhset etmedi.
 
 Böyle oğlançıqlar ve qızçıqlar pek çoq degilller, lâkin barlar.
 Amma otuzıncı yıllarda bizge anamıznıñ etegi astından çıqıp ketmek qıyın degil edi.
 
-Sez kelimi, arbiy komissarlıqqa ariza berip, arbiy mektepke ketmek adetiy bir şey edi.
-"İmperialistler memleketimizge qarşı cenk azırlayyatqanda biz salqın, tınç binalarda oturıp, raat oqup olamaymız!" İşte, sebep!
-O vaqıtlarda... baştan-ayaq silâ taqınğan nemse-faşist başkeserleri Avropanı titretkende, bu sözlernn, kelişsin-kelişmesin, qullanmağa seve edik.
+Söz kelimi, arbiy komissarlıqqa ariza berip, arbiy mektepke ketmek adetiy bir şey edi.
+"İmperialistler memleketimizge qarşı cenk azırlayatqanda biz salqın, tınç binalarda oturıp, raat oqup olamaymız!" 
+O vaqıtlarda... baştan-ayaq silâ taqınğan nemse-faşist aşkeserleri Avropanı titretkende, bu sözlerniñ, kelişsin-kelişmesin, qullanmağa seve edik.
 
 Biz institutnı bıraqıp, torbalarımıznı omuzlarımızğa urıp, vokzalğa keldik.
 Aqşam perronda qulağımıznı ilki defa arbiy komanda davuşı iñletti:
@@ -35,7 +35,7 @@ Aqşam perronda qulağımıznı ilki defa arbiy komanda davuşı iñletti:
 — Sa-af ol!
 
 Ondan soñ üç sene keçti.
-Men, üstünde uzun şinel, başımda qızıl qasnaqlı mavı furajka, ayaqlarımda şporlı hrom çızmalar, qızıl kazaklar polkınıñ öfitseri olıp, tekrar institutqa qaytıp keleyatam.
+Men, üstümde uzun şinel, başımda qızıl qasnaqlı mavı furajka, ayaqlarımda şporlı hrom çızmalar, qızıl kazaklar polkunıñ öfitseri olıp, tekrar institutqa qaytıp keleyatam.
 Bir özüm...
 
 Vagonda yoldaşım,— bir vaqıtta eski orduda hızmet etken olsa kerek,— süyrü saqallı, közlüklü kişi menden:
@@ -44,31 +44,30 @@ Vagonda yoldaşım,— bir vaqıtta eski orduda hızmet etken olsa kerek,— sü
 
 — Ebet! — dedim.
 
-Atnıñ callarını ve quyruğını yuvmaq içün qışnıñ ayaz gecelerinde, elimde qopqa, at ahırından bir kilometr uzaqtaki polk furunına ne qadar qatnadım!..
+Atnıñ çallarını ve quyruğını yuvmaq içün qışnıñ ayaz gecelerinde, elimde qopqa, at ahırından bir kilometr uzaqtaki polk furunına ne qadar qatnadım!..
 Ne içün?
 Sıcaq suv almaq içün.
 Özüme berilgen sabun parçasını daima atqa sarf etip, çatlaq-patlaq ellerimnen yüre, starşinanıñ közüne körünmege qorqa edim.
-Çünki kirli ellerimni körse, meni nevbetsiz narâdqa yiberecegini bilem.
+Çünki kirli ellerimni körse, meni nevbetsiz narâdğa yiberecegini bilem.
 Ellerimni starşinadan gizlemek mümkün, lâkin atnı eskadron komandirinden gizlemek mümkün degil.
 Atı kirli kazak... bu ne demek?
 
-Doğmuşlarımdan, yahut institut arqadaşlarımdan birde-birini körsem, olarğa bu tarihnı uzun uzadiye ikâye eterim, bu hususta belki poyezdda da laqırdılar olur, dep tüşüne edim.
+Doğmuşlarımdan, yahut institut arqadaşlarımdan birde-birini körsem, olarğa bu tarihnı uzun ikâye eterim, bu hususta belki poyezdde de laqırdılar olur, dep tüşüne edim.
 Men levhanı, özümce, şöyle tasavur ete edim: çevre-çetimde adamlar... episi meni diñley ve başlarını sallap: sizge pek ciddiy şeyler ögretkenler...
 Siz Vatan qaramanlarısıñız.
-Maşşalla!
-Maşşalla! — deyler.
+Maşalla!
+Maşalla! — deyler.
 Ebet, öyle olur bellegen edim, amma öyle olmadı.
 Çünki orduda hızmet etken yalıñız men degil, million kişiler ediler.
 Adamlar toplanıp, episiniñ ikâyesini diñley berecek olsalar, olarğa çalışmağa ve yuqlamağa vaqıt qalmaycaq.
-Men er kesniñ közü, ayaqlarımdaki şporlarğa ve başımdaki qırmızı qasnaqlı mavı furajkağa tikilip, şaşıp — seyir etip qalırlar, bellegen edim.
-Furajkama kimse qulaq asmadı.
+
 Vagondaki çot saqal qomşum laqırdını qısqadan kese qoydı:
 
 — ...Bitirip keleyatqan olsañ, bu şporlarnı niçün çıqarmaysıñ?
 
 Ne deycegimni bilmedim.
-Men okrug manevrlerinde iştirak ettim, at üstünde qarlı dağlardan, ucsız-bucaqsız çöllerden, buzlu özenlerden keçtim... o maña şporlarıñnı niçün çıqarmaysıñ, dey.
-Qıymetli yolcu, men daa olarnıñ davuşını işitip toymadım!
+Men okrug manövrlerinde iştirak ettim, at üstünde qarlı dağlardan, ucsuz-bucaqsız çöllerden, buzlu özenlerden keçtim... o maña şporlarıñnı niçün çıqarmaysıñ, dey.
+Qıymetli yolcu, men daa olarnıñ davuşını eşitip toymadım!
 Onıñ nağmelerini daa çoq kişiler diñlemek kerekler.
 Bunı saña aytıp añlatmaq mümkün degil.
 Sen atlı askerde hızmet etken kişige beñzemeysiñ.
@@ -88,21 +87,22 @@ Direktor qapu üstündeki çıraqnıñ yarığında maña hayli vaqıt taacipli-
 — Cevdet Bekirov?
 Sensiñmi? — dep soradı.
 
-— Ebet! — dedim men,— onıñ özü!
+— Ebet! — dedim men, — onıñ özü!
+
 Direktor ayret içinde keri çekildi:
 
 — Arqadaşlarıñ?..
 
-— Bnlmeyim.
+— Bilmeyim.
 Biz çeşit yerlerde hızmet ettik.
-Men... keldım.
+Men... keldim.
 İnstitutnı bitirmek isteyim.
 
 — İnstitutnı? — direktor, güya eñsesini biy çaqqan kibi, başını küçlü siltedi,— yoq!
 Aqılıña bile ketirme!
 Añladıñmı?
 
-Men aytmağa sez tapmadım... sustım.
+Men aytmağa söz tapmadım... sustım.
 
 Direktor, aralıqta turğan lineykağa doğruldı.
 Lâkin bir qaç adım yürgen soñ, çevirilip, baqtı:
@@ -110,16 +110,16 @@ Lâkin bir qaç adım yürgen soñ, çevirilip, baqtı:
 — Yataqhanede geceley bilesiñ!
 Tek bugün!
 
-Qırğız qalpaqlı qart, qamçısını uzun ayaqlı, tığız torunıñ yanbaşı üstüne endirdi, lineyka aralıq içinde közden ğaip olıp ketti.
-Lineyka yoq olğan soñ yüregimdeki hoş hayallarım ve işançım da ğaip oldılar.
+Qırğız qalpaqlı qart, qamçısını uzun ayaqlı, tığız torunnıñ yanbaşı üstüne endirdi, lineyka aralıq içinde közden ğayıp olıp ketti.
+Lineyka yoq olğan soñ yüregimdeki hoş hayallarım ve işançım da ğayıp oldılar.
 Endi ne yapmalı?
 
 Çemodannı elime aldım, Alay bazarına doğru cönedim.
-Yarım saatten soñ çayhanege kirdim.
+Yarım saattan soñ çayhanege kirdim.
 Eski dostum, Taş-Temir aka meni semiz etli plov ve kök çay ile sıyladı.
 "Özüme pişirgen edim,— dedi Taş-Temir aka, külimsirep,— seniñ de qısmetiñ bar eken".
 
-Bir-eki kün keçken soñ men Taşkentte aşayt ceetinden zugürtlik ekenini añladım.
+Bir-eki kün keçken soñ men Taşkentte aşayt ceetinden zügürtlik ekenini añladım.
 Üç yıl evelki bolluq şimdi yoq.
 Adamlar da başqa.
 Yaqın aftalarda ammam körmegen uzun saqallı kişiler... qaydalardandır kelgenler.
@@ -145,20 +145,20 @@ Kerçek, şimdi — dekabr.
 Keç maal.
 
 Lâkin bu — menim qabaatımmı?
-Merkeziy Komitet maña, öz komsomolına, yardım etmege borclı.
+Merkeziy Komitet maña, öz komsomolına, yardım etmege borclu.
 
 Sekretarnıñ qabulhanesi adamlarnen rıqmarıq.
-Saqalları ösük, üstlerindeki kölmekleri tozdan ve terden öz renkini ğaip etken, yañğıravuq sesli yaş kişiler nevbet beklemekteler.
+Saqalları ösük, üstlerindeki kölmekleri tozdan ve terden öz renkini ğayıp etken, yañğıravuq sesli yaş kişiler nevbet beklemekteler.
 Odanıñ içi, vokzal kibi, iñley.
-Kabnnetniñ qapusı de açıla, de qapala, anda, içeride, bir laqırdı, mında, qabulhanede, diger laqırdı.
+Kabinetniñ qapusı de açıla, de qapala, anda, içeride, bir laqırdı, mında, qabulhanede, diger laqırdı.
 Qabulhanede "yengil kavaleriya" teşebbüsçisi Nikiforov aqqında, bugün saba saat altıda ketirilip, alâ platformağa yüklenilmey, yerde yatqan transformatorlar ve Halmat Saatqulovnıñ taşçılar brigadası hususında laf ketmekte.
 
-Bir qaç defa qapunı aralıq etip, başımnı kabinet içine soqup baqtım, maña: "rica etem, buyurıñız!", yahut "sabır etip turıñız!" degen adam olmadı.
+Bir qaç defa qapunı aralıq etip, başımnı kabinet içine soqıp baqtım, maña: "rica etem, buyurıñız!", yahut "sabır etip turuñız!" degen adam olmadı.
 Stol başında qara saçlı, baqır yüzlü, yeşil gimnastörkalı yaş kişi, sol elini araretli sallap, telefon ile laqırdı etmekte.
 
 Qapu yanında turğan taqiyeli yigitten:
 
-— Stol başındaki kim? — dep soradm.
+— Stol başındaki kim? — dep soradım.
 
 — İsrail Artıqov...— dep cevap berdi o.
 "Tsement ketirmeseñiz, sizge qasır bayraq taqdim etecekmiz!
@@ -166,7 +166,7 @@ Ebet, ebet!
 Men şaqa etmeyim".
 
 Beton meselesi bitti degende, kimgedir telefon etip, ekskavator hususında iddalaşa başladı.
-Soñra kâğıt aqqında matbua hane ile çekkeleşip aldı, ondan soñ büyük şkafnı açıp, yanında turğan nasıldır zavodnıñ komsomol yaçeykası kâtibine bir deste yolaqlı kâğıt berdi.
+Soñra kâğıt aqqında matbuat hane ile çekkeleşip aldı, ondan soñ büyük şkafnı açıp, yanında turğan nasıldır zavodnıñ komsomol yaçeykası kâtibine bir deste yolaqlı kâğıt berdi.
 
 — Bu üç gazetağa yetişmek kerek! — dedi oña.
 
@@ -176,13 +176,13 @@ Bu qadarçıq şey!
 Eñ olmağanda eki rulon beriñiz!
 
 Yaçeyka kâtibi qolaylıqnen teslim ola qoyğanlardan degil eken, ayağını şkafnıñ qapağına tiredi, qapattırmadı.
-Artıqov suvuq tebessüm ile onıñ ayağını kenarğa üytep taşladı.
+Artıqov suvuq tebessüm ile onıñ ayağını kenarğa iytep taşladı.
 
 — Bala olma!
 Bunı Sovnarkomnıñ narâdınen aldıq, añladıñmı?
 Qana, cöne! — Artıqov bu arada köşede meni esledi: — Saña ne kerek?
 
-Men çızmalarımnıñ ökçelerini biri-birine urdım, zeñgilerim zıñıldap aldılar.
+Men çızmalarımnıñ ökçelerini biri-birine urdım, zengilerim zıñıldap aldılar.
 Arbiy hızmetteki kibi, tez ve qısqa ibarelernen meramımnı añlatmağa tırıştım, lâkin lafım, ğaliba, uzun olıp çıqtı.
 
 — Adıñ ne? — dep soradı merkeziy komitetniñ sekretarı. 
@@ -195,57 +195,55 @@ Adımnı ayttım.
 — İş böyle, Cevdet! — sekretar birden açıq laqırdığa keçti.
 Çekmecesi içinden küçük defter çıqarıp, elinen üstüne bastı,— oqumaq yahşı şey,— dedi o, menim yüzüme baqmay,— lâkin Çar-Çaqta elektrik-himiya kombinatı qurucılığı başladı.
 Añladıñmı?
-Anda, saña benzer, mazallı kişiler kerekler.
+Anda, saña beñzer, mazallı kişiler kerekler.
 Ket anda!
 
-— Yeq.
-Men oqumaq... institutnı bitirmek isteyim!
-dedim men. — Qurucılıqqa, institutnı bitirgen soñ kete bilem.
+— Yoq.
+Men oqumaq... institutnı bitirmek isteyim! - dedim men. — Qurucılıqqa, institutnı bitirgen soñ kete bilem.
 
 Men şay degende, kabinetteki kişiler arasında çıbalıq saçlı, aqçıl yüzlü, yaş kişi maña hucur-hucur baqtı, soñ teneke davuşnen qaqıldap küldi.
 Oña köz ettim.
 Maña arqasını çevirdi.
 
-— Sen aksini yap! — dedi sekretar,— evelâ çalış, soñra oqu!— menim eecanlı, ateşli sözlerime emiyet bermedi. 
+— Sen aksini yap! — dedi sekretar,— evelâ çalış, soñra oqu!— menim eyecanlı, ateşli sözlerime emiyet bermedi.
 — Familiyañ ne?
 
 — Bekirov!
 
-Sekretar defterini açtı, menim familiyamnı yazıp qoydı,
-
-— Seni artıq Çar-Çak qurucılığına mobilizlendi esap etemiz,— dedi o,— anda şimdi esas mesele — aylanma kanal.
-
+Sekretar defterini açtı, menim familiyamnı yazıp qoydı.
+% — Seni artıq Çar-Çak qurucılığına mobilizlendi esap etemiz,— dedi o.
+% Anda şimdi esas mesele — aylanma kanal.
+% Añlaysıñ...
 Eline ştamplı kâğıt aldı, üstüne nelerdir yazğan soñ, ayaqqa turıp, elini maña uzattı.
-Men onıñ elini tutıp, yahşı sıktım.
+Men onıñ elini tutıp, yahşı sıqtım.
 Sıqqanda o külümsiredi.
 Men de külümsiredim.
 Albu ise sekretarnıñ tebessüminiñ maña iç munasebeti yoq, eken.
 Kabinette peyda olğan teri paltolı yaş qız başını sallap, er kesnen selâmlaşıp, çıqtı, soñ stolnıñ yanında toqtalıp, közlerini sekretarga tikledi.
 
-— Tros meselesi ne vaqıt çezilecek? — dep, telükeli davuşnen soradı o. — Yellar içinde daa çoq yürecekmizmi?
+— Tros meselesi ne vaqıt çezilecek? — dep, telükeli davuşnen soradı o. — Yollar içinde daa çoq yürecekmizmi?
 Bugün "Kovrovets" de işten çıqtı.
 Menim smenamda rels, Tulâganovnıñkinde şpal yetişmey.
 Vaziyet böyle eken, meni Baş-Dugümge niçün yolladıñız?
 
-Qıznıñ areketini körip, ayrette qaldım;
-sekretarnıñ eli avuçım içinde unutılıp qalğan.
+Qıznıñ areketini körip, ayrette qaldım, sekretarnıñ eli avuçım içinde unutılıp qalğan edim.
 Boşağan soñ, parmaqlarını avada qaç defa silkitip aldı.
 Ziyade sıqqanım, ğaliba.
 
 Çızmalarımnı yerge küçlüce urıp, keri aylandım, soñ şporlarımnıñ keskin davuşı altında qapuğa doğruldım.
 Keniş merdiven boyu aşağı tüşeyatqanda, qulaqlarımda sekretarnıñ sözleri çıñlamaqta ediler.
-Mavı kölmek ve ştan kiygen yititler, başlarına qırmızı yavluqlar bağlı, bluzkalı qızlar basamaqlar boyu yuqarı köterilmekte ediler.
+Mavı kölmek ve ştan kiygen yigitler, başlarına qırmızı yavluqlar bağlı, bluzkalı qızlar basamaqlar boyu yuqarı köterilmekte ediler.
 
 ...O devirde komsomolnıñ qarışmağan işi yoq edi.
 Magnitkağa, Küznetskke, Zaporojyege eşelonlar yollay, zavodlar qura, teatrler teşkil ete, mollalar ve papazlar iştirak etmegen qızıl toylar oğrunda küreşe ve bütün bu işlerni büyük araret ve aqılnen yapmağa tırışa edi.
 
-Tsement, ağaç ve tezyalar ile yüklü komsomol eşelonlarını er stantsiyada komsomol postları qarşılap ala, teşkere ve poyezdlarnıñ toqtavsız yürüvlerini elde etmek içün oğraşalar.
+Tsement, ağaç ve tezyalar ile yüklü komsomol eşelonlarını er stantsiyada komsomol postları qarşılap ala, teşkere ve poyezdlerniñ toqtavsız yürüvlerini elde etmek içün oğraşalar.
 Memlekette bir kereden yüzlerce zavodlar qurulayatqan vaqıtlarda bu işlerni yapmaq qolay degil edi.
 "Yengil kavaleriya" demir yel stantsiyası başlığınıñ qapusına karikaturalı kâğıtlar yapıştırıp, selektorğa kirmek içün ruhset berilmesini talap ete, ateş köz yigitlerniñ bazıları halq komissarı Sergoğa telegramma yollap, domnalarnıñ çalışuvındaki ziyankârlıqlarnen küreş hususında ciddiy meseleler kötere, şahtalarda müddetten ziyade çalışıcı brigadalar teşkil ete ediler.
 O gürdeli vaqıtlar...
 Biz — qart komsomollar şimdi o devirni sıq-sıq hatırlaymız.
 
-Ebet, bugünniñ komsomolları da acaip yigitler.
+Ebet, bugünniñ komsomolları da acayip yigitler.
 Biri — binakâr injener, digeri muallim, üçüncisi agronom, Taymırde men olarnıñ çeşitlerini kördim.
 
 Ekspeditsiya vaqtında... bir kün dolgan köyü Dudinkadan telegramma keldi.
@@ -262,26 +260,24 @@ Maña, Marstan tüşken adammı eken, dep taaciplenip baqtılar.
 
 — Ya komsomol raykomı talap etken soñ ne yapacaqmız?
 
-Biz olarğa özümizniñ eski, alicenap ananelerimizniñ episini ögretmegenmiz, lâknn olarda, bir vaqıtta bizde olmağan küçlü usullar çoq.
+Biz olarğa özümizniñ eski, alicenap ananelerimizniñ episini ögretmegenmiz, lâkin olarda, bir vaqıtta bizde olmağan küçlü usullar çoq.
 Er devirniñ öz usulı ola eken.
 Men, respublikamıznıñ komsomol Merkeziy Komitetinde, otuzıncı senelerniñ başında üküm sürgen bu alevli müitni hatrime ketirgende, öyle neticege kelem.
 
 …Soqaqqa çıqtım.
 Yüksek selbilerniñ ve kevdeli emenlerniñ töpeleri qarnen örtülgen, qaldırımlar sılaq qar astında tayğaqlanıp qalğanlar.
-Yel boyunda faytonlar ve yunli, qalın ayaqlı atlar yekili droqlar yürmekteler.
+Yol boyunda faytonlar ve yünlü, qalın ayaqlı atlar yekili droqlar yürmekteler.
 Yımşaq qar... çamur.
 Böyle avada şeerde dolana bermekte mana yoq.
 Tez-tez ketmek kerek.
 
-Çayhaneden çemodanımnı alıp, stantsiyağa kettim.
-Darhan arıqnı boylap yüreyatqanda, ayaqlarımdaki çızmalarıma köz ettim.
-Olar at-araba ve maşinalarnıñ sıçratqan çamurından bılaşqanlar.
+Çayhanadan çemodanımnı alıp, stantsiyağa kettim.
+Darhan arıqnı boylap yüreyatqanda, ayaqlarımdaki çızmalarıma köz ettim, olar at-araba ve maşinalarnıñ sıçratqan çamurından bılaşqanlar.
 Yazıqlar olsun...
 Saba çötkinen temizlegen ve qadife parçasınen yaltıratqan edim.
 İşte, demir yel stantsiyası.
-Ellerinde baltaları, bıçqıları ve arqalarında çuvalları eecanlı erkekler, ayaqlarında ağır potikleri, yanlarında qırmızı burunlı kiçik balalar — qadınlar... perron boyunda dolanmaqtalar.
+Ellerinde baltaları, bıçqıları ve arqalarında çuvalları eyecanlı erkekler, ayaqlarında ağır potikleri, yanlarında qırmızı burunlı kiçik balalar — qadınlar... perron boyunda dolanmaqtalar.
 
-Kişiler kimerde, tutaş bir divar şekilinde teprenip, ögge atıla, soñra biraz yatışa, toqtay, bir talaydan kene qozğala, kene areketke keleler.
 Kassa qapalı.
 Açıq olğanda bile bilet alacaq kişi yoq.
 
@@ -292,9 +288,9 @@ Elbette, yolnıñ özüne mahsus qanunı bar: poyezdniñ köçkenine beklemek ke
 Köçken soñ şamata toqtadı, er keske çökmege yer tapıldı.
 Men sıqıntıdan azaçıq qurtuldım.
 Bir elimnen vagonnıñ divarına tayanıp tura bilecek kibi oldım.
-Çemodanmnı qoymağa yer tapqan soñ, onıñ üstüne oturdım.
+Çemodanımnı qoymağa yer tapqan soñ, onıñ üstüne oturdım.
 
-Geceniñ bir vaqıtında Qırğız-Qulaqqa kelip yettik.
+Geceniñ bir vaqtında Qırğız-Qulaqqa kelip yettik.
 Saba ise qurucılıqnıñ kadrlar bölügi elime küçük kâğıt tuttırıp, ekskavator parkına yolladı.
 
 Qırq daqiqa keçken soñ, maşina Çar-Çaqnıñ sağ yalısında toqtadı.
@@ -303,7 +299,7 @@ Men, suv çetinde qapaqlanıp yatqan eski qayıq üstüne oturdım, sağ ayağı
 Ayaqqa turğan soñ, etrafıma baqındım.
 Çar-Çaq tar, teren boğaz içinden çıqıp, uvuldı qoparıp, qayalar ve qırlar arasında burğalanıp, uzaqlarğa aqıp ketmekte.
 Boğaznıñ yuqarısında, töpeleri suvuq ve sıcaq avadan yanğan, bürüşken sıra dağlar yükselmekte, artında ise duman içinde qarlı damlar ve yüksek keçitler turmaqtalar.
-Qadim zamanlarda küçlü suvlar bu dalğalarnı kevdelerini oymalağan, derelerniñ suvları taşlarnı ve topraqlarnı urıp-yıqıp, yılğalar ve ucsız-bucaqsız vadiler teşkil etkenler.
+Qadim zamanlarda küçlü suvlar bu dalğalarnı kevdelerini oymalağan, derelerniñ suvları taşlarnı ve topraqlarnı urıp-yıqıp, yılğalar ve ucsuz-bucaqsız vadiler teşkil etkenler.
 Bu deşetli manzaralar suvnıñ küçü sayesinde usulğa kelgenler.
 
 Sağ yalı çır-çıplaq.
@@ -317,11 +313,11 @@ Qarşıdan keleyatqan parom sağ yalığa yaqınlaşa berdi, soñ kelip skelege 
 Kişiler yerge tüşti, bız paromğa toluştıq.
 Yük ağırlaşqan sayın, parom suvğa kömüle ve kenarğa qıyışa berdi.
 Yolcular bunı körip, de sağ, de sol yaqqa cılıştı, parom belki doğrulır dep beklediler.
-Lâkin buña alışıp qalğan paromcı qart özüni sıqmadı, o çette indemey turdı ve, ağızında nas olsa kerek, tosat-tosat yerge tüküre berdi.
+Lâkin buña alışıp qalğan paromcı qart özüni sıqmadı, o çette indemey turdı ve, ağzında nas olsa kerek, tosat-tosat yerge tüküre berdi.
 Niayet, paromğa atlar, arabalar çıqarıldı.
 Qart, qırq adam sayıp aldı, soñ gemi yerinden köçti.
-Yalıda qalğanlar ateş yaqıp, qızınmağa tutındılar.
-Özenniñ ortasına kelgende paromcı işçiniñ kiyik sadası işitildi.
+Yalıda qalğanlar ateş yaqıp, qızınmağa tutundılar.
+Özenniñ ortasına kelgende paromcı işçiniñ kiyik sadası eşitildi.
 Aylanıp baqtım.
 Qart ellerinen işaret etip, trosnı körsetti: "yardım etiñiz!"
 
@@ -352,11 +348,10 @@ Men bu adamlarnıñ canlarını nasıl etip qurtardım?
 Olar meni qurtardılar degilmi?
 Soñundan işniñ farqına bardım.
 Suvğa yıqılğan vaqtımda trosnıñ ucu elimde qalğan.
-Irğaq vastasınen trosnıñ ortasını tartıp alğan paromcı, onı ağaçnen yerge basıp, paromnı toqtatkan.
+Irğaq vastasınen trosnıñ ortasını tartıp alğan paromcı, onı ağaçnen yerge basıp, paromnı toqtatqan.
 Qart meni, göñlümni almaq içün, maqtay eken.
 
-Suvuq yelde üstümdeki sılaq şinelim buzlap qaldı.
-Çızmalarımnı çıqarıp, çılğavlarımnı sıqtım.
+Suvuq yelde üstümdeki sılaq şinelim buzlap qaldı, çızmalarımnı çıqarıp, çılğavlarımnı sıqtım.
 Lâkin bundan ne fayda?
 Urbalarım şırsuv.
 Bir qaç daqiqa keçse, turğanım kibi qatıp qalacağım.
@@ -366,12 +361,12 @@ Yanımda yaş qadın peyda oldı.
 — Ma!
 İç bir-eki yutum — dedi o, maña nasıldır kirli şişe uzatıp. — Qızarsıñ!
 Özüm içün yasağan edim, çastlı ekensiñ! — soñra közlerinen şişege işaret etip,— dedi: — Şekerden qaynattım.
-Kurskten qalma şey...
+Kursktan qalma şey...
 
 Eki yutum şey içtim.
 Bedenimni ateş aldı.
 
-— İç azaçıq daa!— dep zorladı qadın: 
+— İç azaçıq daa! — dep zorladı qadın:
 Bir yutum daa içtim.
 Mañlayım alevlenip ketti.
 Şişeni qaytarıp berdim.
@@ -400,7 +395,7 @@ Tezden topraqqa yanaştıq.
 Bayırlarnı ve tarlalarnı qar örtken.
 Özenniñ çetlerini qalın buz qaplağan.
 Qart meni qaravulnıñ evine alıp kirdi.
-Nevbetçi urbalarımnı çıqarıp, qıp-qırmızı çöyün ocaqnıñ yanaşasındaki kürsü üzerine yaydı.
+
 Men paromcınıñ çapanına sarınıp, üç-dört piala sıcaq çay içtim.
 Samogonnıñ arareti köterilip ketti.
 
@@ -423,7 +418,7 @@ Birinci smena!
 
 Çemodanımnı omuzıma urdım, qapunı açtım, çıqmaq içün bosağadan atlaycaqta:
 
-— Sizge ne oldı? — dep qıçırdı o,— üstüiiz-başıñız sılaq!?
+— Sizge ne oldı? — dep qıçırdı o,— üstüñiz-başıñız sılaq!?
 
 Şinelimniñ etegine köz ettim, soñ külümsiredim.
 
