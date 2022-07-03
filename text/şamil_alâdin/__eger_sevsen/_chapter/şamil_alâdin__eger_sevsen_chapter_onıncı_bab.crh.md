@@ -59,7 +59,8 @@ O taaciplendi, omuzlarını qısıp aldı.
 Tekrar etrafıma baqındım, İrada yoq.
 Topraq obasından aşağı kene çaqıllar töküldi.
 Tursunov elini köterip, nasıldır işaretler etti, soñ ğayıp oldı.
-Ayaq davuşları tındı, amma özü uzaqqa ketmegen... belki de topraq obasınıñ artında gizlenip yatqan kibi keldi, çünki kene çaqıl töküldi.
+Ayaq davuşları tındı, amma özü uzaqqa ketmegen...
+ % Belki de topraq obasınıñ artında gizlenip yatqan kibi keldi, çünki kene çaqıl töküldi.
 Diñlendim... şıtırdağan şey çaqıl degil eken.
 Ses kanalnıñ astından işitilmekte.
 Biraz aşağı tüştim.
@@ -86,27 +87,35 @@ Onı taş yahut çamurnen tıqatıp toqtatmaq mümkün degil.
 Amma "Mavı qayağa" haber etmek kerek.
 Nasıl?
 Men qıçırdım.
+
 — E-e-y!
 Tursunov!
 Mında keliñiz!
+
 Üstümdeki pamuq bıcaqnı çıqarıp, divardaki teşikke tıqtım, ögüni büyükçe taşlarnen bastırdım.
 Soñ topraq yığını töpesine tırmaştım.
 Yuqarı çıqqance eki kere toqtalmaq kerek oldı.
 Em tırmaştım, em qıçırdım.
 — E-e-e!
 Tursunov!— yığınnıñ töpesine çıqqan soñ Tursunovnıñ başını kördim.
+
 — Ne oldı?— dep soradı o menden.
 — Anda suv... suv teşip çıqqan.
+
 Tursunov añlamadı.
+
 — Ne oldı?
 Ne yırtılasıñ?
 — Suv, deyim... suv teşip çıqqan!
 O qadar qıçırğanıma köre, Tursunovnıñ bir şey añlamağanına açuvım çıqtı.
 Tekrar qıçırdım.
+
 — Suv!
 
 Tursunov elini salladı ve topraq obasınıñ artında yoq olıp ketti.
-— Su-u-uv!— dep qıçırdım artından tekrar.— Suv!
+
+— Su-u-uv!— dep qıçırdım artından tekrar.
+— Suv!
 Ayvan!
 Suv!
 Aylanma kanalnı suv basayata.
