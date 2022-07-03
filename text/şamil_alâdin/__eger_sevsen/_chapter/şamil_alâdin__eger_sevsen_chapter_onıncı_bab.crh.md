@@ -97,7 +97,8 @@ Soñ topraq yığını töpesine tırmaştım.
 Yuqarı çıqqance eki kere toqtalmaq kerek oldı.
 Em tırmaştım, em qıçırdım.
 — E-e-e!
-Tursunov!— yığınnıñ töpesine çıqqan soñ Tursunovnıñ başını kördim.
+Tursunov!
+ % Yığınnıñ töpesine çıqqan soñ Tursunovnıñ başını kördim.
 
 — Ne oldı?— dep soradı o menden.
 — Anda suv... suv teşip çıqqan.
@@ -130,7 +131,6 @@ Biraz yuqarı köterildim, suv yolunıñ ağızına kene taş toldıra başladı
 Delik endi ziyade keñleşken, suv yolu divarnıñ içinde keñ truba şekilini alğan.
 Suv ketken sayın çoqlaşa bermekte.
 Böyle ketse, aylanma kanal içinde muvaqqat qurulğan benzin ve ammonal skladlarını tezden suv basa bile.
-
 Daa ne yapmalı?
 Üstümde pamuqlı ştan qaldı.
 Taş üstünde turıp, ayağımnı balağım içinden çıqarayatqanda, taydım, şuv etip yerge yıqıldım.
