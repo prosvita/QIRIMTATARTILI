@@ -59,18 +59,16 @@ Siz meni bilesiñizmi?
 — Bilem. — Davuşımda, ğaliba, mısqıl ziyadece edi.
 O taaciplendi, omuzlarını qısıp aldı.
 
-Tekrar etrafıma baqındm, İrada yoq.
+Tekrar etrafıma baqındım, İrada yoq.
 Topraq obasından aşağı kene çaqıllar töküldi.
 Tursunov elini köterip, nasıldır işaretler etti, soñ ğayıp oldı.
 Ayaq davuşları tındı, amma özü uzaqqa ketmegen... belki de topraq obasınıñ artında gizlenip yatqan kibi keldi, çünki kene çaqıl töküldi.
 Diñlendim... şıtırdağan şey çaqıl degil eken.
-
 Ses kanalnıñ astından işitilmekte.
 Biraz aşağı tüştim.
 Belki anda birde-bir ayvan yüredir, dep tüşündim.
 Küçene berip qıçırdım.
 Sesim sağır, qara terenlik içine siñip ketti, şıtırdı ise kesilmedi.
-
 Kanalnıñ tap tübüne tüşmege istedim.
 Qoyun defterimden bir qaç kâğıt yırtıp alıp, serniknen tutaştırıp, aşağı yiberdim...
 İç bir şey köralmadım.
@@ -80,7 +78,6 @@ Kim-kim, lâkin biz, nijnikler, tüşip-çıquv meselesinde canbazmız.
 Künde on beş-yigirmi defa topraq obası töpesine çıqmaq ve o qadar da kanal astına tüşmek kerek ola.
 Tekrar kâğıt yaqtım, yaqqanım kibi kanalnıñ astında bir şey yaltırağanını esledim...
 Endi er şey añlaşıldı.
-
 Aşağı tüştim.
 Ayaqlarım qoyu çamur içine batıp kettiler.
 Toqtaldım.
@@ -92,7 +89,6 @@ Onı taş yahut çamurnen tıqatıp toqtatmaq mümkün degil.
 Amma "Mavı qayağa" haber etmek kerek.
 Nasıl?
 Men qıçırdım.
-
 — E-e-y!
 Tursunov!
 Mında keliñiz!
