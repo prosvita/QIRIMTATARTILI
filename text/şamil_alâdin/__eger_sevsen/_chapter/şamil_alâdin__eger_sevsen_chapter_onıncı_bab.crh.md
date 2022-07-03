@@ -8,7 +8,6 @@ Aqşamları, ekskavatorcılardan başqa, çalışqan kişi olmay.
 Olar ise uzaqtalar.
 Andan tek yelquvanlarnıñ töpeleri qıbırdağanı körüne, adam davuşları işitilmey.
 Amma daa bir ay evelsi bizim ekskavator bu, menim turğan yerimde, işlemekte edi.
-
 Şimdi ögümde, otuz metr terenliginde aylanma kanal tura.
 Astı tem-tegiz.
 Tezden bu yerde qart Çar-Çaqnıñ gürdeli suvları aqacaq.
@@ -24,8 +23,8 @@ Qulaqlı qalpağı elinde... saçları gür, töpege tiklengenler.
 Kim bar anda?— dep qıçırdım men.
 Adam ekenini kördim, lâkin kim?
 Bilmek meraqlı.
- — Men...
- — Tursunov.
+ — Men...Tursunov.
+
 Bu, özüniñ barlığından ziyade memnün adamnıñ davuşı edi.
 Tursunov?
 Demek, onıñ kelgeni kerçek?!
@@ -36,14 +35,12 @@ Beti aqçıl, azaçıq hastacan...
 Belki uzun yol yürgendir, geceleri yuqlamağandır?!
 
 — Siz mında ne yapasıñız?
-
 Men ondan soraycağıma, o menden soradı.
-
 Ziyade açuvlandım.
 
 — Qıznen körüşmege keldim,— dep cevap berdim.
+— Öylemi?— şaqıldap küldi.
 
-— Öylemi?— şaqıldap küldi. 
 Aramızda yetmiş beş metr qadarlıq mesafe bar.
 Kanalnıñ keñligi bu qadar.
 
