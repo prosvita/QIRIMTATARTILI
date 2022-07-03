@@ -24,14 +24,12 @@ Qulaqlı qalpağı elinde... saçları gür, töpege tiklengenler.
 Kim bar anda?— dep qıçırdım men.
 Adam ekenini kördim, lâkin kim?
 Bilmek meraqlı.
-
-% — Men...Tursunov.
-
+ — Men...
+ — Tursunov.
 Bu, özüniñ barlığından ziyade memnün adamnıñ davuşı edi.
-"Tursunov?
+Tursunov?
 Demek, onıñ kelgeni kerçek?!
 Lâkin bu maalde mında ne yapa?"
-
 İlki körüşüvimizde yüregimniñ içine boyle küyeli qığılçımlar kirdiler.
 Qarşımda, duman içinde Tursunov... közlerini qısa berip baqmaqta.
 Beti aqçıl, azaçıq hastacan...
@@ -93,45 +91,34 @@ Kanal Çar-Çaqnıñ negizinden aşağıda tura, itimal, suv yer astı yolları 
 Onı taş yahut çamurnen tıqatıp toqtatmaq mümkün degil.
 Amma "Mavı qayağa" haber etmek kerek.
 Nasıl?
-
 Men qıçırdım.
 
 — E-e-y!
 Tursunov!
 Mında keliñiz!
-
 Üstümdeki pamuq bıcaqnı çıqarıp, divardaki teşikke tıqtım, ögüni büyükçe taşlarnen bastırdım.
 Soñ topraq yığını töpesine tırmaştım.
 Yuqarı çıqqance eki kere toqtalmaq kerek oldı.
 Em tırmaştım, em qıçırdım.
-
 — E-e-e!
 Tursunov!— yığınnıñ töpesine çıqqan soñ Tursunovnıñ başını kördim.
-
 — Ne oldı?— dep soradı o menden.
-
-— Anda suv... suv teşip çıqqan. 
+— Anda suv... suv teşip çıqqan.
 Tursunov añlamadı.
-
 — Ne oldı?
 Ne yırtılasıñ?
-
-— Suv, deyim... suv teşip çıqqan! 
+— Suv, deyim... suv teşip çıqqan!
 O qadar qıçırğanıma köre, Tursunovnıñ bir şey añlamağanına açuvım çıqtı.
 Tekrar qıçırdım.
-
 — Suv!
-Suv!
 
 Tursunov elini salladı ve topraq obasınıñ artında yoq olıp ketti.
-
 — Su-u-uv!— dep qıçırdım artından tekrar.— Suv!
 Ayvan!
 Suv!
 Aylanma kanalnı suv basayata.
 Budala! 
 Tekrar aşağı tüşe başladım.
-
 Ortalıq çım-çırt.
 Şırıltı toqtağan.
 Biraz keçken soñ, tarsıldı-tursıldı işitildi.
