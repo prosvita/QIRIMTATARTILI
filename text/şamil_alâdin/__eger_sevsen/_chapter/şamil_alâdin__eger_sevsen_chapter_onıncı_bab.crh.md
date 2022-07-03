@@ -146,9 +146,6 @@ Gece smenası başlağanca... saat on bir buçuqqa qadar bu yerde turmaq kerek.
 Er on daqiqada bir defa qıçırmağa mecburım.
 Smenağa ketken işçiler sesimni işitseler — kelecekler.
 İşitmeseler?
-
-
-
 İrada yoq.
 Eger kelse, anda, yuqarıda, topraq obaları artında ümütsizden Tursunovnen körüşecek.
 Sevinecek.
@@ -157,7 +154,6 @@ Belki ümütsizden degil?
 Tursunov bu yerde niçün peyda oldı?
 Şimdi körüşseler, İradadan: "o, ğarip yigitni" bu qadar aşalağanıñ ne?— dep soraycaq, İrada ise cevap bermeycek, şaqıldap külecek.
 Tursunov da külüp-sıqılıp qalacaq, soñra yaş ve dülber qıznı teri paltosınıñ etegi astına alıp ketecek.
-
 Sağ taraftan suv aqa bermekte.
 Menim ellerim taldı.
 Pamuq ştanıma ve fufaykama arqamı tayap, ayaqlarımnı yerge tirep turam.
