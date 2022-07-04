@@ -34,11 +34,14 @@ Yanaşada, teneke sergilerde kerbar renkli taze qalaçlar, qumançıqlar – 
 
 Sergi arqasındaki quvurçıq saçlı oğlan bala közlerini müşterige köterdi.
 
-– Buyurıñız, efendi! – dedi muallimge. – Arnavut mayaları.
+– Buyurıñız, efendi! – dedi muallimge. – 
+- Arnavut mayaları.
 Yantıqlar.
 Böylelerini yalıñız bizde tapmaq mümkün!
 
-Muallim hoş külümsiredi ve qolunı bıcağınıñ cebine soqtı. – Penirli qaçqa?
+Muallim hoş külümsiredi ve qolunı bıcağınıñ cebine soqtı. 
+
+– Penirli qaçqa?
 
 – Dört kapik, – dedi bala.
 
