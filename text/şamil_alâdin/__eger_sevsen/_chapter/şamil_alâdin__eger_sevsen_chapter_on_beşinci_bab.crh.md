@@ -385,6 +385,7 @@ Men elimni salladım: "selâm!" Soñ yoluma devam ettim.
 Kelgenimniñ ilk künü Hristofor töpede valikni maylayyatqanını körgende —"bir şey degil..." dep tüşüngen edim.
 Elbet de... aşağıdan baqsañ, öyle.
 
+
 — Tüş, deyim saña!
 İşitesiñmi?— Almazov kene qıçırdı.
 
