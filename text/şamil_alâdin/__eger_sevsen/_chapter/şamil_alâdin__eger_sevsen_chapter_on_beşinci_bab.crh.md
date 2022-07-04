@@ -51,7 +51,8 @@ Eger maşinist çalışmağa bilmese, kursqa ketsin, oqusın!
 Kerçek, anavı... ne edi şu?
 Bekirov!..— menim adımnı aselet çoqçıp-qazğalap oturdı,— o da maşinist olmaq istey.
 
-— İstese, ne?— dedi Toqtabayev.— Kimden eksikligi bar?
+— İstese, ne?— dedi Toqtabayev.
+— Kimden eksikligi bar?
 Sen tez Bassarabanı çağır, laqırdı etip baqayıq!
 Yardım kerek olsa, özüm yardım eterim.
 İnsannıñ taqdirini böyle, ayaq üstünde, al etmek olmaz.
