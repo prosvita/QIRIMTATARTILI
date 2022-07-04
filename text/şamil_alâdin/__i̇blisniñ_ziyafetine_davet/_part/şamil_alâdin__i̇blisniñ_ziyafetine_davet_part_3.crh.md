@@ -95,7 +95,8 @@ Er maalleniñ özündeki tatar mektebiniñ dört sınıfında bir oca ders 
 Sınıflar bir oda içinde, nevbet-nevbet oquylar.
 Zemstvo mektepleriniñ muallimleri ayrı.
 Men bu ocalarnıñ ekserisini sevem-sayam, o sebepten olarnı sizler de bilgeniñizni isteyim.
-Ahmed Nuredin, Yağya Bayburtlı, Ahmed Nağayev, İbraim Meinov, Abduraman Üsein, Suleyman Badraqlı, Yaqub Şakir-Ali, Osman Zaatov... bu genç ocalar tatar balalarına ilim, fen ve zeka ögretmekteler.
+Ahmed Nuredin, Yağya Bayburtlı, Ahmed Nağayev, İbraim Meinov, Abduraman Üsein, Suleyman Badraqlı, Yaqub Şakir-Ali, Osman Zaatov... 
+bu genç ocalar tatar balalarına ilim, fen ve zeka ögretmekteler.
 
 Şeerde sade, aqıllı, meraqlı, zevqlı adamlar da barlar.
 Olardan, eñ olmağanda, ekisi aqqında bir qaç söz aytmamaq iç mümkün degil.
