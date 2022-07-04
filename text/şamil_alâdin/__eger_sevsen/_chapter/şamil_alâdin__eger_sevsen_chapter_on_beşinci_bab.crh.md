@@ -293,7 +293,8 @@ Yerniñ astından suvnıñ sağır uvuldısı işitildi.
 Eki yerden topraqnı qazıp baqtıq — qaydan çıqqanını körmek istedik, lâkin truba qalın... suvnı köralmadıq.
 
 — Toqta sen!— dedi Toqtabayev.
-Aqılına bir şeyler tüşkenge beñzedi.— Gece smenasında kovşnıñ tişleri beton trubağa ilişti, degen ediñ.
+Aqılına bir şeyler tüşkenge beñzedi.
+— Gece smenasında kovşnıñ tişleri beton trubağa ilişti, degen ediñ.
 Aqılıñdamı, Bassaraba?
 Kovşnıñ köpürçigi ve eki tişi sındı.
 
