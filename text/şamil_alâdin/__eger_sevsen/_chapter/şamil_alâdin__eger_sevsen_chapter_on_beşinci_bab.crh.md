@@ -269,7 +269,8 @@ Demek, suvdan kene qurtulalmaycaqmız,
 — Niçün mümkün olmasın?
 Mümkün...
 
-— Sen buña inanmaysıñmı?— Toqtabayev meseleni añlatıp başladı.— Men mında ilki sefer kelgende, özenniñ yüksek yalısında eski arıq kördim.
+— Sen buña inanmaysıñmı?— Toqtabayev meseleni añlatıp başladı.
+— Men mında ilki sefer kelgende, özenniñ yüksek yalısında eski arıq kördim.
 Oña suv nasıl çıqqandır deysiñ?
 Elektrik motornenmi?
 O vaqıtta elektrik motornı kimse tüşünde körmegen.
