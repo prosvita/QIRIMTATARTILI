@@ -56,7 +56,8 @@ Yantıqqa ola, iri aqça bozmağa istemedi.
 – Qalaç barmı? – dep soradı oca.
 Bir şey almayıp çıqıp ketmek... ayıp olacaq edi.
 
-– Bar, – dedi bala. – Danesi dört şa.
+– Bar, – dedi bala. 
+– Danesi dört şa.
 
 Müşteri cebinde tapılğan eki kapikni balanıñ ögüne qoydı, bir qalaç alıp, furundan çıqtı, ayağı qaldırımğa basqanı kibi qarazereli, sıcaq qalaçnıñ bir çetinden tişlemek istedi, lâkin kelgen-keçken adamlardan utandı.
 
