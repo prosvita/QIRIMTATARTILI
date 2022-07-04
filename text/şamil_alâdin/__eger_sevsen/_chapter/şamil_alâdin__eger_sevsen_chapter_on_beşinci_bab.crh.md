@@ -39,7 +39,8 @@ Maşinistler: Toqtabayevniñ inatlığı... deyler.
 Yazuv-çızuv yeri, meclisler zalı degil.
 Qızındıñmı, açıl!" degenini işitken edim.
 
-— Yoq, yoq, Abdulla Sadıkoviç.— Kene İradanıñ davuşı...— Bassaraba, siz aytqan kibi, çıqımsız degil, oña yardım etmek kerek.
+— Yoq, yoq, Abdulla Sadıkoviç.— Kene İradanıñ davuşı...
+— Bassaraba, siz aytqan kibi, çıqımsız degil, oña yardım etmek kerek.
 Siz özüñiz...
 
 — Men?
