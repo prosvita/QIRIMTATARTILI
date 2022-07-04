@@ -101,7 +101,8 @@ bu genç ocalar tatar balalarına ilim, fen ve zeka ögretmekteler.
 Şeerde sade, aqıllı, meraqlı, zevqlı adamlar da barlar.
 Olardan, eñ olmağanda, ekisi aqqında bir qaç söz aytmamaq iç mümkün degil.
 Birisi – gazetacı Sadıq.
-Quru kevdeli, alçaq göñülli, areketçen ve biraz da çıbarca bu adamnıñ bir qolu tirseginden yoq... ne vaqıt baqsañ, çantası “Terciman” ile tolu, tili tışqa çıqqan, soqaqlarnı beş-baş dolanıp, gazeta darqatmaqta.
+Quru kevdeli, alçaq göñülli, areketçen ve biraz da çıbarca bu adamnıñ bir qolu tirseginden yoq... 
+ne vaqıt baqsañ, çantası “Terciman” ile tolu, tili tışqa çıqqan, soqaqlarnı beş-baş dolanıp, gazeta darqatmaqta.
 Kimsege borcu yoq.
 Kimse oña borclu degil.
 İşi – küçü, hayalı... emeli hızmet.
