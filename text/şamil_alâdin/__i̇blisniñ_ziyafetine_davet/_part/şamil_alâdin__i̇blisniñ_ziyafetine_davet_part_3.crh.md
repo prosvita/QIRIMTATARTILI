@@ -120,13 +120,16 @@ Araba soqaq boylap, aqırın-aqırın kete.
 Atnıñ yanaşasından qırmızı çereli, semiz, yüksek Löman yüre.
 Üstünde yaz-qış qısqa ştan ve ştanı üstüne sarqıq kölmek.
 Başında yüksekçe, eski qalpaq.
-Em yüre, em araba üstündeki afişanıñ mündericesini ağızdan tekrarlay: “Bugün aqşam uprava zalasında...” dep başlay Löman, lâkin soqaqta kimdir oña ilişe, yahut bir şey soray.
+Em yüre, em araba üstündeki afişanıñ mündericesini ağızdan tekrarlay: 
+“Bugün aqşam uprava zalasında...” dep başlay Löman, lâkin soqaqta kimdir oña ilişe, yahut bir şey soray.
 Löman toqtay.
 Araba da toqtay, çünki at saibiniñ qılıqlarına alışqan.
 Laqırdı bitken soñ, Löman tekrar ileri adımlay, at yerinden köçip, saibiniñ yanaşasından kete.
-Löman sözlerini üzülgen yerinden devam ete: “Cemiyet hayriyeniñ qız balalar içün mektep açuv aqqında meclisi olacaq-diy”.
+Löman sözlerini üzülgen yerinden devam ete: 
+“Cemiyet hayriyeniñ qız balalar içün mektep açuv aqqında meclisi olacaq-diy”.
 Lâkin soqaqta kelgen – keçken onı laqırdığa tuta, Löman kene toqtala, kişinen eppi qonuşqan soñ, kene yüre.
-“Mecliske Osman ağa, Arslan ağa, Han-Cami maallelerniñ esli-başlı erkek ealisi davet etile-diy!” Er cümleniñ ahırında “diy...” qoşıp, toqtala.
+“Mecliske Osman ağa, Arslan ağa, Han-Cami maallelerniñ esli-başlı erkek ealisi davet etile-diy!” 
+Er cümleniñ ahırında “diy...” qoşıp, toqtala.
 Löman Çarşı boyu bayağı ketken soñ, adamlarnı diger vaqiadan haberdar etip başlay.
 “Yarın Aşlıq bazarında qaralezli pelvan Zeytulla Abdulğazı oğlu eki qolunen zıncır üzecek, ondan soñ, yerge yatıp, özüniñ üstünden boğday yüklü yedi arabanı keçirecek! diy!”
 Yürer eken, kimerde yuqlar kibi körüngen bu ağırmaq adam şeerde Dellâl Löman lağabı ile malümdir.
