@@ -124,7 +124,8 @@ Yuqlay edim.
 Niçün?
 Birevniñ laqırdısını diñlemek... bir şeyler uydurıp-çıqarıp, özüñizni aqlamaq içünmi?— qapunı şart urıp, tışarı çıqıp ketti.
 
-— Demek, öpüştiñiz!..— Mansurovnıñ qalın, uzun qaşları ekişer yerden sınıp-sınıp keterek, areketsiz qaldılar.— Çoq aşağı insan ekensiñ!
+— Demek, öpüştiñiz!..— Mansurovnıñ qalın, uzun qaşları ekişer yerden sınıp-sınıp keterek, areketsiz qaldılar.
+— Çoq aşağı insan ekensiñ!
 
 Şırh etip yerge tükürdi.
 O da çıqıp ketti.
