@@ -166,25 +166,30 @@ Alla bilsin...
 
 — İntiqam? — Raşid ayretlendi,— nasıl intiqam?
 
-— Men ne yapmaq kerekim? — dep soradım men. — Bir şeyler tüşünesiñizmi?
+— Men ne yapmaq kerekim? — dep soradım men.
+— Bir şeyler tüşünesiñizmi?
 
-— Senmi? — Raşid telqin bere başladı. — Saña çoq tüşünip oturmaq kerekmey.
+— Senmi? — Raşid telqin bere başladı.
+— Saña çoq tüşünip oturmaq kerekmey.
 Qabul et... vesselâm!
 Naçalnik olacaq olğan soñ, birden olmaq kerek.
 Andrey kibi, yüz yıl rıçag başında oturmaqta mana yoq.
 
-— Ne yapmaq kerek? — Nikolay menim sualimni başqa türlü añladı. — Seniñ hastalığıña retsept berilmey.
+— Ne yapmaq kerek? — Nikolay menim sualimni başqa türlü añladı.
+— Seniñ hastalığıña retsept berilmey.
 Evelleri İradağa olğan muameleñe men çoqtan inanmay edim.
 Amma şimdi...
 
-— A-a! — dedi Basit ve küldi. — Cevdet başqa şeyni sorağan ekende?!
+— A-a! — dedi Basit ve küldi.
+— Cevdet başqa şeyni sorağan ekende?!
 
 — Ebet!
 Men de oña başqa şey hususında cevap berem,— dedi Nikolay.
 
 — Men İradanen laqırdı ettim...— dedim men.
 
-— Soñ? — Nikolay menim sevgi meselemnen pek meraqlana ve onıñ içün çoq eecanlana edi. — Soñ, nasıl?
+— Soñ? — Nikolay menim sevgi meselemnen pek meraqlana ve onıñ içün çoq eecanlana edi.
+— Soñ, nasıl?
 
 — Mesele çezildi.
 Bundan soñ aramızda qara mışıq keçmeycekke beñzey.
