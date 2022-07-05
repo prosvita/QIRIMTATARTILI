@@ -215,7 +215,7 @@ Dostlarsız saña ve sensiz dostlarğa yaşamaq qıyın olur.
 Kişiniñ yolunda dostı olğanı kibi, duşmanı da bar... duşman birden bitip ketmey.
 
 — Arhipka?!
-Alâ teslim olmadımı? 
+Alâ teslim olmadımı?
 Nikolay başını tersine salladı: "yoq!"
 
 — Muşuq.
