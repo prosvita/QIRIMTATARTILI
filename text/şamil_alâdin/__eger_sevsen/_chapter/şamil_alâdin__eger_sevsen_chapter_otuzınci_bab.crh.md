@@ -252,7 +252,8 @@ Nikolaynıñ sualine cevap bermedi.
 — Karimni kördim,— dedi o, birazdan soñ,— gidromonitorlarnıñ maşinasınen bardım...— soñ, Raşidke çevirilip, eleslenip baqtı,— seni de kördim!
 Basitnen beraber ediñiz.
 
-— Bizge qulaq asma! — dedi Raşid. — Bizim işimiz başqa.
+— Bizge qulaq asma! — dedi Raşid.
+— Bizim işimiz başqa.
 
 — Karim nasıl? — dep soradı Kandıba.
 
