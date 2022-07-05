@@ -36,8 +36,7 @@ Başqa şey yoq!" Çar-Çaqta böyle adamlar çalıştılar.
 Çar-Çaq böyle adamlarnı doğurdı ve terbiyeledi.
 
 ...Vaqıt tez keçmekte, dedim men.
-Biz endi.
-Almazovqa ekskavator parkını qabul etmesini teklif etkenlerini unuttıq.
+Biz endiAlmazovqa ekskavator parkını qabul etmesini teklif etkenlerini unuttıq.
 Aylanma kanal bitken soñ Mansurov Baş Dugümden ketmek içün ariza bergenini işittik.
 Bu vaqia bizni çoq meraqlandırdı.
 "Özü ketmek isteymi, yoqsa ketmege mecburmı?" Özü...
@@ -142,7 +141,7 @@ Raşid ve Basit çay içeyata ediler.
 
 — Kimni? — dep soradım men.
 
-— Seni! — burunı ile maña işaret etti. 
+— Seni! — burunı ile maña işaret etti.
 Biz yoq vaqıtta Valâ Sinitskaya kelip ketken.
 Menim aqqımda yeñi haber işitken...
 Curayev güya menim, Mansurovnıñ muavini tayin etilmemni teklif etken.
@@ -160,7 +159,7 @@ Valâ tek bizni sevindirmek içün kelip kettimi?
 — Men bir şey bellemeyim...— dedi Nikolay,— tek Valkanıñ hızmette ğayretli ekenini bilem.
 İçüvni bıraqtı.
 Amma evlenmek içün bu, zanımca, yeterlik degil.
-Ondaki ne?
+%
 Sevgimi, intiqammı?
 Alla bilsin...
 
