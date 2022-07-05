@@ -356,7 +356,8 @@ Qart injener közlerini poldan zar-zorına qurtardı.
 — Bir dane ufaq yaşçik...— dedi o,— yalpaq, bilesiñizmi?
 Soñ baqarmız!
 
-— Karyerge yük maşinanen ketmek mümkün degil...— dep ilâve etti Curayev. — Cayav ketilecek.
+— Karyerge yük maşinanen ketmek mümkün degil...— dep ilâve etti Curayev.
+— Cayav ketilecek.
 Er itimalğa qarşı yanıñızğa silâ alıñız!
 
 — Mesele añlaşıldımı? — dep soradı Tursunov ve ayaqqa turdı. — Seferniñ muvafaqiyetli bitüvi sizge bağlı!
