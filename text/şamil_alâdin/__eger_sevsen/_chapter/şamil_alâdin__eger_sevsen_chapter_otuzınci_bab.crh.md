@@ -397,7 +397,8 @@ Ya men?
 — Qaydan bileyim?
 Yaşçikler çeşit türlü olalar.
 
-— Onı mıtlaqa menim yüklenmem şartmı? — dep cekirdi Raşid. — Sen, ekspeditsiya dep, İradanen kezintige barıp keleceksiñ.
+— Onı mıtlaqa menim yüklenmem şartmı? — dep cekirdi Raşid.
+— Sen, ekspeditsiya dep, İradanen kezintige barıp keleceksiñ.
 Maña böyle kezinti kerekmey.
 
 — Silâ?
