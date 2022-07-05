@@ -264,7 +264,8 @@ Sizge pek darıla... kelmeyler imansızlar, dey.
 
 — Darıla!? — Nikolay taaciplendi. — Biz ne yapamız?
 Restoranlarda keyflenip yüremizmi?
-Ya siz? — O Basitke hucur-hucur baqtı. — Bu çamurda anda ne işiñiz bar edi?
+Ya siz? — O Basitke hucur-hucur baqtı.
+— Bu çamurda anda ne işiñiz bar edi?
 
 — Bizni çağırdılar! — dedi Basit. — Öz başımızğa çapqanımız yoq.
 
