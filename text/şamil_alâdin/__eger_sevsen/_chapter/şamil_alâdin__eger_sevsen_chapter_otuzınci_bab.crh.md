@@ -84,7 +84,7 @@ Söz, elbette, Karamat hususında kete.
 Olarnıñ işleri menimkinden güzel.
 Maña çoq şeyler keder etti.
 Karimge?
-Etmedimi?
+%
 Onıñ yolu ortasında da bir Tursunov bar edi.
 Raşid Mahkamov...
 Lâkin iş mürekkepleşmezden evel, çezilip ketti.
