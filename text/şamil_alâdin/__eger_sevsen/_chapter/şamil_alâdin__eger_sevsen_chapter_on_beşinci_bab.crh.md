@@ -643,7 +643,8 @@ O, bir-birinen bağı yoq, dadsız sözlernen, nasıldır, hucur bir tarihnı ik
 Sabira hala çette turıp, bizni seyir etti.
 Açuvından çatlayazdı.
 
-— Öşek darqatıp yüresiñiz, öylemi?— dep soradım men Yekaterina Vasilyevnadan.— Bunı ne maqsadnen yapasıñız?
+— Öşek darqatıp yüresiñiz, öylemi?— dep soradım men Yekaterina Vasilyevnadan.
+— Bunı ne maqsadnen yapasıñız?
 
 — Nasıl öşek?
 Sizni begengenimni başqalardan gizlemek kerekimmi?
@@ -661,20 +662,26 @@ Sizni sevem.
 Amma ne ola bilecek... aytıp olamayım.
 Siziñ kibi tülenlerni qozğay bermege sevem.
 Adamlarnıñ alıñız tabiatça bir-birine aks soyları birleşe ekenler.
-Lâkin ebediy degil...— O bir şeyler daa aytmağa tedariklengende, Mansurov kirip keldi, bizim stolımızğa oturdı.
+Lâkin ebediy degil...
+— O bir şeyler daa aytmağa tedariklengende, Mansurov kirip keldi, bizim stolımızğa oturdı.
 
 — Seni beklep olamaycağım,— dedi o qarısına,— bare aşhanede aşap keteyim.
 Zaten sabalıq aşnı daima mında aşap kete bersem ne?
 
 — Pek güzel...— dedi Yekaterina Vasilyevna.
-Yerinden sıçrap turdı, elindeki savutnı tars etip kürsü üstüne qoydı.— Mına sabalıq yemegiñ bunıñ içinde!— dedi o,— üyleligiñ de bunda!
+Yerinden sıçrap turdı, elindeki savutnı tars etip kürsü üstüne qoydı.
+
+— Mına sabalıq yemegiñ bunıñ içinde!— dedi o,— üyleligiñ de bunda!
 Rica etem,— o quturıp başladı.
-Eki-üç adım ögge, eki-üç adım artqa yurdi, soñ: — Sağlıqnen qal, Cevdet!— dedi maña,— er kün smenadan soñ mında kelip aşaysıñmı?
+Eki-üç adım ögge, eki-üç adım artqa yurdi, soñ:
+
+— Sağlıqnen qal, Cevdet!— dedi maña,— er kün smenadan soñ mında kelip aşaysıñmı?
 
 Men cevap bermedim.
 "Yoq, Riginada..." deycek oldım, erindim.
 
-Mansurov aş savutını eline alıp, qarısınıñ peşinden ketti, Maña aylanıp bile baqmadı.
+Mansurov aş savutını eline alıp, qarısınıñ peşinden ketti.
+Maña aylanıp bile baqmadı.
 
 Gece ekskavatornıñ yelquvanı üstünden tüşeyatqan maalimde İradanıñ maña baqıp turğan telâşlı közleri hatirime keldi.
 O, ğaliba, maña bir şeyler söylemek istedi... söyleyalmadı.
