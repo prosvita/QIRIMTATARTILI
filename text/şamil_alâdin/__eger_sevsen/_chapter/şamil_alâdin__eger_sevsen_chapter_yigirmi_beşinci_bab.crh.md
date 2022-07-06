@@ -393,7 +393,8 @@ Kişiler onıñ külküsinden bir şey añlamadılar.
 
 Tursunov, etrafında ağızlarını açıp, seyir etip turğan kişilerden;
 
-— Soñ, nasıl?— dep soradı. — Çalışacaqmızmı?
+— Soñ, nasıl?— dep soradı.
+— Çalışacaqmızmı?
 
 Kişiler hah-hah etip küldiler.
 
