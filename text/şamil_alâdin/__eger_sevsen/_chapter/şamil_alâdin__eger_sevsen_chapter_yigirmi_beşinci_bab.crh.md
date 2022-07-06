@@ -8,7 +8,8 @@ Vatandaş cenki seneleri Pavel Korçagin, sovet ükümetiniñ tamır atqan devir
 Bu adamlarnıñ yüzlerinde devirler aks olunğanlar.
 
 Vahid Tursunovnıñ ayatını da Şarq adamınıñ, Asiya adamınıñ, ösümini aks etici devir isap etmek mümkün.
-Men eminim ki, Tursunov bu satırlarnı oqusa: "Siz, qıymetli Cevdet, biraz alıp qaçqansıñız...— der. — Men devir olğanım ne?
+Men eminim ki, Tursunov bu satırlarnı oqusa: "Siz, qıymetli Cevdet, biraz alıp qaçqansıñız...— der.
+— Men devir olğanım ne?
 Olsam bile, maña beñzegenler azmı?"
 
 Onıñ çalarıp başlağan gür saçlarını ve külüp turğan tınç çeresini hatırlayım.
