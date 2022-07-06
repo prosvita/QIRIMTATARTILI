@@ -110,7 +110,7 @@ Bu endi plotina.
 
 Betoncılar kimerde bizge: davran, davran, dep qıçıralar.
 Tezden kotlovanda beton qoymağa yer tapılmaycaq!
-Yağma yoq.
+%
 Aramızda mesafe büyük.
 Bu qadar teren uçastkada negiz qoymaq ve divar qalamaq içün çoq vaqıt kerek.
 
