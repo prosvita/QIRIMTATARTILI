@@ -107,6 +107,7 @@ Zalda oturğanlarnıñ episi yorğun edi.
 Tursunovğa söz berilgende, oña kimse qulaq asmadı.
 Minberde nevbetiy natıq peyda oldı, başqa şey degil, dep baqtılar.
 Büyük Kreml zalındaki bu minber epimizge tanış.
+
 Tursunov laqırdı etip başlağan edi, kişiler eleslendi, közlerini minberge tiklediler.
 
 Tursunovnıñ nutqı meraqlı tizilgen edi: bütün raqamlarda ve yekünlerde yerli şarait isapqa alınğan.
