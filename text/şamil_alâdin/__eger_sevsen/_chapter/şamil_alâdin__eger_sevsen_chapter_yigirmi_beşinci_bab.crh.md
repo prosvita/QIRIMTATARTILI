@@ -56,7 +56,8 @@ Müstemlekeciler az berip, çoq almağa seveler.
 
 Zalda elçırpmaları işitildi.
 
-— Sen onıñ çırayını körgen olsañ...— dedi Tursunov, aqşam evge kelgen soñ. — Çiy canerik çaynayyatqan kibi edi.
+— Sen onıñ çırayını körgen olsañ...— dedi Tursunov, aqşam evge kelgen soñ.
+— Çiy canerik çaynayyatqan kibi edi.
 Prezident niçün cümert olıp ketti?
 Niçün birden Asiya ve Afrikanıñ elektrikleştirilüvi içün raatsızlandı?
 Öz nefti içün qasevetlengeni içün degilmi?
@@ -65,8 +66,10 @@ Qazanlarnı menim neftimnen qızdırıñız.
 Men — merametli emcem... tek maña toqunmañız!" — Tursunov odanıñ içinde keniş adımlarnen yürmekte ve qıçırıp-qıçırıp böyle muzakere etmekte edi.
 
 — Prezident bizim fikirimizge de razı olur.
-Ebet, ebet, körersiñ! — Tursunov bala kibi, şaqıldap küldi. — Bir vaqıtlarda ressamlar olarnı başlarında tsilindrleri, şişman kişiler etip körsete ediler.
-Şimdi başqa... şimdi olar: "Biz ruslarnıñ tarafdarlarımız" — deyler. — Ruslar acaip yigitler..." Bu efendiler, biz birevge tehnikiy ve iqtisadiy yardım köstergen vaqıtımızda niyetimiz fenalıq degilligini bileler.
+Ebet, ebet, körersiñ! — Tursunov bala kibi, şaqıldap küldi.
+— Bir vaqıtlarda ressamlar olarnı başlarında tsilindrleri, şişman kişiler etip körsete ediler.
+Şimdi başqa... şimdi olar: "Biz ruslarnıñ tarafdarlarımız" — deyler.
+— Ruslar acaip yigitler..." Bu efendiler, biz birevge tehnikiy ve iqtisadiy yardım köstergen vaqıtımızda niyetimiz fenalıq degilligini bileler.
 Özleriniñ qurnaz yardımlarını da bizim şiar astında tadbiq etmek isteyler.
 İş bundan ibaret.
 
