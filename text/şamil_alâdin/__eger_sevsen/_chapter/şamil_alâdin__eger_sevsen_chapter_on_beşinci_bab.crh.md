@@ -320,7 +320,7 @@ Eski kanalnıñ etrafındaki topraq, er alda, boş eken.
 
 Bu arada Mansurov meni köre qaldı. 
 — İşke!
-İşke!
+- İşke!
 Tez!— dep qıçırdı o, qırmızı köz qapaqlarını oynatıp,— özüñizge alâqası yoq işke qarışmañız.
 
 Kişiler oña taaciplenip baqtılar.
