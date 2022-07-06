@@ -132,14 +132,17 @@ Belki, iş elektrostantsiyalarnıñ qayda, ne vaqıt ve nasıl qudrette qurulaca
 Men onıñ nutqında soñ asıl olğan umumiy teessuratnı özüne söylegende:
 
 — Kerçek aytasıñmı? — dedi maña, taaciplenip.
-Çırayı ciddiy ve tüşünceli körüniş aldı. — Ayta berdim, begendilermi-begenmedilermi?
-Bilmeyim. — O devlet plan idaresi hadimlerinen energetika problemaları aqqında laqırdı etmek endi qolay olur dep tüşündi, ğaliba.
+Çırayı ciddiy ve tüşünceli körüniş aldı.
+— Ayta berdim, begendilermi-begenmedilermi?
+Bilmeyim.
+— O devlet plan idaresi hadimlerinen energetika problemaları aqqında laqırdı etmek endi qolay olur dep tüşündi, ğaliba.
 
 Tursunovnıñ bütün tüşüncesi yarınki kün aqqında, yarın olacaq işlerniñ yeñi proyektlerini qorçalav aqqında, yeñi qurucılıqlar aqqında edi.
 
 Biz yeñi istisal komandirleri terbiyelep çıqardıq, deymiz.
 Doğru, terbiyelep çıqardıq.
 Böyleleri bizde, kerçekten de, çoq.
+
 Olarnı Turkstanda sanayınıñ inkişaf deviri doğurdı.
 
 Tursunov özü aqqında söylep olamay, külümsirey bere.
