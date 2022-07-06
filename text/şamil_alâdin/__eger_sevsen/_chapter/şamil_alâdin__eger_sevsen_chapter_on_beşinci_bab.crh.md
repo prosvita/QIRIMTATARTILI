@@ -546,7 +546,8 @@ Beş yuzmi?
 Maşinanı men de böyle usta idare ete bilsem...
 Almazov qafamdaki fikirlerni oqudımı, ne yaptı?
 
-— Sabır et, sen de ögrenirsiñ!— dedi maña ve rıçaglar başından turdı:— Otur!
+— Sabır et, sen de ögrenirsiñ!— dedi maña ve rıçaglar başından turdı:
+— Otur!
 
 Bir saatten soñ İrada peyda oldı.
 Ne vaqıt ketken edi?
@@ -555,7 +556,8 @@ Topraq yığınınıñ ziyade yükselip çıqqanını körgen soñ, Almazovnıñ
 
 — Bu tek menim işim degil,— dedi Andrey Zaharoviç,— Bekirov de çalıştı.
 
-— Bekirov?— İrada inamsızlıqnen külümsiredi.— Cevdet rıçag başında oturıp olamı?
+— Bekirov?— İrada inamsızlıqnen külümsiredi.
+— Cevdet rıçag başında oturıp olamı?
 
 — Yoq, oturalmay...— dedim men yüksek, sert davuşnen,— eki adam, eki omuzından tutıp tura.
 Tutmasalar, yıqılıp kete.
@@ -575,13 +577,13 @@ Bekirov arqadaşnı da mümkün.
 
 İrada ketken soñ, Andrey Zaharoviç maña köz qıptı.
 
-— Ne qadar büyük resmiyet... kördiñmi?— dedi o,—
-"Bekirov arqadaş"... halq komissarı. —
+— Ne qadar büyük resmiyet... kördiñmi?— dedi o,—"Bekirov arqadaş"... halq komissarı. 
 Soñ davuşını küçültip, menden soradı: — Qavğa ettiñizmi? 
 — Öyle oldı!
 
 — Kerekmey, Cevdet!
-Qavğa etmek kerekmey!— Almazov terenden köküs keçirdi.— Tünevin men de özümniñkinen qıçırıştım.
+Qavğa etmek kerekmey!— Almazov terenden köküs keçirdi.
+— Tünevin men de özümniñkinen qıçırıştım.
 Şimdi peşman etem.
 Bala bağçasına işke kireyata.
 Anda dört mürebbiye bar.
