@@ -16,7 +16,8 @@ Bir daqiqaçıq!— qızğa içeri kiriñiz demege utandım, çünki evimiz pek 
 Tışarı çıqacaqta, Nikolayğa köz ettim.
 O maña keder ve sevinç tolu közlerini çevirdi.
 
-— Dostum!— dedi maña Nikolay. — Sen ömürni doğru añlağan kişisiñ.
+— Dostum!— dedi maña Nikolay.
+— Sen ömürni doğru añlağan kişisiñ.
 Bu — ğayet müim hasiyet.
 Sen, inşalla, uzaq ketersiñ.
 Meni aqırından qapu tarafqa üytep taşladı,— oğurlar olsun!
