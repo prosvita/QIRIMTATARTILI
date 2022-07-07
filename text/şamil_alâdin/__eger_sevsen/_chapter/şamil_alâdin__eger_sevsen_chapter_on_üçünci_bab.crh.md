@@ -161,7 +161,8 @@ Ne vaqıttan berli?— Vadim Semönoviç külümsiredi.
 Bu adam, Krasnânskaya kibi büyük injenerden formal olaraq ustte turğan bölükniñ büyügi ekenligi içün, ğururlı köründi.
 Anna Yakovlevna ise bu ğururğa aselet toqunıp aldı.
 
-— Bir vaqıtta Vadim menim muavinim edi...— dedi o,— Zamanlar deñişeler.
+— Bir vaqıtta Vadim menim muavinim edi...— dedi o.
+— Zamanlar deñişeler.
 
 — Bir vaqıtta degeniñ ne?
 Dneprde edi.
