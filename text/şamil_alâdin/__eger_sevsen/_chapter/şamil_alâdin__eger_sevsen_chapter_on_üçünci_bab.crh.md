@@ -97,8 +97,10 @@ Tüzelecekke beñzeymi?
 Alçaq çar-divarnıñ yanında toqtaldıq.
 Men bugün, üyle maalinde bu evniñ yanından keçken edim.
 
+
 — Ğarip Hristofor,— dedi İrada.
-Onıñ kederi niayetsiz edi.— Bahtsız kişi.
+Onıñ kederi niayetsiz edi.
+— Bahtsız kişi.
 Közden marum qalğanı-qalğanı, şimdi omuzdan yaralandı.
 
 — Kerçekten de...
@@ -120,7 +122,8 @@ Anna Yakovlevna kirdi.
 Hoş, lâkin yorğun çereli.
 Üstünde qara anter, boynunda beyaz şarf.
 
-— İra!— onıñ davuşında ve çırayında azaçıq darğınlıq sezildi.— Sizni beklep yoruldım.
+— İra!— onıñ davuşında ve çırayında azaçıq darğınlıq sezildi.
+— Sizni beklep yoruldım.
 Qayda qaldıñız?— içeri kirsetti.
 
 Yılbaş gecesi Krasnânskayanıñ evinde olurım dep bellemegen edim.
