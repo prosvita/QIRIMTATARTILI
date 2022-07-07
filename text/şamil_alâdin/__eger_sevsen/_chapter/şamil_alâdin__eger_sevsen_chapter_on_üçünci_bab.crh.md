@@ -271,7 +271,7 @@ Olar özlerini pek raat ömür keçireyatqan kişiler etip köstermege seveler.
 Lâkin baş küteler.
 Ev, aile belâsından azat ekenliklerini baht-saadet isap etip maqtanalar.
 Episi üfürtme şeyler.
-Barsın, qadın evde yigirmi dört saat qartop kotleti pişirmek, bala eskile-rini yuvmaq — qurutmaqnen meşğul olsun.
+Barsın, qadın evde yigirmi dört saat qartop kotleti pişirmek, bala eskilerini yuvmaq — qurutmaqnen meşğul olsun.
 Barsın, öyle olsun!
 Gece keç maalde qapu qattı qaqılsın, içeri aqayı sıtıq çıraynen kirsin ve, niayet, kimerde qavğa etsin.
 Bu şeyler yañğızlıqtan biñ kere yahşı.
