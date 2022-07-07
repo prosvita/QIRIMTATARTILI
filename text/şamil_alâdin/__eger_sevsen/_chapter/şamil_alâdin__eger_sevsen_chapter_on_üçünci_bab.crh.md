@@ -115,7 +115,9 @@ Soñ İrada çızmalarını çıqardı, qolundaki kâğıt boğça içinden yük
 Ayaqlarını kiydi.
 
 — İnstitutta ekende, musafirlikke böyle bara edik...— dedi o ve bir ayaq üstünde turalmay, sekirikley berdi.
-Belki qaburğasınen maña tayanır dep, oña taba cılıştım, yoq... uzanıp divarnı tuttı. — Böyle çamurda tuflelernen yürmek...— olacaq şeymi?
+Belki qaburğasınen maña tayanır dep, oña taba cılıştım, yoq... uzanıp divarnı tuttı.
+
+— Böyle çamurda tuflelernen yürmek...— olacaq şeymi?
 
 Qapu açıldı.
 Anna Yakovlevna kirdi.
