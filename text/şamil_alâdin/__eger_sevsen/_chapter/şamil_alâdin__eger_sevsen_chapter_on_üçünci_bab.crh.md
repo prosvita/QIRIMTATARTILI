@@ -40,9 +40,11 @@ Men de, şübesiz, ağızımdan böyle hucur söz çıqıp keter bellemegen edim
 İrada pek ıncındı.
 Öyle ki, çoq vaqıt laqırdı etalmadı.
 
-— Kene eski laqırdımı, Cevdet?— dedi o, közlerindeki yaşlarnı silerek,— men sizge episini aytmağanmı edim?— Qız meni bıraqıp keter dep qorqtım.
+— Kene eski laqırdımı, Cevdet?— dedi o, közlerindeki yaşlarnı silerek,— men sizge episini aytmağanmı edim?
+ Qız meni bıraqıp keter dep qorqtım.
 Bunı yapmadı — sustı, çünki qırq daqiqadan soñ biñ doquz yüz otuz dörtünci sene bitecek edi.
-Qavğa etmek, darılışmaq ne kerek?— Yeñi yıl qarşılamağa Tursunovnen ketmek istegen olsam, bu aralıqta, bu suvuqta sizni qıdırıp kelirmi edim?— dedi İrada.
+Qavğa etmek, darılışmaq ne kerek?
+— Yeñi yıl qarşılamağa Tursunovnen ketmek istegen olsam, bu aralıqta, bu suvuqta sizni qıdırıp kelirmi edim?— dedi İrada.
 
 — Çatal-Çinardaki gece?..— baq sen, ağızımdan üç söz daa çıqıp ketkenini duymay qaldım. — Menim eñ muqaddes duyğularımnıñ aqaretlengenleri?..
 Bu isapqa kirmeymi?
