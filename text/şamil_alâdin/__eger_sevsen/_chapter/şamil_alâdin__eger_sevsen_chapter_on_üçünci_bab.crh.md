@@ -49,7 +49,8 @@ Qavğa etmek, darılışmaq ne kerek?
 — Çatal-Çinardaki gece?..— baq sen, ağızımdan üç söz daa çıqıp ketkenini duymay qaldım. — Menim eñ muqaddes duyğularımnıñ aqaretlengenleri?..
 Bu isapqa kirmeymi?
 
-— Keçken şey...— dedi İrada ve köküs keçirdi.— Çatal-Çinar işinde men qabaatlı degilim.
+— Keçken şey...— dedi İrada ve köküs keçirdi.
+— Çatal-Çinar işinde men qabaatlı degilim.
 
 — Kim qabaatlı?
 
