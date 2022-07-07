@@ -1,7 +1,7 @@
 ## On üçünci bab — Yılbaş gecesi. İlki fokstrot
 
 — Meni?
-Özüñiznenmi!
+Özüñiznenmi?
 
 Sevinçimden, esimni yoq ete yazdım.
 
