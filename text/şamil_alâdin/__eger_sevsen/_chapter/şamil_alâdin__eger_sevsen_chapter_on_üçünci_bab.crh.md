@@ -214,7 +214,8 @@ Epimiz içtik.
 
 — Çar-Çaqqa süfte kelüvimiz hatiriñdemi, Vadim,— dedi Krasnânskaya,— kişilerniñ ellerinde tek ketmen... başqa şey yoq edi.
 Şimdi... parovozlar, ekskavatorlar.
-Dneprde de öyle edi. — Anna, başını sallap, çıqıldap aldı. — Eski tarih...
+Dneprde de öyle edi. — Anna, başını sallap, çıqıldap aldı.
+— Eski tarih...
 E! Tamada!
 Tamada kim?
 
@@ -224,7 +225,8 @@ Ağızı tolu edi.
 
 Menjevetskiy ayaqqa turdı, galstugını tüzetti, qadesine şarap qoydı.
 
-— Qıymetli dostlarım!— dedi injener.— Epimizniñ birligimiz, hızmetimiz, dostluğımız içün içilmesini teklif etem.
+— Qıymetli dostlarım!— dedi injener.
+— Epimizniñ birligimiz, hızmetimiz, dostluğımız içün içilmesini teklif etem.
 
 El çırptılar.
 Menjevetskiy stol etrafındaki kişilerni közden keçirdi, olarğa nezaketle kulümsiredi, soñ Anna Yakovlevnağa muracaat etti.
@@ -251,7 +253,8 @@ Men oñaytsızlıqtan qurtuldım.
 
 — Lena ziyansız... oquy!
 Özü pek zayıf.
-Bu ceetten babasına beñzegen. — Şay degen soñ, Anna Yakovlevna sustı.
+Bu ceetten babasına beñzegen.
+— Şay degen soñ, Anna Yakovlevna sustı.
 
 Hatirime onıñ, Dneprde elâk olğan hocası hususındaki laqırdı keldi.
 O hayırsız haberni işitken vaqıttaki ahvalını tasavur ettim.
