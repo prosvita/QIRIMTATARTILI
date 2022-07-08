@@ -209,7 +209,6 @@ Ziyrekligi içün.
 Zaharoviçniñ degenini yapmasaq, sabağa qadar boş oturacaq, soñ, Karim degeni kibi, parmaqlarımıznı burunlarımızğa tıqıp barakqa qaytacaqmız.
 Eger bizni yolda İrada köre qalsa, başımızğa ne qadar mısqıl ve öpke yağacaq bilesiñizmi?
 Elbette, bu çıqımsızlıq içün er kesten ziyade injener Şadmanova mesül.
-Amma külmege kelgende o, ep-bir küler.
 
 Yerni tegizledik, relslerni ve şpallarnı yerleştirdik, boltlarnı sıqtıq.
 Almazov ve Raşid de işlediler.
