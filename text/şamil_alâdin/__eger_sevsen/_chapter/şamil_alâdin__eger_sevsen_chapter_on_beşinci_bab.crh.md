@@ -299,7 +299,7 @@ Aqılıñdamı, Bassaraba?
 Kovşnıñ köpürçigi ve eki tişi sındı.
 
 — Bilem, o beton degil, taş eken,— dedi Bassaraba.
-Çaqmaq taş.
+Çaqmaqtaş.
 Kovş vastasınen eki lâpek taşnı birden köterip aldım, tübünden quyu çıqtı.
 Ekskavatornı arqağa cılıştırğanda, itimal, yerniñ astı — büyük qobadır, batıp ketermiz dep qorqtım.
 Lâkin qoba yoq edi.
@@ -641,7 +641,7 @@ Sağındım sizni.
 Eppi vaqıt susıp oturdım.
 O, bir-birinen bağı yoq, dadsız sözlernen, nasıldır, hucur bir tarihnı ikâye etti, qaç defa haqıldap küldi.
 Sabira hala çette turıp, bizni seyir etti.
-Açuvından çatlayazdı.
+%
 
 — Öşek darqatıp yüresiñiz, öylemi?— dep soradım men Yekaterina Vasilyevnadan.
 — Bunı ne maqsadnen yapasıñız?
