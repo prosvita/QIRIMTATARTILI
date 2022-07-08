@@ -308,22 +308,22 @@ Olarnıñ qulaqları balaban, elleri uzun.
 
 – Endi nasıl iş ile meşğul olacaqsıñız?
 
-– Ocalıq ile, – dedi Üsein Şamil. – Daa ne ile meşğul ola bilir edim?
+– Ocalıq ile, – dedi Üsein Şamil. 
+– Daa ne ile meşğul ola bilir edim?
 
 – Şiiriyet?
-Şiiriyetle oğraşuv hızmet degilmi? – dedi İsmail muallim ayretke kelip. – Men
+Şiiriyetle oğraşuv hızmet degilmi? – dedi İsmail muallim ayretke kelip. 
+– Men “Vatan hadimi”nde derc etilgen şiirleriñizni oqudım.
+Olarnıñ bazıları fena degiller. 
 
-“Vatan hadimi”nde derc etilgen şiirleriñizni oqudım.
-Olarnıñ bazıları fena degiller. – Qaysıları, müterem muallim?
+– Qaysıları, müterem muallim?
 
-İsmail efendi işaret parmağını yanağına tayadı, tüşündi... çoq vaqıt nelerdir tüşünip oturdı, soñra Üsein ocanıñ eserlerinden bazı satırlarnı oqudı.
+İsmail efendi işaret parmağını yanağına tayadı, tüşündi... 
+çoq vaqıt nelerdir tüşünip oturdı, soñra Üsein ocanıñ eserlerinden bazı satırlarnı oqudı.
 
 Bu dünyada er şey para,
-
 Başta para, soñ baht ara!
-
 Raat ister iseñ, para!
-
 Kerek para, para, para!
 
 Nasıl oldı, bilmem, muallimniñ tili bir şeyge ilişken kibi, toqtaldı.
