@@ -525,7 +525,8 @@ O Vatannıñ taqdiri içün qasevetlenmekte edi.
 
 Sigizmund Genrihoviçniñ laqırdısını büyük diqqatnen diñlegen Curayev tekrar tost köterdi.
 
-— Ğalebelerimiz şerefine!— dedi o. — Namuslı adamlarımız... bahtlı ayatımız içün!
+— Ğalebelerimiz şerefine!— dedi o.
+— Namuslı adamlarımız... bahtlı ayatımız içün!
 
 — Yeñilüv ne ekenini bilmeyik!— dedi Menjevetskiy.
 
