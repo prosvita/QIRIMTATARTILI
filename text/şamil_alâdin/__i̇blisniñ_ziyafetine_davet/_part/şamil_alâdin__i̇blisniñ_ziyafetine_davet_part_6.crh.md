@@ -7,8 +7,10 @@ Soñ, indemeyip, ep yürdi.
 O, bu köyni terk etken edi.
 Keri çağırdılar.
 Qaytıp keldi.
-Oca tekrar süküt mulâazağa alınıp ketkenini özü sezmey qaldı. – Niçün?
-Cemaatqa yahşılığım içünmi? – dep soradı o ve öz-özüne itiraz etti. – Yoq!
+Oca tekrar süküt mulâazağa alınıp ketkenini özü sezmey qaldı.
+ – Niçün?
+Cemaatqa yahşılığım içünmi? – dep soradı o ve öz-özüne itiraz etti.
+– Yoq!
 Mında meni sevmegenler de bar.
 Menimle körüşkende, olarnıñ qanı bozula, yüzleri kögerip keteler.
 Öyle eken, Harcibiyege niçün qaytıp keldim?
@@ -47,9 +49,11 @@ Evimizge buyurıñız!
 Acı-Erbain... bu – Harcibiyede dünyağa kelgen eñ zengin kişiniñ evde Qurannıñ cıltında yazılğan adı.
 Köylerde oña Aciredin Emirzaq oğlu denile.
 
-– Teşekkür, Acı-Erbain efendi! – dedi Üsein oca, sağ elini köküsi üzerine qoydı. – Acele işim bar.
+– Teşekkür, Acı-Erbain efendi! – dedi Üsein oca, sağ elini köküsi üzerine qoydı.
+– Acele işim bar.
 
-– Kelir-kelmez... nedayın iş? – Acı-Erbain köbegine qadar çezik kölmegini dögmelemekte olıp, ocağa doğurıldı. – Tiyran kirip, bir qave içmeseñ, canım ağırır!
+– Kelir-kelmez... nedayın iş? – Acı-Erbain köbegine qadar çezik kölmegini dögmelemekte olıp, ocağa doğurıldı.
+– Tiyran kirip, bir qave içmeseñ, canım ağırır!
 
 – Başqa vaqıtta kelirim.
 Şimdi... afu etiñiz!
@@ -58,21 +62,25 @@ Lâkin Acı-Erbain ocanıñ sözlerini diñlemedi ve eşitmedi... qalın, q
 Kerçek, Aciredinniñ qollarındaki küç ocanıñ özünde de yoq degil, ama... tek qollarında.
 Aciredinniñ ise... turuşınıñ, yürüşiniñ, lafınıñ özü – küç.
 Onıñ adı, qıyafeti – akimiyet, cebriyet.
-
 Aciredinge, tirelüvden eyi netice beklemek mümkün degil.
 O sebepten Üsein oca tabi oldı.
+
 İri, ülkün oda içinde minderler üstünde esli-başlı kişiler oturmaqtalar.
 
-– Efendiler! – dedi ev saibi, qırmızı, çereli, tolu müçeli... temiz kiyimli musafirlerge muracaat etip. – Baqıñız... kim keldi?
+– Efendiler! – dedi ev saibi, qırmızı, çereli, tolu müçeli... temiz kiyimli musafirlerge muracaat etip.
+– Baqıñız... kim keldi?
 
 Kişiler Üsein ocanı körgen soñ, ayretle közlerini köterdi, eleslenip oña baqtılar.
 Oca minder üstündeki kişilerni tanıdı.
 Cemaledin, Acı-Abdurazaq, Baqı Bariyev, Resul efendi, Ebu-Bekir, Adil baylar... yoq, Üsein oca olarnı unutmadı.
 
-– Hoş keldiñ, muallim! – dedi eñ çette oturğan sarışın Adil bay... quru müçesini biraz ögge bererek, eki qollap ocanıñ elini sıqtı. – Harcibiyeni bir taşlap kettiñ.
+– Hoş keldiñ, muallim! – dedi eñ çette oturğan sarışın Adil bay...
+quru müçesini biraz ögge bererek, eki qollap ocanıñ elini sıqtı.
+ – Harcibiyeni bir taşlap kettiñ.
 Zan etsem, bir daa taşlap ketmezsiñ.
 
-– Meramım öyle, – oca başını yengilden qaqıttı, elini onıñ avuçları içinden çekip alğan soñ, köküsiniñ sol yaqına bastı. – Körüşüvimizden ğayet memnünim!
+– Meramım öyle, – oca başını yengilden qaqıttı, elini onıñ avuçları içinden çekip alğan soñ, köküsiniñ sol yaqına bastı.
+ – Körüşüvimizden ğayet memnünim!
 
 – Biz de... balalarımıznıñ ocası sağ-selâmet ekenliginden hoşnutmız, – dedi Aciredin.
 
@@ -85,37 +93,46 @@ Niayet, Acı Erbain Üsein ocağa oturmaq içün yer teklif etti.
 Özü de oturdı.
 Ebu-Bekir bay qısqadan fatiha oqudı.
 
-– Kelgeniñden haberim oldı, – dedi Aciredin. – Bizim yaqqa bir körünip ketersiñ, belledim.
+– Kelgeniñden haberim oldı, – dedi Aciredin.
+– Bizim yaqqa bir körünip ketersiñ, belledim.
 Körünmediñ.
 Nasıl?
 Temelli keldiñmi?
 
-– Ebet! – dedi oca. – Qısmet olsa...
+– Ebet! – dedi oca.
+– Qısmet olsa...
 
-– Sizni... apshanede dep eşitken edim. – Ebu-Bekir böyle dep oturğanda aqsırdı.
+– Sizni... apshanede dep eşitken edim.
+ – Ebu-Bekir böyle dep oturğanda aqsırdı.
 Elindeki filcanınıñ qavesi telgendi, tizleri üzerine töküldi.
-O filcannı deral tabaq üstüne qoydı. – Yaqlış olsa kerek.
+O filcannı deral tabaq üstüne qoydı.
+– Yaqlış olsa kerek.
 Ne deysiñiz, Üsein oca?
 
 – Apshanede?
-Menmi? – oca taaciplendi, omuzlarını qıstı. – Zan etsem, bu siziñ özüñizniñ arzuñız edi.
+Menmi? – oca taaciplendi, omuzlarını qıstı.
+ – Zan etsem, bu siziñ özüñizniñ arzuñız edi.
 Şimdi meni serbestlikte körip, hayalıñız qırılğanına yazıqsınğanğa beñzeysiñiz!
 Men apshanede olmadım.
 Ay Vasılda Ministr mektebinde muallim edim.
 
 Ocanıñ bu sözlerinden soñ Acı-Erbain, Ebu-Bekir, Cemaledin bir-birlerine baqıştılar.
 
-– Ministr mektebinde? – Ebu-Bekir belini doğrultıp, sarı kirpiklerini sıq-sıq oynattı, eleslenip qaldı. –Ay Vasılnı... o acayip köyni taşlap, bu taqır çölge keldiñizmi?
+– Ministr mektebinde? – Ebu-Bekir belini doğrultıp, sarı kirpiklerini sıq-sıq oynattı, eleslenip qaldı.
+–Ay Vasılnı... o acayip köyni taşlap, bu taqır çölge keldiñizmi?
 
 Qapu aqırından açıldı.
 Beline mavı, qıyıq şal bağlı yaş qadın utansırap, gülgüli çere ile içeri kirdi, Üsein ocanıñ ögüne itiyatle qave qoydı.
 
-– Ebet! – dedi Üsein oca, qadın çıqqan soñ. – Öyle yaptım!
+– Ebet! – dedi Üsein oca, qadın çıqqan soñ.
+ – Öyle yaptım!
 
-– Zevqlı adamsıñız siz... – dedi Cemaledin. – İnsan daima yamandan – yahşığa ıntıla.
+– Zevqlı adamsıñız siz... – dedi Cemaledin.
+ – İnsan daima yamandan – yahşığa ıntıla.
 Sizde er şey aksine!
 
-– Harcibiye yaman yermi? – dedi Üsein. – Yaman olsa, özüñiz niçün mından ketmeysiñiz?
+– Harcibiye yaman yermi? – dedi Üsein.
+ – Yaman olsa, özüñiz niçün mından ketmeysiñiz?
 Cemaat çağırdı, men keldim.
 Red etip olamadım.
 Siziñce, bu ne?
@@ -123,12 +140,15 @@ Yaman işmi?
 
 Cemaledin efendi tüz-töpe qalpağını çıqarıp, tizi üzerine qoydı, iri, qırmızı yavlığınen mañlayını ve yelkesiniñ terini silip aldı, qalpağını tekrar başına kiydi.
 
-– Cemaat? – Ebu-Bekirniñ samaylarındaki qan damarları, eyecandan qabarıp çıqtılar. – Kim o cemaat degeniñ?
+– Cemaat? – Ebu-Bekirniñ samaylarındaki qan damarları, eyecandan qabarıp çıqtılar.
+ – Kim o cemaat degeniñ?
 
 – Köyniñ ealisi, – dedi Üsein oca.
 
-– Yoq, – Cemaledin kiyik sesnen qıçırdı. – Beş-on qarabacaqlıdan cemaat olmay.
-Cemaat bizlermiz, – qolunıñ qatiy areketinen yanındaki adamlarnı kösterdi. – Sizge, Üsein oca, bu malüm olmaq kerek.
+– Yoq, – Cemaledin kiyik sesnen qıçırdı.
+– Beş-on qarabacaqlıdan cemaat olmay.
+Cemaat bizlermiz, – qolunıñ qatiy areketinen yanındaki adamlarnı kösterdi.
+– Sizge, Üsein oca, bu malüm olmaq kerek.
 
 Bir ayağını kilim üzerine uzatıp, digerini tizden büklep oturğan Acı-Erbain, qaqına berip, arqasını yastıqtan qurtardı.
 
@@ -138,15 +158,18 @@ Bu musulmanlıq degil.
 Üsein ocağa ciddiy lafıñız olsa, onıñ içün başqa yer ve başqa vaqıt tapıñız!
 Oca menim evimde musafir... unutmañız!
 
-– Menimki dava degil, Aciredin! – dedi Cemaledin bay. – Men bu köyde kimniñ nasıl uquqqa malik ekenini oña hatırlatmaq istedim.
+– Menimki dava degil, Aciredin! – dedi Cemaledin bay.
+ – Men bu köyde kimniñ nasıl uquqqa malik ekenini oña hatırlatmaq istedim.
 Cemaat çağırğan eken!
 Ya biz?
 Biz çağırdıqmı?
 Söz kelimi, onıñ Harcibiyege kelecegi sizge, Acredin efendi, malüm edimi?
 
 – Malüm edi... – dedi Acı-Erbain.
-Kerçekten de malümmi edi, bundan, ocanıñ özüniñ haberi yoq, lâkin indemedi. – Rica etem, bu lafnı keseyik?
-Filcannı Üsein ocağa taba cılıştırdı. – Buyurıñız qaveñizge, muallim!
+Kerçekten de malümmi edi, bundan, ocanıñ özüniñ haberi yoq, lâkin indemedi.
+– Rica etem, bu lafnı keseyik?
+Filcannı Üsein ocağa taba cılıştırdı.
+– Buyurıñız qaveñizge, muallim!
 
 Cemaledin ve Ebu-Bekir, ev saibiniñ canbaz muamelesine taaciplenip, bir-birlerine közetti, boyunlarını qısıp aldılar.
 
@@ -155,18 +178,22 @@ Cemaledin ve Ebu-Bekir, ev saibiniñ canbaz muamelesine taaciplenip, bir-birler
 – Men, aksine, episini añlayım, – dedi Cemaledin... ve mıyıq astından külümsiredi.
 
 – Özüñizniñ yaqlarda... o qolay tatlıqta ne bar?
-Ne yoq? – dep soradı Adil bay, ocadan. – Keçiniş bir coruqmı?
+Ne yoq? – dep soradı Adil bay, ocadan.
+– Keçiniş bir coruqmı?
 Yoqsa, kene takos pitemi?
 
 – Başqa ne olur bellediñiz?
 Qalaqaymı?
-Taze qoyun etimi? – Cemaledin öz başına hahıldap küldi. – Qalaqay pişirmek içün sarı may kerek.
+Taze qoyun etimi? – Cemaledin öz başına hahıldap küldi.
+ – Qalaqay pişirmek içün sarı may kerek.
 Tatta o qaydan kelsin?
 
-İş takos pitede degil, – dedi oca, ciddiy çerenen. – Tatnıñ ihtiyarında bağlar ve bağçalar bar.
+İş takos pitede degil, – dedi oca, ciddiy çerenen.
+ – Tatnıñ ihtiyarında bağlar ve bağçalar bar.
 Qayda aylansañ, meyva.
 
-– Ya noğayda? – dedi Ebu-Bekir. – Noğayda boğday... et bar!
+– Ya noğayda? – dedi Ebu-Bekir.
+ – Noğayda boğday... et bar!
 
 Lâkin bu ufaq laqırdı edi.
 Onıñ içün Üsein oca sözüni uzatmay kese qoydı.
@@ -188,7 +215,8 @@ Oca ne?
 Aradaki farqnı tayin etüv üstünde tüşündiler.
 Ocağa itiraz etsinlermi, etmesinlermi?
 
-– Bedava kerekmey, – dedi Cemaledin, aqaretlengen alda. – Aqçasınen...
+– Bedava kerekmey, – dedi Cemaledin, aqaretlengen alda.
+– Aqçasınen...
 
 – Bilem... aqçasız iş yoq, – dedi oca.
 Nazarı ögündeki tabaq üstündeki filcanğa tüşti.
@@ -196,7 +224,8 @@ İçindeki qave artıq suvıp, qalğan edi.
 “Alıp bir yutum içeyim de, lafnı soñ devam eteyimmi eken...” dep qolunı filcanğa uzatmağa niyetlendi... qolu öz-özlüginden keri çekildi.
 Subetçiler oña közetip, nenidir beklep oturğanlarını eslep, alel-acele fikirlerini topladı.
 
-– İş tek aqçada degil, – dedi oca. – Yol uzaq.
+– İş tek aqçada degil, – dedi oca.
+– Yol uzaq.
 Ufaçıq tat atları çıdayalmaylar.
 Ay Petri astı köylüleri malnı Kezlev, Or, Melitopol betlerge alıp ketip satalar.
 Ama bu yaqlarğa kelmeyler.
