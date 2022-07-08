@@ -260,11 +260,13 @@ Laqırdını birden quraştırıp olamay, zametlendi.
 Gasprinskiy karyola üstünde eken, musafirge kergin diqqat ile baqıp oturdı... bekledi.
 
 – Men Ay Vasıldaki ministr mektebi ocası...
-Üsein Şamil olam, – dedi, niayet, ziyaretçi ve yutqunıp aldı. –Hatiriñizde olsa, dört yıl evelsi uzurıñızda bulunğan edim.
+Üsein Şamil olam, – dedi, niayet, ziyaretçi ve yutqunıp aldı. 
+– Hatiriñizde olsa, dört yıl evelsi uzurıñızda bulunğan edim.
 
 – Ebet!
 Ebet! – dedi muallim. – Hatirimde.
-Rica etem, Üsein efendi, qıymetli musafirim ile tanış oluñız! – O ince mıyıqlı adamnı kösterdi.
+Rica etem, Üsein efendi, qıymetli musafirim ile tanış oluñız! 
+– O ince mıyıqlı adamnı kösterdi.
 
 Üsein Şamil yerinden qalqtı, sıqılıp, qızarıp, terlep musafirniñ yanına keldi, onıñle el tutuştı ve, Ay Petri etegindeki köylerniñ adeti mücibi, onıñ elini üç kere küçlü etip salladı.
 Musafir özüni ocağa Eskender diye taqdim etse de, soñundan: Aleksandr Nikolayeviç Samoyloviç ekenini bildirdi.
