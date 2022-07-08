@@ -678,7 +678,7 @@ Eki-üç adım ögge, eki-üç adım artqa yurdi, soñ:
 — Sağlıqnen qal, Cevdet!— dedi maña,— er kün smenadan soñ mında kelip aşaysıñmı?
 
 Men cevap bermedim.
-"Yoq, Riginada..." deycek oldım, erindim.
+%
 
 Mansurov aş savutını eline alıp, qarısınıñ peşinden ketti.
 Maña aylanıp bile baqmadı.
