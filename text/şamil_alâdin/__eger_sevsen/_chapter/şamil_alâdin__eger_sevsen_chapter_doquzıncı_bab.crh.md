@@ -182,7 +182,7 @@ Tekrar kompressor bölügine kirip ketti, ondan soñ davuş açıq işitilmedi.
 Almazov nasıl cevap berdi, bilmeyim.
 Bir talaydan soñ yerge tüşti, Raşidniñ qolçaqlarını alıp kiydi, trosqa asılıp, özen yalısına endi.
 Biz onıñ peşinden kettik.
-Astta qalın taş tabaqası sezilmekte edi...Bir ucu çuqurdan, yer astından Çar-Çaq betke, diger ucu qırnıñ astında gizlenmekte.
+Astta qalın taş tabaqası sezilmekte edi...
 Biz özen boyu yuqarı yurdik.
 
 Bayağı yürgen soñ, qaranlıqta Almazovnı ğaip ettik.
