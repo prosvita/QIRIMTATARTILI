@@ -46,7 +46,8 @@ Bunı yapmadı — sustı, çünki qırq daqiqadan soñ biñ doquz yüz otuz dö
 Qavğa etmek, darılışmaq ne kerek?
 — Yeñi yıl qarşılamağa Tursunovnen ketmek istegen olsam, bu aralıqta, bu suvuqta sizni qıdırıp kelirmi edim?— dedi İrada.
 
-— Çatal-Çinardaki gece?..— baq sen, ağızımdan üç söz daa çıqıp ketkenini duymay qaldım. — Menim eñ muqaddes duyğularımnıñ aqaretlengenleri?..
+— Çatal-Çinardaki gece?..— baq sen, ağızımdan üç söz daa çıqıp ketkenini duymay qaldım.
+— Menim eñ muqaddes duyğularımnıñ aqaretlengenleri?..
 Bu isapqa kirmeymi?
 
 — Keçken şey...— dedi İrada ve köküs keçirdi.
