@@ -433,7 +433,8 @@ Qurucılıqta edim. — Menjevetskiy küldi.
 — Eger proyektni deñiştirmek kerek olsa...
 
 — Sizden onı soramayım.
-Çoq raatsızlanmañız!— dedi Vadim Semönoviç.— Baş idarede dünyaca meşur injenerler çalışalar.
+Çoq raatsızlanmañız!— dedi Vadim Semönoviç.
+— Baş idarede dünyaca meşur injenerler çalışalar.
 Ne yapmaq kerekligini olar bileler.
 
 — Bileler?!
