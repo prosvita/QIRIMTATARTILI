@@ -209,7 +209,7 @@ Tezden bu hususta ciddiy laqırdı olacaqqa beñzey.
 Em, ğaliba, başımıznı siypamaycaqlar.
 Hususan seniñkini...
 Anna!
-Ne ise de, aylanma kanal şerefine içeyik! 
+Ne ise de, aylanma kanal şerefine içeyik!
 Epimiz içtik.
 
 — Çar-Çaqqa süfte kelüvimiz hatiriñdemi, Vadim,— dedi Krasnânskaya,— kişilerniñ ellerinde tek ketmen... başqa şey yoq edi.
@@ -280,7 +280,8 @@ Bu şeyler yañğızlıqtan biñ kere yahşı.
 — Alla köstermesin!— dedi Yekaterina Vasilevna.
 Dudaqları açuvdan titredi,— böyle bahttan marum olmaq içün bütün variyetimni bağışlar edim.
 
-— Hucursıñ sen!— dedi Anna Yakovlevna. — Bu yaldızlı sözlerni qaydan taptıñ!
+— Hucursıñ sen!— dedi Anna Yakovlevna.
+— Bu yaldızlı sözlerni qaydan taptıñ!
 Kinoda işittiñmi, romanda oqudıñmı?
 Abdulla Sadıkoviç olmasa, ne yapar ediñ?
 
