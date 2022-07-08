@@ -168,7 +168,6 @@ Esli kişiniñ yarı beti köründi.
 
 Qapu qapaldı.
 Ayaq davuşları uzaqlaştılar, musafir taşyoldaki qum üstünde ögge-artqa yürdi.
-
 Yürgen sayın eski potüklerinden yerde biçimsiz izler qaldılar.
 Yol çetindeki beyaz, yumşaq taş üstüne ayaqlarını nevbet-nevbet qoyıp, balaqlarınıñ tozunı qaqtı, soñra cebinden gülgüli poşusını çıqarıp, betiniñ ve yelkesiniñ terini sildi.
 Bu esnada qapu açıldı.
