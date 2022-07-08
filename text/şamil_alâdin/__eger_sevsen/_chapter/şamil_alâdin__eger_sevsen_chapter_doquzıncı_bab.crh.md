@@ -216,8 +216,10 @@ Eñ zevqlısı Arhipka oldı.
 İş başlamazdan evel kimse onı yerinden qıbırdatamadı.
 Başlağan soñ, özüniñ arzusına aks olaraq qızışıp ketti.
 Amma Arhipkada yer qazıcı işçige has qabiliyet yoq: kirkanı başınıñ töpesine kötere, yerge urğanda, özü kirkanıñ sapı üstüne yata, ne yerge urğanını közleri körmey, taqatı böten sarf oluna.
-Özü tez yorula, soñ Curayevten tutıp, Krasnânskaya ve Torizoğa barğance, bütün yetekçilerni sögüp çıqa:— "Olarğa qurucılıqqa reberlik yapmaq degil, Alay bazarında suzma qurt satmaq kerek" — dey.
-Epimizden salmaqlısı Hristofor.
+Özü tez yorula, soñ Curayevten tutıp, Krasnânskaya ve Torizoğa barğance, bütün yetekçilerni sögüp çıqa:
+
+— "Olarğa qurucılıqqa reberlik yapmaq degil, Alay bazarında suzma qurt satmaq kerek" — dey.
+ Epimizden salmaqlısı Hristofor .
 
 Yigirmi metr mesafelik demiröl... onı qurmağa eki buçuq saatlıq vaqıtımız ketti.
 Niayet, maşinanı yerleştirdik.
