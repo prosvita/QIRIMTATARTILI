@@ -405,7 +405,8 @@ Yekaterina Vasilyevnanıñ burunı astında qaqıta yatqanda, Anna Yakovlevna i�
 — Bu avantüristkağa aytıñız, er şeyge burunını tıqa bermesin.
 
 — Ya sen, Andrey?
-Ne indemeysiñ?— Rozaliya Nikolayevna Almazovnı türtküçledi. — Köpür meselesine nasıl baqasıñ?
+Ne indemeysiñ?— Rozaliya Nikolayevna Almazovnı türtküçledi.
+— Köpür meselesine nasıl baqasıñ?
 
 Maşinist külümsiredi.
 
@@ -428,7 +429,8 @@ Proyekt endi bütün instantsiyalarda tasdiqlandı.
 Deñiştirmek kerek olsa...
 
 — Qayda edim?
-Qurucılıqta edim. — Menjevetskiy küldi. — Eger proyektni deñiştirmek kerek olsa...
+Qurucılıqta edim. — Menjevetskiy küldi.
+— Eger proyektni deñiştirmek kerek olsa...
 
 — Sizden onı soramayım.
 Çoq raatsızlanmañız!— dedi Vadim Semönoviç.— Baş idarede dünyaca meşur injenerler çalışalar.
