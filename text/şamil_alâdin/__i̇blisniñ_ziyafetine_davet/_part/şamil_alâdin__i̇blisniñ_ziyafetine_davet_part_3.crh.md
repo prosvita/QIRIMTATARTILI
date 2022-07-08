@@ -280,7 +280,8 @@ Toqtarğazınıñ özü, bu evge mahsus bugün kelüvni biraz oñaytsızc
 O, ücrege kirgen vaqıtta İsmail muallim ile Aleksandr Nikolayeviç, mektepte balalarnı, Gasprinskiy usulı ile oqutuv hususında qonuşmaqta ediler, Toqtarğazı peyda olğan soñ, laqırdı kesildi, lâkin Üsein oca artıq içeri kirgen, naşir ise onı oğlu Refat vasıtası ile, umumiy qabul hanege degil de, özüniñ iş odasına davet etken edi.
 Bunda endi iç bir şeyni deñiştirmek mümkün degil.
 
-– Ay Vasılda işleriñiz nasıl? – dep soradı ondan İsmail efendi, niayet. – Eali mektepke yardım etemi?
+– Ay Vasılda işleriñiz nasıl? – dep soradı ondan İsmail efendi, niayet. 
+– Eali mektepke yardım etemi?
 
 Köy muallimge yahşı tanış.
 Bu köyde özü de ocalıq etken.
