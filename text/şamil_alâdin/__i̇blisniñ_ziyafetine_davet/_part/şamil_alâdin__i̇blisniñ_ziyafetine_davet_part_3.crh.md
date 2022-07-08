@@ -199,7 +199,8 @@ Basmahane ile idarehane arasında demir qorqulıqlı yüksek keçit bar.
 “Bir gazetanıñ neşiri bu qadar endişe ile bağlımı, aceba?” – dep tüşündi oca.
 Onıñ bu evge kelüvi birinci sefer olmasa da, evelki ziyaretlerinde basmahaneniñ işini abaylamağan ve şimdi basamaqlardan aşağı enmekte olğan beyaz elbeseli kişini de körmegen edi.
 
-– Naşir sizni ücrede bekley, – dedi o musafirge. – Buyurıñız!
+– Naşir sizni ücrede bekley, – dedi o musafirge. 
+– Buyurıñız!
 
 Oca, yaş kişiniñ gazeta idaresinde adiy hadim degil, belki muarrir ve naşirniñ oğlu ekenligini farqlap, onıñ peşinden ketti.
 
