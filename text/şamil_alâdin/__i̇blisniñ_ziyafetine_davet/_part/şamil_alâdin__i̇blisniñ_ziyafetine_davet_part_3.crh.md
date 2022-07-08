@@ -142,7 +142,8 @@ Oña eppi yol daa yürmek kerek.
 Albuki, özü endi yorulğanğa beñzey.
 Qolu içindeki qalaç kesegini ihtiyatle ağızına qaptı, çaynala-çaynala ketkende, yanında eki atlı fayton toqtadı.
 
-– Buyurıñız, efendi! – dedi oña beyaz mıyıqlı aydavcı. – Ava sıcaq... terlegensiñiz.
+– Buyurıñız, efendi! – dedi oña beyaz mıyıqlı aydavcı. 
+– Ava sıcaq... terlegensiñiz.
 Oturıñız!
 Men çoq almam.
 Bütün zevqıñız-sefañız içün qırq kapik berirsiñiz!
