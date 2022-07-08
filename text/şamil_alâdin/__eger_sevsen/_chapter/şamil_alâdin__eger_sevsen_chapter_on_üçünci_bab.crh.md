@@ -315,7 +315,8 @@ Katâ!
 Yetti endi.
 Tezden bir-biriñizniñ saçlarını yulqacaqqa beñzeysiñiz.
 
-— Lâkin yulqayatqan yerimiz yoq!— Yekaterina Vasilyevna açuvından, küldi.— Öz-özüni tenqid... yaramay şeymi?
+— Lâkin yulqayatqan yerimiz yoq!— Yekaterina Vasilyevna açuvından, küldi.
+— Öz-özüni tenqid... yaramay şeymi?
 Mansurov keçken çarşenbe künü İskanderde bu hususta doklad yaptı.
 Men ondan ögrenem...
 Tezden partiyağa kirecegim.
