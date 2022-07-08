@@ -178,8 +178,9 @@ Ösük saçları qırmızı fesiniñ astından çıqıp, yelkesini örtken
 – Kim olasıñız, efendi? – dep soradı o yolcudan.
 
 – Men Üsein Şamil...
-Toqtarğazı oğlum, – dedi musafir. – Ay Vasıl ocasım.
-İsmail muallimde işim bar,
+Toqtarğazı oğlum, – dedi musafir. 
+– Ay Vasıl ocasım.
+İsmail muallimde işim bar.
 
 Sade ziyalılar – ocalar, edipler, ressamlar, mimarlar – Gasprinskiyge “İsmail muallim, İsmail efendi...
 Gaspralı” dep muracaat etkenleri alda, zengin tabaqa kişileri oña “İsmail bey, İsmail mırza...
