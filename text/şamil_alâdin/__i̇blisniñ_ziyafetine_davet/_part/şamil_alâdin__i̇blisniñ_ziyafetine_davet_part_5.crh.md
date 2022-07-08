@@ -20,7 +20,8 @@ Közler sabadan beri hayırlı haber beklemekte ediler.
 Acire hanım qocasınıñ ziyareti nasıl keçkenini, çeresine bir baqışta bile turğan.
 Bu defa yüzünde ne tüşkünlik, ne de hoşnutlıq oqup olamadı.
 
-– İsmail efendinen körüşip oldıñızmı? – dep soradı Üseinden. – Niçün indemeysiñiz? – Körüştim... – dedi oca, qısqadan. – Eki eserimni alıp qaldı.
+– İsmail efendinen körüşip oldıñızmı? – dep soradı Üseinden.
+ – Niçün indemeysiñiz? – Körüştim... – dedi oca, qısqadan. – Eki eserimni alıp qaldı.
 Derc etecek.
 
 – Başqalarını?
