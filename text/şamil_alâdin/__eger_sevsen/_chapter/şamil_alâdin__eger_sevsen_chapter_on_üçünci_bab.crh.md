@@ -558,10 +558,12 @@ Aşhanede — zapekanka ve ekşi qapısta.
 
 İrada çıdayalmadı.
 
-— Daa ne kerek edi?— dep soradı. — Bu qayalar arasında Petergofnı körmek istediñizmi?
+— Daa ne kerek edi?— dep soradı.
+— Bu qayalar arasında Petergofnı körmek istediñizmi?
 
 — Eñ güzel aş ekskavatorcılarğa berile,— dedi Almazov, mısqılnen.
-O endi özüne kelgen edi. — Üylede, birincige bulyon, ekincige qavurulğan qoy eti, üçüncige — kakao.
+O endi özüne kelgen edi.
+— Üylede, birincige bulyon, ekincige qavurulğan qoy eti, üçüncige — kakao.
 
 Gurultili külkü köterildi.
 Soñ patefonnıñ vızıltısı işitildi.
