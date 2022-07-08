@@ -347,7 +347,8 @@ Çoq eyidir, – diye ilâve etti Samoyloviç.
 
 Bu sözler ocanıñ ruhunı köterdi.
 
-– Men, qıymetli muallim, sizge özümniñ yeñi eserlerimni ketirdim, – dedi Toqtarğazı, utansırap. – Vaqıtıñız musaade etse, rica etem, olarle tanış oluñız!
+– Men, qıymetli muallim, sizge özümniñ yeñi eserlerimni ketirdim, – dedi Toqtarğazı, utansırap. 
+– Vaqıtıñız musaade etse, rica etem, olarle tanış oluñız!
 
 Gasprinskiy bir yanbaşından tüşip, diger yanbaşı üstüne oturdı.
 Çeresinde raatsızlıq asıl oldı.
