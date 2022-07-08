@@ -628,10 +628,10 @@ Laqırdı etmey, eppii yurdik.
 — Soñ, Cevdet!— dedi İrada, niayet,— nasıl?
 Cemiyetni begendiñizmi?
 
-— Ğayet memnünım...— dedim men. — Hususan, Anna Yakovlevnanıñ özünden.
+— Ğayet memnünım...— dedim men.
+— Hususan, Anna Yakovlevnanıñ özünden.
 İlki daqiqalarda özümni qolaysızca is ettim, kişilerniñ sadeligini sezgen soñ alıştım.
-Reberler de..
-injenerler de adamlar ekenler.
+Reberler de..injenerler de adamlar ekenler.
 
 İrada yüksek davuş ile şahıldap küldi.
 
