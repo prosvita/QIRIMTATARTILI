@@ -330,23 +330,20 @@ Nasıl oldı, bilmem, muallimniñ tili bir şeyge ilişken kibi, toqtaldı.
 Şiirniñ soñunı hatırlamaq içün eppi vaqıt dudaqlarını qıbırdatıp oturdı, sözlerni davuşsız oqudı, niayet soñunı tapıp, devam etti:
 
 Yatsañ para, tursañ para!
-
 Doğsañ para, ölseñ para!
-
 Sağ ve hasta olsañ para,
-
 Kerek para, para, para!
 
 Bu sözler İsmail efendiniñ oşuna ketti, samimiyetle küldi.
 Çoq küldi.
 
 – Üsein efendi, siz bu şiirni, menim vaziyetimni yahşı bilgen adam kibi yazğansıñız! – dedi muallim.
-
 – Fena degil!
 Fena degil! – diye tekrarladı naşir.
 
 – Ebet!
-Çoq eyidir, – diye ilâve etti Samoyloviç. – Para hususında bundan da eyi yazmaq mümkün degil!
+Çoq eyidir, – diye ilâve etti Samoyloviç. 
+– Para hususında bundan da eyi yazmaq mümkün degil!
 
 Bu sözler ocanıñ ruhunı köterdi.
 
