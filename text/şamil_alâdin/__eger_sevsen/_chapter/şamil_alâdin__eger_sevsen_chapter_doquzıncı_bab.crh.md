@@ -250,7 +250,6 @@ Maşinanı toqtata qoydı.
 — Daa ne?
 
 Men Andrey Zaharoviçke baqtım, o, rezina çızmalarını çıqarıp, özüniñ işçi potüklerini kiymekte edi.
-Demek, iş yalıñız demir yolda, yalıñız trosta degil eken...
 Motornıñ özü güzel çalışmaq kerek eken — dep tüşündim men.
 
 O devirde bütün Özbekstanda eki gidroelektrostantsiya bar edi.
@@ -258,7 +257,8 @@ Bizge eñ yaqını Qadırya.
 Andan bizge yüksek voltlı tok kele.
 Tok kimerde deñişe, bunıñ ekskavator motorlarını büyük tesiri ola.
 Qarardan ziyade qızalar.
-Onıñ içün biz, nijnikler, montörlar, smena injenerleri Şadmanova ve Curayev — epimiz elektrik tellerine ve kabellerge daima köz-qulaq olıp yüremiz; elektrik küçü olmasa, ekskavator çalışmay.
+Onıñ içün biz, nijnikler, montörlar, smena injenerleri Şadmanova ve Curayev — epimiz elektrik tellerine ve kabellerge daima köz-qulaq olıp yüremiz.
+ elektrik küçü olmasa, ekskavator çalışmay.
 Tursunov tsehte motorlarnı baştan-ayaq dağıtıp, soñra yañıdan cıyıp qoyğan.
 
 Baş Dugümde motorlar çoq işletile.
