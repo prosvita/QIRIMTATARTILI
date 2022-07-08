@@ -371,7 +371,8 @@ O sebepten, sel içün mahsus betonlı kanal yasamaq kerek, bu kanal derivatsion
 Menjevetskiy mesele açıq añlaşılsın dep, papiros qutusı üstünde üçköşelik çızıp körsetti.
 Üçköşelikniñ katetleri derivatsion ve sel kanallarında areketni aks etmekte ediler.
 
-— Men gipotenuza tarafdarım,— dedi Menjevetskiy ve kibrit ile qalın çızıq yasadı. — Barsın, sel plotina ögündeki tıynaqqa aqsın.
+— Men gipotenuza tarafdarım,— dedi Menjevetskiy ve kibrit ile qalın çızıq yasadı.
+— Barsın, sel plotina ögündeki tıynaqqa aqsın.
 Böyle yapılsa, bir kanalnıñ astından diger kanalnı keçirmek ve bir akveduk, eki köpür yasamaq kerek olmaz.
 Buña siz de rasızıñız degilmi, Anna Yakovlevna?
 
