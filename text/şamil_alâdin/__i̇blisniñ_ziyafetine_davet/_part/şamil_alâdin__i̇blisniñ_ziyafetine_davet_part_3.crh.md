@@ -289,7 +289,8 @@ Ay Vasıl ealisiniñ zevqlı adetleri bar.
 İlki künlerde adamğa, bu yerniñ halqı paranı pek qolay qazanğan ve zengin ayat sürgen kibi kele.
 Erkekler saba erte, arqalarında tarpileri, çayırlarğa kete, aqşam qaytıp keleler.
 Qadınlar olarnıñ ketirgen meyvalarını sepetlerge toldurıp, başları üstüne oturtıp, Yalta bazarına kötürip satalar.
-Cilik, kirez, vişne, zerdali, alma, hıyar, pomidor ve çay tepisi büyüklikte tatlı soğan... bularnı qırlardaki küçük miyraçıqlarda östürmek yengil iş degil.
+Cilik, kirez, vişne, zerdali, alma, hıyar, pomidor ve çay tepisi büyüklikte tatlı soğan... 
+bularnı qırlardaki küçük miyraçıqlarda östürmek yengil iş degil.
 O sebepten yarımadanıñ yalı boyundaki dağlılarınıñ ayatı pek şeñ degil.
 Ama bu yerlerniñ adamları namuslı, merametli ve küçlüler.
 Olarnıñ ayatı ağır.
