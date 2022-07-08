@@ -249,7 +249,8 @@ De tanığan kibi oldı, de tanımağan kibi...
 – Aleyküm selâm – dedi naşir nezaketle.
 Musafirniñ kimligini eske tüşürmek içün, közlerini qısa berip, oña baqıp turdı.
 Niayet, tanıdı.
-Kendine uzatılğan qolnı tutıp, sıqtı. – Hoş sefağa keldiñiz!
+Kendine uzatılğan qolnı tutıp, sıqtı. 
+– Hoş sefağa keldiñiz!
 Rica etem!..
 Buyurıñız!
 Oturıñız! – divar yanındaki vyana kreslosına işaret etti.
