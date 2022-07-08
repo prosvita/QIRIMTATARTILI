@@ -182,13 +182,12 @@ Toqtarğazı oğlum, – dedi musafir.
 – Ay Vasıl ocasım.
 İsmail muallimde işim bar.
 
-Sade ziyalılar – ocalar, edipler, ressamlar, mimarlar – Gasprinskiyge “İsmail muallim, İsmail efendi...
-Gaspralı” dep muracaat etkenleri alda, zengin tabaqa kişileri oña “İsmail bey, İsmail mırza...
-Gasprinskiy” demekteler.
+Sade ziyalılar – ocalar, edipler, ressamlar, mimarlar – Gasprinskiyge “İsmail muallim, İsmail efendi...Gaspralı” dep muracaat etkenleri alda, zengin tabaqa kişileri oña “İsmail bey, İsmail mırza... Gasprinskiy” demekteler.
 Öyle de nilmege naşirniñ keçmişteki zadikânlığı ve al-azırdaki şüreti sebep.
 
 – Rica etem! – fesli kişi qapunı artınace açtı.
-Musafir bosağadan içeri atlağan soñ, oña divar yanındaki kürsüni kösterip, dedi: – Biraz sabır etiñiz!
+Musafir bosağadan içeri atlağan soñ, oña divar yanındaki kürsüni kösterip, dedi: 
+– Biraz sabır etiñiz!
 
 Fesli kişi taş basamaqlar boyu ekinci qatqa çıqıp ketti.
 Musafir kürsü üzerine oturdı, ceviz ağaçından yasalı qutusını çıqarıp, sigar burdı, kibrit çertip tutandırğan soñ, etrafına baqındı.
