@@ -292,7 +292,7 @@ Terenlikke dalsañ...
 
 — Adaşırsıñız,— dedi İrada tez-tez,— lâkin bir şeyge taaciplenem... qadınlar bir-birlerine öz aqaylarını daima alim, edepli kişi dep taqdim eteler.
 Güya dünya olarnıñ omuzları üstünde tura.
-Yer yüzünde eñ büyük adamlar — olarnıñ aq-ayları.
+Yer yüzünde eñ büyük adamlar — olarnıñ aqayları.
 Eñ sevgen adamları da özleriniñ aqayları.
 Mansurov ne, büyük adammı?
 
