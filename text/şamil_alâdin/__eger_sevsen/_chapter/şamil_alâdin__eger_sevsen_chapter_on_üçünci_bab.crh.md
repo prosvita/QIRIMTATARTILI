@@ -635,7 +635,7 @@ Reberler de..injenerler de adamlar ekenler.
 
 İrada yüksek davuş ile şahıldap küldi.
 
-— Siz… nasıl belley ediñiz? 
+— Siz… nasıl belley ediñiz?
 Men cevap bermedim.
 Tüşündim.
 
