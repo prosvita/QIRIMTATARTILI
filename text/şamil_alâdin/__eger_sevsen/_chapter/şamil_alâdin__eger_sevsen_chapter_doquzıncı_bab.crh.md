@@ -558,7 +558,7 @@ Qıznıñ ise sol qaşı yuqarı köterilip ketti.
 
 "Rica etem, meni diñleñiz..." — matros, az qaldı, ağlaycaq edi.
 Bizim Nikolay...
-Aysa!
+Aysa !
 Kandıbanıñ özü.
 
 — "Hanum! — dedi o,— dört künden soñ men Braziliyağa ketecegim.
