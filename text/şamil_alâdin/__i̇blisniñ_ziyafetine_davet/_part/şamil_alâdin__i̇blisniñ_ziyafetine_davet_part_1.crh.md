@@ -19,7 +19,7 @@ Ağızımdan daa laf çıqmadı.
 Bu sözler kimge ait ekenini bilmey, etrafıma baqındım.
 Yanımda musafir kişi körünmedi.
 Qadın közlerini ögündeki cedvelden üzmey, elini maña uzattı.
-İçine pasportımnı qoydım.
+İçine pasportımnı qoydım .
 
 — Eki kümüş yetmiş kapik, – dedi maña.
 Baş parmağınen, işaret ve orta parmaqlarını çertip aldı. – “Parayı veren, düdügi çalır...” dey turğanlar bizim tatarlar.
