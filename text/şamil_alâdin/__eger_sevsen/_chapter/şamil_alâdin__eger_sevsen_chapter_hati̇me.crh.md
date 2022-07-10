@@ -14,15 +14,15 @@ Ondan soñ, haberiñ olsun — bu kitapnıñ özü büyük sevgi!
 Men bu satırlarda, yaş İradanıñ yüregi nasıl işlegenini ve özüniñ Cevdetine nasıl közlernen baqqanını körgende, tekrar ve tekrar hoş duyğularnıñ esirliginde qalam.
 Sevgi bizge rezina çızma ve brezent plaşç kiyip keldi, amma bizni iç bir vaqıt terk etmedi.
 Sen köresiñmi, İrada... menim samaylarıma endi qar yağdı, seniñ başıñda ise bir tel çal saç körünmey.
-Amma ekimiz de — afu et, bunı endi gizlemege mana yoq — ekimiz de bir yaşdamız!
+Amma ekimiz de — afu et, bunı endi gizlemege mana yoq — ekimiz de bir yaştamız!
 
 Men mezkür kitapnı yazar ekenim, gençligimniñ dostlarına bugünniñ közlerinen baqmaq istedim.
 Bahtlı adamlarnıñ tarihı olmay, deyler,— bu doğrumı, bilmeyim.
-Menim nesilim şimdi dünyada eñ büyük zenginlikniñ ve saadetniñ saibi, amma ...tarihı bar.
-Biz eki cean muarebesi kördik.
+Menim neslim şimdi dünyada eñ büyük zenginlikniñ ve saadetniñ saibi, amma ...tarihı bar.
+Biz eki cian muarebesi kördik.
 Qırq yıl içinde duşman mekânımıznı eki kere yaqtı-yıqtı, eki kere viran etti, eki kere ğayrıdan qurdıq.
 Muarebe ne demek?
-Bunı, er alde, eline silâ alıp cenkleşken kişi yahşı bile!
+Bunı, er alda, eline silâ alıp cenkleşken kişi yahşı bile!
 Cenk?
 Men cenk dedimmi?
 Yoq, biz oktâbrniñ qazançlarını mudafaa ettik.
@@ -36,7 +36,7 @@ Bu aqıl ve dülberlik yüksekliklerine qaydan keldik?
 Biz memleketniñ ayatını deñiştiremiz dep tüşündik, amma memleket bizni deñiştirgenini sezmey qaldıq.
 Adalet içün ücümge ketken asker, cesürlik maña kâr ketirecek dep ketmey.
 O elâk olacağını da tüşünmey.
-Mesele, onıñ duşman qurşunından telef ola bileceginde degil, revolütsiya ve onıñ qazançları oğrunda qattı tura bileceginde, kendi Vatanını acaip memleket yapa bileceginde, yani yüzlernen, biñlernen, millionlarnen adamlarnı bahtlı ete bileceginde.
+Mesele onıñ duşman qurşunından telef ola bileceginde degil, revolütsiya ve onıñ qazançları oğrunda qattı tura bileceginde, kendi Vatanını acayip memleket yapa bileceginde, yani yüzlernen, biñlernen, millionlarnen adamlarnı bahtlı ete bileceginde.
 Kişiniñ ögünde böyle alicenap vazife turğanda şahsiy menfaat ne demek ola?
 Böyle daqiqalarda öz şahsiyetini kim tüşüne bile?
 Munafıq!
@@ -46,12 +46,12 @@ Bu da revolütsiyanı mükemmellendirüv oğrunda küreş edi.
 Kerçek, bu uluğayelerini ömürge keçirmek içün ölmek zaruriy degil edi, lâkin biz öz vazifemizni fedakârlıq ve sadıqlıqnen eda ettik, çünki arqamızda yüzlernen, biñlernen millionlarnen kişiler, olarnıñ saadeti, tebessümi, sevgisi bulunmaqta edi.
 
 ...Stol üstünde yatqan soñki saifelerge lampadnıñ zayıf ışığı ura.
-Stolnıñ diger qısımı ve menim, kabinet dep, yanğıravuq söznen adlandırılğan kiçik odamnıñ içi ülkün.
-Yanaşamda turğan setniñ oz yüde ülkünlik içinde...
-Sen eliñni-ayağıñnı astıña toplap, burunıñnı yastıq astına tıqıp, yatasıñ.
-Özüñ, yeñi bab başlağanğa qadar beklemek ve eski bab üstündeki davanı bitirmek meramınen kirgen ediñ.
+Stolnıñ diger qısmı ve menim, kabinet dep, yanğıravuq söznen adlandırılğan kiçik odamnıñ içi ülkün.
+Yanaşamda turğan setniñ özü de ülkünlik içinde...
+Sen eliñni-ayağıñnı astına toplap, burunıñnı yastıq astına tıqıp, yatasıñ.
+Özüñ, yañı bab başlağanğa qadar beklemek ve eski bab üstündeki davanı bitirmek meramınen kirgen ediñ.
 Başımnı seniñ tarafıña çevirip diñlenem, tüm-tüz nefes alasıñ.
-Amma tekarançıq qıbırdanıp yalğan soñ, dudaqlarıñ bir şeyler fısıldadılar, odanıñ içinde kene sukünet ükümran oldı.
+Amma tekarançıq qıbırdanıp yalğan soñ, dudaqlarıñ bir şeyler fısıldadılar, odanıñ içinde kene sükünet ükümran oldı.
 Men ise qalbimdeki büyük islerimnen bu soñki saifelerni yazayatam.
 
 Keçenlerde Çar-Çaqqa bardım.
@@ -60,7 +60,7 @@ Soñki senelerde menim reberligim altında Taymırda ilmiy ekspeditsiya çalış
 Çar-Çaq ile Taymır arasındaki mesafe yaşlıq ile qartlıq arasındaki mesafege musaviy.
 Çar-Çaqnı tanımadım.
 O ösken-büyügen... himiyacılar ve elektrikler şeeri, studentler ve talebeler şeeri olğan.
-Şeerniñ merkezi acaip yeñi evlernen sarılıp alınğan.
+Şeerniñ merkezi acayip yañı evlernen sarılıp alınğan.
 Meydannıñ ortasında toqtadım.
 Çevre-çetime baqındım.
 Eali maña şübeli-şübeli köz etti.
@@ -84,12 +84,12 @@ Büyük hoşnutlıqnen içtim.
 
 — Ebet, lezetli!
 
-Yol çetindeki pervenkiden yarım qopqa suv alıp, maşinanıñ radiatorına qoygan soñ, köçtim… qırq daqiqadan soñ plotina üstündeki keçidde toqtadım.
+Yol çetindeki pervenkiden yarım qopqa suv alıp, maşinanıñ radiatorına qoygan soñ, köçtim… qırq daqiqadan soñ plotina üstündeki keçitte toqtadım.
 Tanış qırlar, köpürler, özen...
 Aylanma kanalnıñ izlerini qıdırdım, tapalmadım.
 Bizim baraklar olğan yerde balaban selbi ve çinar terekleri ösip çıqqanlar.
-Olarnıñ artından yeñi evlerniñ qırmızı saçaqları körünmekteler.
-Yeñi rayon merkezi.
+Olarnıñ artından yañı evlerniñ qırmızı saçaqları körünmekteler.
+Yañı rayon merkezi.
 Maşinanı toqtatqan yerimde, plotinanıñ kenarında qullege beñzegen dört qatlı, tar bina tura.
 Nevbetçi mehanik bunıñ içinde oturıp, plotinanı ve derivatsion kanalnı idare ete.
 Knopkağa parmağını basa, Çar-Çaqnıñ yolunı kese — suvnı de özenge doğrulta, de kanalğa yibere.
@@ -97,7 +97,7 @@ Qulleniñ töpesindeki meydanğa çıqıp, etrafqa bir baqınsam... dep tüşün
 Amma qulleniñ içine kirmek içün musaade kerektir... tehnikke özümniñ kim ekenimni isbat etmek qolay olmaz.
 Bu divarlarnı qalağan bir men degil... çoq edik.
 
-Qulleniñ çöyün qapusı artında laqırdılar işitildi.
+Qulleniñ çöyün qapusı artında laqırdılar eşitildi.
 Ğıçıldavuq bir ses:
 
 — Sen bare, qapaqlar üstündeki troslarnı deñiştirgeydiñ...— dep öpkelendi.
@@ -114,19 +114,19 @@ Basit omuzlarımdan öyle küçlü sıqtı ki, kemiklerim şıtırdadılar.
 Soñ qulleniñ töpesine köterile başladıq.
 Maña, plotina başlığı Ataqulov ekenini aytmağan olsalar bile, özüm sezer edim.
 Yuqarı köterileyatqanda, bu merdivenni, nizamnı ve temizlikni körip, bilir edim.
-Albu ise Bassarabanıñ yetişken qızı ve Basitniñ oğlu bar eken, bir afta evelsi eki qoranta bir-birine doğmuş olğanlar.
+Albu ise Bessarabanıñ yetişken qızı ve Basitniñ oğlu bar eken, bir afta evelsi eki qoranta bir-birine doğmuş olğanlar.
 
 Qulleniñ töpesine çıqtıq.
 Etrafqa köz etkende yüregim toqtap qalğan kibi oldı.
 Çar-Çaq boğazı, Hazar-Kend, bizim sotsialist şeerçik ve keniş vadi... uzaqta büyük himiya kombinatı.
 Yanaşada küzgü kibi yıltıravuq derivatsion kanal.
-Menim yoldaşlarım yüregimdeki eecannı sezip, sustı — çoq vaqıt indemey turdılar.
+Menim yoldaşlarım yüregimdeki eyecannı sezip, sustı — çoq vaqıt indemey turdılar.
 Men laqırdı etip başlağanımnı beklediler.
 
-— Soñ, divarlarnıñ qılıfı nasıl? — zeinime başta bu sözler keldiler. — Qavimi?
+— Soñ, divarlarnıñ qılıfı nasıl? — zeinime başta bu sözler keldiler. — Qaviymi?
 
-Basit başını silkitip aldı, soñ Bassarabağa baqtı.
-Bassaraba maña evelâ içten cevap berdi, soñ keskin davuşnen:
+Basit başını silkitip aldı, soñ Bessarabağa baqtı.
+Bessaraba maña evelâ içten cevap berdi, soñ keskin davuşnen:
 
 — Demir kibi tura.
 Oña ne olur belleysiñ? — dedi.
@@ -135,30 +135,30 @@ Mihail menim bu mermer taşlarğa munasebetim olğanını ya unutqan, yahud da a
 — İrada nasıl? — dep soradı menden Basit. — Sağ-selâmetmi?
 
 Oña İrada hususında çoq şeyler ikâye ettim. 
-Bassaraba kene tüşüncege daldı, kene içinden özüne bir şey söyledi, soñ:
+Bessaraba kene tüşüncege daldı, kene içinden özüne bir şey söyledi, soñ:
 
 — Özüñnen ne ketirmediñ? — dedi maña. 
-Men, İradanıñ şimdi ciddiy ilmiy işlerile bant ekenligini ve vaqıtı yoqluğını ayttım.
+Men, İradanıñ şimdi ciddiy ilmiy işleri ile bant ekenligini ve vaqtı yoqluğını ayttım.
 
 — Maşşalla! — dedi Basit. — Men İradanıñ büyük adam olacağını bile edim.
 
-Bassaraba biraz tüşünip turdı, Basitniñ sözleri doğru, degen manada, başını sallap aldı.
+Bessaraba biraz tüşünip turdı, Basitniñ sözleri doğru, degen manada, başını sallap aldı.
 
-Bundan soñ Bassaraba qulleniñ qapusını kilitledi, üçümiz maşinağa oturdıq.
+Bundan soñ Bessaraba qulleniñ qapusını kilitledi, üçümiz maşinağa oturdıq.
 
 Onıñ evine bardıq.
 Sabağa qadar laqırdı etip çıqtıq...
-Çoq vaqialarnı hatırladıq: tsement meselesini... baş idareniñ pervasızlığı yüzünden, beton taşuvnıñ toqtatılğanını, Curayev ve Tursunovnıñ Merkeziy Komitetke ketip, vaziyetni bildirgenlerini ve komissiya kelgende, partiya ve komsomol aktivi çağırılğanını, anda İrada çıqıp reberlikni teñkid etkenini eske tüşürdik.
+Çoq vaqialarnı hatırladıq: tsement meselesini... baş idareniñ pervasızlığı yüzünden, beton taşuvnıñ toqtatılğanını, Curayev ve Tursunovnıñ Merkeziy Komitetke ketip, vaziyetni bildirgenlerini ve komissiya kelgende, partiya ve komsomol aktivi çağırılğanını, anda İrada çıqıp reberlikni tenhit etkenini eske tüşürdik.
 Torizo adamlarğa, bilhassa, Anna Yakovlevnağa, fena muamelede bulunğanı içün İrada onı pek tızıqtırğanını da hatırladıq.
 
-— Ya sen, Cevdet,— dedi Basit, mıyıq astından külip,— özüñniñ yüksek hızmetteki uquqıñdan faydalanıp, bazı işçikler yapqanıñ aqılıñdamı?
+— Ya sen, Cevdet,— dedi Basit, mıyıq astından külip,— özüñniñ yüksek hızmetteki uquqından faydalanıp, bazı işçikler yapqanıñ aqlıñdamı?
 
 Ebet, bazı işçikler yapqan edim.
-Meni Mansurovnıñ muavini tain ettiler.
+Meni Mansurovnıñ muavini tayin ettiler.
 Maşinalarnıñ ekserisi endi derivatsion kanalda olğanından, maña sağ yalığa köçmek kerek oldı.
 Evelâ Karimnen bir evde yaşadıq.
 Soñ taqdir bizni ayırdı.
-Men başqa yataqhanege avuştım, menim yerime Karamat köçip keldi, amma Karim yerinden qbırdamadı.
+Men başqa yataqhanege avuştım, menim yerime Karamat köçip keldi, amma Karim yerinden qıbırdamadı.
 Çoqqa barmay, bizimkilerniñ episi sağ yalığa avuştı.
 Meni, bütün kompaniyañnı sağ yalığa alıp keldiñ, İrada sol yalıda qaldı, dep mısqılladılar.
 
@@ -170,13 +170,13 @@ Hristofornen beraber hastahanege çaptıq.
 Arhipka onıñ arqasından üç kere finkanen urğan.
 Nikolay eki afta ölüm alında... sandıraqlap yattı, Valâ bir ay onıñ başı ucundan ketmedi.
 Arhipka... onıñ bebeyleri kenişlegen patlaq közleri ep hatirimde...
-Makemeniñ üçünci künü sudya ükümni oquğan vaqıtta ağızından çıqqan deşetli söz... onı da unutmadım.
-Ortalıqnı sukünet bastı.
+Makemeniñ üçünci künü sudya ükümni oquğan vaqıtta ağzından çıqqan deşetli söz... onı da unutmadım.
+Ortalıqnı sükünet bastı.
 Bir qaç daqiqadan soñ elçırpmaları gürledi.
-Bizim yeñi klubda ne qadar adam sığğan olsa, episi ayaqqa qalqıp, makemeniñ ükümini alğışladı.
+Bizim yañı klubda ne qadar adam sığğan olsa, episi ayaqqa qalqıp, makemeniñ ükümini alğışladı.
 Bu adam deryası içinde ümütsizden Rahilni kördim.
 Közleri yaşlı edi.
-Onıñ: "Men saña aytmağanmı edim?" degen sadası işitildi.
+Onıñ: "Men saña aytmağanmı edim?" degen sadası eşitildi.
 Arhipkanıñ azıp-tozıp qalğan aqçil yüzü alâ közümniñ ögünde.
 
 Eki buçuq ay keçken soñ... plotina qurulıp bitirilgen künü Nikolay ve Valânıñ toyu oldı.
