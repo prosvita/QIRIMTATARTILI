@@ -341,7 +341,8 @@ Adam yolladım.
 Niçün yerni patlatmadıñız?
 Sizden sorayım: niçün vazifeni eda etmediñiz?
 Siziñ mesuliyetsizligiñiz sebebinden eki smena işsiz oturdı.
-Bu ziyankârlıq degilmi?— O senelerde pek çoq nuqsanlarımızğa ziyankârlıq dey edik.
+Bu ziyankârlıq degilmi?
+— O senelerde pek çoq nuqsanlarımızğa ziyankârlıq dey edik.
 
 Kombinezonlı kişi, soñundan añlağanıma, kore, yer patlatıcılar bürosınıñ başlığı eken.
 O, İradağa bir şeyler añlatmaq istep, ıdırna, İrada fursat bermey.
@@ -363,7 +364,8 @@ Dört-beş adım ileri yürgen soñ, artımda ayaq davuşları işittim: İrada.
 — Cevdet, menden qaçasıñızmı, ne? 
 Adımlarımnı yavaşlattım.
 
-— Soñ, nasıl? — dep soradı qız. — Elbette, bütün gece ateş başında ediñiz...
+— Soñ, nasıl? — dep soradı qız.
+— Elbette, bütün gece ateş başında ediñiz...
 "Ali baba ve qırq aydut", öylemi?
 Bu işte yer patlatıcılar qabaatlılar.
 Konglomeratnı tünevin patlatıp, yerni azırlap qoymaq kerek ediler.
@@ -398,7 +400,8 @@ Vahid Samatoviç.
 O sizge niçün kerek oldı?
 
 — Şay, özüm soradım.
-Büyük mütehassıs deyler. — ağızımnı tez-tez qapatmağa aşıqtım.
+Büyük mütehassıs deyler.
+— ağızımnı tez-tez qapatmağa aşıqtım.
 
 Laqırdını çolpa başladım, nasıl bitirecegimni bilmedim.
 Tursunovqa ne vaqıt qocağa çıqacaqsıñız dep de sorayımmı?
