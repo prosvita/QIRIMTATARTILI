@@ -538,7 +538,8 @@ Bu arada matrosnıñ biri, qoyun cebinden bir top para çıqarıp, Samsonnıñ �
 
 "Samson emce,— dedi o,— hurmanıñ parasını menden alıñız".
 
-Yarabbi!— Batumdaki urumlar bir şey olsa, böyle hıtap eteler.— Ne belleysiñiz?
+Yarabbi!— Batumdaki urumlar bir şey olsa, böyle hıtap eteler.
+— Ne belleysiñiz?
 Qartnıñ ögüne paranı atqan kişi, yarım saat evelsi menimnen muskat içken deñizci edi.
 
 Ebet, Nikolay Kandıba edi.
