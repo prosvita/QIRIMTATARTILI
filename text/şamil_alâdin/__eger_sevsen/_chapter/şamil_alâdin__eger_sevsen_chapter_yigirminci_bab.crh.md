@@ -2,10 +2,10 @@
 
 Almazov menim çalışqanıma diqqat etip turdı.
 
-— Karim ne dedi, aqılıñdamı?
+— Karim ne dedi, aqlıñdamı?
 Kovş qaranlıqta, çuqur içinde ne vaziyette...
 Eliñ rıçag üstünde ekende is etmek kerek.
-Aks taqdirde özüñni maşinist isap etmege aqqıñ yoq.
+Aks taqdirde özüñni maşinist esap etmege aqqıñ yoq.
 
 Ekskavatorcılar mektebini bitirgen soñ Almazovnıñ elinde ameliyat keçtim.
 
@@ -16,7 +16,7 @@ Baş Dugüm idaresi yeñi ekskavatorlar kelüvini bekley.
 Demek, yeñi maşinistler ve yardımcılar kerek.
 Şimdi er ekskavatornıñ rıçagı başında ekişer-üçer ameliyatçı oturamız.
 
-Rıçag başında oturğan vaqıtımda Almazov bir şeyler ayta, men işitmeyim.
+Rıçag başında oturğan vaqıtımda Almazov bir şeyler ayta, men eşitmeyim.
 Öz başıma tüşünem: İrada bizim ekskavator smena vazifesini artqaç eda etkenini bilip, Almazovnı hayırlamaq içün kele ve ümütsizden meni rıçag başında köre.
 Ayrette qala.
 Cevdet!
@@ -26,7 +26,7 @@ Siz meşur maşinist olıp kettiñizmi?— dep taaciplene, kelip meni quçaqlay.
 
 Kim bilsin?
 Belki kelir?
-Kelse de, meni eslemez!?
+Kelse de, meni eslemez?!
 Er kesniñ qolunı sıqar, tebrikler... maña qulaq asmaz.
 Ya Şpitsbergen?
 Şpitsbergenge ketem degende maña ne degen edi?
@@ -47,7 +47,7 @@ Yanaşamda oturdı, çoq vaqıt ellerimniñ ve ayaqlarımnıñ areketini, kovşn
 Baş parmağını töpege tiklep, İradağa kösterdi... soñ arqamnı taptadı,— yazıqlar olsun... seni niçün özüme yardımcı etip almadım?
 
 Yerge tüşken soñ çoq vaqıt Almazov ve İrada ile laqırdı etip turdı.
-Qaç defa adımnı aytqanını işittim.
+Qaç defa adımnı aytqanını eşittim.
 
 Soñ İrada Karimniñ yeñiniñ ucundan tutıp, çetke çekip alıp ketti.
 Qaç daqiqa keçti, Almazov da olarnıñ yanına bardı... üçevi topraq yığını töpesine çıqtılar.
@@ -74,13 +74,13 @@ Qısqaracaqmı?
 Almazov maña bunı añlatıp yetiştiralmadı, aşağıda İrada ve Karimniñ davuşları çıqtı.
 
 İrada, uçurım töpesinde turğanı alda, pek qıçırıp laqırdı etmekte...
-Almazov ise motorlarnıñ gürültisi içinde onı zar-zorına işitmekte edi.
+Almazov ise motorlarnıñ gürültisi içinde onı zar-zorına eşitmekte edi.
 
-— Taze haber bar,— dedi İrada, elini közleri ögünde qaqqalap,— işittiñizmi?
+— Taze haber bar,— dedi İrada, elini közleri ögünde qaqqalap,— eşittiñizmi?
 
 — Yoq!?
 
-İrada onıñ sualini işitmedi.
+İrada onıñ sualini eşitmedi.
 
 — Taze haber bar.
 
@@ -94,7 +94,7 @@ Men motorlar bölüginde turıp, olarnıñ laqırdısını diñledim.
 — Çar-Çaqqa yetmege on metr qaldı...— dedi Almazov, közlerini kovştan almay,— eksik degil.
 Keñligi?
 Terenligi?
-Bu isapqa alınmaymı?
+Bu esapqa alınmaymı?
 
 Karim aşağıda tura.
 Çırayı sıtıq, özü darğın.
@@ -109,7 +109,7 @@ Sesi titrek.
 
 Kögertege çıqtım.
 
-— Qavi turuñız, injener arqadaş,— dedim İradağa,— kabinanı bir silkitse... sizni uçurım astında qıdır yur.
+— Qaviy turuñız, injener arqadaş,— dedim İradağa,— kabinanı bir silkitse... sizni uçurım astında qıdır yur.
 
 — Silkitsin...— dedi o, quru davuşnen. — Men de onı qıdıram.
 
@@ -119,31 +119,31 @@ Kögertege çıqtım.
 
 — Yıqıldıñızmı?
 
-— Yeter, Cevdet!— dedi İrada kederli alda,— şaqa etüv vaqıtı degil.
+— Yeter, Cevdet!— dedi İrada kederli alda,— şaqa etüv vaqtı degil.
 
 Qıznıñ yuqusız, aqçıl çeresine, asretli közlerine baqtım.
 Yoq, o maña açuvlı degil...
 
-Tekrar içeri kirdim, olarnıñ laqırdılarına diñlendim.
-Yarım-yurtu işitilgen sözlerden, şöyle adise olıp keçkenini añladım.
+Tekrar içeri kirdim, olarnıñ laqırdılarını diñlendim.
+Yarım-yurtu eşitilgen sözlerden, şöyle adise olıp keçkenini añladım.
 
 ...Üç kün evelsi Mansurov kâğıt yazıp bir kişige bergen.
 Paromda qarşı yalığa keçip, İskander poçtasından Orconikidzege telegramma yollamasını emir etken.
-Bunı Toqtabayev işitken, amma emiyet bermegen.
+Bunı Toqtabayev eşitken, amma emiyet bermegen.
 Kerçek, Mansurovnıñ halq komissarınen mektüpleşüvine biraz taaciplengen, biraz da şübelengen, lâkin soñundan başqa neticege kelgen: halq komissarına erkes mektüp yaza bile dep tüşüngen.
 Şimdi Curayev oña, Sergodan telegramma kelgenini bildirgen.
-Halq komissarı Baş Dugüm qurucılarını aylanma kanalnı müddetinden evel bitirüvleri munasebetinen hayırlamaqta ve ekskavatorcılarğa aynı zamanda, Mansurovqa teşekkürler bildirmekte.
+Halq komissarı Baş Dugüm qurucılarını aylanma kanalnı müddetinden evel bitirüvleri munasebetinen hayırlamaqta ve ekskavatorcılarğa aynı zamanda, Mansurovğa teşekkürler bildirmekte.
 
 — Krasnânskayanıñ haberi barmı?— dep soradı Almazov.
 
 — Bar,— dedi İrada,— lâkin ne çare?
 Kanalnı bitirmek içün eñ azdan sekiz kün kerek.
-Yer astı kanalını isapqa qoşmasaq...
+Yer astı kanalını esapqa qoşmasaq...
 
 — Mansurov zevqlı adam,— dedi Almazov. — Bundan evel qayda çalıştı, bilmeysiñizmi?
 
 — Tehnikiy bölükte.
-Ne yapqan bilmem, boşadılar... mında keldi.
+% Ne yapqan bilmem, işten çıqardılar... mında keldi.
 İçtimaiy keçmişinde bir şeyler bar eken.
 
 — Ne bar eken?
@@ -153,7 +153,7 @@ Babası basmaç degilmi eken.
 Almazovnıñ bu sualine darılğan kibi oldı. — Niçün basmaç?
 Men añlamayım, bir adamnıñ içtimaiy keçmişi çıbalıqça olsa, mıtlaqa babası basmaç eken dep tüşünmek kerekmi?
 Mansurov meselesine Torizonıñ özü de qarışqan.
-Torizo, fikirimce mefküreviy sağlam kişi.
+Torizo, fikrimce mefküreviy sağlam kişi.
 
 — Keçenlerde... muşaverede olğan laqırdılarğa baqqanda, Krasnânskaya ondan qorqqanğa beñzemey,— dedi Karim.
 Kögertege ne vaqıt çıqqanını sezmedim.
@@ -176,7 +176,7 @@ Dülber yer.
 — Dülber.
 Yazıq ki, dülber şeylerniñ episi faydalı olmay,— dedi İrada,— Ayıq-Burun aylanma kanalğa suv kirmesine keder etecek.
 Karimnen ekiñiz onı beş kün içinde cıyıştırıp alacaqsıñız.
-Anna Yakovlevnanıñ emiri Böyle.
+Anna Yakovlevnanıñ emri böyle.
 
 Biraz indemey turdı, soñ ilâve etti:
 
@@ -186,7 +186,7 @@ Elbette biter.
 Bu Çar-Çaq boyunda neler-neler bitmedi!..
 Tasavur etesiñizmi?
 
-Almazov, İradanıñ inamlı, işançlı davuşını işitip, açuvlandı.
+Almazov, İradanıñ inamlı, işançlı davuşını eşitip, açuvlandı.
 
 — Beş kün...
 Sizge, reberlerge, köre ne?
@@ -194,8 +194,7 @@ Tek raport bermek olsun... iç añlap olamayım.
 Bu aşıquv niçün?
 Yanğın barmı?
 
-— Yanğın?
-Ondan da beteri bar!— dedi İrada. — Niçün iş mutlaqa uzana bermek kerek?
+— Yanğın? Ondan da beteri bar!— dedi İrada. — Niçün iş mutlaqa uzana bermek kerek?
 İşte, sizge sual.
 Eki smenada çalışacaqsıñız.
 Siz, Karim... ondan soñ Bekirov, Bassaraba... epiñiz eki smena.
@@ -207,14 +206,14 @@ Beş künde bitmez. — Karim öz-özünen laqırdı etmekte edi. — Topraq bir
 Patlatmaq kerek.
 Patlatuv ise vaqıt ala.
 
-— Sizge yalı ne kerek?— dedi İrada,— qırnı suv seviyesinece qazacaqsıñız... aşağısını özen özü yuvup alıp keter.
+— Sizge yalı ne kerek?— dedi İrada,— qırnı suv seviyesinece qazacaqsıñız... aşağısını özen özü yuvıp alıp keter.
 Ayıq-Burunda taş, qaya yoq, geologlar episini teşkerdiler.
 Taş suv astında.
 Yalını doğrultsañız oldı.
 Suv aylanma kanalğa kire bilsin.
 Beş kün... azmı?
 
-Parovoznıñ keskin davuşı işitildi.
+Parovoznıñ keskin davuşı eşitildi.
 Almazov soñki kovşnı yığın töpesine aydap, toprağını tökti, kovşnı yerge tüşürip, rıçagnı keri çekip taşladı.
 
 Evge qaytqanda Andrey Zaharoviçnen laqırdığa tutundıq.
@@ -241,7 +240,7 @@ Beş kün...
 Er kün tahtada raqam deñiştirile, künler eksilgen sayın surat arta.
 Noqtalar üstünde "bir" raqamı ne vaqıt peyda olacaq?
 O kün kelse edi.
-Yerastı kanalınıñ ağızı daa tıqatılmadı.
+Yerastı kanalınıñ ağzı daa tıqatılmadı.
 Çuqurlar qapalmadı ve trubanıñ üstünde açılğan qapaqlar örtülmediler.
 Bu işlernen şimdi oğraşıp başlaylar.
 Gidrotehnikler, geologlar, kereksin-kerekmesin, arqalarına apparatlarını ve qazmalarını urıp, de Ayıq-Burun betke keçip kete, de Çatal-Çinar yanındaki qobağa kire,— qarışıp yüreler.
@@ -270,22 +269,22 @@ Belki birisi yırtıp atqan!?
 Yoq, mümkün degil.
 Samolöt üstünde biz Almazovnıñ ekipajı.
 Gemide Karim.
-Bassaraba yavtomobilde.
+Bassaraba avtomobilde.
 Kaloş içinde kimse yoq.
 
 Yalığa tüştik.
 Yerastı kanalınıñ Çar-Çaqqa çıqqan yerini körmek istedik.
 Özenniñ çetinde yerge demir qazıqlar qaqılğan.
 Niçün?
-Buña aqılımız yetmedi.
+Buña aqlımız yetmedi.
 Suvnıñ ortasında ne olğanını köralmadıq — qaranlıq.
 Qaytıp töpege çıqtıq "Mavı qaya"ğa kirdik.
 Anda İrada bir özü oturmaqta edi.
-Toqtabayevniñ stolı üzerine büyük kâğıt cayğan, "Yengil kavaleriyanıñ" nevbetiy bülletenini yazayata.
+Toqtabayevniñ stolu üzerine büyük kâğıt cayğan, "Yengil kavaleriyanıñ" nevbetiy bülletenini yazayata.
 
 Almazov kâğıtnıñ üstündeki yazılarnı körip, açuvlandı.
 
-— Bu adden aşıq...— dedi o, qızğa,— biz aytqanımız yoq, siz ayttıñız!
+— Bu adden aşır...— dedi o, qızğa,— biz aytqanımız yoq, siz ayttıñız!
 
 Kâğıt üstünde şu sözler yazılı edi: "İleri maşinistler Almazov ve Yoldaşev Ayıq-Burundaki topraq işlerini beş künde bitirmege söz berdiler".
 Bülleten: "İş suratını arttırayıq!
@@ -301,24 +300,24 @@ Soñ Almazov çıqıp ketti.
 
 — Yoq,— dedi İrada resmiy tilde,— qolaysız olıp çıqar...
 
-— Onıñ yuzsizligi işniñ faydasına olıp çıqtı, öyle añlaycaqmızmı?
+— Onıñ yuzsuzlığı işniñ faydasına olıp çıqtı, öyle añlaycaqmızmı?
 
 — Ne demek isteysiñiz, Bekirov?— İrada közlerimniñ içine dep baqtı ve menden cevap bekledi.
 Baqışında teren ökünç bar edi.
 "Saña ne oldı?
 Meni kerçekten de unutmaq isteysiñmi, Cevdet?" demek istegen kibi keldi.
-Soñ: — Böyle qavflı areket nasıl etip faydalı olıp çıqa bile, aqılım yetmey,— o zornen külümsiredi.
+Soñ: — Böyle qavflı areket nasıl etip faydalı olıp çıqa bile, aqlım yetmey,— o zornen külümsiredi.
 
-— Bütünley degil,— dedim men,— er alde, faydalı olıp çıqtı!
+— Bütünley degil,— dedim men,— er alda, faydalı olıp çıqtı!
 
 — Sizni tanımaq mümkün degil, Cevdet!— dedi o.
-Niayet, ağızından adım çıqtı,— daa yañçıq şaqa etesiñiz bellegen edim.
+Niayet, ağzından adım çıqtı,— daa yañçıq şaqa etesiñiz bellegen edim.
 Şimdi añladım, şaqa etmey ekensiñiz.
 Mansurov bu işni büyüklerniñ közüne kirmek içün yaptı.
 
 — Şübesiz... tünevin mecliste ise smena injenerleri, aylanma kanalnı doquz künde bitirmek mümkün degen fikirge keldiler.
 Şimdi beş künde bitirmege söz bereyatasıñız.
-Mansurov gürülti çıqardı, siz ise Ayıq-Burun dört künde yer yüzünden ğaip olacaq dep molniya yazdıñız.
+Mansurov gürülti çıqardı, siz ise Ayıq-Burun dört künde yer yüzünden ğayıp olacaq dep molniya yazdıñız.
 
 Şükür!
 Biz endi laqırdı etemiz.
@@ -358,7 +357,7 @@ Men artıq sizge darğın degilim.
 
 "Darğın degilim..." Buña inanmaq mümkünmi? 
 Bayırdan aşağı tüştik.
-Demir yol köpürden keçip, baraklarğa doğruldıq.
+Demiryol köpürden keçip, baraklarğa doğruldıq.
 
 İnjenerler maallesindeki trans-kiosk yanında İrada meni toqtattı.
 
@@ -368,6 +367,6 @@ Demir yol köpürden keçip, baraklarğa doğruldıq.
 Nasıl?— yüregim solqıldadı,— İrada, bu saqlancımaq ne vaqıt bitecek?
 
 — Sizge artıq canım ağırmay, Cevdet!
-İşitesiñizmi?
+Eşitesiñizmi?
 Ağırmay...
 Siziñ içün bu kâfi degilmi?
