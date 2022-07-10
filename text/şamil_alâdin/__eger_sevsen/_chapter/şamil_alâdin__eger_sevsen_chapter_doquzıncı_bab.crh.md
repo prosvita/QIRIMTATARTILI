@@ -369,7 +369,7 @@ Adımlarımnı yavaşlattım.
 "Ali baba ve qırq aydut", öylemi?
 Bu işte yer patlatıcılar qabaatlılar.
 Konglomeratnı tünevin patlatıp, yerni azırlap qoymaq kerek ediler.
-Yapmağanlar...
+Yapmağanlar ...
 
 — Biz çalıştıq,— dedim men. 
 İrada maña hucur-hucur baqtı.
