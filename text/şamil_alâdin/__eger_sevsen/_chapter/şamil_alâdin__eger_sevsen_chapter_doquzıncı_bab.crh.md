@@ -603,7 +603,7 @@ Ututtıñızmı?" — dedi.
 Şimdi aqılıma keldi.
 Oña pansionatta yer tapıp bergen edim.
 Ey-va, fırsatnı qaçırdım.
-Qız, elinde hurma qutusı... matrosnen yan-yanaşa zal boylap yurdi, qapuğa yaqınlaşqanda, deñizci onı büyük nezaketnen ögge yiberip, başını egiltti.
+Qız, elinde hurma qutusı...matrosnen yan-yanaşa zal boylap yurdi, qapuğa yaqınlaşqanda, deñizci onı büyük nezaketnen ögge yiberip, başını egiltti.
 
 "Sağlıqnen qalıñız, alicenap bariyeli! — dedi qız, dülber külümsirep,— ümüt etem ki, siziñ ile daa körüşirmiz!"
 
