@@ -438,7 +438,8 @@ Yarım saat keçken soñ evine qaytıp kele ve bir kün — bir gece tışarı �
 
 İrada qolunı yüksekke köterip, salladı.
 
-— Şimdi ba-raa-m — dep qıçırdı o, soñ lafını devam etti.— Meni öz qızı yerine köre.
+— Şimdi ba-raa-m — dep qıçırdı o, soñ lafını devam etti.
+— Meni öz qızı yerine köre.
 Pek seve.
 Mende oña alışıp qaldım.
 
@@ -447,7 +448,8 @@ Men artından baqıp turdım.
 Baqqanımnı sezdi, maña aylandı.
 
 — Cevdet!— dep qıçırdı o.
-Men başımnı salladım. — Bilesiñmi, ne?
+Men başımnı salladım.
+— Bilesiñmi, ne?
 
 — Yoq!
 
@@ -457,7 +459,8 @@ Men başımnı salladım. — Bilesiñmi, ne?
 Men sizni beklerim.
 
 O arıqtan atladı, demir yol çetinden yuvurıp ketti. 
-Arqamda erkek davuşı işitildi.— Hristofor.
+Arqamda erkek davuşı işitildi.
+— Hristofor.
 
 — Sabur et,— dedi Hristofor,— mesele bar.
 
@@ -500,7 +503,8 @@ Matros, tam manası ile... tüzgün müçe, yanıq çere, çevik areketler, mav�
 Şay degen soñ matros maña: "Mümkün, berader!" — dep cevap berdi ve külümsiredi...
 Bizim batumlılardan başqa, böyle kimse külüp olamay.
 Birer qade içtik.
-Matros "bu bizimce olmadı, berader! — dedi. — Balabanca savut yoqmı?" Samson emce içeriden ağaç meşrebeler alıp çıqtı.
+Matros "bu bizimce olmadı, berader! — dedi.
+ — Balabanca savut yoqmı?" Samson emce içeriden ağaç meşrebeler alıp çıqtı.
 Meşrebe degil, pelit ağaçından yasalğan, saplı küçük fuçılar.
 
 "İşte, bu — başqa mesele..." dedi matros.
@@ -559,7 +563,8 @@ Kandıbanıñ özü.
 Başıma, kim bile, nasıl belâ kelecek!?
 Okeanda furtuna, piratlar... bilesiñizmi?
 Uzaq yolğa çıquv arfesinde sizge hoşnudlıq ediyesi taqdim etmek isteyim.
-Nemseler buña: klâyde froyde deyler. —Matrosnıñ yüzü bulutlandı.
+Nemseler buña: klâyde froyde deyler.
+—Matrosnıñ yüzü bulutlandı.
 — Qabul etmeseñiz, meni, deñizcini, kederlendireceksiñiz.
 Eger qabul etseñiz, meni bahtlı eteceksiñiz".
 Deñizci öyle külümsiredi ki, dünyada iç bir erkek böyle usta külüp olamaz edi.
