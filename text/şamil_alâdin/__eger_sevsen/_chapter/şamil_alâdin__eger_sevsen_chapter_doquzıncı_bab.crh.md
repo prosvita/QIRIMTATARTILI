@@ -504,7 +504,8 @@ Matros, tam manası ile... tüzgün müçe, yanıq çere, çevik areketler, mav�
 Bizim batumlılardan başqa, böyle kimse külüp olamay.
 Birer qade içtik.
 Matros "bu bizimce olmadı, berader! — dedi.
- — Balabanca savut yoqmı?" Samson emce içeriden ağaç meşrebeler alıp çıqtı.
+ — Balabanca savut yoqmı?"
+ Samson emce içeriden ağaç meşrebeler alıp çıqtı.
 Meşrebe degil, pelit ağaçından yasalğan, saplı küçük fuçılar.
 
 "İşte, bu — başqa mesele..." dedi matros.
