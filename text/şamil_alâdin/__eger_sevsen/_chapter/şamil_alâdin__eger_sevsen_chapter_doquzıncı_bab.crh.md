@@ -400,13 +400,12 @@ Vahid Samatoviç.
 O sizge niçün kerek oldı?
 
 — Şay, özüm soradım.
-Büyük mütehassıs deyler.
-— ağızımnı tez-tez qapatmağa aşıqtım.
+Büyük mütehassıs deyler,— ağızımnı tez-tez qapatmağa aşıqtım.
 
 Laqırdını çolpa başladım, nasıl bitirecegimni bilmedim.
 Tursunovqa ne vaqıt qocağa çıqacaqsıñız dep de sorayımmı?
 
-Sustım.
+Sustım .
 Sukünet İradağa tesir ettimi — yoqmı, lâkin ümütsizden maña yaqın keldi, elini omuzım üstüne qoydı... qoydı degende, qoltuğı astındaki papkalar ve tığırıqlı kâğıtlar yerge tüştiler.
 
 — Cevdet!
@@ -428,7 +427,8 @@ Bilem... lâkin, o aqlı.
 — Ebet... o daima aqlı.
 Özü Dneprden keldi.
 Aqayı anda baş energetik eken.
-Bir defa, baarde, Neerde suv tolıp-taşqan vaqıtta, küçlü ruzgâr...— maña bu tarifnı, Anna Yakovlevna ile çalışqan injenerleden biri... a — siz aytqan Tursunovnıñ özü ikâye etken edi. — Krasnânskayanıñ uçastkasındaki biñlernen adamlar taşnı-topraqnı, qumnı çuvallarğa toldırıp, arqalarında taşıyyatqan vaqıtta oña: aqayıñ elâk oldı deyler.
+Bir defa, baarde, Neerde suv tolıp-taşqan vaqıtta, küçlü ruzgâr...— maña bu tarifnı, Anna Yakovlevna ile çalışqan injenerleden biri... a — siz aytqan Tursunovnıñ özü ikâye etken edi.
+ — Krasnânskayanıñ uçastkasındaki biñlernen adamlar taşnı-topraqnı, qumnı çuvallarğa toldırıp, arqalarında taşıyyatqan vaqıtta oña: aqayıñ elâk oldı deyler.
 Aqayı elektrik yolundaki büyük qazanıñ ögüni almaq içün tırışqanda yüksek voltlı elektrik teli qopıp, üstüne tüşe.
 Anna Yakovlevna: "sağ qaluvı mümkünmi?" — dep soray.
 Oña: "Yoq, sağ qaluvı mümkün degil" dep cevap bereler.
