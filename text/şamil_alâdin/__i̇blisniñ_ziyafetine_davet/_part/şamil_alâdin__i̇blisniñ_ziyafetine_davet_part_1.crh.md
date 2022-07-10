@@ -71,7 +71,7 @@ Elbet, pek tanış kişime...
 
 Laqırdımız artıq eki yaqlap bağlanıp ketken soñ, Georgios azar-azar töküne berdi.
 Men diñledim, tek suallerine cevap berdim... cevap bermegenlerim de oldı.
-Qomşum maña özüni maliye hadimi dep, taqdim etti.
+Qomşum maña özüni maliye hadimi dep,taqdim etti.
 Qırq yıl bankta bücet bölüginde işlegen.
 Şimdi istifada.
 Qadını bıltır vefat etken.
@@ -194,7 +194,7 @@ Cenkte öyle allar az olmadı.
 
 Biz qol tutuştıq.
 Pavel Tarasoviç menim ne zenaat kişisi ekenligimnen meraqlandı.
-Merağını qanaatlendirdim.
+Merağını qanaatlendirdim .
 
 – Maña Harcibiye vaqiası aqqında malümat kerek, – dedim direktorğa. – Bu çoq yıllar evelsi olğan şey.
 
@@ -223,7 +223,7 @@ Niayet, içeri külrenk saçlı, yüksek kişi kirdi.
 
 – İşte, İlya İsaakoviçniñ özü, – dedi direktor, kişini maña taqdim eterek. – Tarih fenleri namzeti.
 Arhivniñ perisi.
-Babası...
+Babası ...
 İsaak Garipoviç de çoq yıllar bizde işlegen.
 Afu etiñiz, bana aytqan köyüñizniñ adı ne edi?
 
@@ -324,7 +324,8 @@ Qadınlar, elbette, bu işte erkeklerni ozalar.
 Musafirhanege kelgen soñ, Georgiosqa kiyimlerniñ çıbarlığı ve adden-aşıq serbestligi aqqında fikirimni ayttım.
 O maña kibar çere ile cılmaydı.
 
-– Zamandan artta qalmaq kerekmey, – dedi maña, telkin berir kibi. – Zira, onı, zamannı, yeñmek mümkün degil.
+– Zamandan artta qalmaq kerekmey, – dedi maña, telkin berir kibi.
+– Zira, onı, zamannı, yeñmek mümkün degil.
 Qadından letafet, şefqat istenile.
 Taze kiyim, medeniy qabiliyetlerge irişüvge yardım ete.
 Qadın hafif varlıq olaraq sevile.
@@ -343,15 +344,18 @@ Yuvunmadı.
 Kimerde başını köterip, menim deñizdeki areketlerime közetti.
 Suv sportu mearetimden pek hoşnut körünmedi.
 
-– Biz uzaqlarğa... ta, Anapa betlerge yaldap kete turğanmız, – dep taşladı o, men suvdan çıqqan soñ. – Osman Çakuç ve Apostol Kunyadi degenler bar edi.
+– Biz uzaqlarğa... ta, Anapa betlerge yaldap kete turğanmız, – dep taşladı o, men suvdan çıqqan soñ.
+– Osman Çakuç ve Apostol Kunyadi degenler bar edi.
 Olar bizden de deşetli ediler.
 Quşluq maalinde ştanlarını sailde taşlap, deñizge kirip kete, aqşam üstü qaytıp kele, bütün künlerini deñizde keçire ediler.
 Apostol alçaq, kütük kibi.
 Osman qaya kibi iri.
 Kimerde epimiz sürünen yalday turğanmız.
 Şimdi ne...?
-Qayda o adamlar? – Georgios Monolupolos keçip ketken ferasetli çağlarına yanıqlap, köküs keçirdi. – Endi qartaydım...
-Ekim ruhset etmey... – o aqırından başını köterdi, maña eleslenip baqtı. – Özüñiz doğma ne yerlisiñiz? – dep soradı.
+Qayda o adamlar? – Georgios Monolupolos keçip ketken ferasetli çağlarına yanıqlap, köküs keçirdi.
+– Endi qartaydım...
+Ekim ruhset etmey... – o aqırından başını köterdi, maña eleslenip baqtı.
+ – Özüñiz doğma ne yerlisiñiz? – dep soradı.
 
 Eki kün – eki gece bir odada yaşay, bir aşhanede aşaymız.
 Georgios ep özüniñ bu şeerde anadan dünyağa kelgenini ayta berip, meni çoqtan bezdirdi.
