@@ -127,7 +127,7 @@ Niçün, bilmeyim?
 Öyle!— dedi Mansurov.
 Nikolaynıñ sözlerini añlamadı.
 
-— Kettik,— dedi maña Kandıba, laqırdığa yekün çekip.
+— Kettik, — dedi maña Kandıba, laqırdığa yekün çekip.
 
 Tışarı çıqqan soñ, Nikolaynıñ siñirleri pek tartılğanlarını... mına-mına üzülmek üzre ekenlerini sezdim.
 
