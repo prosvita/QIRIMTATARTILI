@@ -165,7 +165,7 @@ Felemek!
 — Bar, otur, aşa!— dedi o maña,— lâkin, haberiñ olsun, raqı çoq adamlarnıñ boynunı urdı.
 
 Stol başına oturğan soñ, öz başıma külümsiredim.
-Halanıñ bazı suallerine oşlandim.
+Halanıñ bazı suallerine hoşlandim.
 Söz sırası... men evlimmi?
 Abshanede yattımı?
 Bu onıñ ne işi?
