@@ -101,8 +101,9 @@ On daqiqa evelsi men köridorda olarnı diñledim, şimdi olar bizim laqırdığ
 
 Anna Yakovlevna ve İradanıñ böyle yaqın odada bulunğanlarını bilmey edim.
 
-— Bizim içün ep bir!— dedim men ve gizliden Nikolaynıñ yüzüne baqtım.
-Çünki Nikolay, sözlerime razı olmağanı taqdirde bile, Mansurovnıñ ögünde itiraz etmeycegine emin edim.— Topraq yığını üstündeki ekskavator astında süyreklenecekmizmi, yoqsa, Çar-Çaqnıñ quturğan suvları içinde çalqanacaqmızmı?
+— Bizim içün ep bir! — dedim men ve gizliden Nikolaynıñ yüzüne baqtım.
+Çünki Nikolay, sözlerime razı olmağanı taqdirde bile, Mansurovnıñ ögünde itiraz etmeycegine emin edim.
+— Topraq yığını üstündeki ekskavator astında süyreklenecekmizmi, yoqsa, Çar-Çaqnıñ quturğan suvları içinde çalqanacaqmızmı?
 Bizim içün farqı yoq.
 (Madamki olar meni diñlemekteler, barsın, romantik sözler işitsinler!)... lâkin eki adam ne yapa bilecek?
 Eki ekskavatornı sol yalığa keçirmek içün, eñ azdan, otuz adam kerek!
