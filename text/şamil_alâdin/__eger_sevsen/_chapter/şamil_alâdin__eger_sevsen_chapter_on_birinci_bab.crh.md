@@ -105,11 +105,13 @@ Anna Yakovlevna ve İradanıñ böyle yaqın odada bulunğanlarını bilmey edim
 Çünki Nikolay, sözlerime razı olmağanı taqdirde bile, Mansurovnıñ ögünde itiraz etmeycegine emin edim.
 — Topraq yığını üstündeki ekskavator astında süyreklenecekmizmi, yoqsa, Çar-Çaqnıñ quturğan suvları içinde çalqanacaqmızmı?
 Bizim içün farqı yoq.
-(Madamki olar meni diñlemekteler, barsın, romantik sözler işitsinler!)... lâkin eki adam ne yapa bilecek?
+(Madamki olar meni diñlemekteler, barsın, romantik sözler işitsinler!)
+... lâkin eki adam ne yapa bilecek?
 Eki ekskavatornı sol yalığa keçirmek içün, eñ azdan, otuz adam kerek!
 
-— Elli adam beririm!— dedi Mansurov.
-Sesi deral şeñlenip ketti.— Raatsız olmañız.
+— Elli adam beririm! — dedi Mansurov.
+Sesi deral şeñlenip ketti.
+— Raatsız olmañız.
 Sözüm — söz.
 Mansurovnıñ kim ekenini bilesiñiz.
 
