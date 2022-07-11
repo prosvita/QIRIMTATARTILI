@@ -326,7 +326,8 @@ Men taaciplendim... daa doğrusı, bir şey añlamadım.
 
 "Bunı kim ayttı?" — dep soradım.
 
-"E, bu Rozamunda Köldingamskayanıñ sözleri",— dep cevap berdi. — "Güzel söylenilgen, öyle degilmi!" Hristofor kimerde bu ibarelerniñ saiplerini özü tüşünip çıqara edi.
+"E, bu Rozamunda Köldingamskayanıñ sözleri",— dep cevap berdi.
+— "Güzel söylenilgen, öyle degilmi!" Hristofor kimerde bu ibarelerniñ saiplerini özü tüşünip çıqara edi.
 Daa isteysiñmi?
 "Cenklerniñ qanunı öyle... ğalipler — mağlüplerge istegen şeyini yaptıra bileler.
 Yuliy Tsezar.
