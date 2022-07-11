@@ -146,9 +146,10 @@ Men bilem, sen künde yedi kere gemi direginiñ töpesine çıqıp-tüşe, pol y
 Hamut degeniñ şumı?
 Sen özüñ de menim kibisiñ!
 Maña baq!
-Ne yapacaqmız! — Nikolaynıñ elinden çektim. — yaldaycaqmızmı?
+Ne yapacaqmız! — Nikolaynıñ elinden çektim. 
+— Yaldaycaqmızmı?
 
-— Ne çare?— sualime sualnen cevap berdi,— Mansurovnıñ ögünde öyle dülber nutq irad ettiñ, endi yaldamamaq mümkün degil.
+— Ne çare? — sualime sualnen cevap berdi,— Mansurovnıñ ögünde öyle dülber nutq irad ettiñ, endi yaldamamaq mümkün degil.
 Tek yaldamaq degil... belki uçmaq da kerek olur.
 Er vaqıt öyle...
 İşler güzel-güzel keteyatqanda, Mansurovqa beñzegen kişi peyda ola, ortalıqnı qarıştıra taşlay... tek işni degil, adamlarnıñ miyini de.
