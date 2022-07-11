@@ -52,11 +52,15 @@ Seni, meni, Raşidni... epimizni Mansurov çağırtqan.
 
 Kabinette Mansurov bir özü edi.
 
-— Oturıñız!— dedi o bizge, cartı divannı kösterip.— Müim vazife bar.
+— Oturıñız! — dedi o bizge, cartı divannı kösterip.
+— Müim vazife bar.
 Ükümet vazifesi. 
+
 Men Nikolayğa, Nikolay maña baqıştıq.
 
-— Niçün bizge?— dep soradı Kandıba.— Bu qadar adam turğanda...—Nikolaynıñ gizli-qapaqlı laqırdığa canı sıqıldı,— "müim vazife"...
+— Niçün bizge? — dep soradı Kandıba.
+— Bu qadar adam turğanda...
+— Nikolaynıñ gizli-qapaqlı laqırdığa canı sıqıldı, — "müim vazife"...
 "ükümet vazifesi".
 Böyle sözlerge ne acet?
 Yapmaq kerek olsa, yaparmız.
