@@ -456,13 +456,17 @@ Tekaran diñlenip turğan soñ, devam etti,— keçmişnen sağlıqlaşmağa qar
 — Pek nişaretli... onıñ içünmi?— dedim men.
 
 — Sen aqılsız kişi degilsiñ,— dedi maña Arhipka.
-Hatirine nedir kelgenge beñzedi.— Ekimiz niçün çatışa beremiz, bilmeyim...— Şarfını bağlağan soñ, krovatnıñ ucuna oturdı, ayaqlarını bir-biri üstüne qaçladı:—umumen... bilesiñmi ne?
+Hatirine nedir kelgenge beñzedi.
+— Ekimiz niçün çatışa beremiz, bilmeyim...
+ Şarfını bağlağan soñ, krovatnıñ ucuna oturdı, ayaqlarını bir-biri üstüne qaçladı:
+—Umumen... bilesiñmi ne?
 Ayatnıñ özü yañlış qurulğan.
 Añladıñmı?
 Yahşı kişiler şimdi yipek ile bezeli evlerde nazik hanumlarnen qonuşa, muzıka diñleyler.
 Birer qade içken soñ saatlarına baqacaqlar... yelquvan on ekini köstergende, qadeler köterilecek, bir-birlerine toquştırılacaq, kişiler bir-birlerine sağlıq-selâmetlik isteycekler.
 Soñ erkekler dudaqları boyalı ve parmaqları manikürli qadınlarnı quçaqlap, öpecekler, nazik bellerinden tutıp blüz oynaycaqlar.
-Sabağa qadar keyf çatacaqlar,— Arhipka koykası üstünde yatqan qatranlı brezent qolçaqlarını ilindirip alıp küyeli divarğa attı. — Ey, Arhipka, Arhipka!
+Sabağa qadar keyf çatacaqlar,— Arhipka koykası üstünde yatqan qatranlı brezent qolçaqlarını ilindirip alıp küyeli divarğa attı.
+— Ey, Arhipka, Arhipka!
 Bir vaqıtlarda sen de adam ediñ!
 
 Soñ Kandıbanıñ koykası yanına keldi.
