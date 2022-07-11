@@ -131,7 +131,8 @@ Nikolaynıñ sözlerini añlamadı.
 
 Tışarı çıqqan soñ, Nikolaynıñ siñirleri pek tartılğanlarını... mına-mına üzülmek üzre ekenlerini sezdim.
 
-— Seni añlamaq mümkün degil, Cevdet!— dedi o ve şırq etip yerge tükürdi, soñ potüginen üstüni taptadı.— Başıñnı soqmaq içün daima hamut arap yüresiñ!
+— Seni añlamaq mümkün degil, Cevdet! — dedi o ve şırq etip yerge tükürdi, soñ potüginen üstüni taptadı.
+— Başıñnı soqmaq içün daima hamut arap yüresiñ!
 Mansurovqa ise yalıñız saña beñzer ögüzler kerek.
 
 — Hamut?
