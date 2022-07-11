@@ -523,7 +523,8 @@ Nikolay yuvurıp barıp koykası üstüne oturdı ve gitarasını eline alıp, y
 
 Qapu açılmadı.
 
-— Ne qadar büyük nezaket!?— dedi Nikolay. — Kirmege istemeseñ, tur tışarıda, buzla!
+— Ne qadar büyük nezaket!?— dedi Nikolay.
+— Kirmege istemeseñ, tur tışarıda, buzla!
 O aqırından, nasıldır muñlı türkü yırlap başladı.
 Bu türküni ondan daa iç işitmegen edik.
 "İspaniol serenadası"... dedi.
