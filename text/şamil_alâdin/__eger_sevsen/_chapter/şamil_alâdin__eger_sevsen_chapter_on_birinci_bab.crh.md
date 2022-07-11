@@ -93,7 +93,7 @@ Bir yalıdan diger yalığa ekskavator keçirmek içün ustalıq... quvet ve ces
 Doğrumı?
 Yoqsa, bu da doğru degilmi?
 
-— Sol yalığa, draglâyn... özenniñ eñ teren yerindemi?— şay dep turğan vaqtımda qomşu odanıñ qapusına baqtım.
+— Sol yalığa, draglâyn... özenniñ eñ teren yerindemi? — şay dep turğan vaqtımda qomşu odanıñ qapusına baqtım.
 İçeride, stol başında oturğan Anna Yakovlevnanıñ sağ omuzı ve sağ ayağı... onıñ yanaşasında ise diger qadınnıñ tirsegi körünip aldı.
 İradanıñ tirsegi.
 Ekisi de bizim laqırdımıznı diñlemekteler.
