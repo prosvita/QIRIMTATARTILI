@@ -141,7 +141,7 @@ Yeñi kişilerge, eveldekisi kibi, ahret sualleri bermekte devam etti.
 
 İlki künü onıñnen körüşkende özüm de ayrette qaldım.
 Qazan içindeki etlerni alıp, çanaq içine taşlamaq içün çoq vaqıt kerekmi?
-Baqıp turam:..
+Baqıp turam:
 etni sançıp bir aldı, et vilkadan qurtulıp, qazannıñ tübüne tüşip ketti, soñra diger et kesegini qıdıra başladı.
 
 Elleri ağır qıbırdaylar, amma tili, grammofon kibi, tınmaq bilmey.
