@@ -129,7 +129,8 @@ Nikolaynıñ sözlerini añlamadı.
 
 — Kettik, — dedi maña Kandıba, laqırdığa yekün çekip.
 
-Tışarı çıqqan soñ, Nikolaynıñ siñirleri pek tartılğanlarını... mına-mına üzülmek üzre ekenlerini sezdim.
+Tışarı çıqqan soñ, Nikolaynıñ siñirleri pek tartılğanlarını...
+mına-mına üzülmek üzre ekenlerini sezdim.
 
 — Seni añlamaq mümkün degil, Cevdet! — dedi o ve şırq etip yerge tükürdi, soñ potüginen üstüni taptadı.
 — Başıñnı soqmaq içün daima hamut arap yüresiñ!
@@ -145,7 +146,7 @@ Men bilem, sen künde yedi kere gemi direginiñ töpesine çıqıp-tüşe, pol y
 Hamut degeniñ şumı?
 Sen özüñ de menim kibisiñ!
 Maña baq!
-Ne yapacaqmız!— Nikolaynıñ elinden çektim. — yaldaycaqmızmı?
+Ne yapacaqmız! — Nikolaynıñ elinden çektim. — yaldaycaqmızmı?
 
 — Ne çare?— sualime sualnen cevap berdi,— Mansurovnıñ ögünde öyle dülber nutq irad ettiñ, endi yaldamamaq mümkün degil.
 Tek yaldamaq degil... belki uçmaq da kerek olur.
