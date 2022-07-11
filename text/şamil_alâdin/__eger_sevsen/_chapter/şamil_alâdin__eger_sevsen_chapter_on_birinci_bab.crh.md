@@ -118,7 +118,8 @@ Mansurovnıñ kim ekenini bilesiñiz.
 Bu siziñnen tahminiy laqırdı.
 
 — Repetitsiya, öylemi?— Nikolay kuldi.
-Mansurovnıñ yüzü ciddiyleşti.— Tıraş ögrenüv kibi bir şey...
+Mansurovnıñ yüzü ciddiyleşti.
+— Tıraş ögrenüv kibi bir şey...
 Er türlü eksperiment bizim terimiz üstünde yapıla.
 Niçün, bilmeyim?
 
