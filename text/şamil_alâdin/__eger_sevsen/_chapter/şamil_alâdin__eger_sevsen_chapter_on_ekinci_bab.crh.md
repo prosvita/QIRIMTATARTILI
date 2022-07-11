@@ -355,7 +355,8 @@ Biz bilgen şeyimizni ayttıq.
 — Qayda olur belleysiñiz?
 Elbette, Troitsk hastahanesinde.
 
-— Kerçekten de... baq, aqılımızğa kelmedi. — Nikolay ve men turdıq, yuvurıp azbarğa çıqtıq.
+— Kerçekten de... baq, aqılımızğa kelmedi. 
+ Nikolay ve men turdıq, yuvurıp azbarğa çıqtıq.
 
 Paromğa yaqınlağanda, artımızda benzin maşinası peyda oldı.
 Çar-Çaqtan keçken soñ, onıñ kabinasına kirdik.
@@ -383,7 +384,8 @@ halatını dogmelemekte eken, yuvurıp çıqtı.
 Qaydan çıqtıñız?— dep qıçırdı o.
 
 — Afu etiñiz!— dedim men qadınğa.
-Diplomatnıñ biri: "qabalıqnı nezaket yeñer" degen. — Afu etiñiz, mında bugün Hristofor Duranidi ketirilmedimi ?
+Diplomatnıñ biri: "qabalıqnı nezaket yeñer" degen.
+— Afu etiñiz, mında bugün Hristofor Duranidi ketirilmedimi ?
 
 — Duranidi?
 Yoq.
@@ -396,7 +398,8 @@ Kim o?
 
 — Ekskavatorcı.
 
-— Azaçıq sabır etiñiz!— qadın içeri kirdi, eppi vaqıt keçken soñ, çıqtı.— Bar... amma oña kirmek olmay.
+— Azaçıq sabır etiñiz!— qadın içeri kirdi, eppi vaqıt keçken soñ, çıqtı.
+— Bar... amma oña kirmek olmay.
 
 Qadınnıñ artından esmeri erkek peyda oldı.
 Üstünde halat...
