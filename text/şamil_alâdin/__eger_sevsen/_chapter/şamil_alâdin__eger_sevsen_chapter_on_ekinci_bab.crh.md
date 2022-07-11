@@ -404,7 +404,8 @@ Kim o?
 Qadınnıñ artından esmeri erkek peyda oldı.
 Üstünde halat...
 
-— İşte, doktornıñ özü...— dedi qadın. — Bu yigitler Duranidini körmek isteyler.
+— İşte, doktornıñ özü...— dedi qadın.
+— Bu yigitler Duranidini körmek isteyler.
 Omuz kemigi sınıq... hatiriñizdemi?
 
 Doktor bizni diqqatnen közden keçirdi, soñ başını aqırından aşağı-yuqarı qıbırdattı; adetince, böyle işaret müsbet fikir ifa etkeninden, men quvana tüştim.
@@ -420,7 +421,8 @@ Gips içinde... mümkün degil.
 — Yanına barmamız.
 Uzaqtan körip çıqarmız, doktor!— dedim men öz tilimde,— işitesiñizmi, doktor?
 
-— Mümkün degil, añladıñızmı?— doktor serteyip başladı. — Bir aftadan soñ keliñiz!
+— Mümkün degil, añladıñızmı?— doktor serteyip başladı.
+— Bir aftadan soñ keliñiz!
 
 Hastahaneden çıqtıq.
 Benzin maşinasından, elbette, eser yoq edi.
