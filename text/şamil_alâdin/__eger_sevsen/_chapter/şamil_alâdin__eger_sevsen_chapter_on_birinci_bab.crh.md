@@ -6,11 +6,12 @@ Bir farqı bar: içindeki odaları çoq.
 O sebepten, men köridor boyu keteyatqanda ince divar artındaki laqırdını işitip, toqtaldım.
 Başqa kişiniñ laqırdısını diñlemek yahşı şey degil, lâkin söz özüñe ait olsa, diñlemek isteysiñ.
 
-— Menim elimden kelecek şey degil...— bu, divar artında oturğan İradanıñ davuşı edi,— men yapalmam, Anna Yakovlevna!
+— Menim elimden kelecek şey degil...— bu, divar artında oturğan İradanıñ davuşı edi, — men yapalmam, Anna Yakovlevna!
 Maña avale etmeñiz!
 
 — Niçün?
-Niçün avale etmeycek ekenim? — Krasnânskaya israr etmekte edi.— Ekskavatorcılar öz donatmalarını özleri ketirmek kerekler.
+Niçün avale etmeycek ekenim? — Krasnânskaya israr etmekte edi.
+— Ekskavatorcılar öz donatmalarını özleri ketirmek kerekler.
 Bizde takelajnikler yoq.
 Doğrusını aytsam, Mansurovqa toqunmaq isteyim.
 O pek muqayt adam.
