@@ -85,7 +85,7 @@ Eki nijnik ne yapa bilir?
 Külünçli şey.
 Nikolaynıñ başınıñ töpesindeki bir top saçı qıbırdanıp aldı.
 
-— Demek, işke bizim ekimizni yekmek isteysiñiz... öylemi, Abdulla Sadıkoviç?— dep soradı o.
+— Demek, işke bizim ekimizni yekmek isteysiñiz... öylemi, Abdulla Sadıkoviç? — dep soradı o.
 
 — Yekmek?
 Bu qaydan çıqqan ibare?
