@@ -285,7 +285,8 @@ Meni Hristofornıñ yerine qoydı, adımlarınen bir şeyler ölçedi, toqtap ne
 — Ne oldı?
 Ne demek isteysiñ?— dep soradım Nikolaydan, özüm ise qafamda asıl olğan fikir doğru olıp çıqar dep qorqtım.
 
-— Sen sus!— dedi Kandıba.— İndeme!
+— Sen sus!— dedi Kandıba.
+— İndeme!
 Soñundan añlarsıñ!
 
 Bundan soñ Nikolay iç bir şey aytmadı.
