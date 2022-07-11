@@ -96,7 +96,7 @@ Komendnant qorqtı, artına çekileyata edi, başı qapunıñ çatqısına urıp
 
 — Demek, men alıp qaçam!
 Kişige: kimsiñ?
-Qaydan keldiñ?demege aqqım yoq, öylemi?
+Qaydan keldiñ,demege aqqım yoq, öylemi?
 Seniñ baş keserleriñ geceleri qadınlarnıñ baraklarında yataqlap, piç bala yasap yürseler?
 Bu kimniñ işi ola?
 Senden sorayım!
