@@ -277,7 +277,8 @@ Tanımadıñızmı?
 
 — Yeq... niçün? — qıznıñ sesi qaltırap çıqmaqta edi,— soñki vaqıtlarda mında körünmegen ediñiz! — İrada özüni, niayet, qolğa ala başladı.
 
-— İşim tüşse, kelem... — dedim men. — Maña Toqtabayev kerek.
+— İşim tüşse, kelem... — dedim men.
+— Maña Toqtabayev kerek.
 
 — A-na, keleyata! — O başını demir yol betke siltedi.
 
