@@ -175,9 +175,11 @@ Biz qayda ketkenini añlattıq.
 Vadim Semönoviç olarnıñ peşinden yuvurıp ketti.
 
 — Mansurovqa ne oldı, aceba? — dedi Karnakeryan, taaciplenip,— "Vahid Samatoviç!
-Vahid Samatoviç!" Bir şey añlamayım.
+Vahid Samatoviç!"
+Bir şey añlamayım.
 
-— Qaydan bileyim? — dedim men. — Biz ufaq adamlarmız.
+— Qaydan bileyim? — dedim men.
+— Biz ufaq adamlarmız.
 
 — Ne belleysiñ, Cevdet?
 Menden büyük adam olurmı?
