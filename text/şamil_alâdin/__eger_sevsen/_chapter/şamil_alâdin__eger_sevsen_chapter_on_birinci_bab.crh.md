@@ -169,7 +169,7 @@ Bu yuvaş, uzaq körmez kişi mezkür hızmetni özüne pek kelişikli isap ete.
 Barakta tek Raşid bar edi.
 Stol başına oturğan, "Gülistannıñ" eski nomerini qarıştırmaqta:
 
-— Çar-Çaqtan eki draglâyn keçirmege razı olğansıñız,— dedi o bizge,— doğrumı?
+— Çar-Çaqtan eki draglâyn keçirmege razı olğansıñız, — dedi o bizge, — doğrumı?
 
 — Haberni Karamattan işitken olsañ... doğrulığına şübe yoq,— dedi Nikolay.
 
