@@ -183,7 +183,8 @@ Qaysını aceba?
 
 — Apansızdan körüştik...— dedi Raşid.
 Demek, haberni, er alda, Karamat aytqan.
-Lâkin kimden işitken?— Nege razılıq berdiñiz?
+Lâkin kimden işitken? 
+— Nege razılıq berdiñiz?
 Vazifeñiz neden ibaret, bilesiñizmi?
 
 — Bizge vazifeni bilmek şart degil,— dedim men, azaçıq külümsirep ve azaçıq ta asabiylenip,— Mansurov bilse, oldı!
