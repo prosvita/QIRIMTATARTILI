@@ -84,7 +84,7 @@ Ertesi künü plotinada yeñi smena injenerleri peyda oldılar.
 Qaydanlıq, Saplıq ve Çumbaylıqtan mirablar keldiler.
 Bu qart kişiler kestirme qurulayatqan yerni közden keçirdi, başlarını memnuniyetsiz alda oñğa-solğa salladılar.
 İndemey, yalını dolandı-dolandı soñ ateş yaqıp etrafında bağdaş qurıp oturdı, çay içmege tutundılar.
-Añlaşıla, çay içileyatqan vaqıtta messle çezilgen... iş başlağan soñ, olarnıñ büyük ustalığı köründi.
+Añlaşıla, çay içileyatqan vaqıtta mesele çezilgen... iş başlağan soñ, olarnıñ büyük ustalığı köründi.
 
 İşçiler mirablarnıñ reberligi altında büyükten-büyük tel çilterlerni suvğa yiberip, içerisine taş toldırıp, böylece, özenni bir yalıdan diger yalığa qadar adım-adım zabt ettiler.
 Eñ ögdeki kestirmeniñ işi üçünci künü aqşamğa bitti, ondan soñ aşağı kestirme işine kirişildi.
