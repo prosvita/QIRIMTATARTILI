@@ -137,7 +137,8 @@ Men Tursunovnıñ yüzüne baqtım, közleriniñ astında qara tögerekler bar e
 Onı kim yasaycaq?
 Turgenevmi?
 
-— Yoq, Raçik Unanoviç...— dedi Karnakeryan ve işaret parmağınen özüniñ kökregine türtti. — Sabadan beri toqtamay çalıştıq.
+— Yoq, Raçik Unanoviç...— dedi Karnakeryan ve işaret parmağınen özüniñ kökregine türtti.
+— Sabadan beri toqtamay çalıştıq.
 Şimdi tütün içmege oturdıq.
 Tütün içmek mümkünmi?
 Yoqsa, o da mümkün degilmi?
@@ -160,7 +161,8 @@ Eki tulumba stantsiyası yeterlikmi? — dep soradı o Tursunovdan,— belki bun
 — İşke degerlisi ne qadar?
 
 — Montaj yapayatamız, Vahid Samatoviç!
-Bitsin, körermiz. — Mansurov endi saçmalap başladı.
+Bitsin, körermiz. 
+ Mansurov endi saçmalap başladı.
 O bizge çevirilip:— çalışa beriñiz! — dep cekirdi.
 
 Biz turdıq.
