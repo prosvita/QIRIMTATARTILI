@@ -209,7 +209,7 @@ Balaban iş eken!?
 
 İrada eleslendi.
 
-— Bir tüşünip baqacaq olsañ, elbette...— dedi Arhipqa.
+— Bir tüşünip baqacaq olsañ, elbette... — dedi Arhipqa.
 Endi burğuçlap başlağanı duyuldı.
 
 ...Kerçekten de, teren ve deli Çar-Çaqtan böyle balaban agregatnı keçirmek mümkünmi?
