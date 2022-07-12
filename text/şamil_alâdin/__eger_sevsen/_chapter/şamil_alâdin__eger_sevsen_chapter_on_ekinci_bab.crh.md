@@ -157,17 +157,17 @@ Ne işnen meşğulim?
 Evlimmi?
 Qaç yaşındam?
 Raqı içemmi?
-Abs hanede oturdımmı?
+%
 Ve saire...
 Sabira hala menden bu şeylerni sorap bitirgen soñ, vilkasınen et parçasını öyle canbazlıqnen iliştirip aldı, çanaqnıñ içine öyle usta fırlatıp yiberdi ki, körmeli ediñiz...
-Felemek!
+%
 
 — Bar, otur, aşa!— dedi o maña,— lâkin, haberiñ olsun, raqı çoq adamlarnıñ boynunı urdı.
 
 Stol başına oturğan soñ, öz başıma külümsiredim.
 Halanıñ bazı suallerine hoşlandim.
 Söz sırası... men evlimmi?
-Abshanede yattımı?
+%
 Bu onıñ ne işi?
 
 Soñundan añladım.
