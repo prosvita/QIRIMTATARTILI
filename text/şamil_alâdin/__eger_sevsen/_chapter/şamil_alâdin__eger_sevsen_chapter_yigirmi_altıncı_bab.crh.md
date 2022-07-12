@@ -341,7 +341,8 @@ Elbette, Tursunov!
 Buña şübe ola bilmez.
 Amma böz közlerime inanmadım.
 
-— Baqıñız, Mavlân aka! — dedim men. — İrada ile keteyatqan kim? 
+— Baqıñız, Mavlân aka! — dedim men.
+— İrada ile keteyatqan kim?
 O meni añlamadı.
 
 — Tursunov... bana saña ayttım!
