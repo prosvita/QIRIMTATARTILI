@@ -195,7 +195,8 @@ Yeñi haber ketirdi: özenden maşina keçirüvge reberlik Almazovğa avale etil
 
 İrada közüniñ qıyığından Bassaraba betke baqtı:
 
-— Almazovğa... ve Bassarabağa!— dedi. 
+— Almazovğa... ve Bassarabağa! — dedi. 
+
 Çar-Çaqtan ekskavator keçirüv haberi tez cayrap ketti.
 Bunı er kes bildi, lâkin kim ve nasıl keçirecek?
 Kişilerni meraqlandırğanı bu edi.
@@ -203,7 +204,7 @@ Biz sustıq, bir de-bir usul tapmaq içün tüşünip başladıq.
 
 Biz tüşünmekte ekenmiz, ince Arhipkanıñ qalın sesi çıqtı.
 
-— Eki ekskavatornı bir yalıdan diger yalığa keçirmek... öylemi? — dep soradı o,— fyü!
+— Eki ekskavatornı bir yalıdan diger yalığa keçirmek... öylemi? — dep soradı o, — fyü!
 Balaban iş eken!?
 
 İrada eleslendi.
