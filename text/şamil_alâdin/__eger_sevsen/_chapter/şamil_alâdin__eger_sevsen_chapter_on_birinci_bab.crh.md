@@ -187,7 +187,7 @@ Lâkin kimden işitken?
 — Nege razılıq berdiñiz?
 Vazifeñiz neden ibaret, bilesiñizmi?
 
-— Bizge vazifeni bilmek şart degil,— dedim men, azaçıq külümsirep ve azaçıq ta asabiylenip,— Mansurov bilse, oldı!
+— Bizge vazifeni bilmek şart degil, — dedim men, azaçıq külümsirep ve azaçıq ta asabiylenip, — Mansurov bilse, oldı!
 
 Saba İrada bizim barakqa keldi.
 Ömürinde ilki defa...
