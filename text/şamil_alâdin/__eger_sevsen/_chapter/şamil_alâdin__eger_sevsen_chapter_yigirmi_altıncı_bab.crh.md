@@ -505,11 +505,13 @@ Lâkin, qıymetli dost, biz başqa şey de işittik.
 — Bir adamçıq.
 
 — Kim?! — bedenime keskin demir sançılğan kibi oldı.
-Özümni ğaip ete başladım. —Kim?
+Özümni ğaip ete başladım.
+—Kim?
 Kim?
 
 — Sen qıçırma,— dedi Hristofor.
-Yaralı omuzını yastıqqa tayap, yuqarı köterildi. — Biz sağır degilmiz!
+Yaralı omuzını yastıqqa tayap, yuqarı köterildi.
+— Biz sağır degilmiz!
 
 Men ep qasevetlendim.
 
@@ -535,6 +537,7 @@ Bu nazar maña şübeli köründi.
 Hala bir hurnazlıq daa tüşünip çıqarğanğa beñzey.
 
 — Körmedim! — dedim men.
-Yalan ayttım. — Kotlovanda iş sıqıntılı.
+Yalan ayttım.
+— Kotlovanda iş sıqıntılı.
 Pek yorulam.
 Vaqıt yoq.
