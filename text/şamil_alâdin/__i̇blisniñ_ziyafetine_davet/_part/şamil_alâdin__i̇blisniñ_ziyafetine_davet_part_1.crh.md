@@ -22,7 +22,8 @@ Qadın közlerini ögündeki cedvelden üzmey, elini maña uzattı.
 İçine pasportımnı qoydım .
 
 — Eki kümüş yetmiş kapik, – dedi maña.
-Baş parmağınen, işaret ve orta parmaqlarını çertip aldı. – “Parayı veren, düdügi çalır...” dey turğanlar bizim tatarlar.
+Baş parmağınen,işaret ve orta parmaqlarını çertip aldı.
+ – “Parayı veren, düdügi çalır...” dey turğanlar bizim tatarlar.
 
 Yeşil parikli qadın bu sözlerni tatarca söyledi, soñra soza berip, esnedi.
 Esnegeninden özü utandı, ğaliba, avuçınen ağızını qapadı, dülber külümsiredi.
@@ -106,7 +107,8 @@ Erteyarıq şeerge çıqıp, işimni baqmağa mecbur ekenligim içün onda
 Arhiv idaresinden... vesiqa.
 
 – Arhiv?
-A! – Georgios, qaqına berip, kevdesini doğrulttı, işaret parmağını ziyade töpege köterdi. – Cenkten evel, anda, arhivde... qart karaim çalışa edi, – dedi o. – Onıñle qomşu edik.
+A! – Georgios, qaqına berip, kevdesini doğrulttı, işaret parmağını ziyade töpege köterdi.
+– Cenkten evel, anda, arhivde... qart karaim çalışa edi, – dedi o. – Onıñle qomşu edik.
 Men yengilden başımnı eki defa qaqıttım.
 Bu qaqıtuvlar, şübesiz, qomşumnıñ sözlerine razılığımnı, yahut itirazımnı ifade içün degil, belki onıñ sadelegine kösterdigim nezaket edi.
 Georgios onı añlamadı.
@@ -367,7 +369,8 @@ Georgios beli üstünde köterildi.
 Arqası qırmızı tamğalarnen bezenik edi.
 Ufaq taşlar tenine batıp-batıp ketkenler.
 
-– Menmi? – dedim Georgiosqa. – Menim doğğan yerim...
+– Menmi? – dedim Georgiosqa.
+– Menim doğğan yerim...
 
 Oña cevap bermege tedariklengen vaqıtımda özü şarhıldap, çaqıl üzerine tüşti, uzanıp, susıp qaldı.
 Bir şeyler aytırmı eken dep bekledim.
