@@ -519,7 +519,7 @@ Bir şeyler yapmaq kerek.
 Lâkin ne?
 Ketip, İradanı qıdırayımmı?
 Niçün!
-O qolaysız vaqia dan soñmı?
+O qolaysız vaqiadan soñmı?
 
 Soyunıp, yattım.
 
