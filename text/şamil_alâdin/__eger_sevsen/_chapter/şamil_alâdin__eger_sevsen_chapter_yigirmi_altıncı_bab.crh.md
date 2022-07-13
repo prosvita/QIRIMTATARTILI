@@ -472,13 +472,16 @@ Men söz qatmadım... kürsüge oturıp, diñledim:
 "mio Karo, mio Karo".
 Lâkin yüregimni keder bastı.
 
-— Niçün aşamağa ketmeysiñ? — dep soradı Nikolay menden.— Tezden aşhane qapalacaq.
+— Niçün aşamağa ketmeysiñ? — dep soradı Nikolay menden.
+— Tezden aşhane qapalacaq.
 Aç qalırsıñ.
 
-— İstemeyim!— dedim men. — Çal!
+— İstemeyim!— dedim men.
+— Çal!
 Yırla!
 
-— Seni añlamaq qıyın!— Hristofor yekâne közünen hucur-hucur baqtı. — De öylesiñ!
+— Seni añlamaq qıyın!— Hristofor yekâne közünen hucur-hucur baqtı.
+— De öylesiñ!
 De böyle.
 Seni ne tişledi?
 
@@ -486,7 +489,8 @@ Seni ne tişledi?
 Siz ise mio Karo...
 
 — İşittik.
-Bilemiz,— dedi Nikolay. — Menim gitara çalğanıma baqma.
+Bilemiz,— dedi Nikolay.
+— Menim gitara çalğanıma baqma.
 Bu — keyflenüv degil.
 Anna Yakovlevna ketti.
 Yañçıq işittik.
