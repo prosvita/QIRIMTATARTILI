@@ -65,7 +65,7 @@ Torizo onıñ, eksperimentlernen oğraşmağa sevgenini ve bu bala areketleri on
 Anna Yakovlevna, Torizonıñ bu sözlerini kabinetteki prorablarğa beyan etti.
 İrada iddetlenip turdı, telefon trubkasına yapıştı, naçalnikke bu hususta öz fikirini bildirmek istedi.
 Çoq künler keçken soñ, İrada özüniñ böyle yapqanını maña söylegende, közleri öyle büyük kedernen yandılar ki, men ister-istemez Elpideni hatırladım.
-O da, qaarlense, yana-küye turğan.
+%
 
 Curayev büyüklernen, kestirme yapılıp bitken soñ laqırdı etmek kelişikli ekenini, ondan evel bu hususta obkom ile aqıl tanışmaq istegenini söyledi.
 Bölük reberleri onıñ fikrine razı oldılar.
