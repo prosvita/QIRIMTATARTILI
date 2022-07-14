@@ -245,8 +245,10 @@ Qısqası, sabağa yaqın maalde sarğuş alda, entir-tentir keldi.
 Arhipka açuvlanmadı.
 
 — Çalışmağa ne acet?
-Ekskavatorlarnı sol yalığa keçirsek, oldı,— Arhipka qızarıq ve areketsiz közlerinen küldi,— ne?
-İçmek isteysiñmi?— dep soradı Nikolaydan,— rica etem! — fufaykasınıñ cebinden şişe çıqardı: — Afyon patlatmaq içün qaldırğan edim.
+Ekskavatorlarnı sol yalığa keçirsek, oldı, — Arhipka qızarıq ve areketsiz közlerinen küldi, — ne?
+İçmek isteysiñmi? — dep soradı Nikolaydan, 
+— rica etem! — fufaykasınıñ cebinden şişe çıqardı:
+— Afyon patlatmaq içün qaldırğan edim.
 
 — Maña raqıñ kerekmey!
 Kişilerniñ qafaları ükümet meselesine meşğul.
