@@ -290,12 +290,13 @@ Arhipka oña küsti, sarğuşlığı deral bitip ketti.
 Maşinanı özenden keçirüvniñ yeñi proyektini muzakere işine o da qoşuldı.
 
 — Meni yamanlamaqtan başqa şey bilmeysiñiz.
-Arhipka öyle, Arhipka böyle... çana yasamaq fikiri evelâ kimniñ aqılına keldi?
+Arhipka öyle, Arhipka böyle... 
+çana yasamaq fikiri evelâ kimniñ aqılına keldi?
 Arhipkanıñ degilmi?
 Amma bir adam sorasa: özümiz tüşünip çıqardıq, dersiñiz.
 Men bilem...
 Şimdi Şadmanovağa barıp aytam: bu usulnı men keşf ettim.
-Ebet!— Arhipka fufaykasını kiyip, qapuğa doğruldı.
+Ebet! — Arhipka fufaykasını kiyip, qapuğa doğruldı.
 
 — Paçavrasıñ sen!— dedi Kandıba.— Maña baq!
 Bizge seniñ şüretiñ kerekmey!
