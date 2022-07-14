@@ -265,19 +265,19 @@ Bunıñ üstünde gece-kündüz tüşünmek ne kerek?
 Ağaçtan balaban çana yasamalı, üstüne qoyıp alıp ketmeli, vesselâm!
 — Arhipka şah-şah küldi.
 
-— Yat, yuqla,— dedi oña Kandıba,— sen yuqlamağa sevesiñ.
+— Yat, yuqla, — dedi oña Kandıba, — sen yuqlamağa sevesiñ.
 Miyiñ de daima yuqlay.
 
 — Yuqlağanı ne?
 Men doğrusını aytam!
 
 — Toqta!
-Toqta!— dedi Kandıba, işaret parmağını köterip,— aqiqaten, zevqlı.
+Toqta! — dedi Kandıba, işaret parmağını köterip, — aqiqaten, zevqlı.
 Maşinanı çanağa belki bütünley qoymaq olmaz, lâkin yelkuvannı ayrı, kevdesini ayrı keçirmek mümkün.
 
-— Aferin, Arhipka!— dedim men.
+— Aferin, Arhipka! — dedim men.
 
-— Niçün aferin?— Arhipka taaciplendi. 
+— Niçün aferin? — Arhipka taaciplendi.
 Kandıba işke ciddiy ve muqayt baqıcı kişi.
 
 — Bunı saña kim ögretti?— dep soradı Arhipkadan.
