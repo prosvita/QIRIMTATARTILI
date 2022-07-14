@@ -317,7 +317,8 @@ O qadar çoq yıllar keçken... kimse onıñle meraqlanmağan.
 Kimsege kerek olmağan.
 Kerek olmağanmı aceba?
 İlya İsaakoviçke yalvardım.
-“Bu vesiqa şahsen menim içün kerek degil, qardaş! – dedim oña. – Halq içün.
+“Bu vesiqa şahsen menim içün kerek degil, qardaş! – dedim oña.
+ – Halq içün.
 Sizge rica etem, alicenap oluñız!
 Sizniñ ve menim ana tillerimiz bir.
 Türkülerimiz bir.
@@ -328,13 +329,15 @@ Şabşal aytqanlarımnı diqqatle diñledi.
 Diñledi, tüşündi... ve biraz yiberilgen kibi oldı.
 Yüzündeki sıqıntı çezildi.
 
-– Hadimlernen laqırdı etip baqayım, – dedi o. – Razı olsalar... siz burskün keliñiz!
+– Hadimlernen laqırdı etip baqayım, – dedi o.
+ – Razı olsalar... siz burskün keliñiz!
 
 Burskün... bu bir afta degil.
 Bala kibi sevinip, yerimden qalqtım.
 İlya İsaakoviçke teşekkür aytıp, qapuğa doğrulğan edim, arqamdan onıñ tınıq, ümütsiz sesi eşitildi.
 
-– Men, elbette, ğayret eterim, – dedi İlya İsaakoviç. – Lâkin malümat barmı...
+– Men, elbette, ğayret eterim, – dedi İlya İsaakoviç.
+– Lâkin malümat barmı...
 Tapılırmı?
 
 Şabşalnıñ bu soñki sözleri qulaqlarıma süngü kibi sançıldılar, olarnı eşitmegen, añlamağan olıp, çıqıp kettim.
@@ -412,10 +415,12 @@ İlya İsaakoviçte, ütekündeki kibi, perişan nazarlar, saçıq fikirl
 O divarğa tayalı uzun masa başında, arqasını zalnıñ ortasına çevirilip oturğanı alda, çullu kâğıt parçalarını tutqalnen yapıştırıp, çini tabaqlar astında qurutmaqta edi.
 Menimnen ana tilimizde qonuştı, qolumnı hoşnutlıq ile sıqtı, bir de salladı.
 
-– Oturıñız! – dedi maña İlya İsaakoviç, özüniñkine beñzemez, yañğıravuq davuşnen. – İşlerimiz, zanıma qalsa, fena degil.
+– Oturıñız! – dedi maña İlya İsaakoviç, özüniñkine beñzemez, yañğıravuq davuşnen.
+– İşlerimiz, zanıma qalsa, fena degil.
 
 – Öylemi, İlya İsaakoviç? – dep qıçırdım men.
-İçimdeki sevinçni baş etip olamadım. – Mümkün olsa, fikiriñizni açıqça ifa etiñiz!
+İçimdeki sevinçni baş etip olamadım.
+– Mümkün olsa, fikiriñizni açıqça ifa etiñiz!
 
 Üyken ilmiy hadim sözlerimni eşitmedi.
 Belki, eşitti, lâkin yersiz esap ettimi, Alla bilsin, emiyet bermedi, nazarı masanıñ bir çetinden diger çetinece yuvurdı ve tekrar keri döndi.
@@ -425,7 +430,8 @@ Olarnıñ yerlerine başqalar qoyulğan.
 İlya İsaakoviç kenardaki deste arasına eki parmağını tıqtı, iri, yeşil cıltnı çekip çıqardı.
 
 – İşte, Harcibiye vaqiası... – dedi arhivarius.
-Cıltnıñ üstündeki toznı paçavranen yengilden sildi, yiplerini çezip, ögüme qoydı. – Qıdıra-qıdıra hadimlerimiz elden-ayaqtan ayrıldılar.
+Cıltnıñ üstündeki toznı paçavranen yengilden sildi, yiplerini çezip, ögüme qoydı.
+ – Qıdıra-qıdıra hadimlerimiz elden-ayaqtan ayrıldılar.
 Aqibeti, taptılar.
 Özüm de yardım ettim.
 Baqıñız!
@@ -440,7 +446,6 @@ Cılt içindeki sözler qalın ariflernen, sıq satırlarnen yazılğan.
 
 “Mezkür dava Harcibiye qariyesi sakini Acı Erbain Emirzaq oğlunıñ adam öldürüvde qabaatlanuvı hususında tertip olunıp, tedqiq ve talil makeme palatası reisi tarafından 1913 senesiniñ sekizinci dekabr çarşenbe künü Kefe uyezdi sulh akimi yardımcısı Kazimir İllarionoviç Maklahovğa avale idilmiştir”.
 Ekinci vesiqa makeme pristavınıñ, adam öldürilüvine dair aktı.
-
 Soñra Kökköz qariyesinden Ümer Malaycınıñ okrug makemesine, Acı Erbainniñ cinaiy işini baquv aqqındaki arzualı, Emirzaq oğlunıñ Taş Alçın ekiminden, başı yaralı ekeni hususında taqdim etken sahta şaadetnamesi ve mühtelif makemelerniñ qısqa üküm-qararları bulunmaqtalar.
 Makeme vesiqalarına, vicdan saibi, alçaq rutbeli jandarm memurlarınıñ habernameleri de tikilip qoyulğan.
 Bu habernamelerde makeme hadimleriniñ Acı Erbain işindeki suistimali tasvir etilmekte.
@@ -468,13 +473,13 @@ Elemge kömülip, ümütten üzülip oturğan vaqıtımda İlya İsaako
 – Nasıl?
 Kelişikli malümat barmı? – dep soradı o menden.
 
-– Teessüf... – dedim men. – Teren nefes aldım. – Qıymetli şeyler beklegen edim.
+– Teessüf... – dedim men.
+– Teren nefes aldım.
+ – Qıymetli şeyler beklegen edim.
 Ümütlerim elâk oldılar.
 
 Arhivarius sözlerime itiraz etmedi, fikirime qoşulğanı da duyulmadı.
-Ögümdeki “Acı Erbain
-
-Emirzaq oğlu davası”nı çetke sürdi, onıñ yerine diger cılt qoydı.
+Ögümdeki “Acı Erbain Emirzaq oğlu davası”nı çetke sürdi, onıñ yerine diger cılt qoydı.
 Men taaciplendim.
 Şabşalğa ne aytmağa bilmey, yavaştan cıltnı açtım.
 Açqanımnen, yüzüme uzaq yıllarnıñ rutubet qoqusı urdı.
@@ -492,13 +497,16 @@ Saifeler üzerinde qara qarındaşnen sıra nomerler qoyulğan, kimerleri sil
 Bu sebepten elyazmanıñ episi qaç betten ibaret ekenini birden aytmaq qıyın.
 Baştan-ayaq sayıp çıqmaq kerek.
 
-– Bu esrarlı yazılar ne demek ola? – dep soradım İlya İsaakoviçten. – Bu gizlilikle örtüli, tiftikli kâğıtlar?!
+– Bu esrarlı yazılar ne demek ola? – dep soradım İlya İsaakoviçten.
+ – Bu gizlilikle örtüli, tiftikli kâğıtlar?!
 
 Üyken ilmiy hadim indemedi.
 İçimde bir qorqu, aynı zamanda, hoşnutlıq is ettim.
 Niçün qorqu is ettim, özüm de añlap olamadım.
 
-– İblismi?... – Şabşal omuzım üstünden cıltqa közetti. – Bu, nurlu ğayeler oğrunda şeit ketken ulu şahsnıñ ayatı aqqında hatirat, – dedi maña. – Evellerde... yaş çağımda, matüvlik ettim.
+– İblismi?... – Şabşal omuzım üstünden cıltqa közetti.
+ – Bu, nurlu ğayeler oğrunda şeit ketken ulu şahsnıñ ayatı aqqında hatirat, – dedi maña.
+ – Evellerde... yaş çağımda, matüvlik ettim.
 Bu yazılarnı kimsege köstermedim.
 Köstergen olsam, belki kimgedir faydası olur edi.
 Elyazmanıñ bu binada, bu küskün qamerlerde o qadar yıllar yatuvından kim, ne qazandı, aceba?
@@ -509,7 +517,8 @@ Sağ tirsegiñiz yanındaki “Erbain Emirzaq oğlu davası”nda qıymetli m
 
 – Hatirat... – men taaciplendim, – o siziñ qoluñızğa nasıl tüşti?
 
-– Todor Tsanov bağışladı, – dep cevap berdi İlya İsaakoviç. – Meşur advokat.
+– Todor Tsanov bağışladı, – dep cevap berdi İlya İsaakoviç.
+– Meşur advokat.
 On bir yıl evelsi vefat etti.
 İnqilâp vaqıtında şeerge bir akimiyet kelip, diger akimiyet ketken, qalabalıq devirde, onıñ evinde Asan Kara gizlengen.
 Özü bolşeviklerden eken.
@@ -529,7 +538,8 @@ Direktorğa çaptım.
 Pavel Tarasoviç, çeremdeki eyecannı eslep, külümsiredi, ama meramımnı bilgen soñ, ne demege bilmey, yelkesini qaşıdı.
 
 “Bu bir kitap olsa... söz kelimi, eki yüz on yıl muqaddem neşir etilgen eser olsa, iç itiraz etmez edim, çünki kitap degen şey oqulmaq içün neşir etile.
-Yazıp al, ne isteseñ, onı yap, – dedi direktor. – Ama bu emsalsiz elyazma.
+Yazıp al, ne isteseñ, onı yap, – dedi direktor.
+– Ama bu emsalsiz elyazma.
 Daa neşir etilmegen.
 Birevniñ variyeti... onı bütünley yazıp aluvğa izin bermege aqqım yoq.
 Sizge kerekmi?
@@ -598,7 +608,8 @@ Bugün tayaqsızım.
 Nevbetçi ekimge yalvardım: “Aytıñız o, eli maşalığa, tayaqlarımnı qaytarıp bersin...” dedim.
 Ekim boyunını qıstı.
 Küldi.
-“Revekka menim emirimni eda etti, – dedi maña. – Öz ayaqlarıñnen özüñ añlaş!
+“Revekka menim emirimni eda etti, – dedi maña.
+ – Öz ayaqlarıñnen özüñ añlaş!
 Saibine namuslı hızmet etsinler.
 Tezden cebege qaytacaqsıñ!”.
 
