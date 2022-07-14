@@ -320,14 +320,14 @@ Arhipka üstündeki fufaykasını çıqardı, soñra kölmegini yırtıp, köter
 
 Biz ayretlendik, bir-birimizge baqıştıq.
 
-— Böyle adamda bile kibir ola...— dedi Hristofor ve küldi.
+— Böyle adamda bile kibir ola... — dedi Hristofor ve küldi.
 
 — Şeytanlı...— dedi Kandıba, başını çetke siltedi.
 
-— Magellan!— dedi Raşid, omuzlarnı qıstı.
+— Magellan! — dedi Raşid, omuzlarnı qıstı.
 
 — Ayınsın.
-Biraz esini toplasın,— dedi Karim.
+Biraz esini toplasın, — dedi Karim.
 
 — Elbette!— dep ilâve etti Bassaraba. 
 Men Arhipka İradanı begengenine ve bu nefishor, bralqı kişide İradağa nisbeten sevgi ve işanç yaşağanına taaciplendim.
