@@ -262,7 +262,8 @@ Keder etme!
 
 — Hucur adamlarsıñız...
 Bunıñ üstünde gece-kündüz tüşünmek ne kerek?
-Ağaçtan balaban çana yasamalı, üstüne qoyıp alıp ketmeli, vesselâm!— Arhipka şah-şah küldi.
+Ağaçtan balaban çana yasamalı, üstüne qoyıp alıp ketmeli, vesselâm!
+— Arhipka şah-şah küldi.
 
 — Yat, yuqla,— dedi oña Kandıba,— sen yuqlamağa sevesiñ.
 Miyiñ de daima yuqlay.
