@@ -298,13 +298,15 @@ Men bilem...
 Şimdi Şadmanovağa barıp aytam: bu usulnı men keşf ettim.
 Ebet! — Arhipka fufaykasını kiyip, qapuğa doğruldı.
 
-— Paçavrasıñ sen!— dedi Kandıba.— Maña baq!
+— Paçavrasıñ sen! — dedi Kandıba.
+— Maña baq!
 Bizge seniñ şüretiñ kerekmey!
 
 — Kerekmi?
 Kerekmeymi?
 Onı körermiz.
-Men kettim...— qapunı açtı, çıqayatqanda ilâve etti:— Şadmanovağa bildirecegim.
+Men kettim... — qapunı açtı, çıqayatqanda ilâve etti:
+— Şadmanovağa bildirecegim.
 
 Lâkin tezden Arhipka qaytıp keldi.
 Pek açuvlı edi.
