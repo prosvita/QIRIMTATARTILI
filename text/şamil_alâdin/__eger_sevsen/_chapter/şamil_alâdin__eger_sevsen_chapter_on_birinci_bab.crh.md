@@ -239,7 +239,7 @@ Basitniñ aytqanına köre, gidromonitorlarnıñ baragında eken.
 Amma Rahil bunı inkâr etti.
 Qısqası, sabağa yaqın maalde sarğuş alda, entir-tentir keldi.
 
-— Bu alıñnen nasıl çalışacaqsıñ, sersem?— dedi Nikolay.
+— Bu alıñnen nasıl çalışacaqsıñ, sersem? — dedi Nikolay.
 Çeñgesinden türtti.
 
 Arhipka açuvlanmadı.
