@@ -58,15 +58,18 @@ Tünevin ketip özüniñ eski evini qıdırğan, tapıp olamağan.
 Evniñ yerinde üç qatlı univermag yasalğan.
 Eski aşnalarından kimse qalmağan.
 
-— Bu yaqlarğa ne munasebetnen tüştiñiz? – dep soradı menden Georgios Monolupolos. – İstiraat etmek isteysiñizmi?
+— Bu yaqlarğa ne munasebetnen tüştiñiz? – dep soradı menden Georgios Monolupolos.
+ – İstiraat etmek isteysiñizmi?
 
 — Ebet!
 İstiraat içün kelgen edim, – dedim men ve öyle degende köküs keçirgenimni duymay qaldım.
 Niçün köküs keçirdim?
 Vaqıtnıñ tez keçip ketkenine yazıqsındımmı?
-Özüm de bilmeyim. – Endi keri qaytam.
+Özüm de bilmeyim.
+– Endi keri qaytam.
 
-— Afu etiñiz, – Georgios elindeki gazetanı krovat üstüne bıraqıp, kevdesini doğrulttı. – Banadan beri sizge baqam... tanış kişime beñzeysiñiz.
+— Afu etiñiz, – Georgios elindeki gazetanı krovat üstüne bıraqıp, kevdesini doğrulttı.
+ – Banadan beri sizge baqam... tanış kişime beñzeysiñiz.
 Elbet, pek tanış kişime...
 – Siz Fener Burunda yaşamağanmı ediñiz?
 
@@ -95,20 +98,23 @@ Episinden vazgeçken.
 Mında birevlerni tapıp, birevlerge sığınıp, ömüriniñ soñki aylarını, belki de künlerini sükünette keçirmek istey.
 
 — Yoq.
-Fener Burunda yaşamadım, – dedim men qomşuma. – Sizni ilki körüşim.
+Fener Burunda yaşamadım, – dedim men qomşuma.
+ – Sizni ilki körüşim.
 
 Georgios maña kederli-kederli baqtı, bir şeyler aytmaq istep, tamşandı.
 Men kiyindim.
 Erteyarıq şeerge çıqıp, işimni baqmağa mecbur ekenligim içün ondan afu istedim.
 
-– Nasıl iş? – dep soradı Georgios. – Poyezdge bilet almaq kerekmi?
+– Nasıl iş? – dep soradı Georgios.
+ – Poyezdge bilet almaq kerekmi?
 
 – Hayır!
 Arhiv idaresinden... vesiqa.
 
 – Arhiv?
 A! – Georgios, qaqına berip, kevdesini doğrulttı, işaret parmağını ziyade töpege köterdi.
-– Cenkten evel, anda, arhivde... qart karaim çalışa edi, – dedi o. – Onıñle qomşu edik.
+– Cenkten evel, anda, arhivde... qart karaim çalışa edi, – dedi o.
+ – Onıñle qomşu edik.
 Men yengilden başımnı eki defa qaqıttım.
 Bu qaqıtuvlar, şübesiz, qomşumnıñ sözlerine razılığımnı, yahut itirazımnı ifade içün degil, belki onıñ sadelegine kösterdigim nezaket edi.
 Georgios onı añlamadı.
@@ -136,7 +142,7 @@ Teessüf, özüm de yahşı bilmeyim.
 Tek... ne kerekligini bilem.
 Serjant yaş kişi.
 Yaqında ordu hızmetinden kelgenge beñzey.
-Laqırdısında, areketlerinde kazarma tertibi sezilmekte.
+Laqırdısında, areketlerinde kazarma tertibi sezilmekte .
 Onıñ bu yerdeki hızmeti başqaca.
 Stol başında otura, ögünde eki telefon – biri içki, digeri tışqı dünya ile alâqa içün.
 Çañ seslense, trubkanı kötere, cevap bere.
@@ -148,7 +154,8 @@ Bunı militsiya serjantına aytıp añlatmağa borclum.
 Aks taqdirde...
 Yoq!
 Meseleni, olğanı kibi ayttım.
-“İş şöyle, qardaş! – dedim oña. – Maña müim vesiqa kerek.
+“İş şöyle, qardaş! – dedim oña.
+– Maña müim vesiqa kerek.
 Öyle vesiqa ki, bizim edip...”
 
 Serjant sözümni bölip, şahsiyetimni tasdıqlayıcı kâğıt talap etti.
@@ -173,13 +180,15 @@ Direktor kirgenimizni duymadı.
 Stol ögünde turıp, eppi bekledik.
 
 – Pavel Tarasoviç!
-Kişi uzaqtan kelgen, – dedi saqallı, başını maña taba siltep. – Sizde işi bar.
+Kişi uzaqtan kelgen, – dedi saqallı, başını maña taba siltep.
+ – Sizde işi bar.
 
 Sustı, bekledi.
 Direktor ise kâğıtlardan nazarını üzmedi, atta birde-bir müçesini qıbırdatmadı.
 
 – Uzaqtanmı? – dep soradı o, hayli vaqıttan soñ.
-Biz ayaq üstünde turıp, endi yoruldıq. – Uzaqtan kelgen olsa, ayt... kirsin!
+Biz ayaq üstünde turıp, endi yoruldıq.
+ – Uzaqtan kelgen olsa, ayt... kirsin!
 
 – O yanıñızda.
 
@@ -198,7 +207,8 @@ Biz qol tutuştıq.
 Pavel Tarasoviç menim ne zenaat kişisi ekenligimnen meraqlandı.
 Merağını qanaatlendirdim .
 
-– Maña Harcibiye vaqiası aqqında malümat kerek, – dedim direktorğa. – Bu çoq yıllar evelsi olğan şey.
+– Maña Harcibiye vaqiası aqqında malümat kerek, – dedim direktorğa.
+ – Bu çoq yıllar evelsi olğan şey.
 
 Direktor aytqanımnı añlamadı, maña cılpcılp baqtı.
 Men duydım, o şimdi: “Harcibiye degeni ne?” dep soraycaq.
@@ -208,7 +218,8 @@ O sebepten, aldını çaldırıp, dedim, – Harcibiye... köyniñ adı.
 Köyniñ adımı?
 Öyle olsa, siz mında adaşıp tüşkensiñiz.
 Biz – şeermiz.
-Köyler oblast arhivinde... – Direktor çeñgesini köterip, pencereden tışqa... skelege yanaşa yatqan beyaz gemi betke baqıp, eppi vaqıt hayalsırap oturdı, niayet, başını tersine qaqıttı. – Öyle köy yoq.
+Köyler oblast arhivinde... – Direktor çeñgesini köterip, pencereden tışqa... skelege yanaşa yatqan beyaz gemi betke baqıp, eppi vaqıt hayalsırap oturdı, niayet, başını tersine qaqıttı.
+– Öyle köy yoq.
 
 Pavel Tarasoviç kütür, quru adamğa beñzemey.
 Bunı kabinetke kirgenimnen duydım.
@@ -223,7 +234,8 @@ Men ise ondan, işke alâqası yoq şeyni soramaqtan qaçındım.
 Ekimiz de sustıq, bekledik.
 Niayet, içeri külrenk saçlı, yüksek kişi kirdi.
 
-– İşte, İlya İsaakoviçniñ özü, – dedi direktor, kişini maña taqdim eterek. – Tarih fenleri namzeti.
+– İşte, İlya İsaakoviçniñ özü, – dedi direktor, kişini maña taqdim eterek.
+– Tarih fenleri namzeti.
 Arhivniñ perisi.
 Babası ...
 İsaak Garipoviç de çoq yıllar bizde işlegen.
@@ -241,7 +253,9 @@ Özüñiz, İlya İsaakoviç, añlatıñız!
 Pavel Tarasoviçniñ, aramızda olıp keçken subetni Şabşalğa naql etüvi kinayeli olıp çıqsa da, tarih fenleri namzeti onı sabırnen diñledi.
 Laf soñuna yaqınlağanda, özü farqına barmayıp, sağ eliniñ üç parmağını toplay berip, sol avuçı içine urdı.
 
-– Bar edi... – dedi İlya İsaakoviç. – Bir vaqıtlarda öyle köy bar edi, – soñ menden. – Sizni meraqlandırğan mesele ne? – dep soradı.
+– Bar edi... – dedi İlya İsaakoviç.
+– Bir vaqıtlarda öyle köy bar edi, – soñ menden.
+ – Sizni meraqlandırğan mesele ne? – dep soradı.
 
 – Emirzaq oğlunıñ işi.
 
@@ -257,13 +271,16 @@ Bu arhivde öyle adlarnıñ añılmağanı çoq vaqıtlar oldı.
 Emirzaq oğlu yerli pomeşçiklerniñ biri.
 Şimdi o, niçün kerek oldı, aceba?
 
-– Harcibiye vaqiası... cinaiy iş, – dedi Şabşal. – Nasıldır oca öldürilgen.
+– Harcibiye vaqiası... cinaiy iş, – dedi Şabşal.
+– Nasıldır oca öldürilgen.
 Otuzıncı yıllarda ilmiy-tedqiqat institutı kişileri kelip, ocanıñ nasıldır cönküni qıdırğanlar.
 Babam – İsaak Garipoviç aytqan edi.
-Emirzaq oğlu! – Şabşal direktor betke çevirildi. – Soñ?
+Emirzaq oğlu! – Şabşal direktor betke çevirildi.
+– Soñ?
 Ne yapacaqmız? – dep soradı ondan.
 
-– Baqıñız, – dedi Pavel Tarasoviç. – Malümat olsa, yardım etiñiz!
+– Baqıñız, – dedi Pavel Tarasoviç.
+ – Malümat olsa, yardım etiñiz!
 
 İlya İsaakoviç, parmağını qarmaq şekilli etip, maña kösterdi.
 Bu ne demek edi... añlamadım, er alda, peşinden çıqtım.
@@ -275,7 +292,8 @@ Soñra, şahsiyetime ait anketalar toldurdım.
 Özüme zarur malümat aqqında resmiy sımarış yasadım.
 İlya İsaakoviç kâğıtlarımnı toplap, kence ilmiy hadimge teslim etti.
 
-– Yahşı... – dedi Şabşal maña. – Bir aftadan soñ kelip haber alıñız!
+– Yahşı... – dedi Şabşal maña.
+ – Bir aftadan soñ kelip haber alıñız!
 
 İçime buz tüşti.
 Qaburğamdaki etler öyle ağırdılar ki, çıdap olamay, ayqırıp yibere yazdım.
@@ -283,7 +301,8 @@ Özümni zornen tuttım.
 Asabiy kerginlik sebebinden olsa kerek, hucur şey, soñundan niçündir, külümsiredim.
 Şabşal taaciplenip, közlerini lipildetti.
 
-– Siz ne aytasıñız? – dedim men üyken ilmiy hadimge. – Menim ihtiyarımda eki kün bar.
+– Siz ne aytasıñız? – dedim men üyken ilmiy hadimge.
+– Menim ihtiyarımda eki kün bar.
 Bu müddet içinde işim bitmek kerek.
 Bitmese, episini taşlap, ketecegim.
 Ve on beş yıldan beri yüregimni kemire kelgen niyetten vazgeçecegim.
