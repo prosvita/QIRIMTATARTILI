@@ -277,10 +277,11 @@ Maşinanı çanağa belki bütünley qoymaq olmaz, lâkin yelkuvannı ayrı, kev
 
 — Aferin, Arhipka! — dedim men.
 
-— Niçün aferin? — Arhipka taaciplendi.
+— Niçün aferin? — Arhipka taaciplendi. 
+
 Kandıba işke ciddiy ve muqayt baqıcı kişi.
 
-— Bunı saña kim ögretti?— dep soradı Arhipkadan.
+— Bunı saña kim ögretti? — dep soradı Arhipkadan.
 
 — Neni?
 
