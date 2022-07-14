@@ -256,8 +256,9 @@ Keder etme!
 
 — Nasıl ükümet meselesi?
 
-— Ekskavatornı sol yalığa keçirmek...— dedi Nikolay.— Buña "ükümet meselesi" deyler.
-İnanmasañ, Mansurovtan sora.
+— Ekskavatornı sol yalığa keçirmek... — dedi Nikolay.
+— Buña "ükümet meselesi" deyler.
+İnanmasañ, Mansurovtan sora. 
 
 — Hucur adamlarsıñız...
 Bunıñ üstünde gece-kündüz tüşünmek ne kerek?
