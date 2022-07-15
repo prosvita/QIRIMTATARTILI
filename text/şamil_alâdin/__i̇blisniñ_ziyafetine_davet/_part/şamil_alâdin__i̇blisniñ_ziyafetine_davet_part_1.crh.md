@@ -338,7 +338,7 @@ İlya İsaakoviçke teşekkür aytıp, qapuğa doğrulğan edim, arqamda
 
 – Men, elbette, ğayret eterim, – dedi İlya İsaakoviç.
 – Lâkin malümat barmı...
-Tapılırmı?
+Tapılırmı ?
 
 Şabşalnıñ bu soñki sözleri qulaqlarıma süngü kibi sançıldılar, olarnı eşitmegen, añlamağan olıp, çıqıp kettim.
 Şeer caddelerinde insan dalğaları öktemlenmekte, qaynamaqta.
