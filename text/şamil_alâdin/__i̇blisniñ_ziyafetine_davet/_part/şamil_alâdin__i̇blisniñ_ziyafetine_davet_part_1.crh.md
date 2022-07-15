@@ -364,7 +364,7 @@ Ertesi künü ekimiz deñiz sailine kettik.
 Suv cıllı edi.
 Men çoq yuvundım.
 Georgios soyundı... brezent qasnaq altında çaqıl üstüne çalqağa tüşip yattı.
-Yuvunmadı.
+Yuvunmadı .
 Kimerde başını köterip, menim deñizdeki areketlerime közetti.
 Suv sportu mearetimden pek hoşnut körünmedi.
 
