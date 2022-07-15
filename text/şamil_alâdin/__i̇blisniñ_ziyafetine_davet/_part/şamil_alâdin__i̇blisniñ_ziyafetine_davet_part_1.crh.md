@@ -387,7 +387,6 @@ Bugün hatirine kene menim doğğan yerim keldi... zevqlı.
 Yarın men bu şeerden ketecegim.
 O qalacaq.
 
-Georgios beli üstünde köterildi.
 Arqası qırmızı tamğalarnen bezenik edi.
 Ufaq taşlar tenine batıp-batıp ketkenler.
 
@@ -396,7 +395,6 @@ Ufaq taşlar tenine batıp-batıp ketkenler.
 
 Oña cevap bermege tedariklengen vaqıtımda özü şarhıldap, çaqıl üzerine tüşti, uzanıp, susıp qaldı.
 Bir şeyler aytırmı eken dep bekledim.
-Bir daqiqadan soñ Qara Dağ kibi yüksek, çıtırman yünlü qursağı yuqarı köterilip, aşağı engeni... köterilip – engen sayın dudaqları arasından sızğıruvğa beñzer vızıltı çıqqanı sezildi.
 
 Men kiyindim, musafirhanege qayttım.
 Caddeler İgor Oystrahnıñ kontsert afişalarınen örtüli edi.
@@ -405,10 +403,10 @@ Men, arhivde işim bitse de, bitmese de, ketecegim.
 
 Sevinç ve keder – adamdaki tabiiy al.
 Lâkin esassız eyecanlanuv müşkül şey.
-Arhivdeki işim olurmı, olmazmı?
+Arhivdeki işim olurmı, olmazmı ?
 Olur ise... ne vaqıtta olur?
 Bu tüşünceler meni çoq ezgelediler.
-Gece qasevetten yuqlap olamadım.
+Gece qasevetten yuqlap olamadım .
 Nafile qasevetlengenim.
 Çünki ertesi künü, arhiv idaresinde Şabşalnen körüşken soñ göñülimdeki keder bütünley yatıştı.
 İlya İsaakoviçte, ütekündeki kibi, perişan nazarlar, saçıq fikirler sezmedim.
