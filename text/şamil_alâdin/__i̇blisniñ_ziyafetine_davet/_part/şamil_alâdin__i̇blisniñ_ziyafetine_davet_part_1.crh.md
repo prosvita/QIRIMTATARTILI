@@ -460,7 +460,8 @@ Ümer Malaycı buña razı olmay.
 Knâz Yusupovnıñ uzurına barıp, qatilge lâyıq ceza berilmesi içün yardım etmesini yalvara.
 Knâzniñ talabına binaen, iş tekrar uyezd makemesine tüşe.
 Emirzaq oğlu dört yılğa Taganrog apshanesine qapalması ve Üsein ocanıñ eki oğluna aqılbaliq olğance, para berip turması aqqında üküm çıqa.
-İşke knâz qarışqanını ve vaqia mürekkepleşkenini körgen Erbain telâşqa tüşe, Zemstvo idaresi başlığına kelip, cebine destelernen para tıqıştıra, jandarm başlığına bir çift cüyrük bağışlay, gübernator referentine otuz qoyun adap, yardım istey, böyle qalabalıq zamanda... cian muarebesi başlay.
+İşke knâz qarışqanını ve vaqia mürekkepleşkenini körgen Erbain telâşqa tüşe, Zemstvo idaresi başlığına kelip, cebine destelernen para tıqıştıra, jandarm başlığına bir çift cüyrük bağışlay, gübernator referentine otuz qoyun adap, yardım istey, böyle qalabalıq zamanda...
+ cian muarebesi başlay.
 Emirzaq oğlu cezasız qala.
 Onıñ cezalanıp, apshanede oturğanına dair arhivde iç bir türlü resmiy vesiqa yoq.
 Uyezd idarelerindeki memurlarnıñ qollarınen türlü ariflernen yazılı kâğıtlarnı qaytarıp-qaytarıp, diqqatnen oqudım.
