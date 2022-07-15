@@ -429,7 +429,7 @@ İlya İsaakoviç kenardaki deste arasına eki parmağını tıqtı, iri, ye
 
 – İşte, Harcibiye vaqiası... – dedi arhivarius.
 Cıltnıñ üstündeki toznı paçavranen yengilden sildi, yiplerini çezip, ögüme qoydı.
- – Qıdıra-qıdıra hadimlerimiz elden-ayaqtan ayrıldılar.
+ – Qıdıra -qıdıra hadimlerimiz elden-ayaqtan ayrıldılar.
 Aqibeti, taptılar.
 Özüm de yardım ettim.
 Baqıñız!
