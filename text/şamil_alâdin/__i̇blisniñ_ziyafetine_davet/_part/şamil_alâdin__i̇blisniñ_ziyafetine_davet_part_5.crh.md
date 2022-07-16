@@ -949,9 +949,10 @@ Öyle gecelerniñ birinde şairniñ qaleminden elemli satırlar töküldil
 
 Sen çekil halqnıñ arasından, çekil!
 Yürekler incerdi qorquñdan, çekil!
-İstesek, yarıqta da yuqlarız biz.
 
+İstesek, yarıqta da yuqlarız biz.
 Verdigiñ uyqu kerekmey, degiliz mutac!
+
 Uyan, sen, ey, halqım!
 Közüñni aç!
 
@@ -966,7 +967,8 @@ Ama raat oturıp olamadı.
 Ne yerdedir gektograf elde etti, geceleri, köyde er kes uyquda ekende, qandil yarığında oturıp, akimiyet idareleri hadimlerindeki zulumğa, aqsızlıqqa qarşı qıyam içün beyannameler yazaraq, cuma künleri ceplerine ve qoyunına toldurıp, köylerge ketti, üç-dört künlerden soñ keldi.
 Meñlibey bir defa azbarda ocanıñ üstündeki kiyimni pek şişik alda körip, taaciplendi.
 
-– Oğurlar olsun, muallim! – dedi o küçük, qıpıq közlerinen külümsirep. – Uzaqqamı?
+– Oğurlar olsun, muallim! – dedi o küçük, qıpıq közlerinen külümsirep.
+ – Uzaqqamı?
 
 – Dörmenge... bazarğa, – dep cevap berdi Üsein Şamil.
 
@@ -997,7 +999,8 @@ Musafir özüniñ “Yapraqlar töküldiler” pyesasını oqudı...
 Ev saibi diñledi.
 Subet sabağace devam etti.
 Emir-Ali ketmek içün sağlıqlaşqanda: “Yalvaram sizge!
-Sabır etiñiz! – dedi Üsein ocağa. – Pek açıq ğayret etmeñiz!
+Sabır etiñiz! – dedi Üsein ocağa.
+– Pek açıq ğayret etmeñiz!
 Vaziyet şimdi kergin.
 İrtica ziyade küç aldı.
 Er yerde darağaç... adamlarnı asmaq, kesmek...
@@ -1023,14 +1026,18 @@ Dört köşe müürli kâğıt üzerinde ise: “Uyezd zemstvo idaresini
 Trandafilidi ocağa uyezd prokurorınıñ ükümnamesini kösterdi.
 Oca oqup tanış oldı ve mezkür ükümni eki kün – eki gece zarfında eda etecegine dair imza edi.
 
-“Bana baq, Üsein oca! – dedi üyken inspektor, yarı türk, yarı noğay sözlerinen. – Menim eki defa aytqan adetim yoqtır.
+“Bana baq, Üsein oca! – dedi üyken inspektor, yarı türk, yarı noğay sözlerinen.
+– Menim eki defa aytqan adetim yoqtır.
 Üç kün soñra kelirim, köyde bolsañ, Kefeye götürip, apshaneye tıqarım.
 Ömürlik orada kalırsıñ.
 Nezaretiñ emiri öyle, kattıdır.”
 
 “Qayda ketmege borclum?” – dep soradı ondan Toqtarğazı.
 
-“Nereye isterseñ, oraya git! – dep cevap berdi Trandafilidi. – Tek Kefe uyezdinden çıq!” Oca bu ükümge qarşılıq köstermek içün özünde küç tapıp olamadı.
+“Nereye isterseñ, oraya git! – dep cevap berdi Trandafilidi.
+– Tek Kefe uyezdinden çıq!”
+
+Oca bu ükümge qarşılıq köstermek içün özünde küç tapıp olamadı.
 Qarşılıq köstermek içün cemaatnıñ özünde de uquq yoq edi.
 Demiryol stantsiyasına barıp yetmesi içün Toqtarğazığa ataraba taqıştırıp berdiler.
 Oca ailesinen köçip ketti.
@@ -1049,7 +1056,8 @@ Onı quçaqladı, arqasını taptadı.
 Özüniñ ocağa yaqın ve sadıq ekenini sezdirmek istedi.
 
 – Keldiñizmi, Üsein oca? – dedi tükâncı.
-Biz deliklerine beñzer közlerinen ocanıñ potüklerinden tutıp, qalpağına qadar teşkerdi. – Hayırlamaq içün eviñizge barıp olamadım.
+Biz deliklerine beñzer közlerinen ocanıñ potüklerinden tutıp, qalpağına qadar teşkerdi.
+ – Hayırlamaq içün eviñizge barıp olamadım.
 Canıñız ağırmasın.
 Dörmenge mal almağa kettim.
 Siz, ğaliba, deñişmegensiñiz.
@@ -1059,26 +1067,34 @@ Toqtarğazı tükâncını yahşı bile.
 O ğayet muqayt adam.
 Kim-kimnen dost... kimnen duşman, episinden haberdar.
 
-– Yoq! – Toqtarğazı başını yengilden oñğa-solğa qaqıttı. – İç deñişmedim.
+– Yoq! – Toqtarğazı başını yengilden oñğa-solğa qaqıttı.
+ – İç deñişmedim.
 Başımdaki ep şu...
 Harcibiyede tikilgen qalpaq.
 
 Talip kürpe çuvalı üstüne oturdı, ocanıñ sözleriniñ manasını añlamağan olıp, sigar yasamağa tedariklendi.
 
-– Qayerde cerleştiñiz? – dep soradı o ocadan. – Eski üydemi?
+– Qayerde cerleştiñiz? – dep soradı o ocadan.
+ – Eski üydemi?
 
 Oca, tükâncınıñ sualini tasdıqlap, başını qaqıttı.
 
-– İşleriñiz nasıl? – dedi Talipke. – Alış-veriş tavlımı?
+– İşleriñiz nasıl? – dedi Talipke.
+ – Alış-veriş tavlımı?
 
 Talip sigarını tutandırdı, tütünni içine çekip, cigerlerini toldurdı.
 
-– Faydasız... – dedi o. – Tütün ağızından kesek-kesek olıp çıqtı. – Ağalar menden mal aluvnı biysinmeyler.
+– Faydasız... – dedi o.
+ – Tütün ağızından kesek-kesek olıp çıqtı.
+ – Ağalar menden mal aluvnı biysinmeyler.
 Kepeden öz adamları ketireler.
-Calanğaç köylüniñ küçü tek upaq-tüpekke cete... at mıhı, çamaşır sabunı, kunaylan mayı, teren kaloş, raqı... – Talip böyle dep, cılmaydı. – Raqı aruv kete.
+Calanğaç köylüniñ küçü tek upaq-tüpekke cete... at mıhı, çamaşır sabunı, kunaylan mayı, teren kaloş, raqı... – Talip böyle dep, cılmaydı.
+– Raqı aruv kete.
 Niçün deseñ, halq qaarli.
 İçse, cüregi cazıla.
-Özüñiz? – tükâncı kürpe çuvalı üstünden turıp, beş-tahtağa yaqın keldi. – Üç cıldan beri qayerde ediñiz? – dep soradı ondan. – Tavlıq caqlardamı?
+Özüñiz? – tükâncı kürpe çuvalı üstünden turıp, beş-tahtağa yaqın keldi.
+– Üç cıldan beri qayerde ediñiz? – dep soradı ondan.
+ – Tavlıq caqlardamı?
 
 Talip Harcibiyede ilki peyda olğan vaqıtta...
 Trabzon betlerden kelgen edi, bazı kişiler onıñ lafını añlamay ediler.
@@ -1088,11 +1104,13 @@ Talip yaş edi... çöl şivesini tez ögrendi.
 Oca tükânğa kirgende, kendi şahsiyeti Talip içün büyük meraq doğurğanını bildi.
 Lâkin, bu, ocanı iç raatsızlamadı.
 
-– Bir talay Kökközde yaşadım, – dedi Üsein Şamil. – Soñ Ay Vasılda... ministr mektebinde işledim.
+– Bir talay Kökközde yaşadım, – dedi Üsein Şamil.
+ – Soñ Ay Vasılda... ministr mektebinde işledim.
 Şay dep turğanda, içeri on eki yaşlarında oğlan bala kirdi.
 Ösük saçları küneşten qızarğan, töpege tiklengenler.
 
-– Bar, Mecit aqayğa ayt, qave ketirsin! – dedi oña Talip ve ilâve etti. – Üsein oca içün, de!
+– Bar, Mecit aqayğa ayt, qave ketirsin! – dedi oña Talip ve ilâve etti.
+ – Üsein oca içün, de!
 
 Bala yeñi adamğa taaciplenip baqtı-baqtı... niayet, külümsiredi.
 Tanıdı onı.
