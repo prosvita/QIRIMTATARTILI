@@ -624,7 +624,7 @@ O palatadan çıqqan soñ, emşireniñ yanında vaziyetim üstünden biraz
 “Ayağım dört parmaq qısqardı, – dedim Revekkağa, – yürmesi küç.
 Tez yorulam”.
 “Cebede başıñız üzerinde snarâdlar uluğanda episini unutırsıñız!” dedi qalpsiz Revekka.
-Onda yazıqsınuv yoq.
+Onda yazıqsınuv yoq .
 Qolsuzlar, ayaqsızlar... yarım adamlar arasında işlep, alışqan.
 Onıñ içün er kes bir.
 Böyle ayaqnen meni bir daa cenkke yibermek mümkünmi aceba?
