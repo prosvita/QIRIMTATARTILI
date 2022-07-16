@@ -181,7 +181,8 @@ Ekisi közlerini aşağı endirip, sustı... qıbırdamay turdılar.
 – Sizlerni tanış etmek kerekimmi? – dep soradı Suade hanım ocadan.
 Özü, de kişige, de Üsein ocağa taaciplenip baqtı.
 Olar ep susmaqta ediler.
-Suade hanım bir şey añlamay, Femige çevirildi: – Bu ne demek ola, niayet, maña bilmek mümkünmi?
+Suade hanım bir şey añlamay, Femige çevirildi:
+– Bu ne demek ola, niayet, maña bilmek mümkünmi?
 
 Oğlunıñ ağızından söz çıqmadı.
 Onıñ qaşları bir töpege köterildi, bir de aşağı endiler.
