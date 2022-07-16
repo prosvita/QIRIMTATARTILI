@@ -43,7 +43,7 @@ Lâkin, deral degil, bir talaydan soñ... adeti öyle.
 Qapudan kirer-kirmez episini ayta qoymaqnı sevmey.
 
 – Qaysılarını alıp qalğanını aytayımmı? – dedi Acire hanım, ocanıñ közleri içine tiklenip.
- –E?
+ – E?
 Aytayımmı?
 
 Üsein cılmaydı, indemedi.
