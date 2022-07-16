@@ -268,7 +268,7 @@ Ruhset etseñiz, sebebini bilir edik!” Ebet, men öyle derim.
 Sizni ekinci qattan atmaz edim.
 Añlaşıldımı, Femi efendi?
 Sizler şimdi ekiñiz, Buykada töpeleri şiddetli yellerden sınıp, astları qurıp, borsayıp, çoñqayıp qalğan terek kevdelerine beñzeysiñiz.
-İçleriñiz quvuş kibi.
+
 
 – Borsayğan terekler?
 Bizlermi?– Femi efendi gürsüldep küldi.
