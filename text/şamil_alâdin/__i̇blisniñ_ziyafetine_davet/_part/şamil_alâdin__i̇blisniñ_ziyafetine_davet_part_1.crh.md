@@ -591,8 +591,8 @@ Parij – fransıznıñ ayatı, vicdanı...
 
 Ekim ne tüşündi?
 Nege işandı?
-Mücizegemi?
-Bilmeyim.
+Mücizegemi ?
+Bilmeyim .
 Ayağımnı kesmedi, onı çırışladı, meni tahta tüplü koyka üstüne yatqızdı.
 
 Çoq künler qıbırdamadım.
@@ -603,22 +603,22 @@ Soñ... qoltuq tayaqlarnen yürdim.
 Çoq künler yürdim.
 Tünevin, üyle yemeginden evel, yuquğa ketkenim.
 Revekka qoltuq tayaqlarımnı alıp, ördinatorğa teslim etken.
-Bugün tayaqsızım.
+Bugün tayaqsızım .
 Nevbetçi ekimge yalvardım: “Aytıñız o, eli maşalığa, tayaqlarımnı qaytarıp bersin...” dedim.
 Ekim boyunını qıstı.
 Küldi.
 “Revekka menim emirimni eda etti, – dedi maña.
  – Öz ayaqlarıñnen özüñ añlaş!
 Saibine namuslı hızmet etsinler.
-Tezden cebege qaytacaqsıñ!”.
+Tezden cebege qaytacaqsıñ! ”.
 
-Cebege?
+Cebege ?
 Menmi?
 Ah!
 Ebet!
 Mında, lazarette, ekim bizim üstümizde akim.
 Cebede öyle degil.
-Cebede ekimler menim ögümde titreyler.
+
 
 O palatadan çıqqan soñ, emşireniñ yanında vaziyetim üstünden biraz öpkelendim.
 “Ayağım dört parmaq qısqardı, – dedim Revekkağa, – yürmesi küç.
@@ -656,12 +656,12 @@ Paranı saçtı – savurdı.
 Men bir şey yapıp olamadım.
 Muarebe başladı.
 Dünya qarıştı.
-Eki yıl qurşun, şrapnel afatı, iprit dumanı içinde ep onı, dostumnı... o sade ocanı tüşündim, azaplandım.
+
 Bu lazarette, insan etiniñ çürümesinden ve bedaat ilâclardan avası bozulğan bu palata içinde men, dostumnıñ ruhuna secde ile bu muşaadeni yazdım ve onı “İblisniñ ziyafetine davet” diye adlandırdım.
 Muşaadeniñ kimer yerlerinde özümni de tasvir ettim.
 Müellif sıfatında degil.
 Yoq... vaqianıñ iştirakçilerinden biri etip.
-Çünki...
+Çünki ...
 Üsein aqqında muşaade yazıp da, özümni tekaran olsa da, köstermesem, o nasıl hatirat olıp çıqar?
 Bu satırlarnıñ astındaki Asan Kara, menim aqiqiy adım degil.
 Üseinniñ özüniñ maña taqqan lağabı.
