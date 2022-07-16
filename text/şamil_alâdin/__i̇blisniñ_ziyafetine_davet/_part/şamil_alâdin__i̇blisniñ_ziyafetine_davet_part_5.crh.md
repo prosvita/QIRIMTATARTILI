@@ -9,7 +9,7 @@ Ay Petri betten kelgen yeşil közlü, quru kevdeli, areketçen kişiler...
 Baba yoq vaqıtta Daniyal pek çılçıqlanğan, kün boyu yuqlamağan.
 Acire hanım onı caddege alıp çıqıp, qaldırım boyunda yüre-yüre yorulğan.
 Soñra içeri kirsetip, aşatqan, bala kene damsızlana bergen.
-Yaqında yuqlap qalğak.
+Yaqında yuqlap qalğan.
 
 Endi qaranlıqlanıp başlay.
 Oca alâ körünmey, Acire qasevetlenip, yañçıq qavehaneniñ salonına tüşken edi.
