@@ -573,12 +573,14 @@ Macarlarda dum-dum denilgen qurşun baldır kemigimni eki yerden sındırdı.
 Meni sihhiye poyezdine qoyıp, Odessağa ketirdiler.
 Eki buçuq aydan beri bu debdebeli ve müdhiş şeerde Marselyeza cadesindeki lazarette bulunam.
 Ayağımnı kesmek isteyler, razı olmayım.
-“Alla eşqına, ekim! – denim men. – Bir çare tapıñız, ayağım bütün qalsın”.
+“Alla eşqına, ekim! – denim men.
+– Bir çare tapıñız, ayağım bütün qalsın”.
 Ekim fransız... meni añlamay.
 Üyken emşire Revekka, esli yeudi qadını, sözlerimni tercime ete.
 Hirurg bir şeyler ayta, başını tersine sallap, çıqıp kete.
 “Qolundan kelgenini yapacaq, – dey maña emşire.
-Özü koykam yanındaki kürsüge otura, közlerime kederlikederli baqa. – Alıñız maqtanılacaq kibi degil.
+Özü koykam yanındaki kürsüge otura, közlerime kederlikederli baqa.
+ – Alıñız maqtanılacaq kibi degil.
 Bir yaqıñız delme-teşik”.
 
 “Qolundan kelgenini...” Ebet!
