@@ -483,7 +483,7 @@ Men taaciplendim.
 Şabşalğa ne aytmağa bilmey, yavaştan cıltnı açtım.
 Açqanımnen, yüzüme uzaq yıllarnıñ rutubet qoqusı urdı.
 Şıtırdavuq, iri kâğıt tabaqları üstündeki aqçıl yazılar afizamda basılıp, yosun biylep qalğan nicenice adiselerni türtküçledi, qozğadılar.
-Vucudım titredi.
+Vucudım titredi .
 Ögge yatıq, ince arifler.
 Noqtası, virgüli yerli-yersiz tutaş satırlar.
 Kâğıtlarnıñ çetleri sararğan, ortaları beyaz.
