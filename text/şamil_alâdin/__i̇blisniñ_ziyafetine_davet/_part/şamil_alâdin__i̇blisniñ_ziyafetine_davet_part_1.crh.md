@@ -533,7 +533,7 @@ Lâkin direktornıñ ruhseti olmaq kerek.
 
 Tozlu, qalın cılt içindeki bu şıtırdavuq kâğıtlar, bu küf qoqulı satırlar menim içün ne demek ediler?
 Kimlerge... nasıl añlatırsıñ?
-Direktorğa çaptım.
+Direktorğa çaptım .
 Pavel Tarasoviç, çeremdeki eyecannı eslep, külümsiredi, ama meramımnı bilgen soñ, ne demege bilmey, yelkesini qaşıdı.
 
 “Bu bir kitap olsa... söz kelimi, eki yüz on yıl muqaddem neşir etilgen eser olsa, iç itiraz etmez edim, çünki kitap degen şey oqulmaq içün neşir etile.
