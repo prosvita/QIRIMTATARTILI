@@ -21,7 +21,7 @@ Oca, abdırаğan kibi, silkinip, birden ikâyesini üzdi.
 
 – Afu etiñiz, ocam! – dedim men. – Siz kelgende Mahuldürde şuralar akimiyeti qurulğan edimi?
 
-Oca menim sualimniñ manasını deral añladı, ama oña eki söznen cevap bermege cesaret etip olamdı.
+Oca menim sualimniñ manasını deral añladı, ama oña eki söznen cevap bermege cesaret etip olamаdı.
 Şunıñ içün o, zamannıñ şaraiti hususında izaattan başladı.
 
 – Akimiyet qurulğan edi.
@@ -46,7 +46,7 @@ Mektep – şura mektebi.
 Öyle degilmi?
 Şura mektebinde diniy dersler berilüvi, zan etsem, qata.
 
-– Qata olsa da... aqiqat, – dedi oca. – Devlet dinni tanımay, ama ocalarnıñ müim qısımı ve ana-babalar dinsizliknen uzlaşıp olamaylar.
+– Qata olsa da... aqiqat, – dedi oca. – Devlet dinni tanımay, ama ocalarnıñ müim qısmı ve ana-babalar dinsizliknen uzlaşıp olamaylar.
 
 – Diger bir mesele daa, – dedim men, – “Efendiler!?” Men laqırdıñıznı diqqatnen diñleyim.
 Taaciplenem...
@@ -62,7 +62,7 @@ Ameliy ceetten mesele olduqça mürekkep...
 Ondan ta, otuzıncı senege qadar qurtulıp olamadıq.
 Halq onı qullanıp alışqan.
 Birden taşlap olamay.
-Eminim ki, bunda mefkureviy maqsat yoq.
+Eminim ki, bunda mefküreviy maqsat yoq.
 Yalıñız adet... qılıq.
 Men aqiqatta olğan vaqialarnı ikâye etem.
 İşniñ bir ceetini daa unutmañız ki, bu devirde efendi unvanı ile añılğanlarnıñ büyük qısımı soñundan yüksek fırqa ve şura hızmetlerine tayin etildi, halq komissarları oldılar.
