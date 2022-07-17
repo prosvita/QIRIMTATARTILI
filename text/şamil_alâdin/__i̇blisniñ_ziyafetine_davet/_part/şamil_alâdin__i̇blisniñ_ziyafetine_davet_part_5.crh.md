@@ -549,7 +549,7 @@ E? Şamil efendi?
 Üsein oca, Fikretniñ mısqıl ve nefretle ifa etken fikirlerine, niçündir, emiyet bermedi.
 Sözlerini öz qulaqlarınen eşite turıp, ğarezlikle aytılğanına inanmadı.
 İnanmadımı aceba?
-Nasıl inanmasın?
+Nasıl inanmasın ?
 Özüni öyle, inanmağan, añlamağan, pervasız alda köstermek istedi.
 Aqiqatta, kederlenip, içten ateş aldı.
 Lâkin Fikret – onıñ, Üseinniñ, dostu... onıñ lafına ciddiy qıymet kesmek içün özünde birden qatiyet tapıp olamadı.
@@ -558,7 +558,8 @@ Men Fikretni yañlış añlamadımmı aceba? – dedi o, öz-özüne!
 Mümkün degil!
 
 “Men ve maña beñzer... eski kiyimli, boş cepli adamlar, fuqare tatar balalarına oquv-yazuv ögretkenimiz içün biçare adamlarmız.
-Ve bizim ğayretimiz – nafile zamet...” İçtimaiy ayatımızda eşitilmegen, körülmegen adise.
+Ve bizim ğayretimiz – nafile zamet...”
+ İçtimaiy ayatımızda eşitilmegen, körülmegen adise.
 Bunı nasıl añlamaq kerek?
 Fikret Şerif yeñi cıns nesilni temsil etmekte, depmi?”
 
@@ -611,11 +612,11 @@ Oca ne olıp – ne keçkenine qıymet kesmek içün bir talay ayaq üstün
 
 – Maqsımanıñ özü içün bir buçuq manat, – dedi o, ziyaretçige.
 – Yantıqlar esapqa kirmeyler.
+
  – Niçün? – oca taaciplendi.
 
 – Furuncı para almadı.
-
-Tanışıñız eken.
+Tanışıñız eken .
 
 Üsein bozana saibine hucur-hucur baqtı... bir şey añlamadı.
 Avuçı içine paranı tıqıp, bosağadan tışqa atladı.
