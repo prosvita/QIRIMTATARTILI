@@ -848,7 +848,7 @@ Fikret evlenmege azırlana!
 – Kim?
 Fikret? – Suade hanım oğluna inamsızlıqnen baqtı.
  – Ya Rabbim!
-O künni de körecekmizmi?
+O künni de körecekmizmi ?
 Evlensin! – dedi o qatiyetle.
 – Ne?
 Keder etken şey barmı?
