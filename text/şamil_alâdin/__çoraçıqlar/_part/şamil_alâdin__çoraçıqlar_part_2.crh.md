@@ -17,7 +17,7 @@ Yazısı ğayet nefis.
 Zıncırlıda üsnühatqa ürmet yüksek olğan, sohtalarğa arapçanı dülber yazmağa ögretkenler.
 
 Abdureşid oca sohtalarnıñ üsnühatı hususında söylegende qafamda bir qanaatsızlıq asıl oldı, o sebepten, qolumnı onıñ omuzı üstüne qoydım.
-Oca, abdırğan kibi, silkinip, birden ikâyesini üzdi.
+Oca, abdırаğan kibi, silkinip, birden ikâyesini üzdi.
 
 – Afu etiñiz, ocam! – dedim men. – Siz kelgende Mahuldürde şuralar akimiyeti qurulğan edimi?
 
