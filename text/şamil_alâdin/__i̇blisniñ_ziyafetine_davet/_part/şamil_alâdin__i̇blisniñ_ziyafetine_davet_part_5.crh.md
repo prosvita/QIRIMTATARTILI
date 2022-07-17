@@ -347,12 +347,12 @@ Hastalıqnıñ ise sabırı yoq.
 O beklep olamay.
 Köy tabipleri mandalaç qaynatıp, sıcaq suvuna accı biber qoyıp, hastağa içireler.
 Soñra qızğın tulalar üstüne sılaq talaş töşep, üstüne Abibulla ağanı çalqağa yatqıza... ulpaqlı yorğan ile örteler.
-Evdekiler çapa-çapqalaylar, hastanı ayaqqa tursatalar.
+Evdekiler çapa -çapqalaylar, hastanı ayaqqa tursatalar.
 Üsein keçikip kele.
 “Sen, ağa, şımşır kibi sağlam ediñ! – dey Üsein.
  – Pattadaqtan nasıl etip hastalana qoydıñ?” Abibulla, kerçekten de, pelit tömegi kibi, qaviy ve şeñ adam.
 
-Evellerde...
+Evellerde ...
 Üsein köyde yaşağan yıllarında, ağa ile qardaş kiyik dağlardaki vaqialar aqqında biri-birinen qonuşa turğanlar.
 O sebepten Abibulla özüniñ nasıl etip hastalanğanını Üseinge ikâye etti.
 
