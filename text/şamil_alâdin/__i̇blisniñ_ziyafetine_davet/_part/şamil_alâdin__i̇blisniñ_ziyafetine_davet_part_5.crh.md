@@ -736,7 +736,7 @@ Özüm köyge qaytacaq edim.
 Siziñ, Üsein efendi, aqşam bu evde olacağıñıznı bilip, ziyafetke aselet keldim.
 “Öz ğayelerimden qatiyen vazgeçtim...” diye ögüñizde tevbe etmek içün degil, sizge yaptığım aqsız muameleme peşman ekenimni izar etmek ve sizden afu istemek, o vaqıtta aytqan sözlerimni keri almaq mıradı ile keldim.
 
-Fikretniñ lafı bitmedi.
+Fikretniñ lafı bitmedi .
 Eyecanlandı... yerine otura qoydı.
 Ev saipleri içün onıñ ağızından çıqqan sözlerniñ özleri endi kâfi edi.
 
