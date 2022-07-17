@@ -747,7 +747,7 @@ Öyle degilmi, valide azizim?
 
 – Öyle, oğlum!
 Öyle! – dedi Suade hanım.
- – Bitsin-ketsin!
+ – Bitsin -ketsin!
 
 Sofra başındakiler qadelerini biri-birleriniñkine küçlü urıp, yañğıratıp, içtiler.
 Kimniñ qadesi kimniñkine toqundı... araret, şadlıq sadaları içinde tayin etmek, şübesiz, qıyın edi.
