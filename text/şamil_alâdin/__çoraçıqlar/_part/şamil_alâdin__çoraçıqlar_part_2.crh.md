@@ -76,7 +76,7 @@ Devirni nazar itibarğa alsaq, sizni, elbet de, añlamaq mümkün.
 Rica etem!
 İkâyeñizni devam etiñiz!
 
-...Ekinci sınıf ile tanış olğan vaqıtımda, onıñ bazı ceetlerden, birinci sınıf ile sanki bir seviyede ekenligini sezdim, çünki İsmail efendi... – oca bu sefer sözüni özü bölip, maña tiklenip baqtı.
+...Ekinci sınıf ile tanış olğan vaqtımda, onıñ bazı ceetlerden, birinci sınıf ile sanki bir seviyede ekenligini sezdim, çünki İsmail efendi... – oca bu sefer sözüni özü bölip, maña tiklenip baqtı.
  – Soñ, bu yerde ne demek kerek?
 “İsmail arqadaş”mı?
 
@@ -176,7 +176,7 @@ Baar kelecek, men Edayye apteniñ çayırda fide qoyğanını, yaz kelecek, tüt
 Şimdi ise evdeki çalıqlığı meni taaciplendirdi.
 Qocası Abdulla ağa şimdi evde körünmey.
 
-Safiye hanım aşhanede iş ile meşğul.
+Safiye hanım aşhanede iş ile meşğül.
 Edayye aptege erkekler cemiyetinde bizim ile oturıp, biraz qonuşmasını teklif ettik, mağazda qocasınen beraber tütün tayı yasamaqta ekenlerini sebep etip, sofağa çıqtı.
 Yaya efendi ile ekimiz qaldıq, qave içtik.
 
@@ -185,7 +185,7 @@ Adları ve tilleri tatarca, familiyaları slavânca.
 “Çöl mırzalarından olmalılar” dep tüşündim.
 Ekisiniñ de laqırdıları nazik, muqayt ve ifadeli.
 Laqırdıları, diqqatnen diñlenilse, tatarca qonuşmağa ögrengen Batı Avropa kişisiniñkine beñzey.
-Qave başındaki subetimiz vaqıtında bu hususta tüşündim ve, tüşüngen sayın, familiyaları slavân tili yalğamasınen bitkenine baqmadan, olarnı çeşit milletlerge yoradım.
+Qave başındaki subetimiz vaqtında bu hususta tüşündim ve, tüşüngen sayın, familiyaları slavân tili yalğamasınen bitkenine baqmadan, olarnı çeşit milletlerge yoradım.
 Yaya efendi menim çereme baqıp, zeinimdeki fikirni bildi.
 
 – Bizler Lehistan tatarlarımız, – dedi maña ve, böyle degende yüzden biraz deñişti, soñra külümsiredi.
@@ -240,7 +240,7 @@ Aqiqatnı daa bilmeyim.
 – Men Yalta zemstvo idaresi maarif şübesiniñ emirine binaen keldim, – dedi Yaya oca.
 – Endi eki yıldan ziyade.
 
-– Vrangel vaqıtında mında ediñizmi?
+– Vrangel vaqtında mında ediñizmi?
 
 – Mında edim.
 
@@ -253,7 +253,7 @@ Aqiqatnı daa bilmeyim.
 – Men ofitserim.
 Beyaz gvardiyada hızmette edim... qaçtım.
 Saqlanmaq küç oldı.
-Kefe uyezdinde meni er kes bile, çünki muarebeden evel Saray Mende oca edim.
+Kefe uyezdinde meni er kes bile, çünki muarebeden evel Saraymende oca edim.
 Yalta uyezdi zemstvo idaresindeki tanış kişim meni bu delikke tıqtı.
 “Anda, çıtırman dağlıq içinde, seni kimse tapıp olamaz” dedi.
 Men canımnı avuçıma alıp keldim.
@@ -261,7 +261,7 @@ Sakin, ihtiyat yaşadıq.
 Beyazlar keldi – keçtiler, almanlar keldi – keçtiler.
 Meni Suleyman Sulkeviç ükümeti qıdırdı.
 Tapıp olamadı.
-Mında, bu köyde adamlar cailler, ama namus ögünde mesuller, olarda birevni aldav-satuv yoq.
+Mında, bu köyde adamlar cailler, ama namus ögünde mesüller, olarda birevni aldav-satuv yoq.
 Cenk bitti.
 Şuralar akimiyeti keldi.
 Maña saqlanmağa acet qalmadı.
@@ -279,7 +279,7 @@ Maña saqlanmağa acet qalmadı.
 
 – Hayır.
 Onıñ içün degil.
-Köy pek küçük... siz ve Safiye hanım, fikirimce, pek büyüksiñiz!
+Köy pek küçük... siz ve Safiye hanım, fikrimce, pek büyüksiñiz!
 Sizge keniş qulaçlı hızmet kerek.
 Mında, Mahuldürde, öyle hızmet yoq.
 
