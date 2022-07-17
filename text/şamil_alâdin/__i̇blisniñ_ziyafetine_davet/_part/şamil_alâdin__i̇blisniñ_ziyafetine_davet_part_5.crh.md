@@ -650,7 +650,7 @@ Suade hanım ayretke keldi.
 Eki musafirniñ... de birine baqtı, de digerine.
 Çerelerindeki bulutnı eslegen soñ, özüniñ çırayı da deñişti.
 
-– Femi!
+–Femi!
 Balam!
 Men bir şey añlamayım! – dedi o titrek davuşnen.
  – Efendiler niçün küskünler?
@@ -665,7 +665,7 @@ Öz renkine keldi.
 – Qorqıp kettim... – dedi o yavaştan, qolunı köküsi üstüne qoyıp, yüreginiñ tepindesini tutıp baqtı.
  – Ne oldı?
 Ciddiy bir şeymi?
-Biri-digerine qama sançtımı?
+Biri- digerine qama sançtımı?
 
 – Ciddiyge beñzey, çünki Üsein efendiniñ mıyığı bugün töpege ziyade tiklenik... – böyle degende ana zevqlanıp küldi.
 Üsein oca indemedi, – lâkin ekisi de yaralı degiller.
@@ -679,7 +679,7 @@ Dava ne üzerinde başlap, nasıl bitkenini, közlerinen körmey tura, tasav
 Ne olmadı?
 Men bilmeyim.
 Bilmek de istemeyim.
-Al-azırda bizim evimizdesiñiz.
+Al -azırda bizim evimizdesiñiz.
 Fikret şimdi istiraatta... bu künlerde bizni eki defa ziyaret etti.
 Üsein efendiniñ körünmegeni altı yıl.
 Yerleriñizden turıp, sofrağa oturması pek küç olsa, köterip alıp-kelip qoyayıq.
