@@ -467,7 +467,7 @@ Müderiske de bu hususta bir şey aytmadı.
  – Akimiyet er kes içün muqaddes”.
 
 Oquvnıñ soñki aylarında Fikret eki kün ücrede körünmedi, soñ peyda oldı.
-“Qayda ediñ?
+“ Qayda ediñ?
 “Nasıl işler becerdiñ?” dep soradı ondan Afız.
 “Babam kelip-ketti... – dedi Fikret qısqadan, – tanışımıznıñ evinde qondı.
 Onıñle körüştim”.
