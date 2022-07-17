@@ -513,7 +513,7 @@ Ertesi künü faytonğa oturdı, şeerge ketip, Aziz efendige, oğlunıñ 
 Aziz efendi Alma Tarhan boyunda aytuvlı, zengin Osman Şerifniñ ricasını qaytarıp olamadı.
 Peterburgdaki dostu, meşur naşir İlyas mırza Borağanskiyge mektüp yazıp, eki qırım gençiniñ demiryol institutına qabulda atalıq yapmasını rica etti.
 İlyas mırza yaş kişilerge yardım etti.
-Lâkin yalıñız bu eki kişigemi aceba?
+%
 Şarq ülkelerinden kelgen müteraqqiy münever kişilerniñ episine misli yoq yardımlar köstermekte, olarnıñ bediy eserlerini ana tillerinde neşir etmekte.
 Osman Nuri Aqçoqraqlınıñ ibaresi ile degende: “İlyas mırza Borağanskiy Rusiye paytahtında qırım halqınıñ alicenap edebiy mümessili”.
 
@@ -522,7 +522,7 @@ Qulaqlarğa ğayet hoş eşitilmekte! – dedi Üsein Şamil ve biraz vaq�
  – Tezden müendis olacaqsıñız... öylemi?
 
 – Ebet! – dedi Fikret.
-Qısqa-cevabında iftihar sezildi.
+Qısqa -cevabında iftihar sezildi.
 – Keçken yazda Sibirde oldım.
 Demiryol qurucılığında ameliyat keçtim.
 Biraz sustı, nelerdir tüşündi.
