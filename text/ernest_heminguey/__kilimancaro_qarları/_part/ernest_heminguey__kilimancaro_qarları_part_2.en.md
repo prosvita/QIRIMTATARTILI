@@ -240,9 +240,9 @@ There's plenty of room to land and we have the smudges ready at both ends."
 
 "What makes you think it will come tomorrow?"
 
-"I'm sure it will.
+- I'm sure.
 
-It's overdue now.
+He will come.It's overdue now.
 
 Then, in town, they will fix up your leg and then we will have some good destruction.
 
@@ -289,11 +289,11 @@ It came with a rush; not as a rush of water nor of wind; but of a sudden, evil-s
 
 "What is it, Harry?" she asked him.
 
-"Nothing," he said.
+- Nothing,- he said.
 
-"You had better move over to the other side.
+You had better move over to the other side.
 
-To windward."
+To windward.
 
 "Did Molo change the dressing?"
 
@@ -307,7 +307,7 @@ To windward."
 
 "I'll be right out.
 
-I'll eat with you and then we'll put the cot in."
+I'll eat with you,then we'll put the cot in.
 
 So, he said to himself, we did well to stop the quarrelling.
 
@@ -381,7 +381,7 @@ He had been in it and he had watched it and it was his duty to write of it; but 
 
 She had come out from the tent now after her bath.
 
-"All right."
+-Good.
 
 "Could you eat now?"
 
@@ -406,7 +406,7 @@ Molo bring whiskey-soda."
 
 "Please take the broth," she said gently.
 
-"All right."
+- All right.
 
 The broth was too hot.
 
