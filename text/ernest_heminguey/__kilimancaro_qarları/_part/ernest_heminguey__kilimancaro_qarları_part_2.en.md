@@ -130,7 +130,7 @@ Suddenly, she had been acutely frightened of being alone.
 
 But she wanted some one that she respected with her.
 
-It had begun very simply.
+Everything became very easy and simple.
 
 She liked what he wrote and she had always envied the life he led.
 
