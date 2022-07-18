@@ -193,7 +193,7 @@ If you're all right it's the most fun that I've ever had.
 
 You don't know the fun it's been to shoot with you.
 
-I've loved the country."
+I've loved the country.
 
 "I love it too."
 
@@ -202,7 +202,7 @@ I've loved the country."
 I couldn't stand it when you felt that way.
 
 You won't talk to me like that again, will you?
-Promise me?"
+You promise?
 
 "No," he said.
 
@@ -218,7 +218,7 @@ You wouldn't want to destroy me again, would you?"
 
 "I'd like to destroy you a few times in bed," he said.
 
-"Yes.
+- Yes.
 
 That's the good destruction.
 
@@ -228,9 +228,9 @@ The plane will be here tomorrow."
 
 "How do you know?"
 
-"I'm sure.
+-I'm sure.
 
-It's bound to come.
+He must come.
 
 The boys have the wood all ready and the grass to make the smudge.
 
