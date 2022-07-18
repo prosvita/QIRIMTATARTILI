@@ -1,10 +1,10 @@
 Kilimanjaro is a snow-covered huge mountain.
  It is 19710 feet high.
 It is thought among the people to be the highest mountain in Africa.
-The highest hill on the west side of the mountain is called "Ngaje-Ngai," which means "House of the God," in the Masai tribe language.
+The highest hill on the west side of the mountain is called "Ngaje-Ngai," which means "House of the God," in the Masai tribe language. 
+Close to that highest hill on the west side of the mountain lies the dried, frozen and hardened carcass of a leopard.
 
 
-Close to the western summit there is the dried and frozen carcass of a leopard.
 No one has explained what the leopard was seeking at that altitude.
 
 THE MARVELLOUS THING IS THAT IT’S painless," he said.
