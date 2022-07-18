@@ -223,7 +223,7 @@ She didn't drink so much, now, since she had him.
 
 But if he lived he would never write about her, he knew that now.
 
-Nor about any of them.
+He wouldn't write about others like her.
 
 The rich were dull and they drank too much, or they played too much backgammon.
 
@@ -243,7 +243,7 @@ Whether I understand this situation or not, it doesn`t matter/
 
 He could beat anything, he thought, because no thing could hurt him if he did not care.
 
-All right.
+All right,very good.
 
 Now he would not care for death.
 
