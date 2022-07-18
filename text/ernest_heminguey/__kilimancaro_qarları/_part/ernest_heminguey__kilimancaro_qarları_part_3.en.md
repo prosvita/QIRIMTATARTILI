@@ -213,7 +213,7 @@ He knew at least twenty good stories from out there and he had never written one
 
 Why?
 
-"You tell them why," he said.
+- Explain to them why it happened,- said the man(talking to himself).
 
 "Why what, dear?"
 
@@ -239,7 +239,7 @@ He thought they were a special glamourous race and when he found they weren't it
 
 He had been contemptuous of those who wrecked.
 
-You did not have to like it because you understood it.
+Whether I understand this situation or not, it doesn`t matter/
 
 He could beat anything, he thought, because no thing could hurt him if he did not care.
 
