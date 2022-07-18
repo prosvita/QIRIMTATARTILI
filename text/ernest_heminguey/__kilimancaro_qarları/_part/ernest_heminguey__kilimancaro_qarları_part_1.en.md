@@ -195,7 +195,6 @@ It was strange how easy being tired enough made it.
 
 Now he would never write the things that he had saved to write until he knew enough to write them well.
 
-
 Well, he would not have to fail at trying to write them either.
 
 Maybe you could never write them, and that was why you put them off and delayed the starting.
@@ -378,6 +377,7 @@ My Sword and my Armour."
 "All right.
 
 I'll stop that.
+
 
 I don't want to hurt you.'
 
