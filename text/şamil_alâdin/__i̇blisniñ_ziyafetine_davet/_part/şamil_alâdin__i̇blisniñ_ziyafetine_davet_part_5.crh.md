@@ -1026,7 +1026,7 @@ Soñ polis idaresinden üyken inspektor ile silâlı eki asker keldi.
 İnspektor cebinden defterini çıqardı, açıp, oqup baqtı, soñra cebine qoydı.
 “Harcibiye qariyesi muallimi Toqtarğazı oğlu Üsein Şamil, padişa azretleri aleyhine aks fikirli gazetalar oqumaqta, eali arasında saltanatqa qarşı beyannameler darqatmaqta...” – degen sözler yazılı edi defterde.
 Dört köşe müürli kâğıt üzerinde ise: “Uyezd zemstvo idaresiniñ 1907 senesi iyül on dört, eki yüz on üç sanlı emirine binaen, Toqtarğazı oğlu Üsein Şamilge Harcibiye qariyesinde yaşamaq qatiyen yasaq etile...” denilmekte edi.
-Trandafilidi ocağa uyezd prokurorınıñ ükümnamesini kösterdi.
+%
 Oca oqup tanış oldı ve mezkür ükümni eki kün – eki gece zarfında eda etecegine dair imza edi.
 
 “Bana baq, Üsein oca! – dedi üyken inspektor, yarı türk, yarı noğay sözlerinen.
