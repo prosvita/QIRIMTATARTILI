@@ -42,7 +42,7 @@ There was a bell on a pole by the door to call the people in to meals.
 
 Behind the house were fields and behind the fields was the timber.
 
-A line of lombardy poplars ran from the house to the dock.
+A line of poplars ran from the house to the dock.
 
 Other poplars ran along the point.
 
@@ -124,7 +124,7 @@ Till some one threw a bucket of water from a window and the moaning stopped.
 — What's that?
 Water.
 Ah, very intelligent.
-And the windows shutting.
+And then the sound of closing windows is heard.
 
 Marie, his femme de menage, protesting against the eight-hour day saying,
 ''If a husband works until six he gets only a riffle drunk on the way home and does not waste too much.
@@ -195,7 +195,7 @@ About the half-wit chore boy who was left at the ranch that time and told not to
 
 The boy refusing and the old man saying he would beat him again.
 
-The boy got the rifle from the kitchen and shot him when he tried to come into the barn and when they came back to the ranch he'd been dead a week, frozen in the corral, and the dogs had eaten part of him.
+When the man returned to the farm, a week passed since the old man had died, and he was all cold in the cage,and the dogs had eaten some of his parts.
 
 But what was left you packed on a sled wrapped in a blanket and roped on and you got the boy to help you haul it, and the two of you took it out over the road on skis, and sixty miles down to town to turn the boy over.
 
