@@ -1000,7 +1000,8 @@ Qave içtiler, qonuştılar.
 Musafir özüniñ “Yapraqlar töküldiler” pyesasını oqudı...
 Ev saibi diñledi.
 Subet sabağace devam etti.
-Emir-Ali ketmek içün sağlıqlaşqanda: “Yalvaram sizge!
+Emir-Ali ketmek içün sağlıqlaşqanda:
+ “Yalvaram sizge!
 Sabır etiñiz! – dedi Üsein ocağa.
 – Pek açıq ğayret etmeñiz!
 Vaziyet şimdi kergin.
