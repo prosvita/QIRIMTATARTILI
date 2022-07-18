@@ -20,7 +20,7 @@ His personal boy was sitting by the bed.
 
 She had gone to kill a piece of meat and, knowing how he liked to watch the game, she had gone well away so she would not disturb this little pocket of the plain that he could see.
 
-- She was always thoughtful,-he thought.
+- She was always thought about what she has done,- such a thought came to his mind.
 
 On anything she knew about, or had read, or that she had ever heard.
 
