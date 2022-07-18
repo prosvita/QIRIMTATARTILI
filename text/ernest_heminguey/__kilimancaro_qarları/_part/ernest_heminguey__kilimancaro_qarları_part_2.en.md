@@ -173,7 +173,7 @@ You were sleeping when I left."
 
 "I had a good sleep.
 
-Did you walk far?
+Were you far?
 
 — No.
 
@@ -271,7 +271,7 @@ While it grew dark they drank and just before it was dark and there was no longe
 
 "He's the one makes the noise at night.
 
-I don't mind it.
+%
 
 They're a filthy animal though."
 
