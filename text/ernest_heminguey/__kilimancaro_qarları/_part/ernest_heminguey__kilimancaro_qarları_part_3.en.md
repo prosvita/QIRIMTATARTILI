@@ -123,7 +123,7 @@ Till some one threw a bucket of water from a window and the moaning stopped.
 
 — What's that?
 Water.
-Ah, that's intelligent."
+Ah, very intelligent.
 And the windows shutting.
 
 Marie, his femme de menage, protesting against the eight-hour day saying,
@@ -145,7 +145,7 @@ It is awfully good."
 
 "It's not good for you."
 
-"No.
+- No.
 
 It's bad for me.
 
@@ -155,7 +155,7 @@ This knowledge that you're going mad for me."
 
 "You know I like you to drink."
 
-"Oh yes.
+-Oh yes.
 
 Only it's bad for me."
 
@@ -167,11 +167,11 @@ Ayee he was tired.
 
 Too tired.
 
-He was going to sleep a little while.
+He was going to get some sleep.
 
 He lay still and death was not there.
 
-It must have gone around another street.
+She must have turned down another street.
 
 It went in pairs, on bicycles, and moved absolutely silently on the pavements.
 
