@@ -293,7 +293,7 @@ It came with a rush; not as a rush of water nor of wind; but of a sudden, evil-s
 
 You had better move over to the other side.
 
-To windward.
+Sit on the side of the wind.
 
 "Did Molo change the dressing?"
 
@@ -301,7 +301,7 @@ To windward.
 
 "How do you feel?"
 
-"A little wobbly."
+- Again a little weak.
 
 "I'm going in to bathe," she said.
 
