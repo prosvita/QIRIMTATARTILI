@@ -6,7 +6,7 @@ The sun was gone behind the hill and there was a shadow all across the plain and
 
 The birds no longer waited on the ground.
 
-They were all perched heavily in a tree.
+They sat on the branches of trees,placing their heavy bodies.
 
 There were many more of them.
 
