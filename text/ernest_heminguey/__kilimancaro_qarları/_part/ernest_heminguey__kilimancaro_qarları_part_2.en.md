@@ -24,7 +24,7 @@ She had gone to kill a piece of meat and, knowing how he liked to watch the game
 
 On anything she knew about, or had read, or that she had ever heard.
 
-It was not her fault that when he went to her he was already over.
+By the time he met the woman,his inner world was now completely empty, and she had nothing to do with it.
 
 How could a woman know that you meant nothing that you said; that you spoke only from habit and to be comfortable?
 After he no longer meant what he said, his lies were more successful with women than when he had told them the truth.
