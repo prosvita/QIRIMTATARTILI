@@ -16,11 +16,11 @@ There won't be any rain."
 
 So this was how you died, in whispers that you did not hear.
 
-Well, there would be no more quarrelling.
+Well, now the end of quarrels.
 
 He could promise that.
 
-The one experience that he had never had he was not going to spoil now.
+He will not spoil what he has not experienced.
 
 He probably would.
 
@@ -112,7 +112,7 @@ The rest was plaster walls and the windows of the neighbors.
 
 The neighbors who, at night, when some one lay drunk in the street, moaning and groaning in that typical French ivresse that you were propaganded to believe did not exist, would open their windows and then the murmur of talk.
 
-"Where is the policeman?
+- Where did  the policeman go?
 When you don't want him the bugger is always there.
 
 He's sleeping with some concierge.
