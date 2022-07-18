@@ -324,7 +324,7 @@ You're the most complete man I've ever known."
 "How little a woman knows.
 
 What is that?
-Your intuition?
+Are these your inner feelings?
 
 Because, just then, death had come and rested its head on the foot of the cot and he could smell its breath.
 
