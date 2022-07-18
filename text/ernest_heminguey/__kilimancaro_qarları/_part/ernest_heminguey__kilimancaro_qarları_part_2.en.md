@@ -156,7 +156,7 @@ Here she came now.
 
 He turned his head on the cot to look toward her.
 
-"Hello," he said.
+-Hello,- he said.
 
 "I shot a Tommy ram," she told him.
 
@@ -173,9 +173,9 @@ You were sleeping when I left."
 
 "I had a good sleep.
 
-Did you walk far?"
+Did you walk far?
 
-— "No.
+— No.
 
 Just around behind the hill.
 
