@@ -253,7 +253,7 @@ The sun is down."
 
 "Do you think you should?"
 
-"I'm having one."
+-I drank one shot.
 
 "We'll have one together.
 
