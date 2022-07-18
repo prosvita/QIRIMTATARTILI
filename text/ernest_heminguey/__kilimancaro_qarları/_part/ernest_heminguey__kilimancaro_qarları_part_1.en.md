@@ -141,7 +141,6 @@ She was sitting on a canvas chair beside his cot.
 
 "No thanks."
 
-
 "Maybe the truck will come."
 
 "I don't give a damn about the truck."
@@ -179,6 +178,7 @@ I know it's bad for you."
 "No," he said.
 
 "It's good for me."
+
 
 So now it was all over, he thought.
 
