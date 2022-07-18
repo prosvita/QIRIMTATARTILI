@@ -94,11 +94,11 @@ We must all be cut out for what we do, he thought.
 
 However you make your living is where your talent lies.
 
-He had sold vitality, in one form or another, all his life and when your affections are not too involved you give much better value for the money.
+He had sold vitality, in one form or another, all his life.
 
-He had found that out but he would never write that, now, either.
+Аnd when your affections are not too involved you give much better value for the money.
 
-No, he would not write that, although it was well worth writing.
+He had found that out but he would never write that, now, either,no, he would not write that, although it was well worth writing.
 
 Now she came in sight, walking across the open toward the camp.
 
