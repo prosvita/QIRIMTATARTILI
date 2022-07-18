@@ -179,7 +179,6 @@ I know it's bad for you."
 
 "It's good for me."
 
-
 So now it was all over, he thought.
 
 So now he would never have a chance to finish it.
@@ -195,6 +194,7 @@ For years it had obsessed him; but now it meant nothing in itself.
 It was strange how easy being tired enough made it.
 
 Now he would never write the things that he had saved to write until he knew enough to write them well.
+
 
 Well, he would not have to fail at trying to write them either.
 
