@@ -1,7 +1,9 @@
-Kilimanjaro is a snow-covered huge mountain 19,710 feet high, and is said to be the highest mountain in Africa.
+Kilimanjaro is a snow-covered huge mountain.
+ It is 19710 feet high.
+It is thought among the people to be the highest mountain in Africa.
+The highest hill on the west side of the mountain is called "Ngaje-Ngai," which means "House of the God," in the Masai tribe language.
 
 
-Its western summit is called the Masai "Ngaje Ngai," the House of God.
 Close to the western summit there is the dried and frozen carcass of a leopard.
 No one has explained what the leopard was seeking at that altitude.
 
