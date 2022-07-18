@@ -3,9 +3,7 @@ Kilimanjaro is a snow-covered huge mountain.
 It is thought among the people to be the highest mountain in Africa.
 The highest hill on the west side of the mountain is called "Ngaje-Ngai," which means "House of the God," in the Masai tribe language. 
 Close to that highest hill on the west side of the mountain lies the dried, frozen and hardened carcass of a leopard.
-
-
-No one has explained what the leopard was seeking at that altitude.
+No one has explained this miracle what the leopard was seeking at that altitude. 
 
 THE MARVELLOUS THING IS THAT IT’S painless," he said.
 
@@ -142,6 +140,7 @@ She was sitting on a canvas chair beside his cot.
 "There's a breeze coming up.
 
 "No thanks."
+
 
 "Maybe the truck will come."
 
