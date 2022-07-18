@@ -350,13 +350,13 @@ It moved up closer to him still and now he could not speak to it, and when it sa
 
 "Bwana is asleep now.
 
-Take the cot up very gently and carry it into the tent."
+Take the cot up gently and carry it into the tent.
 
 He could not speak to tell her to make it go away and it crouched now, heavier, so he could not breathe.
 
 And then, while they lifted the cot, suddenly it was all right and the weight went from his chest.
 
-It was morning and had been morning for some time and he heard the plane.
+It was morning and  he heard the plane.
 
 It showed very tiny and then made a wide circle and the boys ran out and lit the fires, using kerosene, and piled on grass so there were two big smudges at each end of the level place and the morning breeze blew them toward the camp and the plane circled twice more, low this time, and then glided down and levelled off and landed smoothly and, coming walking toward him, was old Compton in slacks, a tweed jacket and a brown felt hat.
 
@@ -366,7 +366,7 @@ It showed very tiny and then made a wide circle and the boys ran out and lit the
 
 "Will you have some breakfast?"
 
-"Thanks.
+- Thanks.
 
 I'll just have some tea.
 
@@ -443,4 +443,4 @@ There was no answer and she could not hear him breathing.
 
 Outside the tent the hyena made the same strange noise that had awakened her.
 
-But she did not hear him for the beating of her heart.
+But woman, did not hear him for the beating of her heart.
