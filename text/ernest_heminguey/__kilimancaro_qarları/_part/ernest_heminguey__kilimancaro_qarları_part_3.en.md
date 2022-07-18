@@ -372,7 +372,7 @@ I'll just have some tea.
 
 It's the Puss Moth you know.
 
-I won't be able to take the Memsahib.
+%
 
 There's only room for one.
 
