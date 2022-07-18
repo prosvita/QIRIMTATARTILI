@@ -297,7 +297,7 @@ He heard the hyena make a noise just outside the range of the fire.
 
 "Do you think you will be able to sleep?"
 
-"Pretty sure.
+- Pretty sure.
 
 Why don't you turn in?"
 
@@ -305,9 +305,9 @@ Why don't you turn in?"
 
 "Do you feel anything strange?" he asked her.
 
-"No.
+- No.
 
-Just a little sleepy."
+Just a little sleepy.
 
 "I do," he said.
 
@@ -319,7 +319,7 @@ He had just felt death come by again.
 
 You're the most complete man I've ever known."
 
-"Christ," he said.
+- Christ,- he said.
 
 "How little a woman knows.
 
@@ -443,4 +443,4 @@ There was no answer and she could not hear him breathing.
 
 Outside the tent the hyena made the same strange noise that had awakened her.
 
-But woman, did not hear him for the beating of her heart.
+But woman, didn't hear him for the beating of her heart.
