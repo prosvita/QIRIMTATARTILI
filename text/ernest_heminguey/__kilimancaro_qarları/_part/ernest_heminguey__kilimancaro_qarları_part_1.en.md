@@ -217,7 +217,7 @@ I said I'd go anywhere you wanted.
 
 If you wanted to shoot we could have gone shooting in Hungary and been comfortable."
 
-"Your bloody money," he said.
+% "Your bloody, devil money," he said.
 
 "That's not fair," she said.
 
@@ -277,7 +277,8 @@ You're out of your head."
 
 "No.
 
-I haven't any head to go out of."
+% I haven't any head."
+% To lose it, you have to have a head. 
 
 "Don't drink that," she said.
 
