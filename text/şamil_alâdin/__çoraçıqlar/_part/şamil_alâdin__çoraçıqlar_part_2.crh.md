@@ -424,7 +424,7 @@ Onıñ özüm!
 
 Qızğa içeri kiriñiz dep rica ettim.
 Kirmedi.
-Boğçasını elime tuttırıp, keri çekildi.
+Boğçasını elime tutturıp, keri çekildi.
 
 – Savutlarnı soñundan kelip alırım, – dedi o.
  – Riza ağam: “oca üyle yemegine evimizge kelsin” dedi.
@@ -505,7 +505,7 @@ Men sınıf defterini alıp, derske kirdim.
 
 Mektepte birinci ve ekinci sınıflarda ders bergenimni, bu sınıflarnıñ cısmiy ve ruhiy terbiyesi içün mesül ekenimni yuqarıda ayttım.
 Bu menim daimiy hızmetim.
-Cuma – istiraat künim.
+Cuma – istiraat künüm.
 Birinci sınıftaki meşğuliyet – elifbeni menimsev.
 
 Birinci sınıf defterlerni çıqarmasını rica ettim.
