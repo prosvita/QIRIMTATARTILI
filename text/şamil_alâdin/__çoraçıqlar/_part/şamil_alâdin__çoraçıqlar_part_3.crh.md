@@ -979,7 +979,7 @@ Baqtı-baqtı, közlerine inanmadı.
 Yanına çapıp bardım, quçaqladım, farığan çeresinden, ağarğan saçlarından öptim.
 “Sevimli ana!
 Men sizni pek sağındım!”, – dedim oña.
-“Menim, balam! – dedi anam. – Men de seni pek sağındım!
+“Menim balam! – dedi anam. – Men de seni pek sağındım!
 Bugün saba filcannıñ tübündeki telbege baqtım... uzaq yolda köründiñ!”
 
 Men kederlendim.
@@ -1008,7 +1008,7 @@ Yürtü kolhozğa keçti degilmi?
 Men qasevetlendim.
 Bugün Süyren poyezdinen ketmek kerekim.
 Süyren stantsiyası köyge yigirmi beş çaqırım.
-Kökköz avtobusını qaçırsam, işim tesadufiy lelenkağa qalacaq.
+Kökköz avtobusını qaçırsam, işim tesadüfiy lelenkağa qalacaq.
 
 – Maña mıtlaqa ketmek kerek, – dedim men, anamnıñ közlerinde telâş sezildi.
 
@@ -1020,7 +1020,7 @@ O, qomşu odağa kirdi, eppi vaqıt davuşı çıqmadı, bir talaydan soñ:
 – Evelâ aşa toy!
 Soñ ket! – dep qıçırdı qapusı yapıq oda içinden. – Meni ıncıtma! Ya Rabbi!
 Oqumağa ketkenlerniñ episi seniñ kibimi aceba?
-Olarnıñ anaları da, menim kibi, daima asret ve qasevet içindelermi? – o, ep yüregindeki kederi, sevgisi hususında söyledi... ama babam ile ekisi qaranlıq köterilip qaranlıq engence, belni doğrultmay çayırda çalışqanları, ayatlarınıñ ağırlığı aqqında ağızından söz çıqmadı.
+Olarnıñ anaları da, menim kibi, daima asret ve qasevet içindelermi? – o, ep yüregindeki kederi, sevgisi hususında söyledi... ama babam ile ekisi qaranlıq köterilip qaranlıq engence, belni doğrultmay çayırda çalışqanları, ayatlarınıñ ağırlığı aqqında ağzından söz çıqmadı.
 
 Ne dersiñ?
 Analar er vaqıt aqlılar!
