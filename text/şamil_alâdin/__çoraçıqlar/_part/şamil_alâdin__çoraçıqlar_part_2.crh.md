@@ -1205,7 +1205,7 @@ Sizge bir şey olmadımı?
 – Yoq.
 Er yerim bütün.
 Shodda edim, – dedim men.
-Evden çıqqan vaqıtımda qayda ketkenimni Saabe aptege aytmağanıma yazıqsındım.
+Evden çıqqan vaqtımda qayda ketkenimni Saabe aptege aytmağanıma yazıqsındım.
 
 – İdaredemi? – dep qaytarıp soradı Saabe.
 – İdare ters yerde.
