@@ -343,7 +343,7 @@ Bu tabiat süküneti.
 Evge keldim.
 Saabe apte uyquda, qapu yapıq.
 Taaciplendim.
-Köyde qalübelâdan beri, yazda ve qışta, kündüz ve gece qapu örtilüvi adet olmağan.
+Köyde qalübelâdan beri, yazda ve qışta, kündüz ve gece qapu örtülüvi adet olmağan.
 Şimdi ne sebeptendir, kilitli.
 Qapunı yavaştan qaqtım, içeride areket duyuldı, lâkin qapu açılmadı.
 Saabe apte, qaranlıq ev içerisinden yarıq azbarğa diqqatle baqıp, qapunı qaqıcı kim ekenini körgen, meni tanığan soñ, açtı.
@@ -366,7 +366,7 @@ Yeñi ükümet keldi, dağ aydutlarından ep bir amanlıq yoq.
 Böyle muhataralı gecede közge yuqu kiremi?
 Sağ-selâmet sabanı tapsaq, oña şükür.
  – O omuzları üstündeki qalın yün şalnı yuqarığa çekip, boyunını örtti, kevdesi ile ögümni kestirip toqtaldı. – Bir daa evge keç kelseñiz, qapunı qaqmañız!
-Pencereni qakıñız!
+Pencereni qaqıñız!
 Siz ekeniñizni bileyim!
 
 Saabe apte aqlı, zaman ğayet fena.
