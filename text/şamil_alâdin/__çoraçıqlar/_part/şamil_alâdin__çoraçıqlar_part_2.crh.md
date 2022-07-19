@@ -317,7 +317,7 @@ Laqırdığa dalıp, oturıp qalğanımnı sezmedim.
 Aş aşadıq, çay içtik.
 Mende birinci künniñ derslerinden asıl olğan teessurat hususında qonuştıq.
 Men ekinci sınıfta işlerniñ seviyesi al-azırdakinden yüksekçe olması kerekligini ayttım.
-Safiye hanımnıñ yüzünde menim fikirimnen razılıq sezildi, özü indemedi.
+Safiye hanımnıñ yüzünde menim fikrimnen razılıq sezildi, özü indemedi.
 Yaya efendi de bir şey aytmadı.
 Olar sözlerinde ve areketlerinde ğayet ihtiyatlar.
 Dağlıqtaki ayat olarğa çoq şeyler ögretken.
