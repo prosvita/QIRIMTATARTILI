@@ -1,9 +1,9 @@
-Kilimanjaro is a snow-covered huge mountain.
- It is 19710 feet high.
-It is thought among the people to be the highest mountain in Africa.
-The highest hill on the west side of the mountain is called "Ngaje-Ngai," which means "House of the God," in the Masai tribe language. 
-Close to that highest hill on the west side of the mountain lies the dried, frozen and hardened carcass of a leopard.
-No one has explained this miracle what the leopard was seeking at that altitude. 
+% Kilimanjaro is a snow-covered huge mountain.
+% It is 19710 feet high.
+% It is thought among the people to be the highest mountain in Africa.
+% The highest hill on the west side of the mountain is called "Ngaje-Ngai," which means "House of the God," in the Masai tribe language. 
+% Close to that highest hill on the west side of the mountain lies the dried, frozen and hardened carcass of a leopard.
+% No one has explained this miracle what the leopard was seeking at that altitude. 
 
 THE MARVELLOUS THING IS THAT IT’S painless," he said.
 
@@ -25,7 +25,7 @@ Please don't."
 
 "Now is it sight or is it scent that brings them like that?"
 
-The cot the man lay on was in the wide shade of a mimosa tree and as he looked out past the shade onto the glare of the plain there were three of the big birds squatted obscenely, while in the sky a dozen more sailed, making quick-moving shadows as they passed.
+% The cot the man lay on was in the wide shade of a mimosa tree and as he looked out past the shade onto the glare of the plain there were three of the big and ugly birds squatted obscenely, while in the sky a dozen more sailed, making quick-moving shadows like thunder as they passed.
 
 "They've been there since the day the truck broke down," he said.
 
