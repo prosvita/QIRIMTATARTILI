@@ -265,7 +265,7 @@ Bu sözlerni birinci sınıf talebelerine defterlerinde yazmaqnı vazife etip be
 Açıq-aydın ve dülber ariflernen temiz yazmaq kerekligini añlattım.
 Soñra, ekinci sınıfnen meşğul oldım.
 Talebelerge oquv kitabını açmaqnı rica ettim, olar çantalarından kitapnı çıqarıp, açqan soñ:
- “Qana, Emine!Sen oqu! – dedim Memed-Aliniñ qızına, kitaptaki iylekâr tilki masalını kösterdim.
+ “Qana, Emine! Sen oqu! – dedim Memed-Aliniñ qızına, kitaptaki iylekâr tilki masalını kösterdim.
 
 Oca bu yerde ikâyesini toqtatıp, maña küler yüzle baqtı.
 “Bu tarih hatiriñizdemi?” dep soradı menden.
@@ -470,7 +470,7 @@ Aşağıdaki odalarnıñ divarları taştan qalanılğan.
 Ekinci qat... çitnen örülip, içten ve tıştan sıvalğan, aqlanğan.
 Qışta yuqarı odalarda suvuq olsa kerek.
 Dülger özü ve Müntea apte birinci qatta yaşaylar.
-Birinde özleri, digerinde boğday ve un anbarı, qamur teknesi, baqır legen ve saire edavat buluna.
+Birinde özleri, digerinde boğday ve un anbarı, hamur teknesi, baqır legen ve saire edavat buluna.
 Evniñ tübü sarı balçıqnen sılavlı.
 Birinci qat odalarına mağaz denile.
 Oğullar... – bu siz ve Yunus, ekiñiz olasıñız, çünki Bari Mahuldürde çoq körünmey, Abdulmein ise Nasvernde yaşay edi, – oğullar qış gecesinde ekinci qatta küçük oda içinde bir qalın yorğan astında ekisi bastırılıp yatalar, ekinci qatnıñ diger odalarında alma, armut, yüvez, aqlap, qızılçıq, fındıq, ceviz tutula.
@@ -605,7 +605,7 @@ Müntea apte alel-acele yerinden turıp, qapuğa çaptı, lâkin zembelek tışt
 Mümine babañnıñ qız qardaşı... siziñ alapçeñiz! – dedi.
 Abdureşid oca, maña muracaat ile, – hoş çereli yüksek qadın.
 Küçücik çağında babasınıñ tütün tarlasında işlep, bu köydeki ayatnıñ şefqatına ve hışımına alışqan.
-İslâm bayğa qocağa çıqqan soñ dört oğlan ve dört qız doğurğan, böyle iri aile saibiligi devirinde, şübesiz, üç atlı faytonğa oturıp, bir defamı, ekimi, Ay Petriden keçip, Yalı boyu şeerlerni ziyaret etip kelgen, ama özüniñ keçmişini unutıp, yüksek variyetli ömürge tekmil berilip, baylıqtan ferah körmegen, köyniñ özünde evel-ezelden ükümran ayatnıñ qaidelerinen yaşap kelgen.
+İslâm bayğa qocağa çıqqan soñ dört oğlan ve dört qız doğurğan, böyle iri aile saibiligi devrinde, şübesiz, üç atlı faytonğa oturıp, bir defamı, ekimi, Ay Petriden keçip, Yalı boyu şeerlerni ziyaret etip kelgen, ama özüniñ keçmişini unutıp, yüksek variyetli ömürge tekmil berilip, baylıqtan ferah körmegen, köyniñ özünde evel-ezelden ükümran ayatnıñ qaidelerinen yaşap kelgen.
 
 Kimerde Mümineniñ hatirine soyu-sopu tüşe.
 Ağası Alâdinden, aptesi Zeideden başqa, doğmuş kişileri yoqluğı sebebinden, bu evge silâğa kelüvni unutmay.
@@ -682,7 +682,7 @@ Atışuvlarnıñ endi faydası yoq.
 Qız qardaşınıñ soñki sözlerine cevap bermedi.
 Bermek istemedi.
 İslâm pomeşçik degil.
-Qoşarlarda qışlağan, otarlarda otlağan yüzlep, biñlep atları, qoyunları, sığırları yoq.
+Qoşarlarda qışlağan, otarlarda otlağan yüzler, biñler atları, qoyunları, sığırları yoq.
 Bir qaç tütün tarlası, meyva bağçası, tütün aranı... işte, bütün mülkiyeti!
 Dağlıq-taşlıq içindeki bu küçük köyde İslâmğa, elbet de, bay deyler, çünki oña fuqare demek mümkün degil. – Niçün indemeysiñiz, ağa? – dep qıçırdı Mümine, ağlamsırap. – Sizden sorayım: bizim alımız ne olacaq?
 
