@@ -29,7 +29,7 @@ Please don't."
 
 "They've been there since the day the truck broke down," he said.
 
-%"I saw, today's the first time any have lit on the ground.
+% "I saw, today's the first time any have lit on the ground.
 
 I watched the way they sailed very carefully at first in case I ever wanted to use them in a story.
 
@@ -53,7 +53,7 @@ I think we might make it as easy as we can until the plane comes."
 
 "Please tell me what I can do.
 
-%I'm going to do some sort of thing, there's got to be something to do anyway. 
+% I'm going to do some sort of thing, there's got to be something to do anyway. 
 
 "You can take the leg off and that might stop it, though I doubt it.
 
@@ -65,7 +65,7 @@ I taught you to shoot, didn't I?"
 
 "Please don't talk that way.
 
-%Couldn't I read to you a little bit?"
+% Couldn't I read to you a little bit?"
 
 "Read what?"
 
@@ -85,7 +85,7 @@ Let's not quarrel any more.
 
 No matter how nervous we get.
 
-%Maybe they will be back with another truck.
+% Maybe they will be back with another truck.
 
 Maybe the plane will come."
 
