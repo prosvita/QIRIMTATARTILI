@@ -81,8 +81,8 @@ Eñ oñaytlı yer – dügünler.
 Davulğa çoqmar tüşken, qadeler-qadelerge urulğan, közler bunarlanğan soñ, er kes qızışa, köylü gençler ile bey oğulları arasında nezaketli subet başlay, bir talay vaqıt keçken soñ, sofra üzerindeki çanaq-çölmek, şişeler avada oynaylar... o, vaqıtta köylü yigitler bey oğulçıqlarınıñ bedenlerinde teren-teren örnekler yasap yibereler.
 
 Köyümizde añlaşılmağan meseleler çoq.
-Söz kelimi, buhar degirmeniniñ çarqları alâ çorbacınıñ menfaatına dönmekteler.
-Bağçalardaki mahsulatnıñ keliri çorbacınıñ cebine tolmaqta.
+Söz kelimi, buhar degirmeniniñ çarqları alâ şorbacınıñ menfaatına dönmekteler.
+Bağçalardaki mahsulatnıñ keliri şorbacınıñ cebine tolmaqta.
 Starsanıñ Yaqubı ise Qızıl ordu içün köyümizde eki sığır tapıp olamay, aç köylüniñ soñki tanasını tutıp almaq peşinde.
 Bu doğrumı, Abdureşid muallim?
 
@@ -223,7 +223,7 @@ Binası da donatılıp bitmek üzre.
 O, asıl da, yeñi akimiyetten yalıñız hayırlı işler beklemekte.
 
 Bu esnada içeri Safiye ocapçe kirdi.
-Çeresiniñ aydınlığından sezildi ki, yeñiliqlerniñ episinden haberdar.
+Çeresiniñ aydınlığından sezildi ki, yeñiliklerniñ episinden haberdar.
 O, paltosınıñ sadeflerini çezmekte oldı, derske çañ qaqıldı.
 Men sınıf defterini alıp, ocalar odasından çıqtım.
 Sofa özü keñ ve uzun.
