@@ -155,11 +155,11 @@ She was sitting on a canvas chair beside his cot.
 
 "It's supposed to be bad for you.
 
-It said in Black's to avoid all alcohol.
+% It said in Black's informatioun book, to avoid all alcohol.
 
 You shouldn't drink."
 
-"Molo!" he shouted.
+% "Molo!" 
 
 "Yes Bwana."
 
