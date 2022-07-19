@@ -877,7 +877,7 @@ O, balalarnıñ peşinden sınıfqa kirdi.
 Onbaşı, yuzbaşı, biñbaşı... bular tatarda cenkler zamanından qalğan arbiy unvanlar.
 Onbaşı – bölük komandiri, yani serjant, şimdi cemaatnı mecliske davet etici adam.
 Onbaşınıñ sesi şura akimiyeti kelgen künden beri köyde er kün, kimerde bir qaç defa yañğırağanından, oña er kes alışıp qaldı.
-Qış vaqıtında qapusı ve penceresi yapıq evler içindeki adamlar dahi bu uzaq, tınıq sesni tanıp, sofağa yuvurıp çıqaraq, onı diqqatle diñleyler.
+Qış vaqtında qapusı ve penceresi yapıq evler içindeki adamlar dahi bu uzaq, tınıq sesni tanıp, sofağa yuvurıp çıqaraq, onı diqqatle diñleyler.
 Köy ortasından qıçırıp aytılğan sözler şimdi, aqşam üstü, azbarlarda köpeklerniñ avuldısından, derede bentten sıçrağan nomay suvnıñ şuvultısından yahşı añlaşılmasa da, onbaşınıñ davuşı ekenini er kes bile.
 Ne aytqanınıñ añlaşılması farz degil.
 Onbaşı qıçırdımı, demek, shod olacaq.
@@ -886,7 +886,7 @@ Demek, idarege barmaq kerek.
 Ortalıq qaranlıqlanğan soñ, erkekler üstlerine tonlarını, başlarına calos qalpaqlarını, ayaqlarına teren kaloşlarını kiyip, fenerlerini yaqıp, ellerine alıp, idarege cöneyler.
 Bu – bayram kibi şey.
 Mecliske barıp, bir şeyler eşitmek – meraqlı.
-Men shodqa barmağa borclummı – yoqmı, bilmeyim.
+Men shodqa barmağa borclummı-yoqmı, bilmeyim.
 Men ocam.
 Er şeyge qarışmağa aqqım bar.
 Onıñ içün... kettim.
@@ -894,7 +894,7 @@ Köylüler ne aldalar.
 Ne tüşüneler, bilmek kerekim.
 Azbarda qoluma, tayaq yerine, qısqaca bir sopa aldım.
 Sopa, esasen, köpeklerden qorçalanmaq içün.
-Yollar dereli töpeli.
+Yollar dereli-töpeli.
 İdare köyniñ arqa yaqında, tükân qarşısındaki azbarda, şura ükümeti tedbirleri hususında muşavere etmek içün tayin etilgen ev.
 Şimdilik idare dep adlana.
 Soñundan bu evge izbaç denilecek.
@@ -940,7 +940,7 @@ Aytıñız, ne çareler körmek mümkün?
 
 Bir yaqtan starsa Yaqub bu sözlerni aytmaqta oldı, diger yaqtan adamlar azbardan vira içeri kirdi, qapu yanından qaqınıp, üstlerindeki qarnı yerge tüşürip, ellerindeki fenerlerini söndürip, köşede yerge qoydı, ses-soluq çıqarmay, boş skemlelerge otura berdiler.
 
-Divar yanında, arqasına qañqayıp, çeñgesini töpege köterip, natıqnı yüksek meraqnen diñlep oturğan tolu kevdeli, qırmızı çereli, yaş kişi, Seit-Ümer Asan oğlu, yerinden bir qıbırdandı, astındaki yufqa skemle keskin davuşnen ğıçıldadı.
+Divar yanında, arqasına qañqayıp, çeñgesini töpege köterip, natıqnı yüksek meraqnen diñlep oturğan tolu kevdeli, qırmızı çereli, yaş kişi, Seit-Ümer Asan oğlu, yerinden bir qıbırdandı, astındaki yufqa skemle keskin davuşnen ğırçıldadı.
 
 – Oña tek bir çare bar... – dedi Seit-Ümer starsa Yaqubnıñ sualine cevaben. – Dağdan köyge tüşip, evlerni talağanlarnı atmaq kerek.
 
