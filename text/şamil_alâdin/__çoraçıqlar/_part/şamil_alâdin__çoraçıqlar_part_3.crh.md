@@ -55,7 +55,7 @@ Altı köylü atlar üstünde köyniñ şimal civarında, qomşu köylerde dolan
 Acı-Üsein, qızınıñ hırsızlanğanını bilgen soñ esini coyıp, yatıp qala.
 
 Mahuldürli avcı İsmail ertesi künü dağda tavşan peşinden yürgende, Mustafa beyniñ qoruvı içinde Acı-Üseinniñ qızınıñ cesedine rastkele.
-Üstünde paalı anter, qulaqlarında altın küpeler, boyunında altın gerdanlıq, qolunda altın bilezlik, belinde ibrışım quşaq.
+Üstünde paalı anter, qulaqlarında altın küpeler, boyunında altın gerdanlıq, qolunda altın bilezlik, belinde ibrişim quşaq.
 Evden nasıl çıqqan olsa, o bezenmeler ile... qanlar içinde yatmaqta.
 
 Avcı İsmail Acı-Üseinniñ evine kelip, bu kederli haberni bildire.
