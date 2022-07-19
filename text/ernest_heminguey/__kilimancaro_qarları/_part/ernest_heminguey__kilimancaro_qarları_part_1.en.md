@@ -121,7 +121,7 @@ You can't die if you don't give up."
 
 You're such a bloody fool."
 
-"You might think about some one else."
+% "Then you might think not only of yourself, but of some one else."  
 
 "For Christ's sake," he said.
 
