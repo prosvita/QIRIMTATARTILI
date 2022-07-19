@@ -361,7 +361,7 @@ Bu hususta Kandıba ile menim qafalarımız işlemek kerekler.
 Kene muzakeremi? — Hristofor şimdi peyda oldı.
 — İşke kirişmek kerek.
 
-— Selâm! — dedi Nikolay oña, açuvlanıp,— kirişecegiñ kelse, kiriş!
+— Selâm! — dedi Nikolay oña, açuvlanıp, — kirişecegiñ kelse, kiriş!
 Yol açıq.
 
 — Böyle ekenini bilmey ediñmi?— dedi Hristofor.— Endi keç...
