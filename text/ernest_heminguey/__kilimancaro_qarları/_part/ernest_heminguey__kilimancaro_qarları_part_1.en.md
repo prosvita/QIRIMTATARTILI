@@ -302,7 +302,9 @@ But it was the snow all right and he sent them on into it when he evolved exchan
 
 And it was snow they tramped along in until they died that winter.
 
-It was snow too that fell all Christmas week that year up in the Gauertal, that year they lived in the woodcutter's house with the big square porcelain stove that filled half the room, and they slept on mattresses filled with beech leaves, the time the deserter came with his feet bloody in the snow.
+It was snow too that fell all Christmas week that year up in the Gauertal.
+That year they lived in the woodcutter's house with the big square porcelain stove that filled half the room, and they slept on mattresses filled with beech leaves.
+The time the deserter came with his feet bloody in the snow.
 
 He said the police were right behind him and they gave him woolen socks and held the gendarmes talking until the tracks had drifted over.
 
@@ -310,13 +312,15 @@ In Schrunz, on Christmas day, the snow was so bright it hurt your eyes when you 
 
 That was where they walked up the sleigh-smoothed urine-yellowed road along the river with the steep pine hills, skis heavy on the shoulder, and where they ran down the glacier above the Madlenerhaus, the snow as smooth to see as cake frosting and as light as powder and he remembered the noiseless rush the speed made as you dropped down like a bird.
 
-They were snow-bound a week in the Madlenerhaus that time in the blizzard playing cards in the smoke by the lantern light and the stakes were higher all the time as Herr Lent lost more.
+They were snow-bound a week in the Madlenerhaus that time in the blizzard playing cards in the smoke by the lantern light.
+
+The stakes were higher all the time as Herr Lent lost more.
 
 Finally he lost it all.
 
 Everything, the Skischule money and all the season's profit and then his capital.
 
-He could see him with his long nose, picking up the cards and then opening, "Sans Voir." There was always gambling then.
+He could see him with his long nose, picking up the cards and then opening, "Sans Voir." 
 
 They always played that times.
 
