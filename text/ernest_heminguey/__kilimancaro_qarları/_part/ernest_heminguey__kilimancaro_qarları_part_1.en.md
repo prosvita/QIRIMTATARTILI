@@ -29,7 +29,7 @@ Please don't."
 
 "They've been there since the day the truck broke down," he said.
 
-"Today's the first time any have lit on the ground.
+%"I saw, today's the first time any have lit on the ground.
 
 I watched the way they sailed very carefully at first in case I ever wanted to use them in a story.
 
