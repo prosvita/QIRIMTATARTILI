@@ -265,7 +265,7 @@ Bu sözlerni birinci sınıf talebelerine defterlerinde yazmaqnı vazife etip be
 Açıq-aydın ve dülber ariflernen temiz yazmaq kerekligini añlattım.
 Soñra, ekinci sınıfnen meşğul oldım.
 Talebelerge oquv kitabını açmaqnı rica ettim, olar çantalarından kitapnı çıqarıp, açqan soñ:
- “Qana, Emine!Sen oqu! – dedim Memed-Aliniñ qızına, kitaptaki ilekâr tilki masalını kösterdim.
+ “Qana, Emine!Sen oqu! – dedim Memed-Aliniñ qızına, kitaptaki iylekâr tilki masalını kösterdim.
 
 Oca bu yerde ikâyesini toqtatıp, maña küler yüzle baqtı.
 “Bu tarih hatiriñizdemi?” dep soradı menden.
