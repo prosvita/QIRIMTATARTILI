@@ -330,10 +330,12 @@ Biz ayretlendik, bir-birimizge baqıştıq.
 Biraz esini toplasın, — dedi Karim.
 
 — Elbette!— dep ilâve etti Bassaraba. 
+
 Men Arhipka İradanı begengenine ve bu nefishor, bralqı kişide İradağa nisbeten sevgi ve işanç yaşağanına taaciplendim.
 
 ...Çar-Çaqnıñ keñ ve say yerini tapmaq kerek, lâkin nasıl?
-İdareden gidrologiya tedqiqatları malümatını istetip adam yolladıq, amma İrada beklemek istemedi, Paromnıñ biraz aşağısında özen kenişçe edi.
+İdareden gidrologiya tedqiqatları malümatını istetip adam yolladıq, amma İrada beklemek istemedi.
+Paromnıñ biraz aşağısında özen kenişçe edi.
 Yarın üyle maalinde anda körüşecek oldıq.
 
 Eki traktor, büyük çananı arqalarına taqıp, paromnıñ yanına çekip ketirdiler.
