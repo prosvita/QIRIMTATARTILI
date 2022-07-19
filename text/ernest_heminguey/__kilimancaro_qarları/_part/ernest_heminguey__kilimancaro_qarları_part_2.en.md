@@ -54,7 +54,7 @@ She had liked it.
 
 She said she loved it.
 
-She loved anything that was exciting, that involved a change of scene, where there were new people and where things were pleasant.
+She went to every interesting,wonderful and unfamiliar place,and saw there new,completely unfamiliar places where people live,and in those parts she liked the fact that every thing seemed beautiful.
 
 And he had felt the illusion of returning strength of will to work.
 
