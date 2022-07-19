@@ -748,7 +748,7 @@ Siz eki akimiyetniñ işlerini biri-birinen qarıştırmañız!
 Kerçek, kimerde anda-mında tüfek patlay... buña devlet almaşuvı, yani inqilâp deyler.
 
 Mümine apte menim soñki sözlerimni eşitmegen kibi, indemey sofağa çıqtı.
-Tapşan üstünde Alâdin ağa yoq edi.Musafir maramasınen yüzüniñ bir yaqını örtkeni alda, taşlı, eniş azbar boyu yürip, araba qapudan çıqtı, soñra tar soqaqnen dere betke endi.Bent ep quturmaqta edi.
+Tapşan üstünde Alâdin ağa yoq edi. Musafir maramasınen yüzüniñ bir yaqını örtkeni alda, taşlı, eniş azbar boyu yürip, araba qapudan çıqtı, soñra tar soqaqnen dere betke endi. Bent ep quturmaqta edi.
 
 Köyniñ şarqında, Bağatırğa ketken eniş aralıqnıñ qarşısında Abdulla baynıñ eki qatlı evi tura.
 Ast ve üst sofaları camlı.
@@ -841,7 +841,7 @@ Eali ekmekke, yemekke toydı.
 Açlıq zulumından qurtuldı.
 Bağlarda-bağçalarda bülbuller sayradı.
 Dereniñ suvu nomay oldı.
-Köyniñ içinde nazik dağ çiçekleri qoqudı.
+Köyniñ içinde nazik dağ çeçekleri qoqudı.
 
 Bir defa poçtacı Kazariadi üç-dört müür ile sırlı konvert ketirdi.
 İçindeki mektüpte Yaya Bayraşevskiy merkeziy şeerge yüksek maarif hızmetine çağırılmaqta edi.
