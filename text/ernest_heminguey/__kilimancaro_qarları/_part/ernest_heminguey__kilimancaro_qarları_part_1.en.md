@@ -378,7 +378,6 @@ My Sword and my Armour."
 
 I'll stop that.
 
-
 I don't want to hurt you.'
 
 "It's a little bit late now."
@@ -438,3 +437,4 @@ Rotten poetry."
 "I don't like to leave anything," the man said.
 
 "I don’t like to leave things behind."
+
