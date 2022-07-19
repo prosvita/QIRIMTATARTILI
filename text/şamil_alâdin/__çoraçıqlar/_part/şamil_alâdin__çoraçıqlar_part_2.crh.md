@@ -876,7 +876,7 @@ O, balalarnıñ peşinden sınıfqa kirdi.
 Şu künü yağmurlı-qarlı aqşamda, köy üzerine qaranlıq engen maalde Qır üstünden onbaşı Ametniñ davuşı eşitildi.
 Onbaşı, yuzbaşı, biñbaşı... bular tatarda cenkler zamanından qalğan arbiy unvanlar.
 Onbaşı – bölük komandiri, yani serjant, şimdi cemaatnı mecliske davet etici adam.
-Onbaşınıñ sesi şura akimiyeti kelgen künden beri köyde er kün, kimerde bir qaç defa yañğarağanından, oña er kes alışıp qaldı.
+Onbaşınıñ sesi şura akimiyeti kelgen künden beri köyde er kün, kimerde bir qaç defa yañğırağanından, oña er kes alışıp qaldı.
 Qış vaqıtında qapusı ve penceresi yapıq evler içindeki adamlar dahi bu uzaq, tınıq sesni tanıp, sofağa yuvurıp çıqaraq, onı diqqatle diñleyler.
 Köy ortasından qıçırıp aytılğan sözler şimdi, aqşam üstü, azbarlarda köpeklerniñ avuldısından, derede bentten sıçrağan nomay suvnıñ şuvultısından yahşı añlaşılmasa da, onbaşınıñ davuşı ekenini er kes bile.
 Ne aytqanınıñ añlaşılması farz degil.
