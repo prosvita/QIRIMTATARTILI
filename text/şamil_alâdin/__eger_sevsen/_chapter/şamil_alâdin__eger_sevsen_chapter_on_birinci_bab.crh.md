@@ -358,21 +358,25 @@ Bu hususta Kandıba ile menim qafalarımız işlemek kerekler.
 — Ne yapacaqmız?— dep soradı menden Nikolay, başını ekskavator betke siltep, — bu, qardaş, şpal taşımaq degil!
 
 — Ne?
-Kene muzakeremi? — Hristofor şimdi peyda oldı.
+Kene muzakeremi? 
+— Hristofor şimdi peyda oldı.
 — İşke kirişmek kerek.
 
 — Selâm! — dedi Nikolay oña, açuvlanıp, — kirişecegiñ kelse, kiriş!
 Yol açıq.
 
-— Böyle ekenini bilmey ediñmi?— dedi Hristofor.— Endi keç...
+— Böyle ekenini bilmey ediñmi? — dedi Hristofor.
+— Endi keç...
 
 Laqırdımızda em qatiyet, em qatiyetsizlik sezildi.
 Adamlar, mürekkep hızmetke başlamazdan evel, teren fikirler ifa etemiz dep, emiyetsiz ibarelernen fikir alışıp-berişmege seveler...
 Men bunı bile edim.
 
-Yalığa yaqın keldim, Eki nijnik öz araları laqırdı etmekteler.
+Yalığa yaqın keldim.
+Eki nijnik öz araları laqırdı etmekteler.
 
-— Men red etmek istedim,— dey birisi.— Añladıñmı?
+— Men red etmek istedim, — dey birisi.
+— Añladıñmı?
 Soñ: toqta sen, dedim.
 Başta barıp baqayım...
 
