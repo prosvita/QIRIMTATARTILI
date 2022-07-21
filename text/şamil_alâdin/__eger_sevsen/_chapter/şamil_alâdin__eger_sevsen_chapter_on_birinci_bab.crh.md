@@ -405,8 +405,10 @@ Maşinistler İradanıñ yanından çekilip, bizge taba keldi, draglâynnı plat
 Bu arada, özenniñ dalğalarını quturta berip yalığa parom kelip yanaştı.
 
 — Ey!
-Ülemalar!— Nikolay nijniklerge muracaat etti.
-Bassaraba eleslenip, başını köterdi.— Maña baqıñız!
+Ülemalar! 
+— Nikolay nijniklerge muracaat etti.
+Bassaraba eleslenip, başını köterdi.
+— Maña baqıñız!
 Evelâ platformağa dört-beş qalın tayamalar tiremek kerek.
 Yelquvannı alınğan soñ draglâynnıñ kevdesi, tayamalar üstünden tayıp, çana üzerine tüşecek.
 Soñra çananı traktorğa taqıp paromğa çekip alıp ketmek... işte, birinci vazife!
