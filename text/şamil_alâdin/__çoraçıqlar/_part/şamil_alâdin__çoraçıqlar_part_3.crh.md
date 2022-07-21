@@ -26,7 +26,7 @@ Lütfi ögey ana ile qız arasındaki munasebetlerniñ fenalığını duya.
 Köydeki bir cadı ile Naqiyege esapsız aqçalar yollay, qıznı hırsızlap alıp ketmek içün yardım etmesi hususında añlaşalar.
 
 Qaranlıq bir gecede, köy ealisi uyquda ekende, Lütfi ve eki dostu atlarğa minip, keleler.
-Naqiye qıznı aldap, kiyindirip – quşandırıp, qıymetli bezenmelerini taqtırıp, azbarğa alıp çıqa, yabaniy kişiler, qızğa fikirlerini toplap, azbarda ne olayatqanını abaylamağa fursat bermey, qapqaç etip, atqa qoya, alıp qaçalar.
+Naqiye qıznı aldap, kiyindirip-quşandırıp, qıymetli bezenmelerini taqtırıp, azbarğa alıp çıqa, yabaniy kişiler, qızğa fikirlerini toplap, azbarda ne olayatqanını abaylamağa fursat bermey, qapqaç etip, atqa qoya, alıp qaçalar.
 Naqiye azbarda bir talay indemey tura, atlılar evden uzaqlaşqan soñ: imdat! – diye ayqırıp başlay.
 Qolum-qomşu, geceniñ bey vaqıtında bu kiyik davuşnı eşitip, evlerinden yuvurıp çıqa, Acı-Üseinniñ azbarında toplanalar.
 “Ne oldı, Naqiye?” – dep soraylar ondan.
@@ -100,7 +100,7 @@ Er işniñ tertibi bar!
 
 Bundan soñra menim sesim çıqmadı.
 Saabe apteniñ laqırdısı da kesildi.
-Ve, çoqqa barmay, burunından, aralıq pencerede sızğırğan yel kibi, devamlı ince davuş çıqqanı eşitildi.
+Ve, çoqqa barmay, burnundan, aralıq pencerede sızğırğan yel kibi, devamlı ince davuş çıqqanı eşitildi.
 
 Menim uyqum qaçtı.
 “Saabe apte özü kim?
@@ -143,7 +143,7 @@ Soñra tekrarlaymız.
 – Yoq.
 Namaz qıluvnı da ögretem.
 
-“Hucur şey... – dep tüşündim men. – Ariflerni bilmey, Qurannı nasıl oqumaq mümkün!” Saabe menim fikirimni bilgen kibi:
+“Hucur şey... – dep tüşündim men. – Ariflerni bilmey, Qurannı nasıl oqumaq mümkün!” Saabe menim fikrimni bilgen kibi:
 
 – Bunda iç mürekkep şey yoq, – dedi maña. – İsteseñiz, sizge de ögreteyim!
 
