@@ -306,7 +306,7 @@ Emine pek ıncındı, ağlay-ağlay, dersten çıqıp ketti.
 Men qızğa bir şey aytıp olamadım.
 Toqtatmağa da ıntılmadım.
 Emine aqıllı, güzel qızçıq.
-Dülgerniñ kence oğlu da... – oca maña ilekârane külümsiredi, yüzü qızardı. – Ebet!
+Dülgerniñ kence oğlu da... – oca maña iylekârane külümsiredi, yüzü qızardı. – Ebet!
 Dülgerniñ kence oğlu da sınıfta osal talebelerden degil edi.
 Ekiñizni de darıltmaq istemedim.
 Ama Emine – Memed-Ali beyniñ qızı.
