@@ -1124,7 +1124,7 @@ Sıcaq suv barmı?
 Qayda?” dep soradım.
 “Sıcaq suv... yoq! – dedi o, – tapacaqsıñ!”
 
-Bugün, ocam, siziñ ilki muallimlik ve menim talebelik devirimizni eske tüşürdik.
+Bugün, ocam, siziñ ilki muallimlik ve menim talebelik devrimizni eske tüşürdik.
 Hatirim ğayet hoş.
 Men, bunıñle beraber, o yıllarda köyümizde şura akimiyetini samimiy sevgi ile qabul etip, onıñ ebediyen yaşaması içün yüksek ğayret köstergen cesür ve fedakâr köydeşlerimniñ hatiresi ögünde aşağı pek egilip secde etem.
 Ulu Vatan cenki vaqıtında almanlar Yaqub Haybullayevni, şura qurucılığı erbabı ekenligi içün, atqanlar.
@@ -1162,7 +1162,7 @@ Oturıp, yoruldı, ğaliba!
 Çünki özü ğayet qıbırdavuq adam.
 Oña ev içinde yarım kün bulunmaq, elbet de, qolay iş degil.
 
-– Siz Mahuldürni eñ mesuliyetli ve ağır vaziyetinde kördiñiz, – dedim men ocağa, – o sebepten, köyümiz hususında fikiriñiz pek sisli olmalı!
+– Siz Mahuldürni eñ mesuliyetli ve ağır vaziyetinde kördiñiz, – dedim men ocağa, – o sebepten, köyümiz hususında fikriñiz pek sisli olmalı!
 
 – Yoq! aksine... – dedi o, – fikirim pek açıq ve muayyen.
 
@@ -1181,7 +1181,7 @@ Mında qızlar ve yigitler biri-birleri ile körüşe, yaqından tanış ola, ö
 Bu yerde çift yaş yüreklerniñ körüşüvi, sevgi ateşi içinde çarpınuvı bir kün degil, bir ay degil, kimerde yıllarnen devam ete.
 Köyde yaş nesil doğa, öse-büyüy.
 Çoraçıqlarğa kelip keticilerniñ erkânı yavaş-yavaş deñişe, lâkin er bir yigit özüniñ kelecekteki qıraliçasını bu yerde rastketire ve yüregindeki muqaddes sözlerni oña bu yerde izar ete.
-Er bir eyecanlı iş, nazik maumele, taze duyğu bu yerde başlay, soñra o nazik isler köyde gürültili dügünlerle bite.
+Er bir eyecanlı iş, nazik muаmele, taze duyğu bu yerde başlay, soñra o nazik isler köyde gürültili dügünlerle bite.
 Çoraçıqlarğa ise, bileklerinde gügümleri yeñi nesiller ep keleler-keteler.
 
 Çoraçıqlar – köyniñ yüregi ve vicdanı.
@@ -1229,5 +1229,5 @@ Tayaqnıñ özü cennetten çıqqan, – dedim men, lâkin boğazıma bir şey t
 Asıl da ağırmağan edi, ocam!
 
 Dümen başındaki yigit laqırdı ne üstünde ekenini añladı.
-Ağızını açmay, küldi... çünki dudaqları arasında sigarı tütemekte edi.
+Ağzını açmay, küldi... çünki dudaqları arasında sigarı tütemekte edi.
 Maşinanı biraz arqağa berdi, asfaltke çıqqan soñ, demir çabaqlı qapu betke toz qoparıp ketti.
