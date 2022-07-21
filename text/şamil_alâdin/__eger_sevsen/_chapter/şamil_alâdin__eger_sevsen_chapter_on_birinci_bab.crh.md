@@ -449,7 +449,7 @@ Ayrette qaldıq.
 Kimdir: "acele yardım" dep qıçırdı.
 Biz külüştik.
 
-— Arhipkağa şan-şeref!— dedi Raşid, onıñ omuzını taptap,— sensiz Çar-Çaqnıñ alı ne olur edi?
+— Arhipkağa şan-şeref! — dedi Raşid, onıñ omuzını taptap, — sensiz Çar-Çaqnıñ alı ne olur edi?
 Tasavur etalmayım.
 
 İnsan qarını aç ekende açuvlı, toq ekende merametli, yuvaş ola.
