@@ -205,7 +205,8 @@ Mulâaza, aqiqaten, çetke buruldı, ama onıñ aqaretli ruhu deñişmedi.
 Çanaq qadar.
 Bilesiñizmi?
 
-– Çünki, Ebu-Bekir efendi, men ocam, – dedi Toqtarğazı, özüni coymayıp. – Tuccar degilim.
+– Çünki, Ebu-Bekir efendi, men ocam, – dedi Toqtarğazı, özüni coymayıp.
+ – Tuccar degilim.
 Men sizler içün... ondan da qıymetli işler yaptım.
 
 Cemaledin ve Aciredin oturğan yerlerinden telgenip aldılar.
@@ -233,8 +234,10 @@ Evel-ezelden öyle!
 Niçün, bilmeyim!
 
 “Bir macar soğan...” bu ciddiy laqırdı degil... uydurma iş.
-Bu yerdeki adamlar, özleriniñ köyündeki ocanıñ ne Saraymenden, ne Kerlevuttan, ne Qazan Tipten, ne Taqıldan, ne Baş Avuldan, ne Cav Töpeden, ne Qaz Avuldan, ne Uzun Ayaqtan, ne Çöngelekten... iç birisinden olmayıp, uzaqtan, tap Ay Petri betten, eldirekte, şu fodulı Kökközden kelip, Harcibiye balalarına ilim-terbiye ögretem dep, qafalarındaki miylerini köndelenlep türtkelevi, bu tüs-töpe qalpaqlılarnıñ yüreklerini üç buçuq yıldan beri tırmalay berip, üstlerinde teren yaralar açqan edi.
-Ocanı üç yıl evelsi köyden cönetkence, ağalar bir yaqtan Kerç, diger yaqtan Kefe polis nazareti memurlarınıñ qollarına ve ceplerine aqçalar qıstıra berip, yaz-qış çapqalap, aştan-suvdan kesilgen... niayet, Trandafilidi ocanı bu köyden alıp ketken soñ, şadlıqlı ömürge irişkenleri içün pek sevingen ediler.
+Bu yerdeki adamlar, özleriniñ köyündeki ocanıñ ne Saraymenden, ne Kerlevuttan, ne Qazan Tipten, ne Taqıldan, ne Baş Avuldan, ne Cav Töpeden, ne Qaz Avuldan, ne Uzun Ayaqtan, ne Çöngelekten...
+iç birisinden olmayıp, uzaqtan, tap Ay Petri betten, eldirekte, şu fodulı Kökközden kelip, Harcibiye balalarına ilim-terbiye ögretem dep, qafalarındaki miylerini köndelenlep türtkelevi, bu tüs-töpe qalpaqlılarnıñ yüreklerini üç buçuq yıldan beri tırmalay berip, üstlerinde teren yaralar açqan edi.
+Ocanı üç yıl evelsi köyden cönetkence, ağalar bir yaqtan Kerç, diger yaqtan Kefe polis nazareti memurlarınıñ qollarına ve ceplerine aqçalar qıstıra berip, yaz-qış çapqalap, aştan-suvdan kesilgen...
+ niayet, Trandafilidi ocanı bu köyden alıp ketken soñ, şadlıqlı ömürge irişkenleri içün pek sevingen ediler.
 Şimdi oca kene Harcibiyede.
 Yoq!
 Yoq!
@@ -258,13 +261,15 @@ İş soğanda degil.
 İş şunda ki, Üsein muallim qaytıp keldi.
 O, yarın Kerçteki işçi dernekleriniñ azalarınen tekrar tapışacaq, cemaatnıñ miyini kene tönterüv işi ile meşğul olacaq, vel-asıl, Harcibiye aqqında gübernator azretleri indinde osal fikir doğacaq...
 
-– Öyle, Üsein oca! – dedi Cemaledin, laqırdığa yekün çekken kibi. – Biz seni çağırmadıq.
+– Öyle, Üsein oca! – dedi Cemaledin, laqırdığa yekün çekken kibi.
+ – Biz seni çağırmadıq.
 Sen... keldiñ.
 
-– Ebet, men keldim, – oca onıñ soñki eki sözüni tekrarladı. – Çünki gençligimniñ küçüni... qalbimniñ araretini, istidadımnı ilkide bu köyge berdim.
-Bilmiş oluñız, eger meni sizler... – O
-
-Cemaledinge ve Ebu-Bekirge elemli nazar attı. – Eger meni bu köyge sizler çağırğan olsañız... kelmez edim.
+– Ebet, men keldim, – oca onıñ soñki eki sözüni tekrarladı.
+ – Çünki gençligimniñ küçüni... qalbimniñ araretini, istidadımnı ilkide bu köyge berdim.
+Bilmiş oluñız, eger meni sizler...
+– O Cemaledinge ve Ebu-Bekirge elemli nazar attı.
+ – Eger meni bu köyge sizler çağırğan olsañız... kelmez edim.
 
 Cemaledin ve Ebu-Bekir ayret içinde, qırmızı, etli qapaqlı közlerini biri-birlerine doğrulttı, indemey qaldılar.
 Hayli vaqıt keçti, Acı-Erbain iri kevdesini bir qaqıtıp aldı.
