@@ -411,7 +411,8 @@ Bassaraba eleslenip, başını köterdi.
 — Maña baqıñız!
 Evelâ platformağa dört-beş qalın tayamalar tiremek kerek.
 Yelquvannı alınğan soñ draglâynnıñ kevdesi, tayamalar üstünden tayıp, çana üzerine tüşecek.
-Soñra çananı traktorğa taqıp paromğa çekip alıp ketmek... işte, birinci vazife!
+Soñra çananı traktorğa taqıp paromğa çekip alıp ketmek... 
+işte, birinci vazife!
 
 Gece bizim içün kütükler ve qalın, uzun şpallar azırlap qoyğanlar.
 Olardan platformanıñ qabırğasında eñiş tambır yasadıq.
