@@ -28,7 +28,7 @@ Köydeki bir cadı ile Naqiyege esapsız aqçalar yollay, qıznı hırsızlap al
 Qaranlıq bir gecede, köy ealisi uyquda ekende, Lütfi ve eki dostu atlarğa minip, keleler.
 Naqiye qıznı aldap, kiyindirip-quşandırıp, qıymetli bezenmelerini taqtırıp, azbarğa alıp çıqa, yabaniy kişiler, qızğa fikirlerini toplap, azbarda ne olayatqanını abaylamağa fursat bermey, qapqaç etip, atqa qoya, alıp qaçalar.
 Naqiye azbarda bir talay indemey tura, atlılar evden uzaqlaşqan soñ: imdat! – diye ayqırıp başlay.
-Qolum-qomşu, geceniñ bey vaqıtında bu kiyik davuşnı eşitip, evlerinden yuvurıp çıqa, Acı-Üseinniñ azbarında toplanalar.
+Qolum-qomşu, geceniñ bey vaqtında bu kiyik davuşnı eşitip, evlerinden yuvurıp çıqa, Acı-Üseinniñ azbarında toplanalar.
 “Ne oldı, Naqiye?” – dep soraylar ondan.
 “Evimizni aydutlar bastı, Haticemizni alıp qaçtılar!” dep cevap bere Naqiye, özü üdür-qıyamet ağlay.
 Adamlar ayretke keleler.
@@ -55,7 +55,7 @@ Altı köylü atlar üstünde köyniñ şimal civarında, qomşu köylerde dolan
 Acı-Üsein, qızınıñ hırsızlanğanını bilgen soñ esini coyıp, yatıp qala.
 
 Mahuldürli avcı İsmail ertesi künü dağda tavşan peşinden yürgende, Mustafa beyniñ qoruvı içinde Acı-Üseinniñ qızınıñ cesedine rastkele.
-Üstünde paalı anter, qulaqlarında altın küpeler, boyunında altın gerdanlıq, qolunda altın bilezlik, belinde ibrişim quşaq.
+Üstünde paalı anter, qulaqlarında altın küpeler, boynunda altın gerdanlıq, qolunda altın bilezlik, belinde ibrişim quşaq.
 Evden nasıl çıqqan olsa, o bezenmeler ile... qanlar içinde yatmaqta.
 
 Avcı İsmail Acı-Üseinniñ evine kelip, bu kederli haberni bildire.
