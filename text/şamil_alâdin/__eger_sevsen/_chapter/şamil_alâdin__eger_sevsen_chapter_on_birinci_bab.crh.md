@@ -464,7 +464,7 @@ Draglâyn çana üstüne qoyılıp, yerinden köçkende men, Raşid ve Karim, on
 
 Apansızdan Krasnânskaya peyda oldı.
 İrada ile çananıñ etrafını dolanıp çıqtı, soñ maşinistlerden birer-birer soradı: draglâynnı yerge tüşürmek mümkünmi-degilmi?
-Sabadan beri yelquvannı ekskavatornıñ kevdesinden qurtarıp aluv-nen meşğul maşinistlerden: "mümkün!" cevabını işitken soñ, İradağa, işke başlamaq içün emir bermege ruhset etti.
+Sabadan beri yelquvannı ekskavatornıñ kevdesinden qurtarıp aluvnen meşğul maşinistlerden: "mümkün!" cevabını işitken soñ, İradağa, işke başlamaq içün emir bermege ruhset etti.
 Soñ traktorlarnıñ motorları uvuldadı, yipler areketke keldi, signalcılar küçük bayraçıqlarını köterdi... çana yerinden sıcırıp köçti.
 
 Traktorlar, draglâynnı paromnıñ ucuna çekip ketirgen soñ, bir-birinden ayrılıştılar.
