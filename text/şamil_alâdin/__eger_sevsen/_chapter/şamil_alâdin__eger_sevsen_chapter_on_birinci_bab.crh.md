@@ -435,7 +435,8 @@ Bunıñ içün çarhlar ve mürekkep bloklar areketke keldiler.
 İradanıñ tam, keskin emirleri mücibi, alatlar tartıldı.
 Tekaran daa, tekaran daaa... draglâyn, niayet, qıbırandı, yerinden köçti.
 
-— Toqta-a! — İrada elini başı üstünde yüksekke köterip, davuşını soza berip qıçırdı,— platforma qaburğasındaki tiremeler sınayatqanğa beñzeyler.
+— Toqta-a! 
+— İrada elini başı üstünde yüksekke köterip, davuşını soza berip qıçırdı, — platforma qaburğasındaki tiremeler sınayatqanğa beñzeyler.
 
 Çelik yipler ekskavator kevdesine bağlanılğan ve ağaç çanalar platformağa yanaştırılğan vaqıtta kimse: endi nasıl maal dep tüşünmegen edi.
 Şimdi hatirlerine saat keldi...
