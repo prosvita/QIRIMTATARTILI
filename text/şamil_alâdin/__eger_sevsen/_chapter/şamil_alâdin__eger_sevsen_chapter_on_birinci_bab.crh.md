@@ -536,9 +536,8 @@ Dudaqlarnıñ etrafı yem-yeşil.
 
 Karim küldi, cevap bermedi...
 
-— Öyle olsa, kettik!— dedi Andrey Zaharoviç.—
-
-Yarın ekinci draglâynni keçirecekmiz.
+— Öyle olsa, kettik!— dedi Andrey Zaharoviç.
+— Yarın ekinci draglâynni keçirecekmiz.
 
 Ertesi künü iş qıyın ve mürekkep körünmedi.
 Tünevinki kün içinde eppi tecribe elde etkenmiz.
