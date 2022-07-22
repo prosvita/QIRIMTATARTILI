@@ -487,9 +487,11 @@ Olar — anda, biz — mındamız.
 — Çekil, Karim!— dep qıçırdım men.
 — Aşağı egil!
 
-Omuzından tutıp, özüme taba çekmek içün elimni uzatqan edim, parom birden sekirdi... çelik alat ğıçırdadı, çana üstündeki mahas — ağaç demir qamuttan qurtuldı, avada yarım daire yasap, Karimniñ köküsine urdı.
+Omuzından tutıp, özüme taba çekmek içün elimni uzatqan edim, parom birden sekirdi... 
+çelik alat ğıçırdadı, çana üstündeki mahas — ağaç demir qamuttan qurtuldı, avada yarım daire yasap, Karimniñ köküsine urdı.
 Karim başlı-ayaqlı aylanıp, özen astında yoq oldı.
-Bir talaydan suv üstünde peyda oldı, paromğa uzanayata edi... suvğa şişken pamuq urbası ve uzun rezina çızmaları onı aşağı tartıp alıp kettiler.
+Bir talaydan suv üstünde peyda oldı, paromğa uzanayata edi...
+suvğa şişken pamuq urbası ve uzun rezina çızmaları onı aşağı tartıp alıp kettiler.
 
 — Sol yaqqa yur!
 Sol yaqqa!— dep qıçırdı Krasnânskaya yalıdan,— burunğa yaqın barma!
