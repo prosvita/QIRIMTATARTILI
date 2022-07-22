@@ -516,7 +516,7 @@ Onı gece aşhanede rastketirdik.
 Üstünde yeñi urba.
 Yanaqları ve közleri, qıp-qırmızı... özü İskander betke keteyata edi.
 
-— Draglâyn...— dedi o, meni körer-körmez,— draglâyn ne oldı?— Karim ğaliba sarğuş edi.
+— Draglâyn...— dedi o, meni körer-körmez, — draglâyn ne oldı? — Karim ğaliba sarğuş edi.
 Oña medpunktta qarardan çoq spirt içirgenge beñzeyler.
 
 — İş sırısında!— dedi Almazov oña ve ne oldı-ne qaldı, episini ikâye etti.— Meni pek qorquzdıñ, Qış-qıyamet künü böyle muqaytsızlıq... mümkünmi?
