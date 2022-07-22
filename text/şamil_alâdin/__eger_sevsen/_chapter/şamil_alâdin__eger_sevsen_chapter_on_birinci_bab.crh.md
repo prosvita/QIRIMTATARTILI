@@ -484,7 +484,8 @@ Soñ tekrar aşağı endi, bir daa...
 Qollarımızdaki küçük bayraçıqlarnı köterdik, yalıdaki kişiler bunı sezdiler... lâkin ne fayda?
 Olar — anda, biz — mındamız.
 
-— Çekil, Karim!— dep qıçırdım men.— Aşağı egil!
+— Çekil, Karim!— dep qıçırdım men.
+— Aşağı egil!
 
 Omuzından tutıp, özüme taba çekmek içün elimni uzatqan edim, parom birden sekirdi... çelik alat ğıçırdadı, çana üstündeki mahas — ağaç demir qamuttan qurtuldı, avada yarım daire yasap, Karimniñ köküsine urdı.
 Karim başlı-ayaqlı aylanıp, özen astında yoq oldı.
