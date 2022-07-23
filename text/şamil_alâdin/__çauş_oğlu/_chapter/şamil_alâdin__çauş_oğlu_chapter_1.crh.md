@@ -686,7 +686,7 @@ Adam duşman üzerinden ğalip kelgen, anası-babası ve doğmuşları sağ-sel�
 Evine kelip yetmek içün on yıl yürmek kerek oldımı?
 
 Mustafanıñ özü göspitalni, cenk bitkenden eki ay soñ terk etti.
-Arqasında eşya çuvalı ile merdivenden aşağı tüşeyatqanı alâ hatirinde.
+Arqasında eşya çuvalı ile merdivenden aşağı tüşeyatqanı alâ hatrinde.
 Taqatı yoq.
 Yarası enüz qapalmağan.
 Sağ ayaqtan aqsamaqta.
@@ -710,7 +710,7 @@ Er alda, evge temiz yüreknen qaytıp keldi!
 
 Ordenleri ve medalleri sandıqta yatalar.
 Dostlarından ve doğmuşlarından kelgen mektüplernen bir yerde.
-Amma o, vaqıtta... göspitalden çıqqanda, olar Çauşnıñ köküsini yaraştırmaqta ediler.
+Amma o, vaqıtta... göspitalden çıqqanda, olar Çauşnıñ köksüni yaraştırmaqta ediler.
 Ğalip asker olmaq – güzel şey.
 
 Mustafa şu alında dostu Ebu-Bekir Matrabasnıñ evine sürip keldi.
@@ -743,5 +743,6 @@ Edisini aytıp añlata turğan, Çauş añlamay.
 Amma filcannıñ içine baqıp, köküs keçirdi.
 Yüregi bir şeyler duydı.
 
-– Men endi yuqlap olamam, – dedi Çauş, tekrar, – Yoq.
+– Men endi yuqlap olamam, – dedi Çauş, tekrar. 
+– Yoq.
 Olacaq şey degil.
