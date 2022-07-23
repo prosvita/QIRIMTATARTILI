@@ -476,7 +476,7 @@ Añladıñmı, Şefiqa?
 Sağ-selâmet.
 
 Endi qart Çauşnıñ mücizege inanuvını kimse inkâr etalmaycaq.
-Dilâverni elâk del bildirgen kişi yañlışqan.
+Dilâverni elâk dep bildirgen kişi yañlışqan.
 Aşıqqan.
 Yaralı alında körip, ölü bellegen.
 Dilâver ise turıp ketken.
