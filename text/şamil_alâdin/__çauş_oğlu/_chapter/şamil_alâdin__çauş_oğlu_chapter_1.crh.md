@@ -375,7 +375,7 @@ Kerçek, qocası – sebepsiz şeñlengen adam degil.
 Qaqınıp başlağan eken, demek, bir şey bar.
 E! Barsın, onıñ degeni olsun.
 Lâkin qocanıñ oynayyatqan oyunı ne?
-Ömürinde öyle oyun körgeni yoq.
+Ömründe öyle oyun körgeni yoq.
 Ya özü?
 Özü nasıl oynaycaq?
 Soñki sefer ne vaqıt oynağan edi?
@@ -385,7 +385,7 @@ Bundan soñ daa oynamaq sırası kelecekmi aceba?
 Şimdi qocası ile bir oynap, keçmişni... yaşlıqnı hatırlap alğanda ne ola?
 Böyle tüşünir eken, elleri öz başına köterilip ketkenlerini duymay qaldı.
 Soñ kerçekten oynap başladı.
-Olarnıñ... qadın-qocanıñ ömürinde böyle hoş ve mesut daqiqalar yaqında olmağan edi.
+Olarnıñ... qadın-qocanıñ ömründe böyle hoş ve mesut daqiqalar yaqında olmağan edi.
 Qart Mustafa şimdi oynar eken, özüniñ qaç yaşında ekenini unuttı.
 Er şeyni unuttı.
 
