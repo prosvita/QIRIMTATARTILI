@@ -508,7 +508,9 @@ O, Server degeni, telegrammanıñ ahırında eki sözçik daa yazıp, bizni şü
 
 – Fena olmaz edi.
 Lâkin adamğa, alicenap hızmeti içün, öpkelenmek kerekmey.
-Belki Dilâver öyle istegendir! – Şefiqa yenge başqasınıñ oñaytsız areketini aqqa çıqarmağa tırıştı. – Bu onıñ idraki.
+Belki Dilâver öyle istegendir! 
+– Şefiqa yenge başqasınıñ oñaytsız areketini aqqa çıqarmağa tırıştı. 
+– Bu onıñ idraki.
 
 – İdraki... – Çauşnıñ çırayı küsti.
 O vaqianıñ tafsilâtını tüşüngen sayın, nasıldır, qolaysızlıqlar tapıp çıqara berdi.
@@ -562,7 +564,7 @@ O da, Dilâver kibi, Rusiyeniñ bir-de-bir şeerinde oturıp qalğan olsa? – Y
 – Sen taqdirden çoq şey isteysiñ, – dedi oña Çauş. – Onı darıltma.
 Hucur laqırdımıznı eşitip, bizni eñ soñki sevinçimizden merum ete qoymasın.
 
-– Ey, Tañrım! – yenge ellerini tönege köterdi, – Ana, balasını tiri körmek istey.
+– Ey, Tañrım! – yenge ellerini töpege köterdi, – Ana, balasını tiri körmek istey.
 Bu – günamı?
 
 – Yoq.
@@ -588,7 +590,8 @@ Qarısız, balasız!..
 
 Şefiqa başını tersine salladı.
 
-– Sen Dilâverni bilmeysiñ, – dedi oña. – Azaçıq işançı olsa, Zeynepni qıdırır, bütün ömüri bekler.
+– Sen Dilâverni bilmeysiñ, – dedi oña. 
+– Azaçıq işançı olsa, Zeynepni qıdırır, bütün ömüri bekler.
 Dilâver kim?
 Ondaki er şey Çauşnıñ özü.
 
@@ -599,31 +602,38 @@ Ellerini yanbaşlarına tirep, qocasınıñ qarşısında turdı.
 Oña ayat bağış etmedim, onı terbiyelemedim, öylemi?
 
 – E!
-E! – Çauş iddetlendi. – Pek aleketleme, qadın!
+E! – Çauş iddetlendi. 
+– Pek aleketleme, qadın!
 Sanki oğlannı sen asradıñ da, men Babuğan Yaylada gizlenip yürdim.
-Eger bilmek isteseñ... – lâkin o, qarısını darıltmaq istemedi, lafını kese qoydı.
+Eger bilmek isteseñ... 
+– Lâkin o, qarısını darıltmaq istemedi, lafını kese qoydı.
 
 – Ayt!
 Ayt!
-Soñuna qadar ayt! – yenge köz qapaqlarını tez-tez oynattı, beklep turdı. – Baltanı siltediñmi, pıtaqnı kes!
+Soñuna qadar ayt! – yenge köz qapaqlarını tez-tez oynattı, beklep turdı. 
+– Baltanı siltediñmi, pıtaqnı kes!
 Kesmey qaldırma!
 
-– A! – Çauş işaret parmağını köterdi. – Oğul öz işini özü çezer.
-Men, Zevercedke nasıl inansam, Dilâverge de öyle inanam.
+– A! – Çauş işaret parmağını köterdi. 
+– Oğul öz işini özü çezer.
+Men, Zevercedge nasıl inansam, Dilâverge de öyle inanam.
 
 Şefiqa ilekâr külkünen küldi.
 
 – Sizler... kontorada oturıp ne bilesiñiz?
 
-– Ya sizler? – Mustafa qulağını Şefiqağa yaqın ketirdi, – evde oturıp... neniñ başını teştiñiz?
+– Ya sizler? 
+– Mustafa qulağını Şefiqağa yaqın ketirdi, – evde oturıp... neniñ başını teştiñiz?
 
 Şefiqa yenge buña cevap bere bile edi.
 Bermek istemedi.
 
-– Baqayıq, – dedi o, bir talaydan soñ. – Belki Dilâverniñ yerine başqası evlenir.
+– Baqayıq, – dedi o, bir talaydan soñ. 
+– Belki Dilâverniñ yerine başqası evlenir.
 
 – Kim?
-Zevercedmi? – Mustafa qarısına şübeli-şübeli baqtı. – Oña toqunma!
+Zevercedmi? 
+– Mustafa qarısına şübeli-şübeli baqtı. – Oña toqunma!
 İnstitutnı bitirsin.
 
 – Qız seniñ içün pek tatlı e?
@@ -632,14 +642,17 @@ Lâkin aytqanlarına köre, Zeverced birevnen mektüpleşe eken.
 Moskvadamı, qaydadır, oquy, deyler.
 
 – Ne?
-Ne? – Çauş, biy çaqqan kibi, sıçrap ayaqqa qalqtı. – Sen çıldırdıñmı?
+Ne? – Çauş, biy çaqqan kibi, sıçrap ayaqqa qalqtı. 
+– Sen çıldırdıñmı?
 
-– Zevqlı şey... – dedi Şefiqa yenge. – Niçün men çıldıram?
+– Zevqlı şey... – dedi Şefiqa yenge. 
+– Niçün men çıldıram?
 
 Mustafa ağa eñsesini qaqıtıp aldı.
 Bu asabiylenüvden delâlet edi.
 
-– Maña bir filcan qave ber! – dedi o, qarısına. – Tez ol!
+– Maña bir filcan qave ber! – dedi o, qarısına. 
+– Tez ol!
 Başımnıñ ağrısı tuttı.
 
 Bir filcan qave!
