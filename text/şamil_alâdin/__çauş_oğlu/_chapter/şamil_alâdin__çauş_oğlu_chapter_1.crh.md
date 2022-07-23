@@ -27,12 +27,12 @@ Kündüz yuqlağan adeti yoq.
 Şay... sükünet içinde oturmağa... nelerdir hususında tüşünmege seve.
 Nelerni tüşüne aceba?
 Kim bilsin?!
-Belki özüniñ uzun ömürini, belki faniy dünyadaki keder ve işançnıñ başı ve niayeti ne yerde ekeninidir!..
+Belki özüniñ uzun ömrüni, belki faniy dünyadaki keder ve işançnıñ başı ve niayeti ne yerde ekeninidir!..
 Amma ömürniñ niayeti uzaq.
 Çauş, babası ve dedesi kibi, taqatlı.
 Kerçek, bir vaqıtta sarışın saçları şimdi ağarğanlar.
 Evi ve eşyası endi torunlarına adalğan.
-Keçken ve kelecek ömüri terazede çekilip, esaplanıp qoyulğan.
+Keçken ve kelecek ömrü terazede çekilip, esaplanıp qoyulğan.
 
 Bu evni Çauş öz elleri ile yasadı.
 Buña qani olmaq isteseñiz, başıñıznı köterip, tavanda, sofadaki qapu qasnağında ve pencere pervazlarında oyulğan örneklerge közetiñiz!
