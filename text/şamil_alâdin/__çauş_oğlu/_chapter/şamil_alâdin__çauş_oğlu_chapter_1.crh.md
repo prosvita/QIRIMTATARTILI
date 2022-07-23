@@ -215,7 +215,7 @@ Güya, o iç de olmağan edi.
 
 – Men şaqa etmeyim, Mustafa emce? – dedi qız.
 Günasız, aydın közlerini qart Çauşnıñ közlerine doğrulttı.
-Qıznıñ baqışı ve “emce” sözüni ğurzufça aenkli etip aytuvı (çünki Asâ balalıqtan tatarlar arasında yaşamaqta ve qonşularınıñ tilinde söylene kelmekte edi) Çauşnı inanmağa, daa doğrusı – taaciplenmege mecbur etti.
+Qıznıñ baqışı ve “emce” sözüni ğurzufça aenkli etip aytuvı (çünki Asâ balalıqtan tatarlar arasında yaşamaqta ve qomşularınıñ tilinde söylene kelmekte edi) Çauşnı inanmağa, daa doğrusı – taaciplenmege mecbur etti.
 Amma közlerinde alâ şübe sezilmekte ve çeresi kene taş kibi areketsiz qalmaqta edi.
 O sebepten mulâyim davuş ile dedi: – Oğluñıznıñ adı Dilâver.
 Öyle demegenmi ediñiz?
@@ -274,12 +274,12 @@ Kerek maalde iç yerinde olmay.
 Ey, Alla!
 Cıynaq Şefiqa onı daima kişilik odağa alıp kete.
 Endi, eki cam parçasını tapmaq içün ortalıqnı aşır-neşir etmek kerek.
-Amma onsız bu kâğıt üstündeki böcek şekilli ariflerni bar da, oqu.
+Amma onsuz bu kâğıt üstündeki böcek şekilli ariflerni bar da, oqu.
 
 Elini minder astına tıqtı, közlük yoq edi.
 Qalqtı, sağ ayağından aqsay-aqsay içeri odağa ketti.
 İşte, közlük – stol üstünde yata.
-Alel-acele burunı üstünde yerleştirdi.
+Alel-acele burnu üstünde yerleştirdi.
 Kene sofağa çıqıp, telegrammanı eline aldı.
 “Yigirmi üçünde Dilâver yolğa çıqtı.
 Poyezd otuz dört.
@@ -297,7 +297,8 @@ Lâkin bütünley degil.
 Çünki yürekte şübe qıbırdandı.
 Çauşnıñ ögünde “niçün?”, “niçün?” degen sözler sırağa tizilip turdılar.
 Bular ne demek ola?
-Ölüler qaytıp kele bilelermi? – dep kederlendi Mustafa ağa, – olarnıñ tirilgenlerini ve tekrar qırcıman yigitler olıp ketkenlerini bir-de-bir kimseler körgenmi? – dep taaciplendi Çauş oğlu, soñ ilâve etti: – Amma men körecegim, yahut aldavnıñ qurbanı olacağım.
+Ölüler qaytıp kele bilelermi? – dep kederlendi Mustafa ağa, – olarnıñ tirilgenlerini ve tekrar qırcıman yigitler olıp ketkenlerini bir-de-bir kimseler körgenmi? – dep taaciplendi Çauş oğlu, soñ ilâve etti: 
+– Amma men körecegim, yahut aldavnıñ qurbanı olacağım.
 Mecit aqaynıñ işi başqa türlü olğan edi.
 Bıltır oña telegramma kelgen edi.
 Buharadan.
