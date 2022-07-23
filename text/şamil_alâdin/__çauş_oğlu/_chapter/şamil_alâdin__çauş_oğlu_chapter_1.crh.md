@@ -111,7 +111,7 @@ Sevinçni de.
 Kederni de.
 İnsan başını aşağı sarqıtıp yürmek kerekmey.
 Babam maña başımnı töpege köterip yürmekni ögretken edi.
-Men onıñ degeni kibi yapqan vaqıtımda anam maña darıla edi: başıñı kereginden ziyade, sebepsiz, töpege köteresiñ dey edi.
+Men onıñ degeni kibi yapqan vaqtımda anam maña darıla edi: başıñı kereginden ziyade, sebepsiz, töpege köteresiñ dey edi.
 Men, Zeverced, saña başıñnı nasıl tutmaq kerekligini ögretip oturmayım... aşağı egiltip yürmeseñ, oldı!
 
 Qart Mustafa kimerde öz-özünen, işte, böyle laqırdı ete edi.
@@ -140,7 +140,7 @@ Bağça içindeki soqaq boyu evge doğru yürüş etti.
 Çauşqa raatsızlıq keleyata.
 O, eleslenip, başını köterdi, deral adamnı körip, taaciplendi; çünki o, daima sevinç ketirici adam degil, kimerde onıñ kelüvi yürekni titremege de mecbur ete.
 Bosağa üstünde Asâ peyda oldı.
-Qonşunıñ qızı Asâ.
+Qomşunıñ qızı Asâ.
 Babası Nikolay... avtobazada mehanik.
 Lâkin ne qonşulıqnıñ, ne de avtobazada hızmet etüviniñ bunda emiyeti yoq.
 Asâ – poçtalyon, başlıcası bu.
@@ -178,7 +178,7 @@ Qana, tez oluñız!
 Oynamaq, bu şeñlenmek demek.
 Mustafa niçün şeñlensin?
 Konvertler içinde er vaqıt hayırlı haber olmay.
-Bir konvert Çauşnıñ hatirinden alâ çıqmay.
+Bir konvert Çauşnıñ hatrinden alâ çıqmay.
 Bare, iç bir şey kelmegeydi.
 Ey, Alla!
 
@@ -196,7 +196,7 @@ Sözleri üzülip-üzülip çıqmaqtalar.
 – Oğluñız... oğluñız keleyata.
 
 Qart Mustafanıñ fikirleri uyuğan ediler.
-Onı Asânıñ üzük, titrek sesleri birden uyanta bilirlermi?
+Onı Asânıñ üzük, titrek sesleri birden uyata bilirlermi?
 Ondan da ğayrı, Asânıñ sözleri asıl da kerçekmi?
 Olarğa nasıl inansın?
 
