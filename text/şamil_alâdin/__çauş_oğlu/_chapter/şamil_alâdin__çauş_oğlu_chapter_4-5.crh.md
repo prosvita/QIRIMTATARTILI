@@ -451,7 +451,7 @@ Adamlardaki acizlikni aytıp añlatmaq mümkün degil.
 Kapitan – tecribeli deñizci – gemini ateş astından çıqarmaq içün neler yapmadı!?
 Kögertedeki toplar tayyarelerge ardı kesilmez ateşler açtılar.
 Lâkin küçler musaviy degil.
-Tezden geminiñ burun qısımına bomba tüşti.
+Tezden geminiñ burun qısmına bomba tüşti.
 Gemi, negedir barıp urunğan kibi, küçlü çalqandı, soñ geminiñ parlanıq qaburğası tutaşıp yandı.
 Yandı ve... çöke başladı.
 
@@ -462,10 +462,12 @@ Kögertege çıqmaq içün bir-birimizni basıp-ezip yuqarı çapamız.
 İmdat... degen sadalar, iñiltiler.
 
 Matroslar şlang ile yanğınnı söndürmege ıntılalar.
-Bu esnada kapitannıñ qattı emiri eşitile: – Qayıqlar suvğa endirilsin! – dep qıçıra o ekinci yardımcığa... ekinci yardımcı ölü.
+Bu esnada kapitannıñ qattı emri eşitile: 
+– Qayıqlar suvğa endirilsin! – dep qıçıra o ekinci yardımcığa... ekinci yardımcı ölü.
 Evelâ yaş balalı qadınlarnı qurtarmaq kerek.
 Lâkin qayıqlar suvğa tüşer-tüşmez, bombalar astında parça-kesek olalar.
-“Dağılıñız! – dep cekire kapitan, qayıqlarda dümen başındaki matroslarğa. – Bir yerde toplanıp turmañız!”
+“Dağılıñız! – dep cekire kapitan, qayıqlarda dümen başındaki matroslarğa. 
+– Bir yerde toplanıp turmañız!”
 Bomba patlavlarından, gemi etrafındaki suv qaynamaqta, eñ cesür deñizciler bile bu ateş yağması içinden çıqalmay çekişeler.
 Balalar deñiz astına ketmekte, analar ise olarnıñ artından özlerini suvğa atıp, elâk olmaqtalar.
 
@@ -474,7 +476,7 @@ Bombalar tüşüvi toqtar, matroslar belki ateşni söndürirler belledim.
 Qayıqqa minmege çarem yoq.
 Mingenim taqdirde de, onıñ özü qurtulış degil, çünki, bomba tüşken sayın qayıqlardan eser qalmay, adamlar deñiz astına keteler.
 
-Hatirimde qalğan eñ soñki şey – ip merdiven oldı.
+Hatrimde qalğan eñ soñki şey – ip merdiven oldı.
 Onıñ ile yuqarı, direkniñ töpesine tırmaştım.
 Gemi batmaqta.
 Men ep maçtanıñ töpesine köterilem.
@@ -494,7 +496,8 @@ Bir şeyler ayttı.
 Añlamadım.
 Bu hususta laqırdı etmek, ğaliba, mümkün degil eken.
 
-– Keçken şey, – dedi o, kederli davuş ile, soñ azaçıq külümsiregen oldı. – Siz tirisiñiz, yarınki künni tüşünmek kerek.
+– Keçken şey, – dedi o, kederli davuş ile, soñ azaçıq külümsiregen oldı. 
+– Siz tirisiñiz, yarınki künni tüşünmek kerek.
 Tezden balañız olacaq.
 
 Qocam aqqında bir şey aytmadı.
@@ -547,7 +550,7 @@ Yüregim bir şeyler duya.
 Bu Kazarov edi.
 Gece eki dane suv altı gemisi ekipajı kelecegini çeşit sözler ile añlattı.
 Dilâver aqqında laqırdı yoq.
-Amma menim aqılım yetti, o, bu ekipajlar içinde olmaq kerek. 
+Amma menim aqılım yetti, o, bu ekipajlar içinde olmaq kerek.
 Bütün kün koridorlarda dolanıp çıqtım.
 Aqşamnı bekledim.
 Vaqıtnı aşıqtırdım.
@@ -575,9 +578,11 @@ Cenkniñ deşetli künlerinde bile insanda bahtlı daqiqalar ola eken.
 Dilâver sailde üç kün bulunacağını ve bu müddet içinde meni özünden üç adım uzaqqa yibermeycegini ayttı.
 
 – Ya hızmet!
-Göspital?.. – dedim men. – Meni cezalarlar.
+Göspital?.. – dedim men. 
+– Meni cezalarlar.
 
-– Barsın, cezalasınlar, – dedi o. – Men seniñ yanıñda olacağım.
+– Barsın, cezalasınlar, – dedi o. 
+– Men seniñ yanıñda olacağım.
 
 Sade meseleni çezmek bu qadar küç eken.
 Qocamnı bekley edim.
