@@ -200,12 +200,12 @@ Soyun, yuvun.
 Şefiqa yenge, ğaliba, oğlunı unuttı.
 O taliy tarafından taqdim etilgen torunğa bütünley berildi.
 Sevingeninden, balanıñ etrafında aylana berdi, oña ne berecegini, ne ile erkeleycegini bilmedi.
-Kence Dilâver kölmegini çıqarıp, yuvunmağa tedariklenmekte oldı, Şefiqa sofra donatmağa tutındı.
+Kence Dilâver kölmegini çıqarıp, yuvunmağa tedariklenmekte oldı, Şefiqa sofra donatmağa tutundı.
 Zerdali, alma qoydı, büyük meşaqqat ile elde etilgen zeytünni çıqardı, keniş aileviy stolnıñ üstüni çeşit tarelkalar ve vazalar ile toldurdı.
 
 Bala, elinde yüzbez, bağçağa çıqtı.
 Pevrenk astına egilip, yuvuna başladı.
-Uzaq, tunçıq yoldan soñ, bu – bir hoş meşğuliyet edi, тorun yuvunır eken, Çauş ve Zeverced kelip kirdiler.
+Uzaq, tınçıq yoldan soñ, bu – bir hoş meşğuliyet edi, тorun yuvunır eken, Çauş ve Zeverced kelip kirdiler.
 Olar evde yat balanı kördi, amma taaciplenmediler.
 Çünki Şemsnur olarnı azbar qapu yanında rastketirip, er şeyni añlatqan:
 
@@ -213,7 +213,7 @@ Olar evde yat balanı kördi, amma taaciplenmediler.
 
 – Torun... menim torunım keldi, şaymı? – Çauş kün boyu çapqalap yorultqan saqat ayağını acımay, uluqqa yuvurdı.
 Onıñ yüregi küçlü urmaqta edi.
-Soñki saatlarda o qadar eyecanlandı ki, eski kederlerine aqılğa sığmaz yeñi, deşetli haberler kelip qoşula berdiler.
+Soñki saatlarda o qadar eyecanlandı ki, eski kederlerine aqılğa sığmaz yañı, deşetli haberler kelip qoşula berdiler.
 Torun...
 Mustafa taqdirniñ bu ediyesine azır degil edi, amma şimdi tüşünip oturmağa vaqıt yoq.
 Uluq başında fırqılday berip yuvunayatqan, yanıq tenli, araretli bala... o, kim?
@@ -225,9 +225,10 @@ Lâkin eyecan, şübe... bular qaydalardadır yoq olıp kettiler.
 Olarnıñ yerinde real ayat qaldı.
 Ögünde qanı canı ile doğmuş barlıq turmaqta.
 
-– Dilâver... – dedi Çauş titrek sesinen. – Oğlumnıñ oğlu!
+– Dilâver... – dedi Çauş titrek sesinen. 
+– Oğlumnıñ oğlu!
 
-Qonşu oda içinden Şefiqanıñ kederli davuşı çıqtı.
+Qomşu oda içinden Şefiqanıñ kederli davuşı çıqtı.
 O, artıq sofranı azırlağan, şimdi tekrar torunına taba kelmekte edi.
 
 – Oğlumnıñ oğlu... bu yahşı.
@@ -246,7 +247,8 @@ Lâkin sözlerine pek facialı aenk bermedi.
 Qartanasınıñ sözleri diqqattan tüşip qaldılar.
 Dilâver olarnı güya eşitmedi.
 
-– Kence Dilâver... endi menim de oğlan qardaşım bar, – Zeverced samimiyetle küldi. – eşitesiñmi, Şemsnur?
+– Kence Dilâver... endi menim de oğlan qardaşım bar, – Zeverced samimiyetle küldi. 
+– Eşitesiñmi, Şemsnur?
 
 – Babañ qayda? – dep soradı Çauş tekrar.
 
