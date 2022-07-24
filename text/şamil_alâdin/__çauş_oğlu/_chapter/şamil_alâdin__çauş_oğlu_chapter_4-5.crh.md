@@ -644,7 +644,8 @@ Musafirler ne hususta laqırdı eteceklerini bilmediler.
 Bağsız, mantıqsız qonuştılar.
 Soñ Kazarov taqdirniñ qışımlı ceetleri aqqında söz açtı.
 
-– Zeynep... ayatta er şey bizim istegenimiz kibi olmay, – dedi o. – Mında, dünyanıñ bu acayip köşesinde, sükünet.
+– Zeynep... ayatta er şey bizim istegenimiz kibi olmay, – dedi o. 
+– Mında, dünyanıñ bu acayip köşesinde, sükünet.
 Bir yerlerde cenk ketkenine, adamlar elâk olayatqanına inanacağıñ kelmey.
 Amma er kün bizim saadetimizni qorçalap, biñlernen adamlar ölmekteler.
 
@@ -653,7 +654,8 @@ Men eñ qorqunçlı haberge bile çıdaya bilir edim, amma Kazarov aşıqmadı..
 Qorqtı.
 Men yüklü edim.
 
-– Dilâverge ne oldı? – dep ayqırdım men. – Tez aytıñız.
+– Dilâverge ne oldı? – dep ayqırdım men. 
+– Tez aytıñız.
 
 Kazarov közqapaqlarını aşağı endirdi.
 
