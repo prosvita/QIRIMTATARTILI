@@ -18,12 +18,14 @@ Dilâver kelir.
 
 – Ya Rabbi! – Şefiqa ardı kesilmez nidalar içinde közyaşlarını sildi. – Bu cefa ne içün?
 
-– Belki... – Zeverced bir şeyler daa tüşünip çıqardı ğaliba. – Belki dostlarınen beraber zavodqa ketkendir?
+– Belki... 
+– Zeverced bir şeyler daa tüşünip çıqardı ğaliba. 
+– Belki dostlarınen beraber zavodğa ketkendir?
 Maşina kelgen olsa... oturdı ketti daa!
 Aysa!
 Şübe yoq, o anda.
 Barıp, baqıp keleyim.
-Qızınıñ yeñi fikiri aqılğa yatqan şeymi degilmi, Çauş o hususta bir şey aytmadı, amma Zeverced azbar qapuğa yaqınlağanda, onıñ artından özü de ketti.
+Qızınıñ yañı fikri aqılğa yatqan şeymi degilmi, Çauş o hususta bir şey aytmadı, amma Zeverced azbar qapuğa yaqınlağanda, onıñ artından özü de ketti.
 Evde qalıp olamadı.
 
 Küçü yetmedi.
@@ -49,7 +51,7 @@ Onıñ küneşten baqır renk alğan yüzü ve külümsirer, iri közleri Şefiq
 Bala onıñ sözlerini añladımı añlamadımı, yenge farqına barmadı.
 Bu evde er kes tatarca laqırdı ete.
 Bala ise, ğaliba, añlamadı.
-Kadınnıñ közyaşından sılanğan yüzüne baqtı ve köz qapaqlarını sıq-sıq açıp yaptı. 
+Qadınnıñ közyaşından sılanğan yüzüne baqtı ve köz qapaqlarını sıq-sıq açıp yaptı.
 
 – Biz Potiden keldik, – dedi o, cesaretsiz alda ve arqasına aylanıp baqtı.
 Anda, qapunıñ o yaqında, terrasada, beyaz kölmekli adam turmaqta ve balağa parmaqları ile nasıldır işaretler etmekte edi.
@@ -66,9 +68,11 @@ Küneş şavleleri camlardan keçip, terrasanıñ içine tökülmekte ediler.
 Etrafqa baqındı.
 Mında da çım-çırt edi.
 
-– Kim edi o? – dep soradı yenge oğlançıqtan. – Eliñni kimge salladıñ?
+– Kim edi o? – dep soradı yenge oğlançıqtan.
+ – Eliñni kimge salladıñ?
 
-– Seröja emcege, – dep cevap berdi bala. – Biz beraber keldik.
+– Seröja emcege, – dep cevap berdi bala. 
+– Biz beraber keldik.
 
 – Seröja emcege?
 Kim o, Seröja emce? – Şefiqa taaciplendi.
