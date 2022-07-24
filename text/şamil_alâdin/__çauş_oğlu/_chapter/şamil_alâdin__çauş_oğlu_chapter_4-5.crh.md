@@ -310,7 +310,8 @@ Sevinçten pervasızlana başlağan közlerinen baqtı.
 
 – Ne aytasıñız, qartbaba?
 
-“Men torunğa niçün hıtap ettim?” – dep tüşündi Çauş. – Bunda zaruret barmı edi?
+“Men torunğa niçün hıtap ettim?” – dep tüşündi Çauş. 
+– Bunda zaruret barmı edi?
 Yoq.
 Men balanıñ közlerini körmek istedim.
 Onıñ közlerinde – oğlumnı körmek istedim.”
@@ -320,7 +321,8 @@ Amma qadınlar, ev saibiniñ niyetini eda içün yol bermediler.
 Balanıñ eşyasını qarıştırayatqan Zevercedniñ közleri tesadüfen qalın defterge iliştiler.
 
 – E!
-Bizim Dilâver edepli bala eken, – dep qıçırdı o, – yaz vaqıtında bile derslerinen meşğul olmaq istey.
+Bizim Dilâver edepli bala eken, – dep qıçırdı o. 
+– Yaz vaqtında bile derslerinen meşğul olmaq istey.
 Yoqsa, küzde berilecek imtianıñ barmı?
 
 Yigit ıncınğan kibi baqtı.
@@ -332,7 +334,8 @@ Yigit ıncınğan kibi baqtı.
 – Anamnıñki...
 
 – Vay!
-Anasınıñki olsa, tursun... kerekmey, – dedi Şefiqa pervasız alda, lâkin bir talay vaqıt keçti, esini topladı, soñ kiyik davuş ile qıçırdı: – Anañ?..
+Anasınıñki olsa, tursun... kerekmey, – dedi Şefiqa pervasız alda, lâkin bir talay vaqıt keçti, esini topladı, soñ kiyik davuş ile qıçırdı: 
+– Anañ?..
 Sen ne deysiñ, oğlum?
 Anamnıñki... deysiñmi?
 Men bir şey añlamayım!
@@ -350,12 +353,15 @@ Bu ayıp esap etile.
 Şemsnurnıñ sözleri balanı ıncıttı.
 O çemodanını qapatıp, çetke sürip qoymaq istedi, soñ bu niyetten vazgeçti, özüniñ aqlı ekenini isbat içün inatlandı.
 
-– Defter başqasınıñ degil... – dedi Dilâver. – Anda babam aqqında yazılğan.
+– Defter başqasınıñ degil... – dedi Dilâver. 
+– Anda babam aqqında yazılğan.
 Menim aqqımda da.
 
-– Dilâver aqqında yazılğanmı? – Çauş atılıp turdı, – qana... oğlum aqqında ne denilgen.
+– Dilâver aqqında yazılğanmı? 
+– Çauş atılıp turdı, – qana... oğlum aqqında ne denilgen.
 
-– Qaydan bileyim? – dedi Zeverced, defterni tizleri üstünde sıqıp tutaraq, – Zeynepniñ qaydları... belki kündeliktir.
+– Qaydan bileyim? – dedi Zeverced, defterni tizleri üstünde sıqıp tutaraq. 
+– Zeynepniñ qaydları... belki kündeliktir.
 Onı oqumaq, kerçekten de, yasaq.
 
 – Niçün? – Çauş taaciplendi.
@@ -363,7 +369,8 @@ Onı oqumaq, kerçekten de, yasaq.
 – Kişiniñ sırı.
 Şahsiy mektüp kibi bir şey... añladıñızmı?
 
-– Kimge... mektüp? – Mustafa ağa kene añlamadı.
+– Kimge... mektüp? 
+Mustafa ağa kene añlamadı.
 
 – Öz-özüne... yüreginiñ telqini.
 
