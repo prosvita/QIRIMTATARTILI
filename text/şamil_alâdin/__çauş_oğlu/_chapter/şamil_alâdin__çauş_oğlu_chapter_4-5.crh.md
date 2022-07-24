@@ -745,7 +745,7 @@ Dilâver onıñ içün, kerçekten de yeñiden doğdı.
 
 Birinci künlerde Çauş balağa baqa berdi.
 Ondan kim olıp çıqar eken dep hayallandı.
-Elbette, ciddiy bir neticege kelmek içün yigit daa yaş, lâkin insan, qart Mustafanıñ fikirince, ömüriniñ ilki daqiqalarından başlap bir şey içün tayin etile.
+Elbette, ciddiy bir neticege kelmek içün yigit daa yaş, lâkin insan, qart Mustafanıñ fikrince, ömrüniñ ilki daqiqalarından başlap bir şey içün tayin etile.
 On dört yaşındaki balanıñ ise ayatta yeri belli.
 Eger o yer daa belgilenmegen olsa, Çauş onı özü belgilemek kerek.
 
