@@ -308,7 +308,7 @@ Bitmese, episini taşlap, ketecegim.
 Ve on beş yıldan beri yüregimni kemire kelgen niyetten vazgeçecegim.
 Añladıñızmı, İlya İsaakoviç?
 
-Qafamda üymeleşken acizane tüşüncelerim biraz yatışqan soñ Şabşalnıñ aqçıl yüzüne, külrenk saçlarına baqtım.
+Qafamda üymeleşken acizane tüşüncelerim biraz yatışqan soñ Şabşalnıñ aqçil yüzüne, külrenk saçlarına baqtım.
 Çoqnı yaşağan kişi.
 Közleri aydın, şefqatlı körüneler.
 Eger yalvarsam... pek yalvarsam, itimal, işni acele yapıp berir, dep tüşündim.
@@ -320,7 +320,7 @@ İlya İsaakoviçke yalvardım.
 “Bu vesiqa şahsen menim içün kerek degil, qardaş! – dedim oña.
  – Halq içün.
 Sizge rica etem, alicenap oluñız!
-Sizniñ ve menim ana tillerimiz bir.
+Siziñ ve menim ana tillerimiz bir.
 Türkülerimiz bir.
 Menim aradığım malümat siziñ içün de emiyetsiz degil.
 Öyle eken, meni bir afta bekletip zametke qoymañız!
