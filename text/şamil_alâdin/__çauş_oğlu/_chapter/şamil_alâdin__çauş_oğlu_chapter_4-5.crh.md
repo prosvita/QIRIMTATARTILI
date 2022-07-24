@@ -437,7 +437,7 @@ Deñiz etrafta, közge körünir dairede, süküt edi.
 Güya cenk degen şey yoq ve Kefede körgen felâketimiz – bir hayal edi.
 Adamlarnıñ içlerine canları keldi, çerelerinde tebessüm sezildi.
 Biz, barıp tüşecek yerimizde ömürni nasıl qura bilecegimiz hususında tüşüne başladıq.
-Lâkin bu yürek raatlığı vaqıtından evel asıl oldı.
+Lâkin bu yürek raatlığı vaqtından evel asıl oldı.
 Nemse tayyareleri bulutlar artından quzğunlar kibi çıqıp, bizim gemi üzerine atıldılar.
 
 Avada telüke barlığı aqqında sirena ökürdi.
