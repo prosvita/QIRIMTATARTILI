@@ -437,7 +437,7 @@ Tanış oluñız!
 
 İlya İsaakoviç qapusı açıq qomşu odağa kirdi.
 Men közlerimni papkağa tikledim.
-Üstünde qalemnen ve qarаndaşnen yazılı qaydlar, nomerler, emirler, imzalar, haçlar... qarmaq şekilli çizgiler tolu.
+Üstünde qalemnen ve qarаndaşnen yazılı qaydlar, nomerler, emirler, imzalar, haçlar... qarmaq şekili çizgiler tolu.
 Qaysı memur cıltnı qoluna alğan olsa, üstünde mıtlaqa bir qaç türlü işaret yasağan.
 
 Cılt içindeki sözler qalın ariflernen, sıq satırlarnen yazılğan.
@@ -459,9 +459,9 @@ O Erbainden digerli para qımğan soñ, “cinayetçi bir yıl müddetinen a
 Ümer Malaycı buña razı olmay.
 Knâz Yusupovnıñ uzurına barıp, qatilge lâyıq ceza berilmesi içün yardım etmesini yalvara.
 Knâzniñ talabına binaen, iş tekrar uyezd makemesine tüşe.
-Emirzaq oğlu dört yılğa Taganrog apshanesine qapalması ve Üsein ocanıñ eki oğluna aqılbaliq olğance, para berip turması aqqında üküm çıqa.
+Emirzaq oğlu dört yılğa Taganrog apshanesine qapalması ve Üsein ocanıñ eki oğluna aqılbaliğ olğance, para berip turması aqqında üküm çıqa.
 İşke knâz qarışqanını ve vaqia mürekkepleşkenini körgen Erbain telâşqa tüşe, Zemstvo idaresi başlığına kelip, cebine destelernen para tıqıştıra, jandarm başlığına bir çift cüyrük bağışlay, gübernator referentine otuz qoyun adap, yardım istey, böyle qalabalıq zamanda...
- cian muarebesi başlay.
+ Сian muarebesi başlay.
 Emirzaq oğlu cezasız qala.
 Onıñ cezalanıp, apshanede oturğanına dair arhivde iç bir türlü resmiy vesiqa yoq.
 Uyezd idarelerindeki memurlarnıñ qollarınen türlü ariflernen yazılı kâğıtlarnı qaytarıp-qaytarıp, diqqatnen oqudım.
@@ -473,17 +473,17 @@ Elemge kömülip, ümütten üzülip oturğan vaqtımda İlya İsaakovi
 Kelişikli malümat barmı? – dep soradı o menden.
 
 – Teessüf... – dedim men.
-– Teren nefes aldım.
+ Teren nefes aldım.
  – Qıymetli şeyler beklegen edim.
 Ümütlerim elâk oldılar.
 
-Arhivarius sözlerime itiraz etmedi, fikirime qoşulğanı da duyulmadı.
+Arhivarius sözlerime itiraz etmedi, fikrime qoşulğanı da duyulmadı.
 Ögümdeki “Acı Erbain Emirzaq oğlu davası”nı çetke sürdi, onıñ yerine diger cılt qoydı.
 Men taaciplendim.
 Şabşalğa ne aytmağa bilmey, yavaştan cıltnı açtım.
 Açqanımnen, yüzüme uzaq yıllarnıñ rutubet qoqusı urdı.
-Şıtırdavuq, iri kâğıt tabaqları üstündeki aqçıl yazılar afizamda basılıp, yosun biylep qalğan nicenice adiselerni türtküçledi, qozğadılar.
-Vucudım titredi .
+Şıtırdavuq, iri kâğıt tabaqları üstündeki aqçıl yazılar afizamda basılıp, yosun biylep qalğan nice-nice adiselerni türtküçledi, qozğadılar.
+Vucudım titredi.
 Ögge yatıq, ince arifler.
 Noqtası, virgüli yerli-yersiz tutaş satırlar.
 Kâğıtlarnıñ çetleri sararğan, ortaları beyaz.
@@ -519,13 +519,13 @@ Sağ tirsegiñiz yanındaki “Erbain Emirzaq oğlu davası”nda qıymetli m
 – Todor Tsanov bağışladı, – dep cevap berdi İlya İsaakoviç.
 – Meşur advokat.
 On bir yıl evelsi vefat etti.
-İnqilâp vaqıtında şeerge bir akimiyet kelip, diger akimiyet ketken, qalabalıq devirde, onıñ evinde Asan Kara gizlengen.
+İnqilâp vaqtında şeerge bir akimiyet kelip, diger akimiyet ketken, qalabalıq devirde, onıñ evinde Asan Kara gizlengen.
 Özü bolşeviklerden eken.
 Bir kün... – bu iş 1918 senesi yanvarda ola – bir kün Asan Kara saqal ve mıyıq taqınıp, şeerge çıqa, saruş tatar eskadronlısı ile beyaz gvardiya ofitseri arasındaki atışmada Asan Kara apansızdan elâk ola.
 Bu elyazma onıñki eken.
 Todor Tsanovnıñ evinde qalıp ketken.
-Soñki alman cenki vaqıtında, özüñiz de bilseñiz kerek, şeer harabege çökti.
-Ahivniñ yarısı yandı, buña... bu elyazmağa, paqıl kibi, bir şey olmadı.
+Soñki alman cenki vaqtında, özüñiz de bilseñiz kerek, şeer harabege çökti.
+Arhivniñ yarısı yandı, buña... bu elyazmağa, paqıl kibi, bir şey olmadı.
 Bunda Acı Erbain meselesi de çoq añıla.
 Oqup baqıñız.
 Munasip körseñiz...
@@ -533,7 +533,7 @@ Lâkin direktornıñ ruhseti olmaq kerek.
 
 Tozlu, qalın cılt içindeki bu şıtırdavuq kâğıtlar, bu küf qoqulı satırlar menim içün ne demek ediler?
 Kimlerge... nasıl añlatırsıñ?
-Direktorğa çaptım .
+Direktorğa çaptım.
 Pavel Tarasoviç, çeremdeki eyecannı eslep, külümsiredi, ama meramımnı bilgen soñ, ne demege bilmey, yelkesini qaşıdı.
 
 “Bu bir kitap olsa... söz kelimi, eki yüz on yıl muqaddem neşir etilgen eser olsa, iç itiraz etmez edim, çünki kitap degen şey oqulmaq içün neşir etile.
