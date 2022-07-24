@@ -395,7 +395,8 @@ Küçük Dilâver bu işte yardımğa keldi.
 Men defterni ateş içinden çekip çıqardım.
 Diqqat etseñiz, cıldnıñ çetleri yanıq ekenini köreceksiñiz.
 
-– Ateşke bıraqılğan olsa, demek, defter endi elden ketken, – Çauş meseleni felsefiy quruntı ile al etti. – Biz, onı taptıq.
+– Ateşke bıraqılğan olsa, demek, defter endi elden ketken, – Çauş meseleni felsefiy quruntı ile al etti. 
+– Biz, onı taptıq.
 
 – E!
 Mesele öyle olıp çıqa, – dedi Zeverced.
