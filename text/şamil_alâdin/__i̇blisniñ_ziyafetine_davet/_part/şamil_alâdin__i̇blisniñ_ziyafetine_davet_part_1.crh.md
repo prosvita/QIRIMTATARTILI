@@ -338,14 +338,14 @@ İlya İsaakoviçke teşekkür aytıp, qapuğa doğrulğan edim, arqamda
 
 – Men, elbette, ğayret eterim, – dedi İlya İsaakoviç.
 – Lâkin malümat barmı...
-Tapılırmı ?
+Tapılırmı?
 
 Şabşalnıñ bu soñki sözleri qulaqlarıma süngü kibi sançıldılar, olarnı eşitmegen, añlamağan olıp, çıqıp kettim.
 Şeer caddelerinde insan dalğaları öktemlenmekte, qaynamaqta.
 Er kes mevsimge uymaq istey, bilgenince ciazlana.
 Qadınlar, elbette, bu işte erkeklerni ozalar.
 
-Musafirhanege kelgen soñ, Georgiosqa kiyimlerniñ çıbarlığı ve adden-aşıq serbestligi aqqında fikirimni ayttım.
+Musafirhanege kelgen soñ, Georgiosqa kiyimlerniñ çıbarlığı ve adden-aşıq serbestligi aqqında fikrimni ayttım.
 O maña kibar çere ile cılmaydı.
 
 – Zamandan artta qalmaq kerekmey, – dedi maña, telkin berir kibi.
@@ -364,7 +364,7 @@ Ertesi künü ekimiz deñiz sailine kettik.
 Suv cıllı edi.
 Men çoq yuvundım.
 Georgios soyundı... brezent qasnaq altında çaqıl üstüne çalqağa tüşip yattı.
-Yuvunmadı .
+Yuvunmadı.
 Kimerde başını köterip, menim deñizdeki areketlerime közetti.
 Suv sportu mearetimden pek hoşnut körünmedi.
 
@@ -378,7 +378,7 @@ Kimerde epimiz sürünen yalday turğanmız.
 Şimdi ne...?
 Qayda o adamlar? – Georgios Monolupolos keçip ketken ferasetli çağlarına yanıqlap, köküs keçirdi.
 – Endi qartaydım...
-Ekim ruhset etmey... – o aqırından başını köterdi, maña eleslenip baqtı.
+Ekim ruhset etmey... – o aqrından başını köterdi, maña eleslenip baqtı.
  – Özüñiz doğma ne yerlisiñiz? – dep soradı.
 
 Eki kün – eki gece bir odada yaşay, bir aşhanede aşaymız.
@@ -393,7 +393,7 @@ Ufaq taşlar tenine batıp-batıp ketkenler.
 – Menmi? – dedim Georgiosqa.
 – Menim doğğan yerim...
 
-Oña cevap bermege tedariklengen vaqıtımda özü şarhıldap, çaqıl üzerine tüşti, uzanıp, susıp qaldı.
+Oña cevap bermege tedariklengen vaqtımda özü şarhıldap, çaqıl üzerine tüşti, uzanıp, susıp qaldı.
 Bir şeyler aytırmı eken dep bekledim.
 
 Men kiyindim, musafirhanege qayttım.
@@ -403,12 +403,12 @@ Men, arhivde işim bitse de, bitmese de, ketecegim.
 
 Sevinç ve keder – adamdaki tabiiy al.
 Lâkin esassız eyecanlanuv müşkül şey.
-Arhivdeki işim olurmı, olmazmı ?
+Arhivdeki işim olurmı, olmazmı?
 Olur ise... ne vaqıtta olur?
 Bu tüşünceler meni çoq ezgelediler.
-Gece qasevetten yuqlap olamadım .
+Gece qasevetten yuqlap olamadım.
 Nafile qasevetlengenim.
-Çünki ertesi künü, arhiv idaresinde Şabşalnen körüşken soñ göñülimdeki keder bütünley yatıştı.
+Çünki ertesi künü, arhiv idaresinde Şabşalnen körüşken soñ göñulümdeki keder bütünley yatıştı.
 İlya İsaakoviçte, ütekündeki kibi, perişan nazarlar, saçıq fikirler sezmedim.
 O divarğa tayalı uzun masa başında, arqasını zalnıñ ortasına çevirilip oturğanı alda, çullu kâğıt parçalarını tutqalnen yapıştırıp, çini tabaqlar astında qurutmaqta edi.
 Menimnen ana tilimizde qonuştı, qolumnı hoşnutlıq ile sıqtı, bir de salladı.
@@ -429,7 +429,7 @@ İlya İsaakoviç kenardaki deste arasına eki parmağını tıqtı, iri, ye
 
 – İşte, Harcibiye vaqiası... – dedi arhivarius.
 Cıltnıñ üstündeki toznı paçavranen yengilden sildi, yiplerini çezip, ögüme qoydı.
- – Qıdıra -qıdıra hadimlerimiz elden-ayaqtan ayrıldılar.
+ – Qıdıra-qıdıra hadimlerimiz elden-ayaqtan ayrıldılar.
 Aqibeti, taptılar.
 Özüm de yardım ettim.
 Baqıñız!
@@ -437,7 +437,7 @@ Tanış oluñız!
 
 İlya İsaakoviç qapusı açıq qomşu odağa kirdi.
 Men közlerimni papkağa tikledim.
-Üstünde qalemnen ve qarаndaşnen yazılı qaydlar, nomerler, emirler, imzalar, haçlar... qarmaq şekili çizgiler tolu.
+Üstünde qalemnen ve qarаndaşnen yazılı qaydlar, nomerler, emirler, imzalar, haçlar... qarmaq şekilli çizgiler tolu.
 Qaysı memur cıltnı qoluna alğan olsa, üstünde mıtlaqa bir qaç türlü işaret yasağan.
 
 Cılt içindeki sözler qalın ariflernen, sıq satırlarnen yazılğan.
