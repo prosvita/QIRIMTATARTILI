@@ -259,20 +259,23 @@ Onıñ yoqluğı aqqında bir şey bilmeylermi aceba?” – dep taaciplendi kü
 
 Zeverced torunnıñ yüreginde nasıldır keder barlığını sezse kerek, onıñ duşüncesini böldi.
 
-– Ayaq üstünde turğanımız ne? – dedi o, etraftakilerge. – Kişi sım-sılaq, sürtünmege bile imkân bermeymiz.
+– Ayaq üstünde turğanımız ne? – dedi o, etraftakilerge. 
+– Kişi sım-sılaq, sürtünmege bile imkân bermeymiz.
 Oña kiyinmek kerek. – Qız Dilâverniñ elinden tutıp evge alıp ketti.
 
-– Yoq, sen sabır et! – dedi Şefiqa, qızına. – Men suallerime cevap eşitmek isteyim.
+– Yoq, sen sabır et! – dedi Şefiqa, qızına. 
+– Men suallerime cevap eşitmek isteyim.
 
 Amma yengeniñ sözleri pek yımşaq ve tınç çıqtılar, öyle yımşaq ve mulâyim çıqtılar ki, qız atta toqtalmağa bile acet körmedi.
 Toqtamağanı içün digerler de onıñ peşinden terrasağa doğruldılar.
 Çauş da artlarından ketti.
 
-Evge kirgen soñ, adetiy qalabalıq başladı: qadınlar bala içün urba qıdırdılar... elbette, kelişken şey birden tapalmadılar.
+Evge kirgen soñ, adetiy qalabalıq başlandı: qadınlar bala içün urba qıdırdılar... elbette, kelişken şey birden tapalmadılar.
 Ne kölmek, ne ştan.
 Tapalmağanları içün Şefiqa afaqanlandı.
 
-– Menim özümde bar, – dedi Dilâver, er kes çaresizlenip turğan arada, cebinden anahtarını çıqardı, çemodanını açmağa niyetlengende, qadınlar, sabır etalmay, balağa yardım içün çapıştılar.
+– Menim özümde bar, – dedi Dilâver. 
+Er kes çaresizlenip turğan arada, cebinden anahtarını çıqardı, çemodanını açmağa niyetlengende, qadınlar, sabır etalmay, balağa yardım içün çapıştılar.
 Birincisi Zeverced oldı.
 Bir daqiqa keçer keçmez, çemodan içindeki şeylerniñ episini çıqarıp, stol üzerine qoydı.
 Yeñsiz yipek kölmek, qısqa tüp don, üst ştan... episi mevcüt.
