@@ -111,7 +111,9 @@ Hayli vaqıttan soñ... dudaqlarını cibitken nasıldır suvuq suv Şefiqanıñ
 Közlerini açtı.
 Yanında Şemsnurnıñ eyecanlı çeresini kördi.
 
-– Sizge ne oldı, Şefiqa apte? – Qız sılaq yavlıqnen onıñ samaylarını sıypamaqta edi. – Ötimni patlata yazdıñız!
+– Sizge ne oldı, Şefiqa apte? 
+– Qız sılaq yavluqnen onıñ samaylarını sıypamaqta edi.
+– Ötümni patlata yazdıñız!
 
 Yenge özü de qorqtı.
 Başına esi kelgeninen, Şemsnurğa kiyik-kiyik közetti.
@@ -141,7 +143,7 @@ Dilâverniñ oğlu.
 Öylemi?
 
 Bala sevinip, başını qaqıttı.
-“Çala-çala, ğaliba, uydıra başladıq!” dep tüşündi o.
+“Çala-çala, ğaliba, uydura başladıq!” dep tüşündi o.
 
 – Şemsnur, qızım, sen bir şey añladıñmi? – dep soradı Şefiqa yenge, alâ iñleyerek.
 
@@ -150,7 +152,10 @@ Bu yigit – siziñ torunıñız, – Şemsnur qartiyge tınç ve göñülsiz al
 Adı, babasınıñki kibi – Dilâver.
 
 – Torunım?
-Vay anam! – Şefiqa setten qalqtı, ezgelengen müçesini zar-zoruna idare etip, balağa doğruldı: – Oğlumnıñ oğlu... qana, közleriñe bir baqayım, qozuçığım... – quçaqladı, bağırına bastı. – Babañ kelmedimi, balaçığım?
+Vay anam! 
+– Şefiqa setten qalqtı, ezgelengen müçesini zar-zoruna idare etip, balağa doğruldı: 
+– Oğlumnıñ oğlu... qana, közleriñe bir baqayım, qozuçığım... – quçaqladı, bağırına bastı. 
+– Babañ kelmedimi, balaçığım?
 Niçün yalıñızsıñ?
 
 – Men yalıñız degilim, – quru, lâkin sıcaq qart eller arasında sıqılğan Dilâver, sevinçten ve saadetten zornen nefes alğanı alda, dedi: – Men Seröja emcenen keldim.
