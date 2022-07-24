@@ -142,7 +142,7 @@ Teessüf, özüm de yahşı bilmeyim.
 Tek... ne kerekligini bilem.
 Serjant yaş kişi.
 Yaqında ordu hızmetinden kelgenge beñzey.
-Laqırdısında, areketlerinde kazarma tertibi sezilmekte .
+Laqırdısında, areketlerinde kazarma tertibi sezilmekte.
 Onıñ bu yerdeki hızmeti başqaca.
 Stol başında otura, ögünde eki telefon – biri içki, digeri tışqı dünya ile alâqa içün.
 Çañ seslense, trubkanı kötere, cevap bere.
@@ -175,7 +175,7 @@ Sözüni aytıp bitirmedi, yeşil dermantinle örtüli, qalın qapunıñ c
 Qapu açılıp ketti.
 Saqallı taaciplenip, toqtaldı.
 Direktor kabinet içinde, nasıldır talimatnameni oquv ile meşğul.
-Aqırından içeri kirdik.
+Aqrından içeri kirdik.
 Direktor kirgenimizni duymadı.
 Stol ögünde turıp, eppi bekledik.
 
