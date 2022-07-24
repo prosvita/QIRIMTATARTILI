@@ -418,7 +418,7 @@ Menimnen ana tilimizde qonuştı, qolumnı hoşnutlıq ile sıqtı, bir de sal
 
 – Öylemi, İlya İsaakoviç? – dep qıçırdım men.
 İçimdeki sevinçni baş etip olamadım.
-– Mümkün olsa, fikiriñizni açıqça ifa etiñiz!
+– Mümkün olsa, fikriñizni açıqça ifa etiñiz!
 
 Üyken ilmiy hadim sözlerimni eşitmedi.
 Belki, eşitti, lâkin yersiz esap ettimi, Alla bilsin, emiyet bermedi, nazarı masanıñ bir çetinden diger çetinece yuvurdı ve tekrar keri döndi.
@@ -437,7 +437,7 @@ Tanış oluñız!
 
 İlya İsaakoviç qapusı açıq qomşu odağa kirdi.
 Men közlerimni papkağa tikledim.
-Üstünde qalemnen ve qarındaşnen yazılı qaydlar, nomerler, emirler, imzalar, haçlar... qarmaq şekili çizgiler tolu.
+Üstünde qalemnen ve qarаndaşnen yazılı qaydlar, nomerler, emirler, imzalar, haçlar... qarmaq şekili çizgiler tolu.
 Qaysı memur cıltnı qoluna alğan olsa, üstünde mıtlaqa bir qaç türlü işaret yasağan.
 
 Cılt içindeki sözler qalın ariflernen, sıq satırlarnen yazılğan.
@@ -467,7 +467,7 @@ Onıñ cezalanıp, apshanede oturğanına dair arhivde iç bir türlü resm
 Uyezd idarelerindeki memurlarnıñ qollarınen türlü ariflernen yazılı kâğıtlarnı qaytarıp-qaytarıp, diqqatnen oqudım.
 Emirzaq oğlunı cezalav aqqında başqa malümat tapıp olamadım.
 
-Elemge kömülip, ümütten üzülip oturğan vaqıtımda İlya İsaakoviç tekrar peyda oldı.
+Elemge kömülip, ümütten üzülip oturğan vaqtımda İlya İsaakoviç tekrar peyda oldı.
 
 – Nasıl?
 Kelişikli malümat barmı? – dep soradı o menden.
@@ -492,7 +492,7 @@ Biraz aşağıda, tırnaqlar içinde “Asan Karanıñ hatiratı” denilgen
 Elyazma cıynaqlı surette temizge çekilgen.
 İç bir yerinde tüzetme yoq.
 Tabaqlarnı qarıştırıp baqtım.
-Saifeler üzerinde qara qarındaşnen sıra nomerler qoyulğan, kimerleri silingenler.
+Saifeler üzerinde qara qarаndaşnen sıra nomerler qoyulğan, kimerleri silingenler.
 Bu sebepten elyazmanıñ episi qaç betten ibaret ekenini birden aytmaq qıyın.
 Baştan-ayaq sayıp çıqmaq kerek.
 
