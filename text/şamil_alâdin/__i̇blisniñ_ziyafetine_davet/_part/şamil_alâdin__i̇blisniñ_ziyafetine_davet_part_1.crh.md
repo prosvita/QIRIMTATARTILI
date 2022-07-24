@@ -175,7 +175,7 @@ Sözüni aytıp bitirmedi, yeşil dermantinle örtüli, qalın qapunıñ c
 Qapu açılıp ketti.
 Saqallı taaciplenip, toqtaldı.
 Direktor kabinet içinde, nasıldır talimatnameni oquv ile meşğül.
-Aqrından içeri kirdik.
+Aqırından içeri kirdik.
 Direktor kirgenimizni duymadı.
 Stol ögünde turıp, eppi bekledik.
 
