@@ -902,19 +902,21 @@ Seit Osman bu sözlerni, elbette, qolay-qolay ayta qoymadı.
 Bu inat adam ne istey?
 Keçmişteki vaqianı artıq unuttımı?
 Yoq, unutmadı...
-Er şey hatirinde.
+Er şey hatrinde.
 
 – Men balalarımıznıñ bahtı hususında aytam.
 
 İşte, mesele qaydı?
 Özü, evelkisi kibi, kin ve açuv ile qalğan, oğlunı ise, Çauşnıñ esabına bahtlı etmek istey... dep tüşündi ev saibi.
 
-– Balalarımıznıñ? – o, musafirniñ sözlerini añlamağan çıray ile baqtı. – Ne yapmaq kerek?
+– Balalarımıznıñ? – o, musafirniñ sözlerini añlamağan çıray ile baqtı. 
+– Ne yapmaq kerek?
 
 – Bizim oğlan, siziñ qız, bir yerde östiler... – dedi Seit Osman.
 
 – Bu ne vaqıt olğan şey? – dep soradı Çauş.
-Mañlayınıñ terisi qatmerlenip ketti. – Aqılımda yoq!
+Mañlayınıñ terisi qatmerlenip ketti. 
+– Aqlımda yoq!
 
 Çauşnıñ sözleri şefqatsız yañğıradılar.
 Musafir ev saibiniñ qalbinde açuvlı duyğular alâ saqlı ekenini sezdi.
@@ -922,13 +924,15 @@ Demek, er şey evelki alında qalğan, bu eki qoranta arasında barışıq ola b
 Lâkin keri çekilmek içün endi keç.
 Seit Osman mından, boş qollarınen qaytmaq içün kelgeni yoq.
 
-– Ta, balalıq çağlarında... – dedi Seit Osman ve içinden tüşündi: “Sen tirelmek isteysiñ, Mustafa!
+– Ta, balalıq çağlarında... – dedi Seit Osman ve içinden tüşündi: 
+“Sen tirelmek isteysiñ, Mustafa!
 Men öyle yapacağıñnı bile edim.
 Bile-bile keldim.
 Lâkin sen teslim olursıñ... men bilem.
 Men aşıqmayım.
 Sabır eterim”.
-Soñ ilâve etti: – Unutçaq adetiñiz bar eken... unutacaq olsaq, ekimiz de, episini unutayıq!
+Soñ ilâve etti: 
+– Unutçaq adetiñiz bar eken... unutacaq olsaq, ekimiz de, episini unutayıq!
 Men qarşı degilim.
 
 Onıñ, stulda otura-otura beli taldı ğaliba, yerge tüşip, kilim üstünde bağdaş qurıp oturdı.
@@ -941,15 +945,18 @@ Seit Osmannıñ ve Mustafanıñ öglerine qoydı.
 
 – Balalıq çağları aqqında laqırdı etmek kerekmey, – dedi Şefiqa, kimsege muracaat etmey, – eger laqırdı etilse...
 
-– Apaqay, sen sus! – Çauş qarısına sözüni bitirtmedi – Sabır et.
+– Apaqay, sen sus! – Çauş qarısına sözüni bitirtmedi.
+-Sabır et.
 Bu iş, ep bir, sensiz olmaycaq.
 
 Şefiqa çıqtı.
 O, şübesiz, bu müim laqırdı vaqıtında bulunmaq ve içindeki zafrannı Seit Osmanğa tökmek, istedi... iş bozuldı.
 
-– Men doquz yıl evelsi eviñizden kettim... – dedi Çauş, bölüngen laqırdığa qaytıp. – Niçün... bilesiñizmi?
+– Men doquz yıl evelsi eviñizden kettim... – dedi Çauş, bölüngen laqırdığa qaytıp.
+ – Niçün... bilesiñizmi?
 
-– Nasıl deyim sizge?.. – Seit Osman tamşandı. – Sebebi, elbette, olsa kerek.
+– Nasıl deyim sizge?.. – Seit Osman tamşandı. 
+– Sebebi, elbette, olsa kerek.
 
 – Sebebi – şu balalar!
 
@@ -958,7 +965,8 @@ Azbar azbardan yürip, kvartira qıdırdı.
 Böyle vaqıtta o, çayhanede Seit Osmannen körüşti.
 Laf-laftan çıqtı... ekisi de bir zavodda işlegenleri añlaşıldı – Seit Osman naqliyat bölüginde, Çauş ise zavod idaresinde.
 
-– Menim evim fena detal, – dedi Seit Osman. – Bir odamnı sizge bere bilem.
+– Menim evim fena detal, – dedi Seit Osman. 
+– Bir odamnı sizge bere bilem.
 İsteseñiz, yarın köçip keliñiz!
 
 Çauş imal etmedi.
