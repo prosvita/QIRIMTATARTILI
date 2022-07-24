@@ -12,21 +12,21 @@ Üriyet varlığı.
 Tek kezinti içün.
 Qaburçaq divar taldasında pusıp turğan erzaq maşinasınıñ aydavcısına yalvardım, meni kabinasında “Astoriya”ğa alıp keldi.
 “Geceni, iste-isteme, hollda, ayaq üstünde turıp, yahut kreslo üstünde yuqusırap keçirecegim...” degen fikirnen, tüşkün alda musafirhanege kirip, qaverenkli ağaç bölme içindeki yeşil saçlı yaş qadınnıñ ögünde toqtadım.
-Ağızımdan daa laf çıqmadı.
+Ağzımdan daa laf çıqmadı.
 
 — Ekinci qatta yüz altıncı oda... – dedi o deral.
 
 Bu sözler kimge ait ekenini bilmey, etrafıma baqındım.
 Yanımda musafir kişi körünmedi.
 Qadın közlerini ögündeki cedvelden üzmey, elini maña uzattı.
-İçine pasportımnı qoydım .
+İçine pasportımnı qoydım.
 
 — Eki kümüş yetmiş kapik, – dedi maña.
-Baş parmağınen,işaret ve orta parmaqlarını çertip aldı.
+Baş parmağınen, işaret ve orta parmaqlarını çertip aldı.
  – “Parayı veren, düdügi çalır...” dey turğanlar bizim tatarlar.
 
 Yeşil parikli qadın bu sözlerni tatarca söyledi, soñra soza berip, esnedi.
-Esnegeninden özü utandı, ğaliba, avuçınen ağızını qapadı, dülber külümsiredi.
+Esnegeninden özü utandı, ğaliba, avuçınen ağzını qapadı, dülber külümsiredi.
 Defterde adımnı sol elinen çolpaca yazdı, pasportımnı qaytarıp özüme berdi.
 Men keñ merdiven boyu ekinci qatqa köterile başladım.
 
