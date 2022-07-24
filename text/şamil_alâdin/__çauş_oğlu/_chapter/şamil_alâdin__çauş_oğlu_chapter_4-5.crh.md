@@ -593,7 +593,7 @@ Er alda, ketmege azırlandım.
 Baqsam, Dilâverniñ közlerinde qorqu ve arzu sezildi.
 Men keter edim.
 O bile.
-Lâkin üyken emşire keldi, göspital başlığınıñ emirini bildirdi.
+Lâkin üyken emşire keldi, göspital başlığınıñ emrini bildirdi.
 O, qocamnıñ kelgenini bilip, meni üç künge işten azat etken.
 Teşekkür!
 Böyle meşaqqatlı vaqıtta bir kişi digeriniñ alını añlay, oña yardım ete.
@@ -626,7 +626,7 @@ Lâkin mümkünmi?
 
 “Biz vedalaşmaymız.
 Yoq, vedalaşmaymız...
-Böyle şey aqılıña asıl da kelmesin...” Dilâver maña bu sözlerni qaç kereler tekrarladı.
+Böyle şey aqlıña asıl da kelmesin...” Dilâver maña bu sözlerni qaç kereler tekrarladı.
 Niçün tekrarladı aceba?
 
 1942 senesi, yanvar 12.
