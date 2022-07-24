@@ -562,7 +562,7 @@ Eserni başından soñunace oqup çıqacaqsıñız... başqa çare yoq.
 Men ondan edebiy eser usulğa ketirdim.
 Şübe yoq, genç, zemane oquyıcısı eserde kimerde eskice sözlerge ve ibarelerge de rastkelecek.
 Lâkin men ikâyetni, vaqianıñ yüz bergen devirini ve tilimizniñ o zamandaki inkişaf seviyesini közde tutıp, mantıqiy talapqa tabi olıp yazdım.
-Öyle olsa da, Abduhayır Abdureşid, Aziz Burnaşev, Abduraman Bariyevniñ ulu edip aqqındaki acayip ikâyelerini eşitmegen, Zeynep, Naile hanımlarnıñ ve Ebabilniñ izzaatlarına itibar bermegen olsam, bu eser, şübesiz, dünya yüzü körip olamaz edi.
+Öyle olsa da, Abduhayır Abdureşid, Aziz Burnaşev, Abduraman Bariyevniñ ulu edip aqqındaki acayip ikâyelerini eşitmegen, Zeynep, Naile hanımlarnıñ ve Ebabilniñ izaatlarına itibar bermegen olsam, bu eser, şubesiz, dünya yüzü körip olamaz edi.
 
 Asan Kara... ah!
 Asan Kara ne deycek?
@@ -571,7 +571,7 @@ Men künbatı cebesinde rus generalı Brusilovnıñ atlılar qıtasında, poru
 Yasapati civarında ağır yaralandım.
 Macarlarda dum-dum denilgen qurşun baldır kemigimni eki yerden sındırdı.
 Meni sihhiye poyezdine qoyıp, Odessağa ketirdiler.
-Eki buçuq aydan beri bu debdebeli ve müdhiş şeerde Marselyeza cadesindeki lazarette bulunam.
+Eki buçuq aydan beri bu debdebeli ve müdhiş şeerde Marselyeza caddesindeki lazarette bulunam.
 Ayağımnı kesmek isteyler, razı olmayım.
 “Alla eşqına, ekim! – denim men.
 – Bir çare tapıñız, ayağım bütün qalsın”.
@@ -605,14 +605,14 @@ Soñ... qoltuq tayaqlarnen yürdim.
 Çoq künler yürdim.
 Tünevin, üyle yemeginden evel, yuquğa ketkenim.
 Revekka qoltuq tayaqlarımnı alıp, ördinatorğa teslim etken.
-Bugün tayaqsızım .
+Bugün tayaqsızım.
 Nevbetçi ekimge yalvardım: “Aytıñız o, eli maşalığa, tayaqlarımnı qaytarıp bersin...” dedim.
 Ekim boyunını qıstı.
 Küldi.
 “Revekka menim emirimni eda etti, – dedi maña.
  – Öz ayaqlarıñnen özüñ añlaş!
 Saibine namuslı hızmet etsinler.
-Tezden cebege qaytacaqsıñ! ”.
+Tezden cebege qaytacaqsıñ!”.
 
 Cebege ?
 Menmi?
