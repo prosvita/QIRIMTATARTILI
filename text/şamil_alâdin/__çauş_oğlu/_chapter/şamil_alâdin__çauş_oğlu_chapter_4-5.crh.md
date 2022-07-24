@@ -158,17 +158,21 @@ Vay anam!
 – Babañ kelmedimi, balaçığım?
 Niçün yalıñızsıñ?
 
-– Men yalıñız degilim, – quru, lâkin sıcaq qart eller arasında sıqılğan Dilâver, sevinçten ve saadetten zornen nefes alğanı alda, dedi: – Men Seröja emcenen keldim.
+– Men yalıñız degilim, – quru, lâkin sıcaq qart eller arasında sıqılğan Dilâver, sevinçten ve saadetten zornen nefes alğanı alda, dedi:
+ – Men Seröja emcenen keldim.
 Stantsiyada bizni qarşılap alacaqlar dedi, kimseni körmedik.
 
-– Kene Seröja emce!.. – Şefiqa bu çıbalıq vaqialar içinde şaşmalap, teren köküs keçirdi. – Qayda o, Seröja emce degeniñ?
+– Kene Seröja emce!.. 
+– Şefiqa bu çıbalıq vaqialar içinde şaşmalap, teren köküs keçirdi. 
+– Qayda o, Seröja emce degeniñ?
 O alicenap adam?
 
 – Sofa içinde edi.
 Soñ ketken...
 
 – Şemsnur, çap, qızım!
-Belki qapu ögündedir! – yenge musafirge öpkelendi. – O, qadar uzaq yoldan kelipte, evge kirmegeni!..
+Belki qapu ögündedir! – yenge musafirge öpkelendi. 
+– O, qadar uzaq yoldan kelipte, evge kirmegeni!..
 
 Şemsnur bağçağa çıqtı.
 Kimseni tapamağan soñ, yuvurıp, yolğa ketti.
@@ -176,7 +180,8 @@ Kimseni tapamağan soñ, yuvurıp, yolğa ketti.
 Mecul Seröja emce qıdırılğan arada, Şefiqa torunını tekrar quçaqladı, yüzünden öpti.
 
 – Menim qozuçığım!
-Torunçığım!.. – balanı ohşadı. – Babasınıñ özü.
+Torunçığım!.. – balanı ohşadı. 
+– Babasınıñ özü.
 Nasıl oldı da, birden tanıp olamadım?
 
 Şemsnur tüşkün alda qaytıp keldi.
@@ -185,8 +190,12 @@ Nasıl oldı da, birden tanıp olamadım?
 
 – Ey, Alla!
 Yolcu kişi, evge kirip, bir filcan qave içmedi.
-Vay, anaçığım! – Şefiqa ayılday-vayılday berdi. – Sen, oğulçığım, pek yorğundırsıñ.
-Soyun, yuvun. – Yenge musafirhanege kirdi, nağışlı yüzbez alıp çıqtı. – Bar, uluq astında yuvun!
+Vay, anaçığım! 
+– Şefiqa ayılday-vayılday berdi. 
+– Sen, oğulçığım, pek yorğundırsıñ.
+Soyun, yuvun. 
+– Yenge musafirhanege kirdi, nağışlı yüzbez alıp çıqtı. 
+– Bar, uluq astında yuvun!
 
 Şefiqa yenge, ğaliba, oğlunı unuttı.
 O taliy tarafından taqdim etilgen torunğa bütünley berildi.
