@@ -116,7 +116,7 @@ A! – Georgios, qaqına berip, kevdesini doğrulttı, işaret parmağını z
 – Cenkten evel, anda, arhivde... qart karaim çalışa edi, – dedi o.
  – Onıñle qomşu edik.
 Men yengilden başımnı eki defa qaqıttım.
-Bu qaqıtuvlar, şübesiz, qomşumnıñ sözlerine razılığımnı, yahut itirazımnı ifade içün degil, belki onıñ sadelegine kösterdigim nezaket edi.
+Bu qaqıtuvlar, şubesiz, qomşumnıñ sözlerine razılığımnı, yahut itirazımnı ifade içün degil, belki onıñ sadelegine kösterdigim nezaket edi.
 Georgios onı añlamadı.
 Eleslendi, qızarıntılı, köz qapaqlarını sıq-sıq oynattı.
 Men odadan çıqtım.
@@ -171,10 +171,10 @@ Koridor boyu iri adımlarınen yönele, men yanaşasından, yuvurır kibi, aya
 Olmasa...” – saqallını bir şey raatsızlay ğaliba.
 Tüşünceli alda başını qaşıp ala, soñ ilâve ete: – “Özünde olmasa, bir çare...”
 
-Sözüni aytıp bitirmedi, yeşil dermantinle örtüli, qalın qapunıñ cez sapundan tutıp üytedi.
+Sözüni aytıp bitirmedi, yeşil dermantinle örtüli, qalın qapunıñ cez sapından tutıp üytedi.
 Qapu açılıp ketti.
 Saqallı taaciplenip, toqtaldı.
-Direktor kabinet içinde, nasıldır talimatnameni oquv ile meşğul.
+Direktor kabinet içinde, nasıldır talimatnameni oquv ile meşğül.
 Aqrından içeri kirdik.
 Direktor kirgenimizni duymadı.
 Stol ögünde turıp, eppi bekledik.
@@ -190,7 +190,7 @@ Direktor ise kâğıtlardan nazarını üzmedi, atta birde-bir müçesini q
 Biz ayaq üstünde turıp, endi yoruldıq.
  – Uzaqtan kelgen olsa, ayt... kirsin!
 
-– O yanıñızda.
+– O, yanıñızda.
 
 Direktor onıñ sözlerini eşittimi?
 Eşitti ise, añladımı?
@@ -205,12 +205,12 @@ Cenkte öyle allar az olmadı.
 
 Biz qol tutuştıq.
 Pavel Tarasoviç menim ne zenaat kişisi ekenligimnen meraqlandı.
-Merağını qanaatlendirdim .
+Merağını qanaatlendirdim.
 
 – Maña Harcibiye vaqiası aqqında malümat kerek, – dedim direktorğa.
  – Bu çoq yıllar evelsi olğan şey.
 
-Direktor aytqanımnı añlamadı, maña cılpcılp baqtı.
+Direktor aytqanımnı añlamadı, maña cılp-cılp baqtı.
 Men duydım, o şimdi: “Harcibiye degeni ne?” dep soraycaq.
 O sebepten, aldını çaldırıp, dedim, – Harcibiye... köyniñ adı.
 
@@ -263,7 +263,7 @@ Aqiqiy arhiv hadimi, bir de-bir malümat kerekligi aytılğanda, adeti üzre,
 Çünki arhiv idaresiniñ ihtiyarında ne qadar malümat barlığı, ne hususta ekenligi, yarım-yurtu olsa da, daima esinde.
 Lâkin iç biriniñ mündericesini tafsilâtlı bilmey.
 Ve bilüvi mümkün degil.
-Dört yüz elli yıl evelsi yüz bergen vaqiamı, on eki yıl evelsimi... arhiv hadimi içün bunıñ farqı yoq.
+Dört yuz elli yıl evelsi yüz bergen vaqiamı, on eki yıl evelsimi... arhiv hadimi içün bunıñ farqı yoq.
 Oña mevzunıñ adını bilüv kâfi.
 Harcibiye vaqiası... degende, İlya İsaakoviçniñ qaşları çatıldı.
 Özü tüşüncege daldı.
