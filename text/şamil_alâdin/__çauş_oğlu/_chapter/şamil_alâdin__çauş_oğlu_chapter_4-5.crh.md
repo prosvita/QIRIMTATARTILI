@@ -760,7 +760,7 @@ Ya adamlar?
 
 Balanıñ kelgeni üç afta oldı.
 Bu vaqıt içinde Çauş oña er şeyni kösterip yetiştirdi – şeerni de, onıñ civarını da, çöllerni de, bağçalarnı da, neer üstünde qurulğan, plotinanı da.
-Dilâver SırDaryağa balıq tutmağa da barıp keldi.
+Dilâver Sırdaryağa balıq tutmağa da barıp keldi.
 Qartbabası bu zenaatqa – can sıqıcı iş dep baqa, torun ise öyle baqmay.
 Demek, bala tınçlıqnı ve sükünetni seve.
 Babası nasıl edi?
@@ -774,7 +774,8 @@ Kerçek, balıq tutmay, özü yalday... gemiler yasay, qayıqlar yürsete edi.
 Potideki kibi.
 Amma ufaqlar.
 
-– İşte, mesele qayda... – dep tüşündi Çauş. – Demek, balada babasınıñ qılıqları çoq.
+– İşte, mesele qayda... – dep tüşündi Çauş. 
+– Demek, balada babasınıñ qılıqları çoq.
 Lâkin bu – tanış ve alışıq adiseleri içün asret çeküv degilmi eken?
 Üyken Dilâver dalğalardan çoq hoşlanmaz... olardan çetlenüvni sever edi.
 
@@ -828,7 +829,8 @@ Eki saniyeden soñ qapu içinde tögerek beti ve uzun mıyıqları köründi.
 – Çağırılmağan musafirni qabul etesiñizmi, Mustafa ağa? – yüksek, lâkin cesaretsiz sesnen qıçırdı Seit Osman.
 
 – Musafir olsun... – dedi Çauş.
-Onıñ davuşı da pek qattı çıqmadı. – Tek musafir olsun, törümiz daima boş!
+Onıñ davuşı da pek qattı çıqmadı. 
+– Tek musafir olsun, törümiz daima boş!
 
 Adam, ne sebepten kelse kelsin, musafirperverlik borcu ev saibinden nezaket talap ete.
 O sebepten Çauş ve Seit Osman bir-birleriniñ ellerini yahşı etip sıqtı ve külümsirediler.
@@ -846,19 +848,20 @@ Bu arada Dilâver kirip keldi.
 Musafirniñ çeresi birden şeñlenip ketti.
 O balanıñ saçlarını sıypadı.
 
-– Soñ, nasıl? – dedi oña Seit Osman, – Qartbabañlarda qalasıñmı?
+– Soñ, nasıl? – dedi oña Seit Osman, – qartbabañlarda qalasıñmı?
 
-Seit Osman balanıñ fikirini bilmege tırışuvı, Çauşnıñ ailesindeki yeñi vaziyet ile tafsilâtlı tanış ekeninden delâlet edi.
+Seit Osman balanıñ fikrini bilmege tırışuvı, Çauşnıñ ailesindeki yañı vaziyet ile tafsilâtlı tanış ekeninden delâlet edi.
 Lâkin bu episi degil.
-Albu ise qart, balanıñ ne vaqıt, nasıl poyezdnen kelgeninden ve üç aftadan beri vaqıtını qayda keçirgeninden de haberdar.
+Albu ise qart, balanıñ ne vaqıt, nasıl poyezdnen kelgeninden ve üç aftadan beri vaqtını qayda keçirgeninden de haberdar.
 
 – Qal mında, – dep israr etti musafir.
 Güya yigit Çauşnıñ evine degil de, onıñ evinde qonaq edi.
 
 – Bilmeyim, – dedi Dilâver ve omuzlarını qıstı.
-O qartbabasınıñ divardaki resimine diqqat ile közetmekte edi.
+O qartbabasınıñ divardaki resmine diqqat ile közetmekte edi.
 Qartbabası top yanında tura.
-Pogonları üstünde, üyken leytenant ekenligini kösterici üç küçük yıldız körünmekte. – Anamnı sağındım, – dedi bala.
+Pogonları üstünde, üyken leytenant ekenligini kösterici üç küçük yıldız körünmekte.
+ – Anamnı sağındım, – dedi bala.
 
 – Sağınğan olsañ, çağır... mında kelsin! – dedi Seit Osman.
 
@@ -866,13 +869,15 @@ Pogonları üstünde, üyken leytenant ekenligini kösterici üç küçük yıld
 
 Dilâver, bu laqırdı qartbabasınıñ yüregine yatmağanını sezgen soñ sustı, bir talaydan bağçağa çıqıp ketti.
 
-Çauş, çırayı bulutlı alında, Seit Osmanı sofrağa davet etti: bir şeyler etip, onıñ hatirini hoşlamaq kerek.
+Çauş, çırayı bulutlı alında, Seit Osmannı sofrağa davet etti: bir şeyler etip, onıñ hatirini hoşlamaq kerek.
 O sebepten qarşısına keçip oturdı.
 
-– Şa-ay... demek, bizim yaqlarğa kelip tüştiñiz, – dedi Mustafa suvuq nezaket ile. – Bu nasıl oldı?
+– Şa-ay... demek, bizim yaqlarğa kelip tüştiñiz, – dedi Mustafa suvuq nezaket ile. 
+– Bu nasıl oldı?
 
 – Nasıl oldı?
-Bunı eki söz ile añlatmaq küç, – Seit Osman gür qaşları astından Çauşqa qorqa-qorqa közetti. – Qolaysız vaqıtta keldim, ğaliba.
+Bunı eki söz ile añlatmaq küç, – Seit Osman gür qaşları astından Çauşqa qorqa-qorqa közetti. 
+– Qolaysız vaqıtta keldim, ğaliba.
 
 Şay dep, sözüni üzdi.
 Bekledi...
