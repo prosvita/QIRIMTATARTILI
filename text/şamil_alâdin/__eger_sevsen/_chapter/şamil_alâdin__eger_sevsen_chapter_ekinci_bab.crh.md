@@ -459,7 +459,7 @@ Sarışın kişi yerinden turdı, sol ayağını stolğa bastı, Arhipkanıñ ü
 Men kördim, iş qalabalıqlaşacaqqa beñzey.
 Bunıñ ise iç kerekligi yoq.
 Çemodanımnı açtım; içinden bir qutu çay, ısqa tutılğan eki balıq, qaç kesek şeker, bir qutu konserva, bir kesek poltava kolbasası çıqarıp, stol üstüne qoydım.
-Kişilerniñ qaşları mañlaylarınıñ tepesine köterilip kettiler.
+Kişilerniñ qaşları mañlaylarınıñ töpesine köterilip kettiler.
 
 — Buyurıñız! — dedim men.
 
@@ -469,11 +469,11 @@ Hristofor koykanıñ üstüne oturdı.
 
 Saçları maqasnen kertiklenip qırqılğan uzun yigit kelip onıñ yanına oturdı.
 Elindeki qalın piteden büyükçe kesek qoparıp, ögüne qoydı.
-Soñra o, kesekni ortadan böldi, soñ olarnı da ortadan böldi, bölüngenlerni bir daa ekige bölgen soñ bir keseçigini alıp, çayğa batırdı, ağızına qaptı.
+Soñra o, kesekni ortadan böldi, soñ olarnı da ortadan böldi, bölüngenlerni bir daa ekige bölgen soñ bir keseçigini alıp, çayğa batırdı, ağzına qaptı.
 Bizim köyde ötmekni böyle etip, yüz otuz yaşındaki qartlar aşay, ötmek yufağı yerge tüşse, bütün kün azap çeke turğanlar.
 Kim bilsin, belki Raşid da köyde doğğandır?!
 Bana Nikolaynen iddalaşqan yigit menim qarşımda oturdı:
-boyu pek yüksek degil, omuzları qısıq, boyunı inceçik, yüzü tar ve etsiz...
+boyu pek yüksek degil, omuzları qısıq, boynu inceçik, yüzü tar ve etsiz...
 Asabiy ve zıpqın kişige beñzey.
 O çızmasınıñ qonuçından fin pıçağını çıqardı, kolbasa ve balıqnı çar-çabik keseklep qoydı.
 Hristofor ötmek kesmek içün pıçaqnı istedi, Arhipka bermedi, tez-tez qonuçnıñ astına qadar tıqıp yiberdi.
@@ -495,7 +495,8 @@ Baraknıñ içi ufaqlanıp ketken kibi oldı.
 Niçün kabel?
 Stantsiyanıñ küçü yetmey de.
 
-— Nesi yetmey? — Nikolay sarğuş davuşnen soradı. — Küçü yetmey deysiñmi?
+— Nesi yetmey? — Nikolay sarğuş davuşnen soradı. 
+— Küçü yetmey deysiñmi?
 Tursunov ketti.
 Yeñi donatma ketirecek.
 Tursunov kim?
@@ -506,7 +507,8 @@ Bilesiñmi, ahmaq!
 Ziyafet biteyatqanda içeri, qarardan ziyade yüksek boylu adam kirdi.
 Üstünde eski şinel, başında meşin kepka.
 
-— İşte, komendant! — dedi Arhipka, ırcayıp. — Taqletini köstermegeni çoqtan edi.
+— İşte, komendant! — dedi Arhipka, ırcayıp. 
+— Taqletini köstermegeni çoqtan edi.
 Ne keldiñ, Petâ emce?
 
 Arhipkanıñ adamlarğa ilişe bergen adeti olsa kerek.
@@ -520,7 +522,8 @@ Keç keldiñiz!
 — Raqı olsa edi, — dedi komendant tüşkün sesnen, — amma böyle quru...
 Onıñ ne yeriniñ lezetinn baqacaqsıñ?
 
-Komendnant yalq etil maña baqtı: — Yeñi kişi sizsiñizmi? — dep soradı.
+Komendnant yalq etil maña baqtı:
+ — Yeñi kişi sizsiñizmi? — dep soradı.
 Men başımnı salladım.
 
 — Yuriñiz menimnen!
@@ -533,7 +536,8 @@ Alel-acele çayımnı içip, onıñ peşine tüştim.
 Familiyamnı söyledim.
 
 — Bekirov?
-Maña ise Petâ emce deyler! — dedi komendant resmiy davuşnen ve közleri çemodan üstüne tüşti. — Seniñkimi?
+Maña ise Petâ emce deyler! — dedi komendant resmiy davuşnen ve közleri çemodan üstüne tüşti.
+ — Seniñkimi?
 Kilitlen, çetke qoy, — dep emir etti.
 
 Arqama teşek, yastıq, çızma sıqınıp qaytıp kelgende barakta kimse yoq edi.
@@ -548,14 +552,15 @@ Ne qıdıra?
 Özü de bilmese kerek.
 Yanımdan ekinci defa keçeyatqanda koykanıñ ayağına sürünip yerge yıqıldı, elektrik kabeli hususında bir şeyler ayttı, añlamaq qıyın edi.
 O meni, ğaliba, elektrik belledi.
-Onıñ fikirince montör kabelni smenada dört kere teşkermek kerek, men, yani elektrik, denbelniñ-denbeli, buña erine ekenim.
-Seniñ ağızıñnı-burunıñnı tümtüz etip beririm,— dedi maña.
+Onıñ fikrince montör kabelni smenada dört kere teşkermek kerek, men, yani elektrik, denbelniñ-denbeli, buña erine ekenim.
+Seniñ ağzıñnı-burnuñnı tümtüz etip beririm,— dedi maña.
 
 Yanımdaki koykada, toban töşek üstünde, kimdir qıbırdandı, sağ yağından stol yağına çevirildi, soñra ayaqqa qalqaraq, peçkanıñ yanına barıp, ğılt-ğılt-ğılt suv içti, sarışın kişiniñ yanına qaytıp keldi.
 
 — Yur, kettik! — Nikolaynıñ qolundan çekti.
 Amma onı kötermek qolay degil edi.
-Kişi menim başımnıñ üzerine egildi: — Yuqlaysıñmı?
+Kişi menim başımnıñ üzerine egildi:
+ — Yuqlaysıñmı?
 
 Men Hristofornıñ sesini tanıdım.
 
@@ -566,7 +571,9 @@ Ne oldı?
 Yarım saat keçken soñ men, Hristofor ve Arhipka beraber qaranlıq gecede yolğa çıqtıq.
 
 — Kene üç kişimiz.
-Daima üç kişi,— Arhipka nişaretli sezlernen sögündi, — Kandıba er kün bir marifet körsete,— o Hristofornıñ omuzından türtti: — Dostuña ayt, onıñ içün hızmet ete bermege vaqıtım yoq!
+Daima üç kişi,— Arhipka nişaretli sezlernen sögündi. 
+— Kandıba er kün bir marifet körsete,— o Hristofornıñ omuzından türtti: 
+— Dostuña ayt, onıñ içün hızmet ete bermege vaqıtım yoq!
 
 Arhipka biraz ögge ketken soñ, Hristofor menimnen yanaşalap yurdi.
 
@@ -620,15 +627,18 @@ Hristofor, ğaliba, bunıñ farqına bardı.
 
 — Elpideden mektüp kelmegeni çoq vaqıt oldı, — dep taşladı. — O şimdi Batumda yaşamay, haberiñ barmı?
 Yüregim ne ise yımşap ketti.
-Hristofor devam etti: — Kabuletide çay fabrikasında işley.
-Vasila ile bir evde yaşamaq istemey,— şay degen soñ, Hristofor birden toqtaldı, tiklenip, közlerime baqtı. — Sen ne?
+Hristofor devam etti: 
+— Kabuletide çay fabrikasında işley.
+Vasila ile bir evde yaşamaq istemey,— şay degen soñ, Hristofor birden toqtaldı, tiklenip, közlerime baqtı. 
+— Sen ne?
 Oña mektüp yazuvnı bıraqtıñmı?
 
 — Elpide menim mektüplerime cevap bermey.
 
 — Bermey?
 Niçün?
-Yoq, yoq... sen yaz! — dedi Hristofor büyük israrnen ve ilâve etti: — Em tezce ol!
+Yoq, yoq... sen yaz! — dedi Hristofor büyük israrnen ve ilâve etti: 
+— Em tezce ol!
 
 "Ebet!
 Tezce olmaq kerek!
@@ -636,7 +646,7 @@ Acele mektüp yollap, işniñ aslını bilmek kerek.
 Bu işni diger adam yapacağı yoq.
 Öz taqdiriñ hususında evelâ özüñ tüşünmek kereksiñ".
 
-Bu fikir ilki defa aqılıma kelgende yigirmi üç yaşında edim.
+Bu fikir ilki defa aqlıma kelgende yigirmi üç yaşında edim.
 Tekaran evelce kelgen olsa, iş başqa yolğa minecek edi.
 
 Men şimdi öyle tüşünem...
