@@ -609,8 +609,9 @@ Yanğın söndüreyatqan alayğa beñzey.
 
 Ayiq-Burun betten deşetli gurultiler işitildi.
 Yarım saatten soñ selniñ aqıntısı zayıfladı.
-Biz aylanma kanalnıñ kenarında toplandıq... ne ikmet ekenini bilalmay, taaciplenip turğanda, Arhipka...— kene Arhipka — talağı qatıp, yuvurıp keldi.
+Biz aylanma kanalnıñ kenarında toplandıq... 
+ne ikmet ekenini bilalmay, taaciplenip turğanda, Arhipka...— kene Arhipka — talağı qatıp, yuvurıp keldi.
 
-— Qaya patlatıldı...— dep qıçırdı o, yırtıq sesinen,— sel endi Çar-Çaqqa aylandı.
+— Qaya patlatıldı...— dep qıçırdı o, yırtıq sesinen, — sel endi Çar-Çaqqa aylandı.
 
-— Ey Alla!— dedim men öz-özüme, içten,— niayet, aylanma kanal qurtuldı.
+— Ey Alla! — dedim men öz-özüme, içten, — niayet, aylanma kanal qurtuldı.
