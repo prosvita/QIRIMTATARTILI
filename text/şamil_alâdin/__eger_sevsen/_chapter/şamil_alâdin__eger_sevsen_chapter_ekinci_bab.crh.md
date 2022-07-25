@@ -201,19 +201,20 @@ Aqlıma hucur fikirler kele başladılar: balaban deñiz içinde bir özüm qald
 Barıp ta suvuq aqıntığa oğrap, ellerimniñ, yahut ayaqlarımnıñ damarları tutulsa?
 Delfinlerniñ kimerde insanğa yaqın kelip, qanatlarınen bedenine ilişip keçken... bir ilişkende qaburğalarını kesip taşlağan adetleri ola turğan.
 
-Apansızdan yanımda davuşlar işitildi.
+Apansızdan yanımda davuşlar eşitildi.
 Bana yalıda yatqan kişiler... ziy-çuv olıp, etrafımda yaldamaqta ediler.
-Olardan birisi: "Tez-tez qaytmaq kerek, — dedi digerine, — yoqsa, haçapuriniñ lezeti qaçar".
+Olardan birisi: 
+"Tez-tez qaytmaq kerek, — dedi digerine, — yoqsa, haçapuriniñ lezeti qaçar".
 Qız, yanaşamdan keçer eken, başını maña çevirip:
 
-— Sizni de davet etemiz! — dedi ve iri, beyaz tişçlerini körsetip külümsiredi, soñra: — eger razı olsañız... — dep ilâve etti.
+— Sizni de davet etemiz! — dedi ve iri, beyaz tişlerini körsetip külümsiredi, soñra: — eger razı olsañız... — dep ilâve etti.
 
 Bu teklifke yigitler de qoşuldılar.
 Biri urum tilinde rica etti, digeri acar tilinde, üçüncisi türk tilinde.
 Soñundan añlağanıma köre, bu üç tilniñ üçü de olarnıñ ana tilleri eken.
 
 Niayet, epimiz yalığa doğruldıq.
-Men yigitlerniñ artına yetmek içün suvnı şapırtıp-köpürtip, ögge ıntılğanda, qıznıñ acuv davuşını işitip, arqama çevirildim.
+Men yigitlerniñ artına yetmek içün suvnı şapırtıp-köpürtip, ögge ıntılğanda, qıznıñ acuv davuşını eşitip, arqama çevirildim.
 
 — Meni açıq deñizde qaldırıp ketmek isteyñizmi? — dedi o maña, azaçıq külümsirep,— ne aşıqasıñız?
 Ep bir Hristofornıñ peşine yetalmazsıñız.
@@ -261,18 +262,18 @@ O sağlam kevdeli, yanıq çereli, hızmetsever yaşlar qayda... 
 
 Biz Duranidiniñ evinde on bir şişeni tüplegen ve haçapuri yegen soñ, Hristofor meni özüne qardaş dep bilgenini söyledi ve evlerinde bir afta musafir olıp qalmamnı talap etti.
 
-Men mında ömürimde ilki olaraq acaip künler kördim.
+Men mında ömrümde ilki olaraq acayip künler kördim.
 Saba erte turıp deñizge ketemiz, künniñ soñunda qaytıp kele, ev aldındaki küçük bağçada aş aşay, qave yahut şarap içe, keyf çatamız.
 Elpide ile ekimiz bulvarda kezinemiz.
 Onıñ türkü söylegen adeti bar edi.
-İnce, lâkin hoş sesinen acaip urum türküleri söyley ve gitarada çala turğan.
+İnce, lâkin hoş sesinen acayip urum türkülerini söyley ve gitarada çala turğan.
 Elpide yüksekçe boylu, ince belli qız...
 Onıñ qaverenki çeresi ve tığız müçesi araretli, şeñ ömürniñ timsali edi.
 
-İnstitutqa barsañ, meni dostlarıña aytıp, yıllar boyu külip, mısqıllap yürersnñ...— dey edi Elpide,— mısqıllasañ mısqıllay ber!
+İnstitutqa barsañ, meni dostlarıña aytıp, yıllar boyu külip, mısqıllap yürersiñ...— dey edi Elpide,— mısqıllasañ mısqıllay ber!
 Ne yapmalı?
 Men seni sevem!
-İnce Qayanıñ üstüne çıqalmay turğan vaqıtıñda begendim, birden zecanğa keldim.
+İnce Qayanıñ üstüne çıqalmay turğan vaqtıñda begendim, birden zecanğa keldim.
 Hristofor ise açuvlandı, meni öldürecek oldı.
 Amma ekiñiz tanış olğan soñ, seni o da sevdi.
 Şimdi Hristofor saña menden ziyade aşıq.
@@ -290,15 +291,15 @@ Menim ayatımda böyle saf sevgi, saf muabbet, böyle araretli öpüşler daa ol
 Baq közlerime!
 Köresiñmi?
 Eger yalan söylesem, olarnı oyup alsınlar!
-Başımnı kesip, Kabuleti yolu üstündeki yüksek şımşır teregine saçlarımdan asıp qoysınlar.
+Başımnı kesip, Kabuleti yolu üstündeki yüksek şımşır teregine saçlarımdan asıp qoysunlar.
 Eşitesiñmi, Cevdet?
-Eger ömürimde, başqasını, seni sevgenim qadar sevgen olsam... lâkin yalvaram, maña öyle şübeli baqma!
+Eger ömrümde, başqasını, seni sevgenim qadar sevgen olsam... lâkin yalvaram, maña öyle şübeli baqma!
 Şimdiçik özümni deñizge atarım!
 Baq!
 Şimdi...
 Cevdet!
 
-Men onı quçaqlap, bağırıma basam, saçlarını sıypayım.
+Men onı quçaqlap, bağrıma basam, saçlarını sıypayım.
 O susa.
 Ne olğanını özüm de añlamayım.
 Kendimniñ Elpidege sadıqlığımnı isbat etmek içün men de közlerimni oyup çıqarmağa, başımnı kestirmege, özümni suvğa atmağa azır ekenimni söyleyim.
