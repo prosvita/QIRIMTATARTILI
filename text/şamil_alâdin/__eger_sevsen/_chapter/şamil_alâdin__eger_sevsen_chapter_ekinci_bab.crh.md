@@ -363,11 +363,11 @@ Lâkin qayda?
 Nasıl evge?
 Student yataqhanesinemi?
 Elpidege episini añlatıp yazdım.
-Çoqqa barmay, cevap keldi: ne qadar çekişse-çekişsin, lâkin menim raat oqumam içün Batumda er şeyge qatlanacaq, bütün ömürinde yüregi tek maña sadıq qalacaq.
+Çoqqa barmay, cevap keldi: ne qadar çekişse-çekişsin, lâkin menim raat oqumam içün Batumda er şeyge qatlanacaq, bütün ömründe yüregi tek maña sadıq qalacaq.
 Menim mektübim, menim şübelenüvim oña tesir etkenge beñzey.
 
 Ondan soñ men arbiy mektepke kettim.
-Elpide evelâ Tambovğa, soñra Starıy Kostantinovqa qızıl kazaklar polkına sıq-sıq mektüp yazıp turdı.
+Elpide evelâ Tambovğa, soñra Starıy Kostantinovğa qızıl kazaklar polkuna sıq-sıq mektüp yazıp turdı.
 Amma bir qaç seneler keçken soñ, bu mektüpler siyrekleşti, soñra tekmil kesildiler.
 Soñki sene içinde Elpide menim iç bir mektübime cevap bermedi.
 
@@ -396,8 +396,8 @@ Artıq yahşı yerleşkenime emin olğan soñ, etrafıma köz taşladım.
 Tavan astını örümçek yuvaları örtken, çökürli divarlarnı ve pencerelerni toz basqan.
 Tsement pol yaqında sipirilmegen.
 
-Aqılıma bizim qazarma tüşti.
-Anda koykalar mıdakinden qaç kere çoq, polı da mındaki kibi, tsement, lâkin temizlik cietinden bunıñnen qiyas etmek mümkünmi?
+Aqlıma bizim qazarma tüşti.
+Anda koykalar mıdakinden qaç kere çoq, polu da mındaki kibi, tsement, lâkin temizlik ceetinden bunıñnen qiyas etmek mümkünmi?
 Terenden köküs keçirdim. 
 — Böyle yaşaysıñızmı? — dedim Hristoforğa. 
 Onıñ çeresinde keder sezildi ve cevap berecegi yerde, teren nefes aldı.
@@ -436,10 +436,11 @@ Hristofor menim ögüme, qaynağan suv tolu teneke meşrebe ketirip qoydı.
 
 — Gazeta olsa töşer edik... qaydan alasıñ? — dedi o, öz-özüni aqlağan olıp, — mahorka içip bitirdiler... şaqalâar!
 
-— Dört küvert içün...— dedi sarışın kişi,— lediler ve centlmenler, rica etem, stolğa buyurıñız! — şay degen soñ, oyuncılardan birine çevirilip,— tut stolnıñ ucundan, koykağa yaqın çekeyik! — dedi o,— kimge aytam!
+— Dört küvert içün...— dedi sarışın kişi,— lediler ve centlmenler, rica etem, stolğa buyurıñız! — şay degen soñ, oyuncılardan birine çevirilip:
+— Tut stolnıñ ucundan, koykağa yaqın çekeyik! — dedi o,— kimge aytam!
 
 Lâkin oyuncı özüni sıqmadı.
-Bayağı vaqıt qıbırdamay oturdı, soñ ayaqqa turdı, entir-tentir ocaqnıñ yanına bardı, arıq ellerini tar, oyuq köküsi üzerine haçladı.
+Bayağı vaqıt qıbırdamay oturdı, soñ ayaqqa turdı, entir-tentir ocaqnıñ yanına bardı, arıq ellerini tar, oyuq köksü üzerine haçladı.
 
 — Emir etmege bilesiñ.
 Güzel... ya ne aşaycaqmız?— dedi oña, açuvlanıp.
