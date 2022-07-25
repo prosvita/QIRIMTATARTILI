@@ -122,21 +122,25 @@ Ayın bu yerden! — dediler olar tekrar,— mında ekskavatorcılar...
 — Eşitken olsañ, qatayıp turğanıñ ne?
 Yoqsa, seni aylanma kanalğa yоlladılarmı?
 
-— Ebet! — dedim men. — Aylanma kanalğa.
+— Ebet! — dedim men. 
+— Aylanma kanalğa.
 Lâkin dalğıcılarnıñ bu işke ne munasebetleri bar?
 
 Oyuncılarnıñ biri yaqın keldi.
 
-— Raqıñ barmı? — dep soradı menden ve yasama sesnen şaqıldap küldi.— Raqıñ olsa, bizde qal!
+— Raqıñ barmı? — dep soradı menden ve yasama sesnen şaqıldap küldi.
+— Raqıñ olsa, bizde qal!
 
 % — Raqım yоq, lâkin qapınmaq isteseñiz, tapmaq mümkün.
 
 — ...Çünki dalğıcılarnıñ episi siziñ qardaştan.
 Ordudan kelgenler! — dedi sarışın kişi, — lâkin sen otur!
-Dalğıcı olacağıñ kelmese, bizde qal! — soñ keskin davuşnen qıçırdı: — Hristofor!
+Dalğıcı olacağıñ kelmese, bizde qal! — soñ keskin davuşnen qıçırdı: 
+— Hristofor!
 Çay...
 
-— Raqı! — oyuncı ep inatlandı, — seniñ çayıñ kimge kerek?
+— Raqı! — oyuncı ep inatlandı. 
+Seniñ çayıñ kimge kerek?
 Raqı ketirsin!
 
 Baraknıñ uzaq, qaranlıq köşesinden keñ müçeli, quvurçıq saçlı, sağ közüne qara meşin bağlı kişi peyda oldı.
@@ -151,7 +155,7 @@ Biz quçaqlaştıq.
 
 Menim sevgim... ilki sevgim Hristofor Duranidi ile bağlı edi.
 
-İnstitutnıñ birinci kursını bitirgen soñ yazlıq tatil vaqtında doğmuş köyüm Bademlikke ketken edim.
+İnstitutnıñ birinci kursunı bitirgen soñ yazlıq tatil vaqtında doğmuş köyüm Bademlikke ketken edim.
 Kelgenimniñ ilki künü babam meni Fikretnen küreşmege mecbur etti.
 O, belimden tutar-tutmaz meni yerge yandırdı.
 Men açuvlandım.
@@ -170,29 +174,30 @@ Amma menim küreş usullarımnı begendi.
 
 Künlerden bir kün, men, baznam ötip olsa kerek: "babam, meni Taras Bülba kibi, yumruqlarını sıqıp qarşılay" dep yiberdim.
 
-Bu babamnıñ pek oşına ketti: "men Taras Bülbanı bilem,— dedi babam,— onıñnen Qızıl-Yar yarmalığında körüştim".
+Bu babamnıñ pek oşuna ketti: "men Taras Bülbanı bilem,— dedi babam,— onıñnen Qızıl-Yar yarmalığında körüştim".
 
-"Yarmalıqta? — men ayretke keldim. — Ne vaqıt?
+"Yarmalıqta? — men ayretke keldim. 
+— Ne vaqıt?
 Nasıl etip?"
 
 Yazlıq tatilniñ soñunda Taşkentke qaytqanda Kavkazdan keçtim.
 Batumda gemiden tüşkenim kibi, demir yel vokzalına çaptım.
 Lâkin halq... maña beñzegen studentler ğayet çoq edi.
-Şu künü poyezdğa bilet alamadım.
+Şu künü poyezdge bilet alamadım.
 
 "Acaristan" musafirhanesinde yerleştim.
 Üyleden soñ deñizge kettim.
 Yalıda, menim yanaşamda, qum üstünde yaş kişiler ve aralarında bir qız küneş şavleleri astında yatmaqta ediler.
-Bir talaydan soñ qız qalqtı, cazibeli adımlarle deñiege doğruldı... dülber yaldap ketti.
-Men, dağlıq ülkeniñ kişisi.
+Bir talaydan soñ qız qalqtı, cazibeli adımlarla deñizge doğruldı... dülber yaldap ketti.
+Men, dağlıq ülkeniñ kişisim.
 Yaldavda pek usta degil edim, amma qıznıñ bu derece mair yaldağanını körgen soñ, pahılladım, atılıp turdım, deñizge çaptım.
-Qız maña baqa berdi, o sebepten, men de oldıqça uzaq mesafe almağa tırıştım.
+Qız maña baqa berdi, o sebepten, men de olduqça uzaq mesafe almağa tırıştım.
 Aşıqmay yaldadım.
 Niyetim — İnci Qayağa yetip, onıñ üstünde biraz raatlanmaq, soñra keri qaytıp kelmek edi.
 İnci Qayağa barıp yetkenim ve üstüne tırmaşa başlağanım kibi, tekmil taqattan tüştim.
 Taşnıñ üstüne çıqıp, eñ olmağanda, azaçıq esimni başıma toplamaq kerek edim, amma İnci Qayanıñ yanında, suv içinde bir çerik saat qarmalanıp turdım, niayet, keri qaytqanda quvetim tekmil meni terk eteyatqanını sezdim.
 Yalığa barıp yetecegime eminim, lâkin pek qıyın olacaq.
-Aqılıma hucur fikirler kele başladılar: balaban deñiz içinde bir özüm qaldım, dep tüşündim men.
+Aqlıma hucur fikirler kele başladılar: balaban deñiz içinde bir özüm qaldım, dep tüşündim men.
 Barıp ta suvuq aqıntığa oğrap, ellerimniñ, yahut ayaqlarımnıñ damarları tutulsa?
 Delfinlerniñ kimerde insanğa yaqın kelip, qanatlarınen bedenine ilişip keçken... bir ilişkende qaburğalarını kesip taşlağan adetleri ola turğan.
 
