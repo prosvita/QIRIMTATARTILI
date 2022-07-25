@@ -1301,7 +1301,8 @@ Demek, iş bitken.
 Bitkenmi aceba?
 
 – Men, elbette, añlayım, Zeverced dülber qız.
-Bu er keske malüm, – Seit Osman kene şorbacınıñ fikirini böldi. – Amma menim Serverim de osal yigitlerden degil.
+Bu er keske malüm, – Seit Osman kene şorbacınıñ fikrini böldi. 
+– Amma menim Serverim de osal yigitlerden degil.
 Şeer soqaqlarında, tar balaqlı, beyaz tikişli ştanlarda yanbaşlarını dırbaytıp yürüci, o uzun callılardan degil.
 Ebet, Mustafa!
 Olardan degil.
@@ -1313,9 +1314,11 @@ Seit Osman duşmannıñ evine birinci özü kelgenine ve aqlaşnı özü teklif 
 
 – Oturğaydıñız daa... – dedi Şefiqa. – Ne turdıñız?
 
-– Ebet! – Çauş qarısınıñ sözlerini taqdir etti. – Vaqıt bar...
+– Ebet! – Çauş qarısınıñ sözlerini taqdir etti. 
+– Vaqıt bar...
 
-– Vaqıt, elbet de, yoq degil... – musafir bosağa ögünde toqtaldı. – Amma maña aşıqmaq kerek...
+– Vaqıt, elbet de, yoq degil... – musafir bosağa ögünde toqtaldı. 
+– Amma maña aşıqmaq kerek...
 Sağ-selâmet oluñız!
 Vaqıt tapıp, siz de bizge bir keliñiz!
 Evimiz şimdi deñişti.
@@ -1328,7 +1331,8 @@ Sofada pötüklerini kiymege tedariklengende Şefiqa yengege çevirildi.
 
 Şefiqa beklenilmegen bu sualden şaşmaladı, köz qapaqlarını sıq-sıq oynattı, güya musafirge, güzel etip baqmaq içün nelerdir keder etmekte edi.
 
-– Bilmeyim... – dedi yenge, – Nasıldır Seröja...
+– Bilmeyim... – dedi yenge. 
+– Nasıldır Seröja...
 
 Seit Osman külümsiredi.
 Soñ etli köz qapaqlarını aşağı endirdi.
@@ -1360,10 +1364,12 @@ Bu musallat meseleni nasıl çezmeli?
 Seit Osmanğa ne cevap bermeli?
 O inat adam... elbette, bekler.
 
-– Apaqay, – dedi Çauş qarısına. – Maña baq!
+– Apaqay, – dedi Çauş qarısına. 
+– Maña baq!
 Doquz yıl evelsi olıp keçken vaqia, zanımca, qıznıñ kelecegine keder etmemek kerek.
 
-– Elbette... – Şefiqa başını ögge meil berip, eki kere qaqıttı. – Keçmişni unutayıq.
+– Elbette... – Şefiqa başını ögge meil berip, eki kere qaqıttı. 
+– Keçmişni unutayıq.
 Bizge mani olmasın.
 Söz menim, seniñ aqqıñda ketmey, qızımnıñ taliyi aqqında kete.
 
@@ -1371,13 +1377,16 @@ Söz menim, seniñ aqqıñda ketmey, qızımnıñ taliyi aqqında kete.
 Sen, qadın, ülemasıñ!
 Evelde men bunı nasıl etip sezmedim?
 
-– Aysa... özüñ laqırdı vaqıtında meni yanıñdan quva beresiñ... – Şefiqa bir sançıp aldı. – Sen daa çoq şeylerni sezmeysiñ...
+– Aysa... özüñ laqırdı vaqtında meni yanıñdan quva beresiñ... – Şefiqa bir sançıp aldı. 
+– Sen daa çoq şeylerni sezmeysiñ...
 
 – Çıqıp tur dedim.
-Quvmadım. – Çauş özüni aqlamaq istedi. – Sen zekkiysiñ, lâkin adaletsizsiñ.
-Biz, fikirimce, ayatımızda yaman yaşamadıq.
+Quvmadım, – Çauş özüni aqlamaq istedi. 
+– Sen zekkiysiñ, lâkin adaletsizsiñ.
+Biz, fikrimce, ayatımızda yaman yaşamadıq.
 
-– Barsın, qızım bahtlı olsun, – dedi yenge, qocasınıñ sözlerini eşitmegen olıp. – O Serverni seve.
+– Barsın, qızım bahtlı olsun, – dedi yenge, qocasınıñ sözlerini eşitmegen olıp. 
+– O Serverni seve.
 Şemsnurnıñ aytqanına köre, olar qaç yıllar evelsi bir-birine söz berişkenler.
 
 Çauşnıñ qaşları töpege tiklendiler.
@@ -1393,7 +1402,7 @@ Lâyıqat, mustaqiliyet qayda?
 – Barsın, evlensinler, – dedi Çauş ve, başını sağ tarafqa yantaytıp, üç defa siltedi.
 
 Ekisi de bir söz ile, qız aqqında qarar çıqardılar, lâkin bir sözni ekisi de özlerince çeşit-çeşit söylediler.
-Çauş bu sözni söyler eken, dudaqları asabiylenip, titrediler, yenge ise başındaki yavlığınıñ ucunen közlerindeki yaşlarnı sildi, ah çekti.
+Çauş bu sözni söyler eken, dudaqları asabiylenip, titrediler, yenge ise başındaki yavluğınıñ ucunen közlerindeki yaşlarnı sildi, ah çekti.
 
 Şu künden itibaren evde ömür deñişti.
 Tek Zeverced aqqında tüşünildi, er şey Zeverced içün yapıldı.
