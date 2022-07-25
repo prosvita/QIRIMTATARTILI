@@ -591,6 +591,7 @@ Bir qırnıñ suvu yavaş-yavaş digeriniñ suvuna aqıp kelgen.
 Bir dereniñ suvu digeriniñkine qatılğan.
 Olar bir-birlerinen birleşip, qırlarnı aşıp, yol açıp, qırmızı lay ve taşlar alıp keldiler.
 Dağlardan ne qadar aşağı enseler, suv ve sel o qadar çoqlaştı. 
+
 Sel taşqını, niayet, Çar-Çaqqa kelip yetken soñ, özen quturdı, yüksek qayalarğa qırlarğa oqtaldı.
 Hazar Kendniñ yanında yalıdan çıqıp, qışlaqlarğa, çöllerge ve bağçalarğa yayıldı.
 Sel baraklarnıñ aralıqları içinde rastkelgen er şeyni bastı-yoğurdı, Ayiq-Burun betke keteyatqanda yolundan çıqtı, gidromonitorlar skladına, demir yol qulbesine çapqıldı.
