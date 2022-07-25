@@ -308,15 +308,15 @@ Kimerde Elpideniñ çeresinde birden şübe ve keder asıl ola, dülber közleri
 
 — Menden evel bir de birisini sevgen ediñmi?
 Köyüñizde sevgili qızıñ barmı?
-Doğrusını ayt! — şay degende Elpide üngür-üngür ağlap başlay. — Yarabbi, men neqadar bahıtsızım!
+Doğrusını ayt! — şay degende Elpide üngür-üngür ağlap başlay. — Yarabbi, men ne qadar bahıtsızım!
 
 Yalan aytmaq mümkünmi?
 Bizim köyde, aqiqaten, bir güzel qız bar...
-Geceleri köyniñ civarında çıtırman dağ eteginde şırıldap aqıp turğan "Teselliden" suv almağa kelip, menimnen körüşip kete turğan.
-Tatil vaqıtında köyde ekende onıñ aqqında çoq tüşündim, lâkin qız köyde yoq.
-Hastalanğan, ülkeniñ çöl qısımında yaşağan aqrabalarına çıqıp ketken.
+Geceleri köyniñ civarında çıtırman dağ eteginde şırıldap aqıp turğan "Teselliden" suv almağa kelip, mennen körüşip kete turğan.
+Tatil vaqtında köyde ekende onıñ aqqında çoq tüşündim, lâkin qız köyde yoq.
+Hastalanğan, ülkeniñ çöl qısmında yaşağan aqrabalarına çıqıp ketken.
 
-Elpide bu hucur tarihnı işitken soñ, kene ağlap yiberdi ve bu günanı maña iç bir vaqıt afu etmeycegini söyledi.
+Elpide bu hucur tarihnı eşitken soñ, kene ağlap yiberdi ve bu günanı maña iç bir vaqıt afu etmeycegini söyledi.
 
 — Sen özüñ iç kimseni sevmediñmi? — dep soradım men.
 
@@ -336,7 +336,7 @@ Dünyada er şey keçip ketkeni kibi, bu bir aftada keldi-keçti.
 Hristofornıñ ve Elpideniñ dostları meni ozğarıp vokzalğa keldiler.
 Poyezd köçkende Elpide ağladı, men özüm de ağlayyazdım.
 
-İnstitutqa kelgen soñ, mektüpleşüv başladı.
+İnstitutqa kelgen soñ, mektüpleşüv başlandı.
 İlki vaqıtlarda Elpideden künde eki mektüp kele turğan, soñundan bu sıtmalı araret sakinledi.
 İlki aylarda yalıñız ebediy sevgiden baas etken mektüplerinde ev-turmuş haberleri peyda oldılar: qart Duranidi çıldırğanğa beñzey, keçken sene vefat etken ayaqqapçı Manusidiniñ qarısı Vasilağa evlenmek istey.
 Vasila — nişaretli qadın, közleri daima çılpıqlı, daima ağlap turğan kibi.
@@ -347,7 +347,7 @@ Hristofor, qurulayatqan pavilyonnıñ saçağı tübünden keteyata eken, tavan 
 Hristofor vayıldap, elinen közüne yapışqan ve şu arada başı aylanıp yerge yıqılğan.
 Elpideniñ tabirince Hristofornıñ eki qopqa qanı aqqan.
 Onı lineykağa qoyıp, hastahanege ketirgenler.
-Vir buçuq aydan soñ evge qaytıp barğan.
+Bir buçuq aydan soñ evge qaytıp barğan.
 Sağ közü yоq eken.
 
 Elpide diger mektübinde evelki Hristofornıñ artıq yoq ekenini, onıñ vefat etkenini... hastahaneden tamamınen başqa adam qaytıp kelgenini yazğan edi.
