@@ -18,7 +18,7 @@ Evlerniñ içindeki çıraqlarnıñ yarığı zayıf, soqaqlarnı aydınlatmayla
 Ortalıq qaranlıq.
 Tahta qaldırımnıñ üstü ise bılaşıq, tayğaq — yürmek telükeli.
 Yolda adamlar közge az çalınalar.
-Kimerisi hızmette, kimerisi ise, ğaliba, çoqtan evge qaitıp kelgen.
+Kimerisi hızmette, kimerisi ise, ğaliba, çoqtan evge qaytıp kelgen.
 
 Bu Çar-Çaq qurucılığınıñ sotsialist şeerçigi.
 Sotsialist şeerçik degende, memleketimizde buña beñzer diger şeerçikler közümniñ ögüne keleler.
@@ -37,11 +37,11 @@ Daima kelecekni tüşüne.
 Ayat bu eki ölçü çerçivesinde doğa ve öle.
 
 Başqa şey hususında tüşüne edim.
-Bu yerdeki emekçi halq başqalarına acaip evler qurıp bergen, amma özüniñ başı töpesinde adam aqıllı damı yoqlığı ne ikmet eken, dep tüşüne edim.
+Bu yerdeki emekçi halq başqalarına acayip evler qurıp bergen, amma özüniñ başı töpesinde adam aqıllı damı yoqluğı ne ikmet eken, dep tüşüne edim.
 
 Kelgen-keçken kimse yoq.
 Pencerelerniñ birisini qaqtım.
-Qapu açıldı, burunıma buhar ve sabun qoqusı urdı.
+Qapu açıldı, burnuma buhar ve sabun qoqusı urdı.
 Çamaşırhane eken.
 
 — Ekinci barak qayda?
@@ -52,7 +52,7 @@ Qapu açıldı, burunıma buhar ve sabun qoqusı urdı.
  — Yeñi kelgenlerdensiñ, öylemi? — ve menim cevabımnı beklemey, devam etti. — Şimdi halq ep mında yağa.
 Putövkanen keldiñmi?
 
-Men başımnı köküsim üstüne qaqıttım.
+Men başımnı köksüm üstüne qaqıttım.
 
 — Kete ber, öyle olsa! — dedi qadın, üstümni-başımnı közden keçirip, külümsiredi: — Çamaşırıñ olsa, ketir!
 Unutma!
@@ -68,7 +68,7 @@ Ayretlenip, bosağa üstünde toqtap qaldım.
 
 Mahorka dumanı içinde közlerime küçük ağaç koykalar çalındı.
 Çette, suv bakı yanında uzun stol tura, ortada zır-sarğuş eki yaş kişi, nasıldır, kiyik oyun oynamaqtalar.
-De aşağı çeke, de qalqa, de ellerini çetke uzata ve çızmalarınıñ ökçelerini yerge urıp, polnı dübürdete, soñra birbiriniñ omuzlarından tutıp, tepege sekireler.
+De aşağı çeke, de qalqa, de ellerini çetke uzata ve çızmalarınıñ ökçelerini yerge urıp, polnı dübürdete, soñra bir-biriniñ omuzlarından tutıp, tepege sekireler.
 Bu zevqlı oyunğa, aynı zamanda, deşetli kötekke de beñzey.
 Oyuycılarnıñ ekisiniñ de sesleri qarıq.
 
@@ -83,7 +83,7 @@ Bosağa üstünde hayli vaqıt turdım, meni abaylağan adam olmadı.
 Belki aselet qulaq asmadılar!
 Sarışın kişi, niayet, içeri kirgen suvuqtan qaltırap, başını köterdi.
 
-— Qapunı kim açtı? — dep qıçırdı o, lâkin meni körgen soñ, yastıqnı atmaq içün elini tepege kötergeni alda, taaciplenip, yerinde susıl qaldı.
+— Qapunı kim açtı? — dep qıçırdı o, lâkin meni körgen soñ, yastıqnı atmaq içün elini töpege kötergeni alda, taaciplenip, yerinde susıp qaldı.
 
 — Mümkünmi? — dep qıçırdım men, — kirmege mümkünmi?
 
@@ -96,7 +96,8 @@ Sarışın kişi odanıñ ortasına çıqtı.
 Onıñ üstünde tek iç ştan ve mayka olıp, yalanayaq edi, bir-birlerinen türtüşip, üytekleşip turğan oyuncılarnı ayırdı, soñra maña taba eki adım attı.
 
 — Kimsiñ, qardaş? — dep soradı menden.
-Soñ, cevabımnı beklemey: — Saña, ğaliba, dalğıcılar alayına ketmek kerek! — dep ilâve etti.
+Soñ, cevabımnı beklemey: 
+— Saña, ğaliba, dalğıcılar alayına ketmek kerek! — dep ilâve etti.
 
 — Aysa!
 Dalğıcılarğa! — dep qıçırdı oyuncılardan biri.
