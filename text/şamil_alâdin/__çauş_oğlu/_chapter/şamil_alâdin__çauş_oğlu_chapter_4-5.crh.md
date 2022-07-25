@@ -1000,14 +1000,16 @@ Incınğanından közlerinde yaşlar asıl oldılar.
 – Men degil, özüñ... delisiñ, – dep cekirdi Server.
 
 Zeverced ayrette qaldı.
-İri közleri aşağı endi, balçıqqa çomğan ayaqlarını ve bılaşqan anterini körgen soñ pek ökündi, çünki bunıñ içün anasından ceza çekecek edi.
+İri közleri aşağı endi, balçıqqa çomğan ayaqlarını ve bulaşqan anterini körgen soñ pek ökündi, çünki bunıñ içün anasından ceza çekecek edi.
 Qız özüni aqlamağa ıdırındı.
 
-– Baq buña! – dedi o, Serverge darılıp. – Er yerim çamur.
-Yeñi anterim...
+– Baq buña! – dedi o, Serverge darılıp. 
+– Er yerim çamur.
+Yañı anterim...
 
 – Ne?
-Anteriñ? – Server kibar ses ile qıçırdı. – Anteriñ degil, ayaqqaplar... ayaqlarıñdaki tuflâ kimniñki, bilesiñmi?
+Anteriñ? – Server kibar ses ile qıçırdı. 
+– Anteriñ degil, ayaqqaplar... ayaqlarıñdaki tuflâ kimniñki, bilesiñmi?
 
 – Menimki... kimniñ olacaq?
 
@@ -1015,17 +1017,20 @@ Anteriñ? – Server kibar ses ile qıçırdı. – Anteriñ degil, ayaqqaplar..
 
 Server egildi, qıznıñ ayağına yapıştı.
 
-– Toqunma! – Zeverced oğlannı qaqıştırdı, üytekledi, – Edaye aptege aytırım!
+– Toqunma! – Zeverced oğlannı qaqıştırdı, üytekledi. 
+– Edaye aptege aytırım!
 
 Lâkin Server küçlü edi, qıznıñ ayağındaki tuflânı zornen çıqarıp aldı.
 
-– Birevniñ ayaqqaplarını kiygeni-kiygen, daa aleketine baq! – dedi Server kin ve açuv ile. – Azırğa duacılar...
+– Birevniñ ayaqqaplarını kiygeni-kiygen, daa aleketine baq! – dedi Server kin ve açuv ile. 
+– Azırğa duacılar...
 Bir şey körseñiz, deral siziñki olıp kete.
 
 Qız, bu sözlerniñ manasını añlamay, oğlanğa baqtı-baqtı, soñ – ağladı.
 Öyle ökünçli ağladı ki, Server qorqtı, tez-tez evge çaptı.
 
-– Seniñ ayaqqaplarıñ... – qız közyaşları tökerek, oğlannıñ artından qıçırdı. – Seniñ tuflâlarıñ sofada yatalar.
+– Seniñ ayaqqaplarıñ... – qız közyaşları tökerek, oğlannıñ artından qıçırdı. 
+– Seniñ tuflâlarıñ sofada yatalar.
 Sen – yalancısıñ!
 
 Köridorda bir çift tuflâ yatqanını Server özü de esledi, amma hatasını tanımaq istemedi, içeri kirip ketti.
@@ -1042,7 +1047,8 @@ Böyle şeyni qafadan çıqarıp atmaq mümkünmi?
 
 Mustafa işten kelgen soñ, yenge oña episini ikâye etti.
 
-– Soñ, bunda ne bar? – Çauş omuzlarını qıstı. – Balalar... açuvlanmaq kerekmey.
+– Soñ, bunda ne bar? – Çauş omuzlarını qıstı. 
+– Balalar... açuvlanmaq kerekmey.
 
 Şefiqa qocası ile razı oldı.
 
@@ -1052,11 +1058,12 @@ Lâkin geceniñ bir maalinde, Çauş töşek içinde yatqanda, bu adise tekrar e
 
 – Edayeniñ laqırdıdan haberi barmı? – dep soradı o, qarısından.
 
-– Bar, – dedi Şefiqa, – Episini kördi.
+– Bar, – dedi Şefiqa.
+– Episini kördi.
 Amma bir sözçik aytmadı.
 
 İş ciddiyleşti.
-Anası yahut babası balanı tıymaq istemese, demek, onıñ fikirinen razılar, belki de oğulnıñ bu aqaretli areketlerini taqdirlegendirler?
+Anası yahut babası balanı tıymaq istemese, demek, onıñ fikrinen razılar, belki de oğlunıñ bu aqaretli areketlerini taqdirlegendirler?
 Belki oğlan Edayeniñ yahut Seit Osmannıñ sözlerini tekrarladı.
 
 Çauş bütün gece yuqlamadı.
@@ -1085,15 +1092,16 @@ Doquz yıl böyle.
 
 – Episiniñ sebebi – balalarımız, – dep tekrarladı Seit Osman, – lâkin siz, Mustafa ağa, aqlı degil ediñiz!
 
-– Men... aqlı degil edim? – Çauş oña közlerini tikledi. – Ya kim aqlı edi?
+– Men... aqlı degil edim? – Çauş oña közlerini tikledi. 
+– Ya kim aqlı edi?
 Sizmi?
 
 – Men özümni qabaatlı esap etmeyim, – dedi musafir.
 
 Seit Osmannıñ yüzsüzligi üdütlerni keçti.
-Çauş, musulman olmasa ve musafirperverlikniñ qaidelerine riayet etmese edi, Seit Osmannıñ terrasadaki ğıçıldavıq pötüklerini çoqtan eline tutturıp qapunı kösterir edi.
-Lâkin kaidelerge tabi olmaq kerek.
-Ondan da ğayrı, Mustafa bu işte kim qabaatlı ekenini o vaqıtta, asılından, bilalmağan edi.
+Çauş, musulman olmasa ve musafirperverlikniñ qaidelerine riayet etmese edi, Seit Osmannıñ terrasadaki ğıçıldavuq pötüklerini çoqtan eline tutturıp qapunı kösterir edi.
+Lâkin qaidelerge tabi olmaq kerek.
+Ondan da ğayrı, Mustafa bu işte kim qabaatlı ekenini o vaqıtta, asılından, bilâlmağan edi.
 
 – Kim qabaatlı? – Çauş mısqıllı ses ile soradı. – Sizge baqsañ – eçki qaşqırnı çaynap yutqan...
 
@@ -1103,13 +1111,16 @@ Lafnı kesmek istedi.
 Bu – yüzsüzlik degil, Çauşnıñ ailesi içün aqaret edi.
 Diqqat etiñiz: musafir ev saibiniñ namuslılığına şübelene.
 
-– Ola bilmey! – Çauş itiraz etti, – Eçki daima eçki, qaşqır ise – qaşqır.
+– Ola bilmey! – Çauş itiraz etti. 
+– Eçki daima eçki, qaşqır ise – qaşqır.
 
-– Barsın, öyle olsun... – Seit Osman laqırdını çevirmek istedi. – Bala degen şey neler yapmay?
+– Barsın, öyle olsun... – Seit Osman laqırdını çevirmek istedi. 
+– Bala degen şey neler yapmay?
 Oña ola, evni terk etmek kerekmey edi?
 Siz oqumış adamsıñız, menimnen açıqtan açıq laqırdı etmek kerek ediñiz.
 
-– Kimnen? – Mustafa ellerini eki yaqqa kerdi. – Azbarda can oğlu can körünmese?!
+– Kimnen? – Mustafa ellerini eki yaqqa kerdi. 
+– Azbarda can oğlu can körünmese?!
 
 – Men eki kün üç gece stantsiyada edim...
 Bizde yüklü vagonlar qazağa oğradılar, – dedi musafir, asıl da sıqılmayıp, – evge keldim, siz yoqsıñız.
@@ -1121,7 +1132,7 @@ Soñ onı azaçıq sançıp aldı.
 
 – Kederlendi?
 Men öyle şey sezmedim.
-Ebette, yoq şey bir vaqıt sezilmey.
+Elbette, yoq şey bir vaqıt sezilmey.
 
 – Özüñiz bilesiñiz, Edaye hasta.
 Men balanı qattı cezaladım.
@@ -1129,7 +1140,8 @@ Men balanı qattı cezaladım.
 
 – Onıñ içün, utanmayıp babasını menim evime yolladımı?
 
-– Ebet... doquz yıldan soñ. – Seit Osman külümsiredi, – şimdi oğlan Zevercedni seve.
+– Ebet... doquz yıldan soñ, – Seit Osman külümsiredi. 
+– Şimdi oğlan Zevercedni seve.
 
 Çauş açuvından tuyüldi, öksüre başladı.
 
@@ -1152,7 +1164,8 @@ Zeverced de Servernimi?
 – Ebet...
 Endi qaytıp kelgen soñ...
 
-– Qaydan qaytıp kelgen soñ? – dep soradı Çauş – Kim?
+– Qaydan qaytıp kelgen soñ? – dep soradı Çauş.
+ – Kim?
 
 – Oğlan...
 Moskvada oquy edi.
@@ -1163,9 +1176,11 @@ Aralarında bir şey bar...” degen edi Şefiqa.
 O vaqıtta Çauş inanmağan edi.
 Zevercedni – ilâiy qız dep bile edi.
 
-– Ne yapmalı? – dedi Çauş tüşkün alda. – Eger qız da sevse...
+– Ne yapmalı? – dedi Çauş tüşkün alda. 
+– Eger qız da sevse...
 
-– Ebet! – Musafir Çauşnıñ sözlerini iqrar etti. – Ekisi bir-birini...
+– Ebet! – musafir Çauşnıñ sözlerini iqrar etti. 
+– Ekisi bir-birini...
 
 Mustafa ayaqqa qalqtı.
 Lâkin oña şimdi yerde oturmaq kerek edi.
@@ -1177,7 +1192,8 @@ Qalqtı, qapunı açıp, Şefiqanı çağırdı.
 Şefiqa yengeniñ kederi aqayınıñkinden az degil edi.
 O, mecalsız alda kirdi, setke oturdı.
 
-– Niayet, men kerek oldımmı? – dep soradı yenge ve ağlamsıradı. – Zeverced daa bala.
+– Niayet, men kerek oldımmı? – dep soradı yenge ve ağlamsıradı. 
+– Zeverced daa bala.
 Oquvını bitirsin.
 Mustaqil fikir etmege ögrensin, o vaqıtta tüşünip baqayıq!
 
