@@ -1261,7 +1261,8 @@ Qarısı da yoq, o qırq beşincide ölgen.
 Oğlu Server qalğan, alapçesi qart, zayıf qadınnen ömür keçirmekte.
 Oña balanı asramaq küç.
 Seit Osmannıñ yüregi yanıq ile tola.
-“Oğlannı maña beriñiz – dey o, yengege. – Dostumnıñ oğlu, menim oğlum olsun”.
+“Oğlannı maña beriñiz – dey o, yengege. 
+– Dostumnıñ oğlu, menim oğlum olsun”.
 Bedbaht qadın yalvartmay.
 Ah, çeke... ağlamsıray, balanı bere.
 Onıñ bir özüne bile yaşamaq qıyın.
@@ -1277,7 +1278,7 @@ Amma evlenmege de vaqıt.
 
 Seit Osman, elbette, alicenap iş yaptı.
 Lâkin Çauş oña, er alda, kendi içün soy-sop ola bilecek adam dep baqalmay.
-O, adamlarğa, niçündir, Dilâverniñ lâyıqatı noqtai nazardan baqa... öz oğlu kibimi, degilmi?
+O, adamlarğa, niçündir, Dilâverniñ lâyıqatı noqta-i nazardan baqa... öz oğlu kibimi, degilmi?
 Seit Osman bu ölçüni tanımay.
 Server balalığında, yigit şanına sığmaz şey yaptı.
 Lâkin o vaqıtta on dört yaşında edi.
@@ -1285,9 +1286,10 @@ Lâkin o vaqıtta on dört yaşında edi.
 Zeverced de pek qusursız degil.
 Oğlanğa sevgisini babasından gizlep kelgen.
 Niçün?
-Yoqsa, Çauş onıñ işançını sui-istemal ettimi?
+Yoqsa, Çauş onıñ işançını suistimal ettimi?
 
-– Men sizni aşıqtırmayım, – musafir Çauşnıñ tüz aqayatqan fikirini bozdı. – Vaqıt bar... tüşünip baqıñız.
+– Men sizni aşıqtırmayım, – musafir Çauşnıñ tüz aqayatqan fikirini bozdı. 
+– Vaqıt bar... tüşünip baqıñız.
 Ölçeñiz – biçiñiz!
 
 Vaqıt bar!
