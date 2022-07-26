@@ -157,7 +157,9 @@ Bugün smenada eki adam.
 
 — Çıqtımı?
 Yahşı etken.
-Ekskavator qayda ekenini bilesiñizmi?— O menimnen beraber tışarı çıqtı ve qolunı Hazar-Kend tarafqa çevirdi:— Budkanı köresiñizmi? — dep soradı o, bent başındaki yarıq pencerege işaret etip,— onıñ sağ tarafından özen boyu yuqarı ketseñiz, Almazovnıñ ekskavatorını körersiñiz.
+Ekskavator qayda ekenini bilesiñizmi?
+O menimnen beraber tışarı çıqtı ve qolunı Hazar-Kend tarafqa çevirdi:
+— Budkanı köresiñizmi? — dep soradı o, bent başındaki yarıq pencerege işaret etip,— onıñ sağ tarafından özen boyu yuqarı ketseñiz, Almazovnıñ ekskavatorını körersiñiz.
 Sorasañız körsetirler.
 
 — Uzaq olmasa kerek?!
