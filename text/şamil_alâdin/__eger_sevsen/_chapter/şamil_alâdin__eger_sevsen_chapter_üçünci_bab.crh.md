@@ -197,9 +197,11 @@ Sizge sovet ükümetini nasıl teşkil etkenini söyledimi?
 
 — Yoq!
 
-— Öyle eken, niçün keçiktiñiz? — Mansurov endi maña zıqarlap başladı. — Bizim hızmetimizde keçikmek mümkün degil!
+— Öyle eken, niçün keçiktiñiz? — Mansurov endi maña zıqarlap başladı.
+— Bizim hızmetimizde keçikmek mümkün degil!
 Er daqiqa qıymetli, haberiñiz barmı?
-Yaqınca keliñiz! — Mına — may qopqası!
+Yaqınca keliñiz!
+— Mına — may qopqası!
 Töpede körüngeni — maqara.
 Onı yağlamaq kerek.
 Qurucılıqta bütün iş siziñ, nijniklerniñ hızmetine bağlı.
