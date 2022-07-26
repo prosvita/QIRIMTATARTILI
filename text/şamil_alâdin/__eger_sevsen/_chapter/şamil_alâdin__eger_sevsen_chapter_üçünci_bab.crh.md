@@ -515,7 +515,7 @@ Elektrik.
 Maña injener-doktor demege de mümkün.
 Pek ar-ram hızmetim bar.
 Daima tok astındam.
-Nasıl qaza çıqsa  gidromonitorlardan çıqa.
+Nasıl qaza çıqsa  gidromonitorlardan çıqa.
 Baq buña!
 Er yer suv.
 
