@@ -129,7 +129,8 @@ Biraz indemey yattılar, soñra maña çevirilip, ekisi de birağızdan:
 
 — Saña ne kerek? — dep soradılar.
 
-— Toqtabayev...— dedim men. — Nevbetçi mehanik kerek.
+— Toqtabayev...— dedim men.
+— Nevbetçi mehanik kerek.
 
 Ekisi de birden közlerinen odanıñ törine işaret ettiler:
 
@@ -151,7 +152,8 @@ Almazovda çalışacaqsıñız — dedi Toqtabayev,— sizge aşıqmaq kerek.
 Bugün smenada eki adam.
 
 — Yoq.
-Üç adam,— men onıñ sözüni tüzettim. — Kandıba işke çıqtı.
+Üç adam,— men onıñ sözüni tüzettim.
+— Kandıba işke çıqtı.
 
 — Çıqtımı?
 Yahşı etken.
