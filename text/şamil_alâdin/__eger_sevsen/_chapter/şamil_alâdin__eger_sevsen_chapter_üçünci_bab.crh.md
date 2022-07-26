@@ -382,7 +382,7 @@ Hristofor şaqıldap küldi.
 
 — Onıñ körmegen şeyi yoq,— dedi Raşidke, — bu şeylerniñ episi başından keçkenge beñzey.
 
-— Keçmege, elbette, keçken,— dedi Raşid. — Daa ne ola, bilesiñmi?
+— Keçmege, elbette, keçken,— dedi Raşid. 
 Kabinkağa kire de, Agapovqa: "Aysa, yuqlay ber! — dey.
 Lâkin bu — soñki defa yuqlağanıñ olacaq!
 Şay degen soñ özü rıçag başına keçip, çalışa başlay.
@@ -397,9 +397,10 @@ O küle berdi: "Kimerde bunıñ büyük faydası ola", dedi o.
 Agapov açuvlandı: "Öyle olsa, zornen tüşüririm!" — dedi.
 O kene de küldi: "Tüşürecek olıp baq!?"
 
-— Bu Agapov içün büyük ceza oldı,— dedi Hristofor. — Öyle degilmi?
+— Bu Agapov içün büyük ceza oldı,— dedi Hristofor. 
 
-— Smenanıñ soñuna qadar özü çalıştı,— dedi Raşid, sözüni devam etip:— Agapovnı ise başqa ekskavatornıñ işini teşkermege yolladı.
+— Smenanıñ soñuna qadar özü çalıştı,— dedi Raşid, sözüni devam etip:
+— Agapovnı ise başqa ekskavatornıñ işini teşkermege yolladı.
 Soñ oña bir şeyler ögretti.
 Ne edi, bilmeyim.
 Oña: "Operatsiyalarnı nizamnen yapmağa bilmek kerek" dedi.
