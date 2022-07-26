@@ -21,7 +21,8 @@ Sevimli Elpide, Hristofor maña... taq-tuq!
 
 ...Arhipka daima işten qaçına.
 Onı reberlik niçün nizamğa çekmey aceba?
-Özü sağlam kişi, amma hızmetke kelgende... taq-tuq! taq-tuq!
+Özü sağlam kişi, amma hızmetke kelgende... 
+taq-tuq! taq-tuq!
 
 ...Gece kovşnıñ yipi üzülmegen olsa, belki bu qadar yorulmaz edim.
 Çuqurğa tüşte-çıq, tüşte-çıq... babam mında olsa: "sen dağlısıñ", der edi.
