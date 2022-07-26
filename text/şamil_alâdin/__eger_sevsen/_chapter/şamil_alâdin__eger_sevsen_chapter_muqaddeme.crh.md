@@ -7,7 +7,7 @@ Ayuv terisinden tikili yün urbam alâ üstümde.
 Qış yalıñız Arhangelsktedir bellegen edim, albu ise Moskvada da qar ve ruzgâr edi.
 Tayyarege biletni qolaylı taptım, tekrar yaz ülkesine kelip tüştim.
 Qapunı anahtarımnen açtım...
-Burunıma birden qavun — taacipli şey!
+Burnuma birden qavun — taacipli şey!
 Qavun qoqusı urdı.
 Aşhaneniñ aralıq qapusından közüme stol üzerindeki, yüzüm, alma ve nar çalındılar.
 Mücize!
@@ -29,8 +29,8 @@ O işniñ böyle olıp çıqacağını güya evelden bilgen.
 Menim keleyatqanımnı tüşünde körgen, onıñ içün ocaqnı sabadan yaqıp, vannanı qızdırıp qoyğan.
 
 Şay etip, bir saat, bir buçuq saat keçe.
-Men, üstümde çapanım, sabalıq yemek stolı başına oturam.
-Ağızıma ne qapsam, lezetli kele.
+Men, üstümde çapanım, sabalıq yemek stolu başına oturam.
+Ağzıma ne qapsam, lezetli kele.
 Sabira hala, men olmağan vaqıtta, özü ve balalar evde nasıl ömür keçirgenlerini ikâye ete.
 
 Diqqat ile diñleyim: eger Dikkenste tufanğa oğramağan olsam, seniñ ile körüşe bilecek ekenim...
@@ -50,13 +50,13 @@ Biz ekimiz, ise daima seyaattamız.
 Men evge kelsem — sen yoqsıñ, sen olsañ — men çıqıp ketem.
 Lâkin iş yalıñız bundamı, aceba?
 
-Men cebede eken vaqıtımda hayalım ep sende edi.
+Men cebede eken vaqtımda hayalım ep sende edi.
 Okopımızğa kirip kelesiñ.
 Ustünde öfitser urbası, beliñde nemse parabellumı, ayaqlarıñda eski çızmalar.
 Pogonlarıñ... tankçınıñkimi?
 Atlı askeriñkimi?
 Alla bilsin!
-Cenk, vaqıtında bunı tain etmek mümkün degil.
+Cenk, vaqtında bunı tayin etmek mümkün degil.
 Er şey yeşil tüste.
 "Ayaqqa qalqıñız!" — dep cekiresiñ bizge.
 "Bu sukünet niçün?
@@ -70,8 +70,8 @@ Peşimden... ileri!
 Aziz vatan... ana topraqnıñ saadeti oğrunda!
 Ur-rra!"
 
-Sen daima gizliden peyda ola... gizliden de ğaip olıp kete ediñ.
-Aqiqatta ise — soñundan añladım — sen cenkte sapör vzvodınıñ komandiri ekensiñ.
+Sen daima gizliden peyda ola... gizliden de ğayıp olıp kete ediñ.
+Aqiqatta ise — soñundan añladım — sen cenkte sapör vzvodunıñ komandiri ekensiñ.
 Eger bizge körüşmek qısmet olsa, ekimiz on sene yalıñız muarebe hususında laqırdı etip oturırmız, dep tüşüne edim.
 Körüştik.
 Lâkin cenk hususında laf etmege unuttıq.
