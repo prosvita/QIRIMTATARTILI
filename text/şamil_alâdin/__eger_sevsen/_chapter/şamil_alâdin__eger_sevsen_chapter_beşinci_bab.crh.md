@@ -25,7 +25,8 @@ Onı reberlik niçün nizamğa çekmey aceba?
 taq-tuq! taq-tuq!
 
 ...Gece kovşnıñ yipi üzülmegen olsa, belki bu qadar yorulmaz edim.
-Çuqurğa tüşte-çıq, tüşte-çıq... babam mında olsa: "sen dağlısıñ", der edi.
+Çuqurğa tüşte-çıq, tüşte-çıq... 
+babam mında olsa: "sen dağlısıñ", der edi.
 Dağlı olsam ne?
 Çuqurnıñ terenligi otuz metr, çetleri tim-tik, ayaqlarıñ tutmay, tayıp yıqılasıñ...
 Başıñnı parlamaq mümkün.
