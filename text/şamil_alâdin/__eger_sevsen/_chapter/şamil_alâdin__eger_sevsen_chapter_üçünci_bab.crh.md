@@ -436,7 +436,8 @@ Men, dalğıcılarğa ketmedim, sizde qaldım, demek istedim, bu arada uzaqtan, 
 Başımnı köterip, etrafqa baqındım, kimseni köralmadım.
 Arhipka sıçrap turdı, qaranlıq içine kirip ketti, eki daqiqa keçken soñ, kişilerniñ arqasında peyda oldı.
 
-— Selâm, İra! — dep qıçırdı o. — Bizimnen oturmaq istemeysiñizmi?
+— Selâm, İra! — dep qıçırdı o.
+— Bizimnen oturmaq istemeysiñizmi?
 
 Ateş yarığında yüksek qız köründi.
 Üstünde brezent yapınca, ayaqlarında rezina çızmalar, başında qulaqlı qalpaq.
@@ -446,7 +447,8 @@ Taşkentte...
 Merkeziy komitette tros içün iddalaşqan qız.
 O bir talay betlerimizge baqıp turdı, soñra ekskavatorğa doğruldı.
 
-— Kene qızınasıñız... — dedi o, arqasına çevirilmey. — Ne vaqıt kelsem, ateş başındasıñız.
+— Kene qızınasıñız... — dedi o, arqasına çevirilmey.
+— Ne vaqıt kelsem, ateş başındasıñız.
 İşlegen vaqıtıñız da olamı?
 
 Kimse indemedi.
