@@ -474,8 +474,10 @@ Tezden arqamızda Almazovnıñ davuşı işitildi.
 — Teşkerdik.
 Zararlanğan yeri yoq.
 
-— Öyle ise, tok niçün az? — dedi qız, taaciplenip. — Tünevin Qadırya stantsiyası işke tüşti.
-Bugün ekskavatorlarnıñ iç birinde elektrik küçüne şikâyet olmadı. — Qız maşinistke şübeli közleri ile baqtı,— bir kere daa teşkerip baqayıq.
+— Öyle ise, tok niçün az? — dedi qız, taaciplenip.
+— Tünevin Qadırya stantsiyası işke tüşti.
+Bugün ekskavatorlarnıñ iç birinde elektrik küçüne şikâyet olmadı.
+— Qız maşinistke şübeli közleri ile baqtı,— bir kere daa teşkerip baqayıq.
 Maña nijnikleriñizden birisini beriñiz.
 
 Onıñ bu sözleri artıq adiy laqırdı degil emir olıp yanğıradılar.
