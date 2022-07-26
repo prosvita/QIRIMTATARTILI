@@ -259,7 +259,8 @@ Topraqnı tegizledik, şpallarnı ve relslerni ketirdik, ekskavatornıñ artqa y
 — Sağlam kişi,— dedi o, meni körsetip,— tıpqı madyar grenadörı.
 
 — Lâkin kibirlice, ğaliba...— dep taşladı Nikolay.
-Soñ, yuvurıp kelip, qoltuğımdaki şpallarnıñ birisini çekip aldı: — Bunıñnen ne isbat etmek isteysiñ, kazak? — dep cekirdi o maña,— quvetiñniñ çoqlığınımı?
+Soñ, yuvurıp kelip, qoltuğımdaki şpallarnıñ birisini çekip aldı:
+— Bunıñnen ne isbat etmek isteysiñ, kazak? — dep cekirdi o maña,— quvetiñniñ çoqlığınımı?
 Deli olma!
 Er kes kibi çalış!
 
