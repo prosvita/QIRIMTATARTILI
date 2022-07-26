@@ -292,7 +292,8 @@ Soñki sefer şpallarnı ketirip, ekskavatornıñ yanaşasında tizeyatqan vaqı
 — Bularnı niçün cıyıştırmaysıñ? — dedi oña Kandıba,— biz, malaylar... daima peşiñden yürip, seniñ yapmağan işiñni yapa berecekmizmi?
 
 — Siz üç kişisiñiz.
-Men bir özüm,— Arhipka er şeyge azır cevap edi. — Begenmeseñiz, tüzetiñiz!
+Men bir özüm,— Arhipka er şeyge azır cevap edi.
+— Begenmeseñiz, tüzetiñiz!
 
 Bu qavğa çıqacağından delâlet edi.
 
