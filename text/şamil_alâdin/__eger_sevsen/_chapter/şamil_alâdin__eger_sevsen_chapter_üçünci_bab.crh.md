@@ -17,7 +17,7 @@ Yolnı biz, nijnikler, yasaymız.
 Ekskavator içün demir yel yasamaq ne demek?
 Lomnı, kürekni, qazmanı elge alıp, topraqnı tegizlemek, onıñ üstüne relslerni qoyıp, boltlarnen pekitmek demek.
 Ekskavator iş vaqıtında art-artına cılışa, ögündeki topraqnı qazıp ala.
-O artqa cılışıp, toqtağan soñ, biz ögünde boşağan relslerni alıp, arqada yel yasaymız.
+O artqa cılışıp, toqtağan soñ, biz ögünde boşağan relslerni alıp, arqada yol yasaymız.
 
 — Bu hızmetni yapmaq içün çoq aqıl kerek degil,— dedi Hristofor,— amma...
 
