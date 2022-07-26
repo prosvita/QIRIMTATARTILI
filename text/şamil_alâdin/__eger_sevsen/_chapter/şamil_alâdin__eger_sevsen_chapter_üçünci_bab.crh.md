@@ -174,7 +174,7 @@ Onıñ körsetken budkasına yetken edim, közüme ekskavator köründi, amma ya
 
 Tekrar demir yel betke çıqtım, budkanı közden qaçırmay, şpallar boyu cönedim.
 Şpallar arasında yürmesi oñaytsız edi.
-Skladqa yakınlaşqanda ögümde teren kanal peyda oldı, keçmege köpür yeq.
+Skladqa yakınlaşqanda ögümde teren kanal peyda oldı, keçmege köpür yоq.
 Topraq yığınları ve eski şpal obaları arasında yarım saat dolanğan soñ ekskavatorğa kelip çıqtım.
 O yüksek uçurımnıñ çetinde edi.
 Üçünci smena maşinanı teslim etken.
