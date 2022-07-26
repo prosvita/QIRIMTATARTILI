@@ -501,11 +501,15 @@ O, qatmerli sözlernen sögüne-sögüne, kabelni suv içinden çekip çıqaraya
 "Monternı mında qız yollağan olsa kerek", dep tüşündim men.
 
 — Kördiñizmi? — dedi qız maña, asabiy davuş ile,— teşkergen eken!?
-İşan olarğa!— Soñ elektrik-montörnı yanına çağırdı: — Demir yolğa çıqıp baqıñız,— dedi oña,— relsler üstünde yatqan kabel olsa, çetke alıp taşlañız,— Sözleri ağızınıñ içinde bir şeyge ilişmey, yumşaq davuşnen, hoş türküge beñzep çıqmaqta ediler.
+İşan olarğa!
+ Soñ elektrik-montörnı yanına çağırdı:
+— Demir yolğa çıqıp baqıñız,— dedi oña,— relsler üstünde yatqan kabel olsa, çetke alıp taşlañız.
+ Sözleri ağızınıñ içinde bir şeyge ilişmey, yumşaq davuşnen, hoş türküge beñzep çıqmaqta ediler.
 Qız közden ğaip olğan soñ, montör menim yeñimden çekip toqtattı:
 
 — Yañılardansıñmı? — dep soradı o.
-Başımnı salladım. — Meni bilmeseñ kerek.
+Başımnı salladım.
+— Meni bilmeseñ kerek.
 Men Karnakeryanım.
 Elektrik.
 Maña injener-doktor demege de mümkün.
