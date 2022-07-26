@@ -96,7 +96,7 @@ Qıyın olsa, zararı yoq, eecanlanmasın.
 Añladıñmı?"
 
 Şay degen soñ, Nikolay hahıldap küldi.
-Küldi, soñ yerge tükürip, demnr yel boyu Hazar-Kend betke yuvurıp ketti.
+Küldi, soñ yerge tükürip, demir yel boyu Hazar-Kend betke yuvurıp ketti.
 Hristofor ve Arhipka suvnı şapırtıp-köpürtip onıñ artından yuvurdılar.
 Arhipka menim yanımdan keçeyatqanda közüni qıpıp aldı: "Zarar yoq, qardaş, olucı şeylerdir" degen manada.
 
