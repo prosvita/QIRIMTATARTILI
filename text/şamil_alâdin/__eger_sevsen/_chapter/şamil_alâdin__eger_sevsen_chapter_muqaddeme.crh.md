@@ -124,7 +124,7 @@ Pek güzel aytqansıñ.
 Tasavur etem: ingliz buña pek taaciplengen ve "Raşen? Soviyet?" degen olsa kerek.
 "Ebet, ser ,Siz kendiñizni ğayet osal tutasıñız!" degendirsiñ!
 Bilem, bilem...
-Sen inglizce acaip söylenesiñ!
+Sen inglizce acayip söylenesiñ!
 Onıñ senden ingliz ve rus tillerinde afu istegeni taacipli şey degil.
 
 Bu ne qadar müim mesele, bilesiñmi?
@@ -133,17 +133,19 @@ Milliy meseleniñ astında beynelmilel mesele köremiz.
 Teessüf ki, bazı memleketlerde adamlarnıñ pek çoqları bunı añlap olamaylar.
 
 Eki kün keçken soñ, İndoneziyada qadınlar ile subetiñ de, zanımca, çoq meraqlı olğan.
-Sen onı oldıqça tafsilâtlı yazğansıñ.
+Sen onı olduqça tafsilâtlı yazğansıñ.
 Men, Asiya qadınları bir-birleriniñ tillerini çabik añlağan adetleri barlığını bilem.
 Kerçek, sen musulmanlıq ananeleri esirliginde çoq bulunmadıñ...
-Sen de, men de mektepte aptiyikni yalıñız til buruçqa qadar oquya bildik, lâkin din ve mezep hususında bayağı şeyler bilesiñ.
+Sen de, men de mektepte aptiyikni yalıñız til buruçqa qadar oquy bildik, lâkin din ve mezep hususında bayağı şeyler bilesiñ.
 
 Sabira hala kibilerni alayıq.
 Olar, ellerine uquq berilgen soñ bile, ondan faydalanmaq içün çoq küreşmege mecbur oldılar.
 Sen ise ğalip kelgen bahtnıñ quçağında östiñ.
 
-Şay degende, hatirime Raşidniñ sözleri tüşe.
-Ecnebiy memleketten kelgen kişilerniñ biri ondan: "Özbekstan qadınları aqiqaten erkeklernen musaviy uquq aldılarmı?" — dep sorağan, Raşid: Qanun mücibi uquq aldılar,— degen ve şaqa sırasında ilâve etken — lâkin aqiqatta olarnıñ ellerindeki uquq, berilgeninden ziyade...
+Şay degende, hatrime Raşidniñ sözleri tüşe.
+Ecnebiy memleketten kelgen kişilerniñ biri ondan: 
+"Özbekstan qadınları aqiqaten erkeklernen musaviy uquq aldılarmı?" — dep sorağan, Raşid: 
+Qanun mücibi uquq aldılar,— degen ve şaqa sırasında ilâve etken — lâkin aqiqatta olarnıñ ellerindeki uquq, berilgeninden ziyade...
 
 Mektübiñde maña tek bir selâm yazğansıñ.
 Başqa şey yoq.
