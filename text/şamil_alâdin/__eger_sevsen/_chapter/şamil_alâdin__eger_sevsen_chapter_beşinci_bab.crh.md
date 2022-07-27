@@ -158,23 +158,25 @@ Yeq... mende er şey ciddiy!
 — Nikolay onıñ elini boşadı, fufaykasınıñ ögüni çezip başlağan edi, Muşuq qaytıp yerine oturdı.
 
 — Yahşı...
-Biz daa körüşirmiz,— dedi Muşuq ve maña yumruğını körsetti. — Aqılıñda tut!
+Biz daa körüşirmiz, — dedi Muşuq ve maña yumruğını körsetti.
+— Aqılıñda tut!
 
-— Gusar bizde... barakta,— dedi Arhipka,— qaçmağa yeri yoq.
+— Gusar bizde... barakta, — dedi Arhipka, — qaçmağa yeri yoq.
 
 Ve eçki davuşınen küldi.
 
-— Ştanıñnıñ avını dögmele,— dedim men Arhipkağa,— insannıñ qusacağı kele...
+— Ştanıñnıñ avını dögmele, — dedim men Arhipkağa, — insannıñ qusacağı kele...
 
 Böyle kergin müitta men, özümni qorqaq köstermemek içün, bir şeyler aytmaq kerek edim.
 Ayta bilgenimni — ayttım.
 Doğrusı, Arhipkanen qavğa etmek degil de, tez-tez Nikolaynıñ mañlayındaki qannı silmek, onı qoltıqlap, özümizniñ barakqa alıp ketmek istedim.
 Bunı maña yaptırmadılar.
 
-— Menmi? — Arhipka eki adım arqağa, divar betke, çekildi, etrafında demirge beñzer ağır bir şey qıdırayatqanı sezildi,— Men dögmeleycegimmi?
+— Menmi? — Arhipka eki adım arqağa, divar betke, çekildi, etrafında demirge beñzer ağır bir şey qıdırayatqanı sezildi, — Men dögmeleycegimmi?
 
 — İlişe berme, Arhipka!
-Bıraq kişiniñ yaqasını! — Bu, sarı saçlı qıznıñ sesi edi.
+Bıraq kişiniñ yaqasını! 
+— Bu, sarı saçlı qıznıñ sesi edi.
 O kevdesini azaçıq yuqarı köterdi, eki eliniñ tirseklerine tayandı, sarğuş közlerinen maña baqtı.
 Men, bana cansız alda yatqan bu qıznıñ şimdi dülber mavı közlerini körip, ayretke kelgen arada, caqıma qattı yumruq endi.
 Tentirep, eki-üç adım arqağa kettim, divarğa urunaraq, tayanıp qaldım.
