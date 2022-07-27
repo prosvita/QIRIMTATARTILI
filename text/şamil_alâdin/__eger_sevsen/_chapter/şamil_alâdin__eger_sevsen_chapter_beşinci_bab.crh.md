@@ -147,13 +147,15 @@ O añlatır!
 — Muşuğıña tükürmek istedim.
 — Şay degende Muşuq yıldırım suratı ile atılıp turdı, pıçağını çıqarıp, üstüme sıçradı, lâkin Kandıba onıñ elinden tuttı.
 
-— Muşuq! — dedi oña Nikolay. — sen bugün işni yañlış başladıñ.
+— Muşuq! — dedi oña Nikolay. 
+— Sen bugün işni yañlış başladıñ.
 Böyle şaqa olmay...
 
 — Şaqa?
 Yeq... mende er şey ciddiy!
 
-— Öyle olsa... başından başlaymız! — Nikolay onıñ elini boşadı, fufaykasınıñ ögüni çezip başlağan edi, Muşuq qaytıp yerine oturdı.
+— Öyle olsa... başından başlaymız! 
+— Nikolay onıñ elini boşadı, fufaykasınıñ ögüni çezip başlağan edi, Muşuq qaytıp yerine oturdı.
 
 — Yahşı...
 Biz daa körüşirmiz,— dedi Muşuq ve maña yumruğını körsetti. — Aqılıñda tut!
