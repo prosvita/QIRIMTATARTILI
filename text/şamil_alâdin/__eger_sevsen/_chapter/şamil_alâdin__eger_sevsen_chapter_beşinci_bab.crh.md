@@ -58,13 +58,15 @@ Sarğuş qartiy.
 — Çabik?
 Qayda? — dep soradım men.
 
-— Anda adam öldüreyatalar! — qartiy aqsırıp aldı, soñ qarıq sesinen qıçırdı. — Siziñkilerni öldüreyatalar.
+— Anda adam öldüreyatalar! — qartiy aqsırıp aldı, soñ qarıq sesinen qıçırdı. 
+— Siziñkilerni öldüreyatalar.
 
 — Kimni?
 
 — Yur!
 Ne qatıp qaldıñ?
-Eki adım...— o başını qomşu barak betke qaqıttı. — Dülgerlerde!
+Eki adım...— o başını qomşu barak betke qaqıttı.
+— Dülgerlerde!
 
 — Toqta!
 Şimdi...
