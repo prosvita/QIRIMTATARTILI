@@ -163,15 +163,18 @@ Er kes sustı, musafirge eleslenip baqtı.
 
 — Beklemegen ediñizmi?— dedi Arhipka, adamlarnıñ közlerindeki ayretni eslep.
 Artına aylanıp, köridor bette, kimgedir: — Kir!— dep qıçırdı.
-Bosaga üstünde Rahil köründi. —Tanış oluñız!— Şay degende, sandıq üstünde oturğan Hristofornı körip, şaşmaladı.
+Bosaga üstünde Rahil köründi.
+—Tanış oluñız!— Şay degende, sandıq üstünde oturğan Hristofornı körip, şaşmaladı.
 Hristofor aqırından yerinden turıp, Arhipkağa doğru adımladı.
 Evniñ içi çım-çırt kesildi.
 Kandıba yerinden qıbırdamay, Arhipkağa baqıp oturdı.
 
 — Kerekmey!
-Kerekmey, Hrist!— dep qıçırdı Rahil. — Yalvaram saña!
+Kerekmey, Hrist!— dep qıçırdı Rahil.
+— Yalvaram saña!
 
-— Sen qarışma!— dedi Hristofor. — Men oña toqunmaycağım.
+— Sen qarışma!— dedi Hristofor.
+— Men oña toqunmaycağım.
 Körüşmegenimiz ne qadar vaqıt oldı, Arhipka?
 
 Arqasını şkafqa tayandırıp turğan Toqtabayev yavaştan Nikolay betke cılıştı.
