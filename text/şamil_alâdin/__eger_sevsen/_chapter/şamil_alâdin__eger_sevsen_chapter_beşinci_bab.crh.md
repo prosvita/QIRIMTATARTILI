@@ -72,11 +72,12 @@ Eki adım...— o başını qomşu barak betke qaqıttı.
 Şimdi...
 
 Rezina çızmalarımnı kiymek istedim, pek bılaşıq köründiler.
-Ayaqlarımnı hrom çızmalarımnıñ içine tıqıp, çaptım, Qartiy meni azbarda bekley edi.
+Ayaqlarımnı hrom çızmalarımnıñ içine tıqıp, çaptım.
+Qartiy meni azbarda bekley edi.
 Ekinci aralıqnı keçken soñ, töpe-sinde fener yanayatqan qapunıñ ögünde toqtadı.
 
 — Kir!
-Lâkin pek qızışma! — dedi o maña yavaştan,— anda Muşuq bar!
+Lâkin pek qızışma! — dedi o maña yavaştan, — anda Muşuq bar!
 
 Qapunı açtım.
 İçeri kirgenimnen mücize başladı...
