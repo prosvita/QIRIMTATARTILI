@@ -73,13 +73,15 @@ Lâkin qartaydım..."
 Poyezd Sızranğa yaqınlar.
 Andrey Zaharoviç pencerege işaret etip: "A!
 İdil!
-İdilni tanıysıñmı?— dep sorar. — Tanımaysıñ?
+İdilni tanıysıñmı?— dep sorar.
+— Tanımaysıñ?
 E? Ebet, bizim İdil tanılmaz oldı."
 
 Men taaciplenirim: taqdir hucur şey eken, derim.
 Almazov yaş ve küçlü ekende Tân-Şanda, Dneprde, Badahşanda yaşadı, qartlığında doğmuş toprağına qaytıp kelgen.
 
-Maña Sızrannı ikâye etkeniñiz hatiriñizdemi, Andrey Zaharoviç?— derim men oña. — Aylanma kanalnıñ bitüvi munasebetinen eviñizde olğan ziyafet... esiñizdemi?
+Maña Sızrannı ikâye etkeniñiz hatiriñizdemi, Andrey Zaharoviç?— derim men oña.
+— Aylanma kanalnıñ bitüvi munasebetinen eviñizde olğan ziyafet... esiñizdemi?
 
 — Menmi?— der Andrey Zaharoviç, ayretlenip,— toqta...
 Çar-Çaqta öyle şey olğanmı edi?
