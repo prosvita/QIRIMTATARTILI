@@ -125,7 +125,7 @@ Müçesini qıbırdatmay, eki elini azaçıq kerdi, garmon ökürdi... özü inc
 Bir talaydan soñ Muşuq bunarlı közlerini Züzağa doğrulttı, muzıka toqtadı.
 Kandıba indemey yerinden qıbırdamay oturmaqta edi.
 
-— Nekeldiñ? — dep cekirdi Arhipka maña.
+— Ne keldiñ? — dep cekirdi Arhipka maña.
 
 — Sağ omuzıñnı doqsan derece aylandır da, qapuğa doğru adımla...
 Tez!
@@ -144,9 +144,10 @@ Duymadım.
 Bunı Muşuqtan sora.
 O añlatır!
 
-— Muşuğıña tükürmek istedim. — Şay degende Muşuq yıldırım suratı ile atılıp turdı, pıçağını çıqarıp, üstüme sıçradı, lâkin Kandıba onıñ elinden tuttı.
+— Muşuğıña tükürmek istedim.
+— Şay degende Muşuq yıldırım suratı ile atılıp turdı, pıçağını çıqarıp, üstüme sıçradı, lâkin Kandıba onıñ elinden tuttı.
 
-— Muşuq!— dedi oña Nikolay. — sen bugün işni yañlış başladıñ.
+— Muşuq! — dedi oña Nikolay. — sen bugün işni yañlış başladıñ.
 Böyle şaqa olmay...
 
 — Şaqa?
