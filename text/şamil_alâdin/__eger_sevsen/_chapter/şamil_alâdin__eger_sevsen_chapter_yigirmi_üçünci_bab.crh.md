@@ -112,8 +112,7 @@ Nasıl eylik!— Elini omuzımnıñ üstüne qoydı.
 — Gizliden... yolğa çıq!
 İradanıñ qapusını qaq!
 Onıñ evinde neler olayata, episini bil!
-Yabaniy adam olmasa, İradadan yavaşçıqtan: "Cevdet kelmek istey.
-Mümkünmi?" dep sora.
+Yabaniy adam olmasa, İradadan yavaşçıqtan: "Cevdet kelmek istey.Mümkünmi?" dep sora.
 Cevabını kelip maña ayt!
 Rica etem, Karim!
 
