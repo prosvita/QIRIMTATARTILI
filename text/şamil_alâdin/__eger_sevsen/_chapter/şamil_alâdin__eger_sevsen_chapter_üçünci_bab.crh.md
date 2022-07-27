@@ -455,7 +455,8 @@ Kimse indemedi.
 Arhipka fırq-fırq etti, külip yiberdi.
 Soñ üstündeki fufaykasını çıqarıp, yerge urdı.
 
-— Şpal taşıp, arqam yağır oldı...— dedi o. — Niçün qızınmaycağım? — ateşniñ yanında serilip yattı.
+— Şpal taşıp, arqam yağır oldı...— dedi o.
+— Niçün qızınmaycağım? — ateşniñ yanında serilip yattı.
 
 — Bu ne demek? — Kandıba onı çekip tursattı.
 Arhipka indemedi, fufaykasını qaytarıp üstüne kiydi.
