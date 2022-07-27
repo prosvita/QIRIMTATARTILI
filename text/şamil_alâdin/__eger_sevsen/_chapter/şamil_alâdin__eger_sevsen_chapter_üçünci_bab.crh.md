@@ -531,7 +531,8 @@ Uçastkağa bir kün kelmesek, iş qarma-qarışıq olıp qala.
 Lafqa qalğanda er kes usta, amma mesele kösinus "fi"-ge kelgende, men ve Tursunov — ekimizden başqa adam tapılmay.
 Añladıñmı, qardaş?
 Energiyanı iqtisad etmek... eñ müimi bu! — böyle dep, Karnakeryan ayqırıp yiberdi.
-Niçün bu sözlerge kelgende davuşını köterdi, bilmeyim. — Ekskavatorcılarnıñ çapqalağanlarını köresiñmi?
+Niçün bu sözlerge kelgende davuşını köterdi, bilmeyim.
+— Ekskavatorcılarnıñ çapqalağanlarını köresiñmi?
 Gidromonitorlarnıñ işi de öyle...— Alçaq boylu, uzun betli, azaçıq qambur burunlı bu adamnıñ sağ omuzı aşağı sarqıq... onıñ böyle ekeni qaranlıqta bile sezilmekte edi.
 Men taaciplendim.
 
