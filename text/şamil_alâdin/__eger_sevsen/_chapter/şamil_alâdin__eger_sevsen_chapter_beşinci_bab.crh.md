@@ -172,7 +172,9 @@ Ayta bilgenimni — ayttım.
 Doğrusı, Arhipkanen qavğa etmek degil de, tez-tez Nikolaynıñ mañlayındaki qannı silmek, onı qoltıqlap, özümizniñ barakqa alıp ketmek istedim.
 Bunı maña yaptırmadılar.
 
-— Menmi? — Arhipka eki adım arqağa, divar betke, çekildi, etrafında demirge beñzer ağır bir şey qıdırayatqanı sezildi, — Men dögmeleycegimmi?
+— Menmi? 
+— Arhipka eki adım arqağa, divar betke, çekildi, etrafında demirge beñzer ağır bir şey qıdırayatqanı sezildi, 
+— Men dögmeleycegimmi?
 
 — İlişe berme, Arhipka!
 Bıraq kişiniñ yaqasını! 
