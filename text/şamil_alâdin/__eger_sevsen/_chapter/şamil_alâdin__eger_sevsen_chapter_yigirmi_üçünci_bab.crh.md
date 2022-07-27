@@ -181,8 +181,10 @@ Arqasını şkafqa tayandırıp turğan Toqtabayev yavaştan Nikolay betke cıl�
 Mansurov bunı seze qaldı, o da Toqtabayevniñ yanına kelip oturdı.
 Nikolay, omuzlarını qısıp, köküsini içke çekti, yerinden qıbırdamadı.
 
-— Ne keldiñ?— Yekaterina Vasilyevna oña dülber qaşlarını sıttı. — Coyul mından!
-Sen de!— dedi o, Rahilge çevirilip,— Menim evimde işiñiz yoq.
+— Ne keldiñ?— Yekaterina Vasilyevna oña dülber qaşlarını sıttı.
+— Coyul mından!
+Sen de!— dedi o, Rahilge çevirilip.
+— Menim evimde işiñiz yoq.
 
 Arhipka, tilki kibi, kevdesini üç büklep, negedir tedariklendi.
 
