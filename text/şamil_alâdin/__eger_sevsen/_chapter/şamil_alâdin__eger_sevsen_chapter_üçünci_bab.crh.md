@@ -540,7 +540,8 @@ Men taaciplendim.
 Onıñ felsefesini Hristoforğa söyledim.
 Külip, qatıp qaldı.
 
-— Sen bularnı körmeysiñmi? — dedi Hristofor ve ocaqnıñ ögünde pol üstünde yatqan ağır demir tuyaqlarnı ve brezent quşaqqa bekitilgen alqalarnı körsetti. — Gece-kündüz bularnı taşığan adamnıñ omuzı qıyışmay ne olur?
+— Sen bularnı körmeysiñmi? — dedi Hristofor ve ocaqnıñ ögünde pol üstünde yatqan ağır demir tuyaqlarnı ve brezent quşaqqa bekitilgen alqalarnı körsetti.
+— Gece-kündüz bularnı taşığan adamnıñ omuzı qıyışmay ne olur?
 
 Biz ekskavatorğa qaytıp kelgende Arhipkanıñ uçurım çetinde qadalıp turğanını kördim.
 İra yoq edi.
