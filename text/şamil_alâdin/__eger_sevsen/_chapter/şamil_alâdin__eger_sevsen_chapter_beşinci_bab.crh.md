@@ -105,11 +105,12 @@ Onıñ ögünde Arhipka....teneke meşrebeni qızğa uzatmaqta.
 Pol östünde boş şişeler, balıq quyruqları, sigar tüpçikleri yatalar.
 
 Muşuq...
-Kandıbanıñ qarşısında oturğan kkşi eken.
+Kandıbanıñ qarşısında oturğan kişi eken.
 Hucur lağab.
 O bir közüniñ qıy-ığından maña baqıp aldı, soñ, Arhinkağa işaret etip, gizliden meni körsetti; közümni açıp-qapatqan arada Arhipka ögümde peyda oldı.
 
-— Keldiñizmi, gusar? — dedi o, maña, artını sağğa-solğa burğuçlap,— qadınlar cemiyetini sağındıñız, öylemi? — şay degen soñ, baraknıñ qaranlıq köşesine köz etti. — Züza, muzıka!
+— Keldiñizmi, gusar? — dedi o, maña, artını sağğa-solğa burğuçlap, — qadınlar cemiyetini sağındıñız, öylemi? — şay degen soñ, baraknıñ qaranlıq köşesine köz etti. 
+— Züza, muzıka!
 
 Züza?
 Bu kim?
