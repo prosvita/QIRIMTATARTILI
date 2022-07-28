@@ -562,7 +562,8 @@ Omuzlarınıñ küçlü ve sıq-sıq silkine bergenlerini körgende, onıñ da s
 Medeniyetsizlik derler.
 Buña aqılıñ yetmeymi?
 
-— Qaşıq yahut vilkanen aşalması mümkün şeyni qolnen almaq, elbette, kelişken şey degil,— dedi Karamat. — Bu medeniyetsizlik.
+— Qaşıq yahut vilkanen aşalması mümkün şeyni qolnen almaq, elbette, kelişken şey degil,— dedi Karamat.
+— Bu medeniyetsizlik.
 Amma manti, vilkanen aşamaq mümkün degil eken, niçün elnen aşalmasın?— kene şaq-şaq küldi.
 
 Eki manti aşadım...
