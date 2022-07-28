@@ -1,8 +1,8 @@
 ## On altıncı bab — Sergonen laqırdı
 
 Yekaterina Vasilyevna ile ne qadar körüşken olsam — episiniñ neticesi qolaysız olıp çıqtı.
-Lâkin yalan söylegenide ne?
-"Sizni begenem... borclı qaldıñız" ve saire.
+Lâkin yalan söylegeninde ne?
+"Sizni begenem... borclu qaldıñız" ve saire.
 O kimseni begenmey.
 Ne meni, ne Mansurovnı.
 Canı sıqıla.
@@ -39,7 +39,8 @@ Menim Elpidege sevgimni zaman elâk etmedimi?
 
 Bu fikirnen baraknıñ qapusını açtım.
 Evniñ içi çım-çırt edi.
-Karim ve Basit yuqlaylar, Bassaraba tüşünde sandıraqlay: "Qapaqnı men sındırdım.
+Karim ve Basit yuqlaylar, Bassaraba tüşünde sandıraqlay:
+"Qapaqnı men sındırdım.
 Qapaqqa asıl da toqunmadım, ket, deyim saña".
 Nikolay ve Arhipka körünmeyler.
 Raşid quruna berip, stol başına oturğan, çay içe bayat pite qapıp, tüyülip aşana.
@@ -55,7 +56,7 @@ Men şimdi suv ketiririm.
 
 Raşidniñ pelteklengen adeti bar.
 Laqırdı etkende "r" yerine "y" dey.
-"Bayıp... ketiyiyim..." olıl çıqtı.
+"Bayıp... ketiyiyim..." olıp çıqtı.
 
 Oña bu arfni doğru söylemege ögretmek istegenim çoqtan.
 Vaqıt yoq.
@@ -65,10 +66,11 @@ Men özüm de... altı yaşımda ekende "r" yerine "l" dey edim.
 Balalıq... lâkin Raşid, şükürler olsun, yigirmi dört yaşında.
 
 Yaz künleriniñ birinde bizim köyde qomşumıznıñ oğlu student tatilge kelgen edi.
-Peltek ekenimni işitken.
+Peltek ekenimni eşitken.
 Bir kün meni tizleri üstüne qoyıp:
 
-— Qana ayt,— dedi: — "Ararat üstünde qar iridi".
+— Qana ayt,— dedi: 
+— "Ararat üstünde qar iridi".
 
 — "Alalat üstünde qal ilidi..." — dedim men. 
 Lâkin eki kün keçken soñ, bu arfni doğru aytmağa ögrendim.
@@ -76,7 +78,8 @@ Bu usulnen Raşidni de oquta bilirim zan ettim.
 
 — Menim aytqanlarımnı tekrarla: "Ararat ustünde qar iridi..."
 
-— İyye!— dedi Mahkamov.— Bu ne demek oldı?
+— İyye!— dedi Mahkamov.
+— Bu ne demek oldı?
 Bütün dünyanıñ belâsı "r" üstünde quruldımı?
 Bizim qışlaqtaki kişilerniñ episiniñ laqırdısı böyle.
 
@@ -92,7 +95,8 @@ Böyle der eken, onıñ "r" arfi olmağan, yahut az olğan sözlernen laqırdı 
 Raşid ep özüni aqlamağa tırıştı.
 
 — "Bizim yaq..!
-Bizim yaq!" Sen ğaliba biraz alıp qaçtıñ!?
+Bizim yaq!" 
+Sen ğaliba biraz alıp qaçtıñ!?
 
 — Yoq, iç alıp qaçqan yerim yoq.
 Kerçek aytam.
