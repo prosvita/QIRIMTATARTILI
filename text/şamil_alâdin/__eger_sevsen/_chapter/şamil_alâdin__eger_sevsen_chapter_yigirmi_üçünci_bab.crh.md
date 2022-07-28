@@ -613,7 +613,8 @@ Karamat, qaydasıñ?
 Menim artımdan qapunı kilitle, kimse tışarı çıqmasın.
 Añladıñmı?
 
-— Baş üstünde!— o sol eliniñ dört parmağını samaylarına tayadı. — Men sağ ekenim, bu qalanıñ içinden tışarı kimse çıqalmaz.
+— Baş üstünde!— o sol eliniñ dört parmağını samaylarına tayadı.
+— Men sağ ekenim, bu qalanıñ içinden tışarı kimse çıqalmaz.
 
 İrada külip-siyarıp qaldı.
 O teri paltosını kiydi, maña elini yengilden salladı, çıqıp ketti.
