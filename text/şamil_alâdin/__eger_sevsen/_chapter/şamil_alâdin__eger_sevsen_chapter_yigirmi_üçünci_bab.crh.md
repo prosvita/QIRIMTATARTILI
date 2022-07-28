@@ -442,8 +442,8 @@ Daima diñlenip oturacaq.
 
 Karamat bir şeyler daa ayttı, men añlamadım.
 Zeinim İradanıñ közlerinen meşğul edi.
-O bugun çoq güzel.
-Ne söylese, ne yapsa, hoşnutlıq vö sevinç, zevq, dülberlik saçılmaqta.
+O bugün çoq güzel.
+Ne söylese, ne yapsa, hoşnutlıq vе sevinç, zevq, dülberlik saçılmaqta.
 
 Kene sözsiz, areketsiz oturdıq.
 Soñ, ne munasebetnen bilmem, Bassaraba aqqında laqırdı etip aldıq, men Arhipkanen olğan vaqianı ikâye ettim.
