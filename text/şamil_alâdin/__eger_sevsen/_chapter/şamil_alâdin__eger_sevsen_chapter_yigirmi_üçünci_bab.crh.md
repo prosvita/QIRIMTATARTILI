@@ -575,7 +575,7 @@ Menimnen selâmlaştı, İrada ve Karamatqa baqıp, gizliden külümsiredi, yeme
 Yemeklerden memnun qaldımı-yoqmı, qızlar añlap olamadılar.
 
 — Kelgeniñiz pek yahşı oldı, hala!— dedi Karamat,— men endi musafir ola bilem.
-Öz eviñde tarelka taşı, mında tarelka taşı... men sizge nem?
+Öz eviñde tarelka taşı, mında tarelka taşı... men sizge ne?
 
 — Men seni tarelka taşımağa mecbur ettimmi?— İrada iddetlendi,— seni añlamaq mümkün degil.
 Yuvurıp kelip, qıyma çekesiñ, qartop doğraysıñ, soñ şikâyetlenesiñ!
