@@ -648,7 +648,8 @@ Nesi çıbalıq?— dep cekirdim men,— ne demek isteysiñiz?
 Qıznı çekiştirme!
 
 — Açıñız qapunı, Karamat!— dedim men.
-Qız yavaştan yerinden turdı, menim peşimden köridorğa çıqtı. — Men mında ahret sualine cevap bermek içün kelmedim.
+Qız yavaştan yerinden turdı, menim peşimden köridorğa çıqtı.
+— Men mında ahret sualine cevap bermek içün kelmedim.
 
 "Qaladan çıqmaq..." qıyın olmadı, Barakqa keteyatqanda Krasnânskayanıñ kabineti penceresinden baqtım, içerisi qaranlıq — kimse yoq edi.
 Soñ Anna Yakovlevnanıñ evine kettim, mında da pencereler qaranlıq, çım-çırt edi.
