@@ -382,7 +382,8 @@ Men bosağa üstünde toqtaldım.
 İçeri kirmege saqınıp, baqıp turdım.
 Tamağımnı nedir sıqtı... laqırdı etalmadım.
 
-Keldiñizmi, Cevdet?— İlki sözlerni söylemek oña da qolay degil edi. — Siz menim evimni körmek istegen ediñiz, hatiriñizdemi?
+Keldiñizmi, Cevdet?— İlki sözlerni söylemek oña da qolay degil edi.
+— Siz menim evimni körmek istegen ediñiz, hatiriñizdemi?
 
 Bu ne vaqıt olğan şey?
 Hatirimde yoq!
