@@ -222,7 +222,8 @@ Sen mında kimsiñ?
 Ne vaqıt çıqtıñ?
 
 — Eki kün evelsi...
-Siz küçlü kişiler ekensiñiz, ümüt etmegen edim,— dedi Arhipka, soñ qalaynı alıp, bir nefesten içip yiberdi. — Men evlendim.
+Siz küçlü kişiler ekensiñiz, ümüt etmegen edim,— dedi Arhipka, soñ qalaynı alıp, bir nefesten içip yiberdi.
+— Men evlendim.
 
 — İşittik...
 
