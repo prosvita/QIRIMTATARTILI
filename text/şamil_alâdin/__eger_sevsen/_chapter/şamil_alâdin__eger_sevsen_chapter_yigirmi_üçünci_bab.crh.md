@@ -526,7 +526,8 @@ Körsetilgen yerge oturdım.
 Yanıma İrada oturdı.
 Qarşımızda Karamat yerleşti.
 
-— Ekiñizni de körip oturmaq isteyim,— dedi Karamat. — Buyurıñız, Cevdet aka!
+— Ekiñizni de körip oturmaq isteyim,— dedi Karamat.
+— Buyurıñız, Cevdet aka!
 Sıqılmañız!
 Öz eviñizdeki kibi aşañız!
 Ebet, ebet!
