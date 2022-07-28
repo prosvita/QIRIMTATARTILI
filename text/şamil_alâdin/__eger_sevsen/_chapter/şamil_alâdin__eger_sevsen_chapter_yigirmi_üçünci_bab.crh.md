@@ -281,7 +281,8 @@ Mansurov Arhipkanı üyteklep, tışarı alıp çıqtı, Soñ Arhipkanıñ davu�
 Karim ımpıs-tımpıs kirip keldi.
 Onıñ artından Mansurov peyda oldı.
 
-— Ketti...— dedi Mansurov. — Alla belâsını bersin!— Karimni tutıp, quçaqladı,— sen altın adamsıñ!— dedi oña,— alla saña güzel qadın qısmet etsin.
+— Ketti...— dedi Mansurov.
+— Alla belâsını bersin!— Karimni tutıp, quçaqladı,— sen altın adamsıñ!— dedi oña,— alla saña güzel qadın qısmet etsin.
 Doquz balañız olsun, Añladıñmı, Karim?
 Yedisi oğlan, ekisi qız!
 
