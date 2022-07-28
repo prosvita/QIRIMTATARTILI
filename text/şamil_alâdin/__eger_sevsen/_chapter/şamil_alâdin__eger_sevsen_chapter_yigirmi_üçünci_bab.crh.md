@@ -598,7 +598,9 @@ Gidromonitorğa beñzey.
 İrada köridorğa çıqtı.
 Eki-üç daqiqa keçken soñ, qaytıp keldi.
 
-— Tehnikiy bölük kişisi,— dedi o, Sabira halağa. — Anna Yakovlevna yibergen. — Kız menim közlerime qasevetli-qasevetli baqtı,— ne yapacaqmız?
+— Tehnikiy bölük kişisi,— dedi o, Sabira halağa.
+— Anna Yakovlevna yibergen.
+— Kız menim közlerime qasevetli-qasevetli baqtı,— ne yapacaqmız?
 Qolaysız olıp çıqacaq... lâkin ketmesem, olmaycaq.
 Meni afu etiñiz, Cevdet!
 Barıp baqıp keleyim.
