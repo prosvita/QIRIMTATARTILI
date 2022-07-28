@@ -553,7 +553,7 @@ Bu menim yapıp olacaq şeyim degil.
 Elnen iş körmek mümkünmi?
 
 Karamat özüni tutalmadı, şırq-şırq etip küldi.
-İrada ise başını egiltti, yüzüni stol ar-tına gizledi.
+İrada ise başını egiltti, yüzüni stol artına gizledi.
 Omuzlarınıñ küçlü ve sıq-sıq silkine bergenlerini körgende, onıñ da sıqılıp qalğanını sezdim.
 
 — Rica etem...— dedi Karamat, közlerindeki yaşlarnı silmekte olıp,— bu, kerçekten de, ceennem azabı.
