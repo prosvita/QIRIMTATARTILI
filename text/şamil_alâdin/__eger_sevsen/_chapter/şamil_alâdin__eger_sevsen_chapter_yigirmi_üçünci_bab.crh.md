@@ -455,7 +455,8 @@ Yanımda kene Karamat peyda oldı.
 
 — Cevdet,— dedi o.
 Karamatnı añlamaq qolay degil.
-Kimerde Cevdet aka dey, kimerde Cevdet...— Sizge bir şey aytayımmı?
+Kimerde Cevdet aka dey, kimerde Cevdet...
+— Sizge bir şey aytayımmı?
 Özüñizniñ injeneriñiznen işiñizni tez-tez bitiriñiz!
 Yoqsa, mesele leylek ile turna masalına beñzep başladı.
 Hatiriñizdemi?
