@@ -404,7 +404,8 @@ Men gizliden külümsiredim.
 İrada kene qızardı.
 
 — Sizni çoq qıdırdım,— dedi qız.
-Elbette, bir şeyler etip, laqırdını başlamaq kerek edi. — Miting bitken soñ ğaip ettim.
+Elbette, bir şeyler etip, laqırdını başlamaq kerek edi.
+— Miting bitken soñ ğaip ettim.
 Karamat!— dep qıçırdı o, qomşu odağa.
 Karamat kirdi,— barakqa qaç kere barıp keldiñ?
 
@@ -416,9 +417,10 @@ Albu ise Andrey Zaharoviçde otura eken.
 — Kene Yekaterina Vasilyevnamı?— İradanıñ davuşında bu sefer can ağrısı sezilmedi,— alla belâsını bersin onıñ, lâkin bugün bayram, Cevdet!
 Öpkelenilecek kün degil.
 
-— Ziyafette Karamat da bar edi,— dedim men.— Niçün bir şey aytmadı?
+— Ziyafette Karamat da bar edi,— dedim men.
+— Niçün bir şey aytmadı?
 
-— Sebebi bar. — Karamat yalq etip İradanıñ közlerine baqtı.
+— Sebebi bar, — Karamat yalq etip İradanıñ közlerine baqtı.
 Aytayımmı?
 
 — Ayt!
