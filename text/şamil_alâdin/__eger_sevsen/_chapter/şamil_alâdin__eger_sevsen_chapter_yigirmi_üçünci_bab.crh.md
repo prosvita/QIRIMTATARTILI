@@ -502,7 +502,8 @@ Karamat bizni bu vaziyetten qurtardı.
 Beline büyük yağbez bağlağan, içeri yıldırım suratınen kirdi, maña ve İradağa tiklenip baqtı:
 
 — Keder etmedimmi?— dep soradı.
-İrada indemedi. — Özbek yemekleri pişirdik, lâkin nasıl olıp çıqtılar, bilmeymiz.
+İrada indemedi.
+— Özbek yemekleri pişirdik, lâkin nasıl olıp çıqtılar, bilmeymiz.
 Küle-küle öleyazdıq.
 Stol donatmaqnı da bilmeymiz.
 Ne men, ne İrada.
