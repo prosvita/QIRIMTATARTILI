@@ -203,7 +203,8 @@ Arhipka, niayet, büklenip turğan kevdesini doğrulttı, soñ külümsiredi.
 — Kelgensiñ... bare, dürüs otur!— dedi Hristofor ve közünden aşağı tayğan qara paçavranı çekip tüzetti. — Buyur!
 
 — Menmi?— o elini Hristoforğa uzattı, ğaliba, onıñ ile selâmlaşmaq istedi.
-Hristofor, abaylamağan olıp, kürsüni körsetti: — Otur! — dedi oña.
+Hristofor, abaylamağan olıp, kürsüni körsetti:
+— Otur! — dedi oña.
 Musafirni stolğa, evniñ saibi degil de, Hristofor davet etüvi kerginlikni yımşattı.
 
 — Şorbacı qayda?— dep soradı Hristofor,— raqı qoyıñız!
