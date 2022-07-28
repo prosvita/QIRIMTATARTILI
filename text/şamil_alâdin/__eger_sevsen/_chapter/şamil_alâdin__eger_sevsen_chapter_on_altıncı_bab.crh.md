@@ -105,16 +105,16 @@ Kerçek aytam.
 Mahkamovnıñ yüzü qızardı.
 
 — Külgeniñ de ne?
-Karamat acaip qız,— dedi maña,— er vaqıt adını aytıp turmaq şart degil, kelişikli epitetlerden faydalanmaq da mümkün.
-Söz kelimi: "menim sevimlim", "menim güzelim..." ve ilâhri.
+Karamat acayip qız,— dedi maña,— er vaqıt adını aytıp turmaq şart degil, kelişikli epitetlerden faydalanmaq da mümkün.
+Söz kelimi: "menim sevimlim", "menim güzelim..." ve ilâhre.
 "Sevimlim..." añladıñmı?
 "Sevgilim" degil.
 Arada büyük farq bar.
 
 — Sen oña "sevgilim" dep baqtıñmı?
 
-— Yoq— Mahkamov turdı, barak içinde, artqaogge yüre başladı.
-Çoq yurdi... soñ ocaq yanında ağaçlar üstünde turğan çaynikni aldı.
+— Yoq— Mahkamov turdı, barak içinde, artqa ögge yüre başladı.
+Çoq yürdi... soñ ocaq yanında ağaçlar üstünde turğan çaynikni aldı.
 
 — Raşid, menim içün zamet etme!— dedim men,— özüm ketiririm.
 
@@ -149,10 +149,10 @@ Pencere ögündeki sandıq üstünde qız otura.
 Kim?
 Yüzü körünmey, çünki maña yarıqqa qarşı baqmaq qıyın.
 Yanında erkek kişi... kişiniñ başında yaltıravuq qasnaqlı qara furajka.
-Böyle furajka kiygen adamlarnı Ödessa bazarında körgen edim.
+Böyle furajka kiygen adamlarnı Odessa bazarında körgen edim.
 Ayaqlarında toqal burun, laklı çızmalar..."Cimmi".
 Üstünde keñ balaqlı ştan, qısqa bıcaq — çarlston.
-Onıñ da üstünden qısqa palto — ögü çezik.
+Onıñ da üstünde qısqa palto — ögü çezik.
 
 
 — Siz, Bekirovsıñız... tanıdım,— dedi qız.
