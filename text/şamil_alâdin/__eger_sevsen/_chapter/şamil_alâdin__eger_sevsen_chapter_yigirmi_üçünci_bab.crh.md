@@ -517,7 +517,8 @@ Balaban stolnıñ üstünde yer qalmağan soñ, yanaşadaki örnekli sandıqnı�
 Lâkin, bu — başlanğıç.
 Yarısından ziyadesi kuhnâda.
 
-— Afu etiñiz, Cevdet!— dedi İrada. — Cemiyetimiz pek büyük degil.
+— Afu etiñiz, Cevdet!— dedi İrada.
+— Cemiyetimiz pek büyük degil.
 Beklemege başqa kişimiz yoq.
 Bu yaqqa oturıñız.
 
