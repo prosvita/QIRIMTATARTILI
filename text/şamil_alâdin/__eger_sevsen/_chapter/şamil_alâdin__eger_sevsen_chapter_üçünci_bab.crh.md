@@ -76,7 +76,7 @@ Kandıbanıñ ağızından raqı ve soğan sasığı kelmekte... amma özü ayı
 — Yur, saña "Mavı qayanı" körseteyim! — dedi o,— qoltuğı astından bir çift brezent qolçaq çıqarıp, maña uzattı,— Ma!
 Kerek olur!
 
-— Özüp?
+%
 
 — Meni qasevet etme!
 Sen, qardaş... mında aytılğan şeyni yap, iç bir vaqıt bir şey sorama!
