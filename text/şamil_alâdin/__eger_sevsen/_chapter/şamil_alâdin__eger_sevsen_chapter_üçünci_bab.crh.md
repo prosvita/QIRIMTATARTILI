@@ -323,7 +323,7 @@ Ekskavatornıñ işlevi toqtadı.
 
 — Aysa... bütün belâ kazaknıñ sebebinden...— Arhipka, maşinist işitsin dep, aselet qıçırıqladı,— çızmalarını çıqarıp baqmaq kerek, tabanları tüz degilmi eken!
 
-— Yeter! — dep qıçırdı Hristofor,— mında kimseniñ tabanınıñ alıp-berecegi yoq!
+%
 Tünevin Cevdet yoq edi, tros dört defa üzüldi.
 
 Teren çuqurğa tüştik.
