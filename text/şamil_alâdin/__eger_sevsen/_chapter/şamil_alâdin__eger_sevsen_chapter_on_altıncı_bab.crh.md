@@ -219,7 +219,8 @@ Haberiñ yoqmı?— dep soradı Valâ menden, lâkin cevabımnı beklemey, devam
 Endi içmeyim.
 
 — İçmeysiñ?
-Senmi?— Kişi balaban ağızını ziyade açıp, küldi.— Bana şişeni tüplegen sen degilmi ediñ?
+Senmi?— kişi balaban ağzını ziyade açıp, küldi.
+— Maña şişeni tüplegen sen degilmi ediñ?
 
 — Bir parçaçıq... o da raqı degil, zveroboy.
 
@@ -242,7 +243,7 @@ Közüme baqmağa istemey.
 Sol qaşınıñ üstünde pıçaq izi.
 Canım bu...
 
-— Muşuq!Sen ep gizlenip yüresiñmi?
+— Muşuq, sen ep gizlenip yüresiñmi?
 
 — Niçün?
 Ne mana bar?— Muşuq tınç cevap berdi.
@@ -251,10 +252,10 @@ Yaqañnı qurtaralmazsıñ.
 Sen...— o Valâğa açuvlı köz etti,— meni qaç kere elge berdiñ?
 Şimdi de öyle...
 Tiliñ qaşına.
-Baq, Valâ... esiñi ciy!
+Baq, Valâ... esiñi cıy!
 
 — Qorqtım... ötüm patladı!
-Ğarip Muşuq! menim ayatım öyle ki, iç saqınmayım.
+Ğarip Muşuq, menim ayatım öyle ki, iç saqınmayım.
 Öldümmi qaldımmı ep-bir, dünyağa merağım olsa edi, başqa mesele.
 Şimdi, doğrusını aytsam, büyük zevq ile yüzüñe tükürir edim.
 
@@ -263,8 +264,8 @@ Avuçlarını qaç kere tizlerine urdı, soñ ırcaydı.
 Bu — ırcayuv degil, açuvnıñ bürkip çıquvı edi.
 
 — Ne?
-Bu adamnıñ sevgi aqqındaki laqırdısını işitmek isteysiñmi?— dep soradı o qızdan,— tezden işitirsiñ... telefonda.
-Keçenlerde onı paromda acaip qadınçıqnen kördim.
+Bu adamnıñ sevgi aqqındaki laqırdısını eşitmek isteysiñmi?— dep soradı o qızdan,— tezden eşitirsiñ... telefonda.
+Keçenlerde onı paromda acayip qadınçıqnen kördim.
 Medeniy tilde aytqanda, dama... bütün şerbetinen beraber.
 O kim edi?— Muşuq közlerini maña tikledi,— tek yalan aytma!
 
