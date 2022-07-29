@@ -230,7 +230,7 @@ Bu yigit...— qız boyalı, uzun kirpikleri astından maña ine kibi nazar att�
 — Soñ yerinden turdı, ellerini arqasına qoyıp, baldırlarını sağğa-solğa oynata berip, Arhipkanıñ yanına keldi.
 
 — Rahil!
-Menim şeytanlarımnı qozğama! 
+Menim şeytanlarımnı qozğama!
 — Dep cekirdi oña Arhipka. 
 — Bilgen şeyiñ yoq.
 Qarışma!
@@ -239,7 +239,8 @@ Qarışma!
 Niçün aceba?
 
 — Bir kişi aytsın.
-Epiñiz çankildeşmeñiz! — komendant közlügini türtip mañlayınıñ töpesine köterdi ve sarı saçlı qız betke çevirildi,— söyle, Rahil!
+Epiñiz çankildeşmeñiz!
+— komendant közlügini türtip mañlayınıñ töpesine köterdi ve sarı saçlı qız betke çevirildi, — söyle, Rahil!
 Men saña inanam.
 Bekirov ne yaptı?
 
@@ -263,14 +264,16 @@ Muşuqqa bazandı.
 — Ne?
 Saña ne kerek, Muşuq!
 
-— Sus! — Muşuq yuvurıp, komendantnıñ yanına keldi,— Cenaplarnıñ adı ne?
+— Sus! 
+— Muşuq yuvurıp, komendantnıñ yanına keldi.
+— Cenaplarnıñ adı ne?
 Petâ emcemi?
 Ürmetli Petâ emce!
 Ketiñiz ve yatıp, raatlanıñız!
 Er şey sırasında olur.
 Men özüm mında daa yañçıq kirdim.
 Kirgence, tanış kişime rastkeldim ve biraz oturıp, al-hatır sorayım, dedim.
-Bu cinaiy tip ise...— o Arhipkağa külümsiredi,— bu tip siziñ adamnıñ yüzüni tırnadı...
+Bu cinaiy tip ise... — o Arhipkağa külümsiredi, — bu tip siziñ adamnıñ yüzüni tırnadı...
 Lâkin şamata köterilecek qadar degil.
 Azaçıq...
 Raatsız olmañız.
