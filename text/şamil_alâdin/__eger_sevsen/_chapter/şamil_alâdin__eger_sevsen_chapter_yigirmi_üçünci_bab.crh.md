@@ -11,7 +11,7 @@ Vahid Tursunovdanmı?
 O menimnen musafirlikte...
 Kelgeninden beri ağızından eki söz çıqmadı.
 Şimdi qıp-qırmızı sarğuş.
-İçe Bere…
+%
 O da yanıqlı.
 Duydırmaq istemey.
 Men Böyle tüşüneyatqanda Mansurov yerinden turdı.
