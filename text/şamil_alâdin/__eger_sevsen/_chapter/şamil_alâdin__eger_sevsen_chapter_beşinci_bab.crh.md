@@ -202,7 +202,8 @@ Yanımda tekrar Arhipka peyda oldı.
 Qolunda finka...
 Muşuq bana maña yapqanı kibi, oña da külümsirep, başını salladı.
 
-Tirsegimnen Nikolaynı artqa üytedim, stolnı qapqaç etip alıp, töpege köterdim — insan bu qadar quvetni qaydan ala, bilmeyim,— stolnı töpege... başımnıñ üstüne köterdim, Arhipkanıñ üstüne yiberecekte, onıñ ayaqları qıyıştı, vucudı yiberildi, yerge otura qoydı.
+Tirsegimnen Nikolaynı artqa üytedim, stolnı qapqaç etip alıp, töpege köterdim — insan bu qadar quvetni qaydan ala, bilmeyim,— stolnı töpege... başımnıñ üstüne köterdim, Arhipkanıñ üstüne yiberecekte,
+onıñ ayaqları qıyıştı, vucudı yiberildi, yerge otura qoydı.
 Elindeki pıçağı pol üzerine tüşip ketti.
 Bu arada qolumdaki stol birden yengilleşti.
 Baqtım — onı Muşuq ile Kandıba çekkelemekteler.
@@ -210,9 +211,9 @@ Muşuq özüne almaq istey, Kandıba özüne...
 Qapu açıldı, içeri komendant kirdi.
 Onıñ uzun şineliniñ ögü çezik edi.
 Kirgen soñ toqtaldı.
-vaziyetke qıymet keser kibi, evniñ içini kozden keçirdi, soñ menim yanıma keldi.
+Vaziyetke qıymet keser kibi, evniñ içini kozden keçirdi, soñ menim yanıma keldi.
 
-— Bu ne demek? — dep cekirdi o,— Kelir-kelmez baştaqlıqqa urundıñmı?
+— Bu ne demek? — dep cekirdi o, — Kelir-kelmez baştaqlıqqa urundıñmı?
 
 Üçevimiz, ellerimiz üstündeki stolnı yavaştan yerge tüşürdik.
 Arhipka menim aqqımda şikâyetlendi.
