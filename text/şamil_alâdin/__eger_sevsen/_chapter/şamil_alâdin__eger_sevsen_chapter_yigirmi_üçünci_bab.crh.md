@@ -504,7 +504,7 @@ Beline büyük yağbez bağlağan, içeri yıldırım suratınen kirdi, maña ve
 — Keder etmedimmi?— dep soradı.
 İrada indemedi.
 — Özbek yemekleri pişirdik, lâkin nasıl olıp çıqtılar, bilmeymiz.
-Küle-küle öleyazdıq.
+%Küle-küle öleyazdıq.
 Stol donatmaqnı da bilmeymiz.
 Ne men, ne İrada.
 
