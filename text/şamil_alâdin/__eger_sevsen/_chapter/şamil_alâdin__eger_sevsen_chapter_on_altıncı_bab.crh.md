@@ -158,16 +158,18 @@ Onıñ da üstünde qısqa palto — ögü çezik.
 — Siz, Bekirovsıñız... tanıdım,— dedi qız.
 Bu vaqıtqa qadar qayda ediñiz?
 Sizni Baş Dugümden qaçtı, dediler.
-O vaqıtta... hatiriñizdemi?
+O vaqıtta... hatriñizdemi?
 Arhipka ile...
 
 Qıznıñ sesi maña tanış keldi.
 Ğaliba, daa yaqında... bir yerde körüşken edik.
 
-— Maña azaçıq suv kerek,— dedim men.— Arıq quruğan.
+— Maña azaçıq suv kerek,— dedim men.
+— Arıq quruğan.
 
 — Suv?
-Arıqta suv yoqmı?— qız zevqlanıp küldi,— ürmetli Kandıba ne yapa?
+Arıqta suv yoqmı?— qız zevqlanıp küldi.
+— Ürmetli Kandıba ne yapa?
 Bugün barakta nevbetçi eken.
 
 — Onı qaydan bildiñiz?
@@ -187,13 +189,15 @@ Qız özü turdı, elimdeki çaynikni ilip aldı.
 Bar, suv ketir!— dedi qattı davuşnen ve çaynikni kişige uzattı.
 Kişi çaynikni alıp azbarğa çıqtı.
 Men qıznı tanıdım.
-Bu — Valâ Sinitskaya edi.— Hristofor nasıl?— dep soradı o menden.
+Bu — Valâ Sinitskaya edi.
+— Hristofor nasıl?— dep soradı o menden.
 
 Hastahanege barıp-kelip körüşip turğanımıznı ve endi tüzelip başlağanını ayttım.
 
 — Kim bardı?— dep soradı qız.
 
-— Men, Karim ve Nikolay, beraber...— dedim men.— Bizimkilerniñ episi.
+— Men, Karim ve Nikolay, beraber...— dedim men.
+— Bizimkilerniñ episi.
 Bassaraba üç kere bardı.
 
 Qara furajkalı adam qaytıp keldi.
