@@ -284,7 +284,8 @@ Amma ketmek istemeseñiz, qalıñız, qadınlar cemiyetinde oturıñız, subet e
 — Ketiñiz, Petâ emce! — dedi Rahil de.
 
 — Ne?
-Qorqtıñmı, Muşuq? — Valâ şaqıldap küldi.
+Qorqtıñmı, Muşuq? 
+— Valâ şaqıldap küldi.
 Muşuq oña parmağını salladı.
 Lâkin Valâ ardını kesmedi.
 
@@ -292,7 +293,8 @@ Lâkin Valâ ardını kesmedi.
 Qorqtıñ!
 Burğuçlanma!
 
-— Rica etem, madmazel, lafnı qısqadan kesiñiz! — dedi Muşuq. — Boynuñız pek ince, bir parça sıqsam...
+— Rica etem, madmazel, lafnı qısqadan kesiñiz! — dedi Muşuq. 
+— Boynuñız pek ince, bir parça sıqsam...
 
 — Qorqtım, pıstım qaldım.
 Ne qadar büyük deşet.
