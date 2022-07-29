@@ -334,7 +334,8 @@ Qorqtıñızmı?
 Apaqaydan qorqtıñızmı? — dep qıçırdı Valâ birazdan soñ ve hahıldap küldi.
 
 — Sen, qıymetli qız!
-Çoq horazlanma! — dedi oña Rahil. — İra mında kirse, özüniñ nasıl renkke kirecegiñni kimse bilmey.
+Çoq horazlanma! — dedi oña Rahil. 
+— İra mında kirse, özüniñ nasıl renkke kirecegiñni kimse bilmey.
 Yat, sesiñni çıqarma!
 
 — Ep bir söylerim... episini söylerim.
