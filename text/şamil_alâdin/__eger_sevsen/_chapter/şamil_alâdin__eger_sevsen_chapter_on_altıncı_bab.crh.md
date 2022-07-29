@@ -476,24 +476,25 @@ Qapu ögüne "Ford" kelip toqtadı.
 İçinden Torizo çıqtı.
 Çar-Çaq qurucılığınıñ başlığı... onıñ bu kelüvini bir vaqia esap etmek mümkün.
 
-İşitkenimizge köre, Anna Yakovlevnanen çıqışmay eken.
+Eşitkenimizge köre, Anna Yakovlevnanen çıqışmay eken.
 Belki, bu öşektir!
 Çar-Çaq kibi büyük qurucılıq başlığınıñ işi ğayet çoq.
 Baş Dugümden uzaqta... çıplaq qayalar arasında eki gidroelektrostantsiya qurulacaq.
 Derivatsion kanal... yigirmi beş kilometr uzaqta, sağ yalıda, elektrik-himiya kombinatı içün negiz qoyılmaqta.
 
-Qurucılıqnıñ özüni samolötnen enine ve boyuna uçup, aylanıp çıqmaq içün bile çoq vaqıt kerek.
-Taş ve demir yollar, onlarca yeñi posöloklar, evler, tükânlar, hastahaneler, aşhaneler meydanğa ketirilmekte.
+Qurucılıqnıñ özüni samolötnen enine ve boynuna uçıp, aylanıp çıqmaq içün bile çoq vaqıt kerek.
+Taş ve demir yollar, onlarca yañı posöloklar, evler, tükânlar, hastahaneler, aşhaneler meydanğa ketirilmekte.
 Elbette, reberniñ işi çoq.
 Belki Torizo bu sebeplerden bizge sıq-sıq kelalmaydır?!
 
 Amma Vadim Semönoviç Kandalov daima mında, Baş Dugümde.
 O, Anna Yakovlevna ile bir institutta, bir kursta oquğan.
-Studentlik adamlarnı bir-birlerinen qavi bağlap qoya.
+Studentlik adamlarnı bir-birlerinen qaviy bağlap qoya.
 
-İradanıñ sözleri hatirime keldi.
+İradanıñ sözleri hatrime keldi.
 
-Qum taşuv meselesini çezmek içün toplanğan vaqıtımızda, İradadan: Anna Yakovlevnanıñ haberi barmı?
+Qum taşuv meselesini çezmek içün toplanğan vaqtımızda, İradadan: 
+Anna Yakovlevnanıñ haberi barmı?
 Kelecekmi?— dep soradım men.
 İrada buruldı-qıyıştı, soñ meseleni olğanı kibi ayttı: "evine kirmedim, çünki anda Vadim Semönoviç bar edi.
 İdaredeki sekretarğa ayttım, kelse haber etecek".
