@@ -599,12 +599,12 @@ Merkeziy Komitetniñ qararı sizge malüm.
 
 Krasnânskaya teklifni qabul etti.
 
-— İş şöyle,— dedi o,— ükümetniñ yeñi qararı mücibi, aylanma kanal bu sene baarde bitirilmege borclı.
-Lâkin biz bu müddetni muzakere içün toplanmadıq.
+— İş şöyle,— dedi o,— ükümetniñ yañı qararı mücibi, aylanma kanal bu sene baarde bitirilmege borclu.
+Lâkin biz bu müddetni muzakere etmek içün toplanmadıq.
 Qararnı eda eteyikmi?
 Etmeyikmi?
 Bu hususta laqırdı ola bilmez.
-Laqırdı başqa şey hususında: işni vaqıtında eda etmek içün ne yapmaq kerekmiz?
+Laqırdı başqa şey hususında: işni vaqtında eda etmek içün ne yapmaq kerekmiz?
 
 Menjevetskiy yerinden turdı.
 
@@ -615,11 +615,12 @@ Torizo başını qıbırdattı: "Mümkün".
 — Maña bugün akveduk meselesi çezilecek dediler.
 Onıñ içün keldim.
 
-— Siz şay da meclisimizniñ qaramanısıñız...— dedi Torizo külümsirep.— Yer astı kanalıñız başımız üzerine apansızdan yağğan qar oldı.
+— Siz şay da meclisimizniñ qaramanısıñız...— dedi Torizo külümsirep. 
+— Yer astı kanalıñız başımız üzerine apansızdan yağğan qar oldı.
 
 — Men tünevin kommunistlernen laf ettim,— endi ayaqqa Curayev turdı,— olar, yer astı kanalı aqqında, ciddiy talimat bekleyler.
 
-— Niçün bilmem, meclisimiz öz çığırına minalmay.
+— Neçün bilmem, meclisimiz öz çığırına minalmay.
 Muşavereniñ kün tertibinde bir mesele, bazı arqadaşlar ise tamamınen başqa mesele hususında laqırdı eteler.
 Olarnıñ ilerisi — akveduk... tehnikiy mesele,— dedi Vadim Semönoviç oturğan yerinden,— baş injenernen al etmek mümkün.
 Öyle degilmi, Mihail Eduardoviç?
@@ -638,10 +639,11 @@ Belli degil.
 Sel baarde sıq ola.
 Sel, eger diqqat etseñiz, atta plotina qurulacaq yerge yaqın qır eteginde bile özüne dere yasağanını köreceksiñiz.
 Biz selni istegen tarafımızğa doğrultmaq isteimiz.
-Onı astı betonlı, quni şekildeki çuqurda cıyıp, beton örtüli kanal boyu derivatsion kanalnıñ üstünden keçirip, özenniñ aşağı yalılarına aqızmaq isteimiz.
-Bu işlerniñ proyekti çoqtan azır, bütün ükümet distantsiyalarında tasdiq etilgen.
+Onı astı betonlı, quni şekildeki çuqurda cıyıp, beton örtüli kanal boyu derivatsion kanalnıñ üstünden keçirip, özenniñ aşağı yalılarına aqızmaq isteymiz.
+Bu işlerniñ proyekti çoqtan azır, bütün ükümet istantsiyalarında tasdiq etilgen.
 
-— Böyle proyektni mında kimse körgeni yoq,— dedi Curayev.— Biz bu işniñ mütehassıslarımız.
+— Böyle proyektni mında kimse körgeni yoq,— dedi Curayev.
+— Biz bu işniñ mütehassıslarımız.
 Niçün bizge körsetmediñiz?
 Eger proyekt ükümet idareleri tarafından tasdiq etilgen olsa, bu Baş idare içün daa fena.
 Lâkin proyektni tüzetmek mümkün.
@@ -654,7 +656,7 @@ Sel yolunı plotina ögündeki suv tıynağınen birleştirmekni teklif ete.
 Derivatsion kanal ve, şosse içün köpürler yasalmasın, dey.
 Bu ne demek?
 Özüñiz qıymet kesiñiz!
-Sel kanalı, fikirimizce, eki köpür astından keçmek kerek.
+Sel kanalı, fikrimizce, eki köpür astından keçmek kerek.
 Ondan soñ, sel kanalını aşağıda yapmalımı, yuqarıdamı?
 Köpürlerni qurmalımı, yoqmı?
 Bular, zan etsem, tehnikiy mesele?
@@ -662,14 +664,14 @@ Onı böyle auditoriyada muzakere etmek mümkün degil.
 
 — Tehnikiy mesele?
 Sel yolunı bir taraftan, plotina tıynağına tüşürmek, diger taraftan, selni özenniñ şağı yalılarına aqızıp, kanal üstünde eki büyük demir köpür qurmaq.
-Bu, siziñce, tehnikiy meselemi?— Curayev öz fikirini sabırlı, lâkin israrlı surette isbat etmege tırıştı.
+Bu, siziñce, tehnikiy meselemi?— Curayev öz fikrini sabırlı, lâkin israrlı surette isbat etmege tırıştı.
 Söylenir eken, samaylarındaki qan damarları, asabiylikten, qabarmaqta ediler Menjevetskiyniñ teklifi qabul etilse, eki million kümüş devlet parası iqtisad etilecek.
 Siz bunı tehnikiy mesele deysiñiz.
 
 — Zakir Gulâmoviç, siz smena injenerisiñiz...— Torizo "smena injeneri", sözlerini ayrı bir aenknen ayttı,— ve Baş Dugümniñ partâçeykasınıñ sekretarısıñız.
 Çar-Çaq qurucılığı tehnikiy bölügi reberiniñ sözlerine, er alda, ürmet etmek kerekligini bilseñiz kerek.
 Tecribeli injener, Dneprde menim kolumda çalışqan kişi.
-Oña fikirini aytıl bitirmege imkân bermeysiñiz.
+Oña fikrini aytıp bitirmege imkân bermeysiñiz.
 Yahşı şey degil.
 
 — Eki million da az para degil...— dedi zalda kimdir,— iş ürmetten keçken.
@@ -677,8 +679,8 @@ Yahşı şey degil.
 — Eki million!— dep fısıldadı Raşid ve tirseginen menim qaburğama türtti.
 
 Curayevniñ sözleri adamlarda, şübesiz, teessurat doğurdılar.
-Bunı Vadim Semönoviç sezdi, ellerini pervasız alda eki yaqqa açıp, boyunını qısıp, zalnıñ törine baqıp turdı.
-Baqtı... kimseni körmedi, bir şey işitmedi.
+Bunı Vadim Semönoviç sezdi, ellerini pervasız alda eki yaqqa açıp, boynunı qısıp, zalnıñ törüne baqıp turdı.
+Baqtı... kimseni körmedi, bir şey eşitmedi.
 
 — Yoq!— dedi o, bir talaydan soñ,— bu, er alda, tehnikiy mesele.
 Onı al etermiz.
@@ -688,7 +690,7 @@ Anna Yakovlevna başını salladı.
 
 Men Torizoğa diqqatnen baqtım.
 Başındaki saçları cıynaqlı surette taralğan, ortadan cik açılğan.
-Lâkin olar aşağıdan eppiy çalarğanlar.
+Lâkin olar aşağıdan eppeyi çalarğanlar.
 Özü keniş omuzlı, quru müçeli kişi.
 Söylegende, yüzünde hoş tebessüm asıl ola, açıq, dülber davuşınen diñleyicide güzel teessurat doğura.
 
