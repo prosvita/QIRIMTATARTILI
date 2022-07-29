@@ -698,21 +698,24 @@ Söylegende, yüzünde hoş tebessüm asıl ola, açıq, dülber davuşınen di�
 Biz aylanma kanal vastasınen özenniñ muayen qısımındaki suv aqıntısını başqa yolğa tüşürecekmiz.
 Lâkin bizge plotina qurmaq kerek.
 Bu ise ğayet mürekkep iş.
-Çar-Çaqnıñ astını qurutıp, teren çuqurlar-quyular qazmaq, olarnı betonnen bekitmek kerek.
+Çar-Çaqnıñ astını qurutıp, teren çuqurlar-quyular qazmaq, olarnı betonnen pekitmek kerek.
 Yazda degil — qışta...
-Kotlovan?— Torizo mürekkep tehnikiy vazifeler üstünde toqtaldı eken, derivatsion kanalnıñ başında suv qabul etici kameralar olacağını ayttı: — Suv bu kameralardan keçip, derivatsion kanalğa kirecek, aşağıda turbinalarnı areketke ketirecek, turbinalar ise generatorlarnı aylandıracaqlar.
+Kotlovan?— Torizo mürekkep tehnikiy vazifeler üstünde toqtaldı eken, derivatsion kanalnıñ başında suv qabul etici kameralar olacağını ayttı: 
+— Suv bu kameralardan keçip, derivatsion kanalğa kirecek, aşağıda turbinalarnı areketke ketirecek, turbinalar ise generatorlarnı aylandıracaqlar.
 Elektrik küçü podstantsiyalar vastasınen himiya kombinatına ketecek.
-Kombinat Orta Asiya pamuqçılığı içün mineral kübre menbaı ola.
-Biz şimdi kübre içün pek çoq para sarf etemiz,— dedi Torizo.— Altın berip, kübre alamız.
+Kombinat Orta Asiya pamuqçılığı içün mineral kübre menbası ola.
+Biz şimdi kübre içün pek çoq para sarf etemiz,— dedi Torizo.
+— Altın berip, kübre alamız.
 Kombinat qurulğan soñ, özümizniñ mineral kübremiz olacaq.
-Kün zarfında yüz biñlep para iqtisad etecekmiz.
-Şimdi ise... vaqıtnı iqtisad etmege tırışmaq kerekmiz, çünki böyle büyük qurucılıqta iqtisad etilgen er saatnıñ özü — million demek ola. — O toqtaldı, teren köküs keçirdi.— Amma biz vaqıtnı iqtisad etalmaymız.
+Kün zarfında yüz biñler para iqtisat etecekmiz.
+Şimdi ise... vaqıtnı iqtisat etmege tırışmaq kerekmiz, çünki böyle büyük qurucılıqta iqtisat etilgen er saatnıñ özü — million demek ola,— o toqtaldı, teren köküs keçirdi.
+— Amma biz vaqıtnı iqtisat etalmaymız.
 Çünki aylanma kanal bunı yaptırmay.
 Qana, bir laqırdı etip baqayıq, ne yapmaq kerek?
 
 Torizo aqırın ve sabırlı söylendi.
-Aytacaq nutqınıñ er cümlesini kün-evelden tüşünip, azırlap kelgeni sezildi.
-Torizonıñ er şeyge öz noqtai nazarı bar.
+Aytacaq nutqunıñ er cümlesini kün-evelden tüşünip, azırlap kelgeni sezildi.
+Torizonıñ er şeyge öz noqta-i nazarı bar.
 
 — Gece ve kündüz çalışıp kanalnı bitirmek kerek.
 Sel kanalı şimdi esas meselemi?
@@ -722,7 +725,7 @@ Kanal üstünde eki köpür qurmaq kerekmi — kerekmeymi?
 Bu meseleni muzakere eter, bir qararğa kelirmiz,— dedi Torizo.
 
 — Biz, Mihail Eduardoviç, bu hususta siziñnen laqırdı etken edik.
-Hatiriñizdemi?— dedi Krasnânskaya, eycanlı alda,— oldı!
+Hatriñizdemi?— dedi Krasnânskaya, eyecanlı alda,— oldı!
 Mesele çezildi, degen ediñiz.
 Şimdi kene: baqarmız, çezermiz... añlaşılmay.
 
@@ -734,21 +737,23 @@ O vaqıtta Vadim Semönoviç bizim variantqa qarşı çıqqan edi.
 Şimdi siz bizni qorçalamaqtasıñız!
 
 — Ekimizniñ aytqanımız da bir şey, Anna Yakovlevna!
-Onı bir meselede siz qorçalaysıñız, diger meselede men.— Torizo tekrar külümsiredi.
+Onı bir meselede siz qorçalaysıñız, diger meselede men.
+— Torizo tekrar külümsiredi.
 Anna Yakovlevnanıñ yüzü qızardı, iddetlenip, qarındaşınen grafinni çala başladı.
 
 — Men mesele böyle çezilir, dep, tüşünmegen edim,— dedi Krasnânskaya, fikirlerini toplağan soñ,— Curayev arqadaş!
 Baş idarede akveduk meselesi çezilgende siz barmı ediñiz?
 
-— Çezilgende, degil — çezilğinden soñ... bar edim.
+— Çezilgende, degil — çezilgenden soñ... bar edim.
 Mihail Eduardoviç akveduk proyekti tehsovette tasdiq etilgenini aytqan edi.
 
 — Men Baş Dugüm qurucılığı içün mesül kişim,— dedi Anna Yakovlevna,— tehnikiy aktivniñ ögünde tekrar aytam: müim mesele böyle çezilmey.
 Bu, devlet içün eki million kümüşlik fayda ketircek iş öldü demek ola.
-"Muzakere eter... bir qararğa kölirmiz..." Çar-Çaq qurucılığı başlağanından beri mütehassıslarnıñ çoqtan-çoq altın fikirleri elâk olıp keldiler.
+"Muzakere eter... bir qararğa kelirmiz..." Çar-Çaq qurucılığı başlağanından berli mutehassıslarnıñ çoqtan-çoq altın fikirleri elâk olıp keldiler.
 Men böyle işke razı degilim.
 
-— Men ise meseleniñ qoyıluvınen razı degilim,— dedi Torizo.— Siziñ vazifeñiz, Anna Yakovlevna, berilgen emirni eda etmek.
+— Men ise meseleniñ qoyuluvınen razı degilim,— dedi Torizo.
+— Siziñ vazifeñiz, Anna Yakovlevna, berilgen emirni eda etmek.
 Biz bazarda degilmiz.
 Akveduk... bu şimdi ne içün kerek oldı?
 Ne?
@@ -756,9 +761,9 @@ Qırlardan sel aqmaqtamı?
 Aylanma kanal, işte, müim mesele.
 Ekskavator maşinistler hususında tüşünmek, olarnıñ ameliy bilgilerini teşkermek kerek.
 Belki bu fikirnen de razı olmazsıñız, amma men öyle tüşünem.
-Bizim maşinistlerımız — acemi kişiler.
-Rıçagnı ögge-artqa üytemege bilüv, bu iş bilüv degil.
-Kiçik detal bozulsa, tüzetmek tursın, yerinden çıqarıp almağa bilmeyler.
+Bizim maşinistlerimiz — acemi kişiler.
+Rıçagnı ögge-artqa itemege bilüv, bu iş bilüv degil.
+Kiçik detal bozulsa, tüzetmek tursun, yerinden çıqarıp almağa bilmeyler.
 Bütün Baş Dugümde bir aqiqiy maşinist bar...
 Andrey Almazov.
 Başqalarını qoy çuvalğa — ur divarğa!
@@ -766,25 +771,27 @@ Agapov...Bassaraba, olarğa maşinist demek mümkünmi?
 
 — Bassarabağa toqunmañız!— dep qıçırdı nijniklerden biri.
 
-— Niçün?— dep soradı Torizo ve zalnıñ içinde bu sözniñ saibini meraqnen qıdıra başladı,— toqunsam, ne?
+— Neçün?— dep soradı Torizo ve zalnıñ içinde bu sözniñ saibini meraqnen qıdıra başladı,— toqunsam, ne?
 Dağılıp ketecekmi?
 
 Soñki eki söz kişnlerniñ oşlarına ketti… külüştiler.
-Torizo ilekâr... ne vaqıt, ne yerde, nasıl laqırdı etmek kerekligini bile. 
+Torizo iylekâr... ne vaqıt, ne yerde, nasıl laqırdı etmek kerekligini bile.
 
 Raşid dayanıp olamadı.
 
-— Bassaraba acaip maşinist...— dep qıçırdı, ayaqqa tura berip.— Tek bir plannı toldırmadı.
+— Bassaraba acayip maşinist...— dep qıçırdı, ayaqqa tura berip.
+— Tek bir plannı toldurmadı.
 Sebebini bilmek kerek!
-Mansurov kimseni begenmey.— Raşid bir şeyler daa aytacaq oldı, sıqıldı, yerine oturdı.
+Mansurov kimseni begenmey. 
+— Raşid bir şeyler daa aytacaq oldı, sıqıldı, yerine oturdı.
 
 Adamlar sustılar.
 Diñlenip oturdılar: Torizo ne der eken?
 
-— Acaip olsa, demek, acaip eken daa!— dedi Torizo,— iç bir şey dep olamayım.
+— Acayip olsa, demek, acayip eken daa!— dedi Torizo,— iç bir şey dep olamayım.
 Onıñ aqqında ekskavator parkı başlığınıñ raportı bar.
 Açuvlanğanıñız da ne?
-Reberni vaziyetnen tanıştırıp turmaq — onıñ borcı.
+Reberni vaziyetnen tanıştırıp turmaq — onıñ borcu.
 Men ondan aylıq planlarnıñ icrasını talap etem.
 Bazı ekskavatorlarımıznıñ rıçagları başında kütür adamlar oturalar.
 Öylemi?
