@@ -506,7 +506,8 @@ Pek yahşı.
 Krasnânskaya, çoqqa barmay, muşaverege keldi.
 Daa ne kerek?
 
-Men öz başıma külümsiredim: "Esli-başlı kişiler sevgi ve muabbetni unutmaylar.
+Men öz başıma külümsiredim: 
+"Esli-başlı kişiler sevgi ve muabbetni unutmaylar.
 Reberler olğanları içün... olar da insanlar.
 Anna Yakovlevna otuz beş yaşında...
 
@@ -531,7 +532,7 @@ Episini añladım.
 Mümkün degilmi?— qız özüni coymadı.
 Bugünki muşavereniñ sebepçileri bizmiz.
 
-— Niçün sebepçileri?— dep soradım men.
+— Neçün sebepçileri?— dep soradım men.
 
 — Menjevetskiy yer astında kanal tapqan.
 Bizim geologlar qabaatlı olıp çıqtılar.
@@ -540,33 +541,35 @@ Karamat geologiya idaresinde hızmet ete eken.
 Onı da bildim.
 
 — Sebepçileri degil...
-Siz qabaatlılarsıñız.— Raşid işaret parmağını tikledi, avada qaqıtıp aldı,— bilmiş oluñız, biz sizge savusqannıñ yuva yasağan yerini körsetecekmiz.
+Siz qabaatlılarsıñız.
+— Raşid işaret parmağını tikledi, avada qaqıtıp aldı,— bilmiş oluñız, biz sizge savusqannıñ yuva yasağan yerini körsetecekmiz.
 
-— Sizin körsetecegiñiz bir şey degil, Menjevetskiyniñ özü telükeli tipke beñzey.— Biz qapudan kireyatqanda Karamat hahıldap küldi,— men gidrotehnikim.
+— Sizin körsetecegiñiz bir şey degil, Menjevetskiyniñ özü telükeli tipke beñzey.
+— Biz qapudan kireyatqanda Karamat hahıldap küldi,— men gidrotehnikim.
 Bu işniñ, elbette, maña da alâqası bar.
 Qana, kettik!
 
 Klub qurulıp bitkeni yoq.
 Meclisler ya aşhanede, yahut mında — prorablıq idaresindeki konstruktorlar bürosı odasında keçirile.
-Odanıñ içindeki çertöj tahtaları çetke cıyıştırılğan, diger odalardan kürsüler ketirilip qoyılğan, yüzge yaqın adam toplanğan.
+Odanıñ içindeki çertöj tahtaları çetke cıyıştırılğan, diger odalardan kürsüler ketirilip qoyulğan, yüzge yaqın adam toplanğan.
 
 Raşidnen ekimiz eñ arqadaki skemlege oturdıq.
-Karamatnı köridorda ğaip ettik.
+Karamatnı köridorda ğayıp ettik.
 Muşavere daa başlağanı yoq.
 Qırmızı satinnen örtüli stol ögünde, ayaq üstünde Mansurov tura.
 Çengesini yüksekke kötere berip, zal içindeki adamlarğa köz etmekte.
 Onıñ arqasında — Krasnâskayanıñ qabulhanesine kirilgen qapu.
 Biz kelgen soñ, bu qapu açıldı, Curayev içeri kirdi.
-Artından Menjevetskiy peyda oldı, Curayevnen laqırdığa tutındı, onıñ sözlerini dnqqatnen diñlep, başını sallay berdi.
+Artından Menjevetskiy peyda oldı, Curayevnen laqırdığa tutundı, onıñ sözlerini diqqatnen diñlep, başını sallay berdi.
 Soñra Torizo köründi.
 Ögdeki skemlelerniñ yanında toqtalıp, Anna Yakovlevnağa bir şeyler ayttı: adam çoq çağırğansıñız... dedi ğaliba.— Soyunmasaq olmaycaq.
 Öylemi, arqadaşlar?
 Sıcaq...
 Ya siz?— o brezent plaşç kiyimli, gidromonitorğa parmağını uzattı,— eñ olmağanda, qalpağıñıznı çıqarıñız!
 Torizo bir şeyler daa ayttı, adamlar külüştiler.
-Biz işitmedik.
+Biz eşitmedik.
 
-Zal içinde ğala-ğula başladı, er kes üstündeki iş urbasını çıqarıp, köşede pol üstüne bıraqtı, tezden büyük oba asıl oldı.
+Zal içinde ğala-ğula başlandı, er kes üstündeki iş urbasını çıqarıp, köşede pol üstüne bıraqtı, tezden büyük oba asıl oldı.
 Kişiler soyunğan soñ yerlerine oturdılar.
 Krasnânskaya qolunı töpege köterdi, sesler tınğanğa qadar aşağı endirmey, bekledi.
 Sukünet asıl olğan soñ, Torizodan soradı:
@@ -575,7 +578,7 @@ Sukünet asıl olğan soñ, Torizodan soradı:
 Öylemi, Mihail Eduardoviç?
 
 Torizo qaşlarını sıttı, omuzlarını qıstı.
-Zaldakiler, reberniñ ağızından, ne çıqar eken, dep beklep oturdılar.
+Zaldakiler, reberniñ ağzından, ne çıqar eken, dep beklep oturdılar.
 
 — Evelâ aylanma kanalnı bitireyik...— dedi Torizo, niayet,— plotina meselesini soñ baqarmız.
 Ne deysiñiz?
@@ -589,7 +592,7 @@ Elbette, bunıñ sebepleri bar.
 
 — Aytıñız, biz de bileyik!— dep qıçırdı zaldan yer patlatıcılarnıñ büyügi.
 
-— Siz, Mihail Eduardoviç, bir şeyler aytacaqsıñızmı?— dep soradı Krasnânskaya, qurucılıq başlığından... güya zaldan berilgen replikanı işitmedi.
+— Siz, Mihail Eduardoviç, bir şeyler aytacaqsıñızmı?— dep soradı Krasnânskaya, qurucılıq başlığından... güya zaldan berilgen replikanı eşitmedi.
 
 — Yoq,— Torizo başını tersine salladı,— özüñiz aytıñız!
 Merkeziy Komitetniñ qararı sizge malüm.
