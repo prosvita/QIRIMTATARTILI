@@ -379,7 +379,8 @@ Doktor çağırmaq kerek!
 
 Eki elinen belimden qapqaç etip aldı, yuqarı köterdi.
 
-— Tut!— dedi Raşidke,— medpunktqa alıp keteyik!
+— Tut!— dedi Raşidge.
+— Мedpunktqa alıp keteyik!
 Biz bu meselede ne bilemiz?
 Köter!
 
@@ -394,12 +395,14 @@ Ondan soñ, özüme keldim.
 
 Diagnoznı körip, ayrette qaldım.
 
-— Zeerlenüv,— dedi ekim,— kimerde kişiler barakqa parovoz çöyüninden suv alıp keleler.
+— Zeerlenüv,— dedi ekim. 
+— Kimerde kişiler barakqa parovoz çöyüninden suv alıp keleler.
 Onıñ içinde totmı isteysiñ, qatranmı, episi bar.
 Soñundan, taacipleneler.
 Mında endi öyle bir al olıp keçti.
 Qadın-ammallar baragında çamaşır yuvmaq içün suv ketirip qoyğanlar.
-Qızlardan biri alğan, içken.— Ekim böyle deliller ketirip söylene-yatqanda, hatirime gece olıp keçken sergüzeşt tüşti.
+Qızlardan biri alğan, içken.
+— Ekim böyle deliller ketirip söylene-yatqanda, hatirime gece olıp keçken sergüzeşt tüşti.
 
 "Çöyünden aldıñmı?" dep soradı Valâ.
 "Yoq.
@@ -409,16 +412,17 @@ Men bilem..." — dedi Muşuq.
 Muşuq maña ne içün ekşi suv ketirdi?
 Şaqa etipmi?
 Yoq.
-Zanıma qalsa, Muşuq ömürinde şaqa etken kişi degil.
+Zanıma qalsa, Muşuq ömründe şaqa etken kişi degil.
 
 — Ne?
-İşitmeysiñizmi?
+Eşitmeysiñizmi?
 
 — Seniñnen doktor laqırdı ete.
-Közleriñni aç!— Karim yeñimden tutıp çekti — cevap ber!
+Közleriñni aç!— Karim yeñimden tutıp çekti. 
+— Cevap ber!
 
 — Sizden sorayım, gece içkeniñiz nasıl çay edi?
-Dostıñız ayta... gece çay içken ekensiñiz.
+Dostuñız ayta... gece çay içken ekensiñiz.
 
 — Çay degil, qaynağan suv.
 
@@ -437,10 +441,10 @@ Doktor, meni Çar-Çaqnıñ astına dalmağa, yel quvan töpesine çıqıp-tüş
 — Töşekte yatmaq kereksiñiz!..
 Şimdi!
 Bu daqiqada!
-Mına retsept.— Karimge kâğıt yazıp berdi,— dostıñız içün biraz raatsız oluñız!
+Mına retsept,— Karimge kâğıt yazıp berdi,— dostuñız içün biraz raatsız oluñız!
 Hazar-Kendde apteka bar.
 Yuvurınız!
-Amma baragıñızdaki suvnı mutlaqa teşkerip baqmaq kerek.
+Amma baragıñızdaki suvnı mıtlaqa teşkerip baqmaq kerek.
 
 Azbarğa çıqqan soñ Karimge yalvardım: kerekmey.
 Men adam taparım, ketme!— dedim...
@@ -465,11 +469,12 @@ Bir coruqsıñmı?
 — Kirip oturayıq.
 Tışarıda suvuq.
 
-— Aksine... biraz avada turayıq!— dedim men.— Başım alâ şuvuldamaqta...
+— Aksine... biraz avada turayıq!— dedim men.
+— Başım alâ şuvuldamaqta...
 
 Qapu ögüne "Ford" kelip toqtadı.
 İçinden Torizo çıqtı.
-Çar-Çaq qurucılığınıñ başlığı... onıñ bu kelüvini bir vaqia isap etmek mümkün.
+Çar-Çaq qurucılığınıñ başlığı... onıñ bu kelüvini bir vaqia esap etmek mümkün.
 
 İşitkenimizge köre, Anna Yakovlevnanen çıqışmay eken.
 Belki, bu öşektir!
