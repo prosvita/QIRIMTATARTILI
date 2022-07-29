@@ -486,8 +486,8 @@ Karamat meni añladı.
 Men öz başımda qaldım.
 Şukur, er şey öz yerini taptı.
 Taqdirim çezildi.
-Çezildimi aceba? 
-Poldaki kilim üstüne yatıp yuvarlanacağım keldi.
+Çezildimi aceba?
+%
 
 Qomşu oda içinden savut-saba sesleri işitildi.
 Soñ İrada köründi.
@@ -511,7 +511,7 @@ Ne men, ne İrada.
 Karamat şay degen soñ, epimiz kuhnâğa kettik.
 Men çuçvara tarelkalarını birer-birer ketirip stol üstüne qoydım, qalğanlarını İrada ve Karamat taşıdılar.
 
-Aşnı pişire bergenler.
+%
 Qoymağa yer yoq.
 Balaban stolnıñ üstünde yer qalmağan soñ, yanaşadaki örnekli sandıqnıñ üstüne de toldı.
 Lâkin, bu — başlanğıç.
