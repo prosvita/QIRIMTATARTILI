@@ -213,20 +213,26 @@ Onıñ uzun şineliniñ ögü çezik edi.
 Kirgen soñ toqtaldı.
 Vaziyetke qıymet keser kibi, evniñ içini kozden keçirdi, soñ menim yanıma keldi.
 
-— Bu ne demek? — dep cekirdi o, — Kelir-kelmez baştaqlıqqa urundıñmı?
+— Bu ne demek? — dep cekirdi o.
+— Kelir-kelmez baştaqlıqqa urundıñmı?
 
 Üçevimiz, ellerimiz üstündeki stolnı yavaştan yerge tüşürdik.
 Arhipka menim aqqımda şikâyetlendi.
 
-— Bu adamda namus yoq,— dedi o, komendantqa meni kösterip,— O, belki abshaneden qaçqandır, teşkerip baqmaq kerek.
+— Bu adamda namus yoq,— dedi o, komendantqa meni kösterip.
+— O, belki abshaneden qaçqandır, teşkerip baqmaq kerek.
 Böyle unsurnı bizim aramızğa yiberesiñiz de, soñ bizge — ahlâqiy ceetten bozuq adamlar deysiñiz!
 
-— Sen sus, Arhipka! — dep qıçırdı sarı saçlı qız. — Kötekni çıqarğan özüñsiñ.
+— Sen sus, Arhipka! — dep qıçırdı sarı saçlı qız. 
+— Kötekni çıqarğan özüñsiñ.
 Petâ emce, maña baqıñız!
-Bu yigit...— qız boyalı, uzun kirpikleri astından maña ine kibi nazar attı,— Kazaknıñ qabaatı yoq. — soñ yerinden turdı, ellerini arqasına qoyıp, baldırlarını sağğa-solğa oynata berip, Arhipkanıñ yanına keldi.
+Bu yigit...— qız boyalı, uzun kirpikleri astından maña ine kibi nazar attı, — Kazaknıñ qabaatı yoq. 
+— Soñ yerinden turdı, ellerini arqasına qoyıp, baldırlarını sağğa-solğa oynata berip, Arhipkanıñ yanına keldi.
 
 — Rahil!
-Menim şeytanlarımnı qozğama! — Dep cekirdi oña Arhipka. — Bilgen şeyiñ yoq.
+Menim şeytanlarımnı qozğama! 
+— Dep cekirdi oña Arhipka. 
+— Bilgen şeyiñ yoq.
 Qarışma!
 
 — Qarışmayım?
