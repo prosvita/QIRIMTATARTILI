@@ -580,7 +580,7 @@ Yemeklerden memnun qaldımı-yoqmı, qızlar añlap olamadılar.
 — Men seni tarelka taşımağa mecbur ettimmi?— İrada iddetlendi,— seni añlamaq mümkün degil.
 Yuvurıp kelip, qıyma çekesiñ, qartop doğraysıñ, soñ şikâyetlenesiñ!
 
-Sabira hala qızlarnıñ davasını diñlep oturmadı; onı çoq işitken... aşhanadan ketirgen salqın ürük qoşafınen bizni sıyladı.
+Sabira hala qızlarnıñ davasını diñlep oturmadı; onı çoq işitken... aşhanеdеn ketirgen salqın ürük qoşafınen bizni sıyladı.
 Ondan soñ tatlınen çay içtik.
 Plotina ne yerde olacağı hususında İrada ile biraz davalaşıp aldıq.
 Böyle ne qadar daa oturır edik, bilmeyim.
