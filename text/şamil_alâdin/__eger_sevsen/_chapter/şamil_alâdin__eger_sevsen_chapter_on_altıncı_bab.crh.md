@@ -290,7 +290,7 @@ Qıznıñ sualine cevap berir ekenim, sözlerimniñ aqibetini tüşünip baqmağ
 Soñundan añladım.
 
 — Bir sefer?
-Elbette!— laqırdı bunıñnen bitte belledim men, lâkin yoq...
+Elbette!— laqırdı bunıñnen bitte belledim men, lâkin yoq... 
 Valânıñ içinde nasıldır qurtçıqlar uyana başladılar,— toqta, niçün bir sefer?
 Nikolay asıl da evlengen edimi?
 Senden sorayım Bekirov!
@@ -303,9 +303,9 @@ Soñundan ne oldı, bilmeyim.
 Özümizniñ barakqa qaytıp keldim.
 Raşid teren yuquda edi.
 Suvnı qaynattım.
-Tumboçkanıñ çekmecesi içikde eki kesek şeker tapıp, meşrebe içine qoydım, qarıştırdım, soñ koykanıñ üstüne uzandım, yuqlap qalğanım.
+Tumboçkanıñ çekmecesi içinde eki kesek şeker tapıp, meşrebe içine qoydım, qarıştırdım, soñ koykanıñ üstüne uzandım, yuqlap qalğanım.
 
-— Saba meni Raşid uyanttı.
+— Saba meni Raşid uyattı.
 
 — Yur, kettik!
 
@@ -315,12 +315,13 @@ Tumboçkanıñ çekmecesi içikde eki kesek şeker tapıp, meşrebe içine qoyd�
 
 — Bizni qoyarlarmı?
 
-— Qoyarlar...— dedi Raşid,— çabik ol!
+— Qoyarlar...— dedi Raşid.
+— Çabik ol!
 
 Turacaq oldım, vucudımnı qıbırdatalmadım.
 Ayaqlarım sızlamaqta ediler... şişkenler.
 Ğaliba, suvuqlanğanım.
-Stol yanındaki meşrebeni almaq istep, zar-zorına ayaqqa turdım.
+Stol yanındaki meşrebeni almaq istep, zar-zoruna ayaqqa turdım.
 Közlerime qaranlıq çökti, ayaqlarım büklenip kettiler.
 Koykanıñ üstüne otura qoydım.
 
@@ -331,7 +332,7 @@ O, menim alımnı körip, qorqtı,— çırayıñ ap-aq...
 Ayaqlarım sızlaylar.
 Buzlatmadımmı aceba?
 
-Üstüme tekrar yorğanımnı orttim.
+Üstüme tekrar yorğanımnı örttim.
 Raşid yuvurıp azbarğa çıqtı, fanera parçası üstüne qar alıp keldi.
 
 — Köter başıñnı!
@@ -352,14 +353,15 @@ Raşid meni qoltuqlap, azbarğa çıqardı.
 Esimni toplağan soñ, abına-sürüne, Raşidniñ yanaşasından kettim.
 
 Avası bozuq ve tınçıq aşhane içinde yüregim kene sıqletlendi.
-Kuhnâğa kirdim, Sabira haladan sıcaq suv alıp, başımnı yuvdım; soñ odjaq yanında turıp, saçlarımnı quruttım.
+Kuhnâğa kirdim, Sabira haladan sıcaq suv alıp, başımnı yuvdım; soñ ocaq yanında turıp, saçlarımnı quruttım.
 Eger, gece ocaq başımnı tutqan olsa, ağrı keçip ketecek.
 Yoq... daa fena oldı.
-Ayaqlarımnı zar-zorına qıbırdatıp, zalğa çıqtım, kürsüge oturdım degende, başım stol üstüne tüşip ketti.
+Ayaqlarımnı zar-zoruna qıbırdatıp, zalğa çıqtım, kürsüge oturdım degende, başım stol üstüne tüşip ketti.
 Maña ne oldı?
 
 — Cevdet!
-Dostım!— Raşidniñ eecanlı sesini işittim.— Kene yaramaysıñmı?
+Dostum!— Raşidniñ eyecanlı sesini eşittim.
+— Kene yaramaysıñmı?
 
 Karim da peyda oldı.
 
