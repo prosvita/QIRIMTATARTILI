@@ -981,7 +981,7 @@ Añladıñızmı?”
 
 Böyle etip, menim ocalıq faaliyetim başladı.
 Bana muallimler odasında İsmail efendi degeni kibi, menim ocalıq tecribem yoq, bu aqlı sözler.
-Ama zemskiy mektebiniñ müdiri Yaya Naci meni bu mektepke yollağanda: “fuqare köylü balalarını sen oqutmasañ, men oqutmasam,Arifmemet oqutmasa, kim oqutacaq?” degen edi.
+Ama zemskiy mektebiniñ müdiri Yaya Naci meni bu mektepke yollağanda: “fuqare köylü balalarını sen oqutmasañ, men oqutmasam, Arifmemet oqutmasa, kim oqutacaq?” degen edi.
 Zan etsem, onıñ sözleri de aqsız degil, aksine, pek qanuniy ediler.
 Men fuqare köylü balalarını oqutmaq içün keldim.
 Nasıl usullarnen oqutacağım?
