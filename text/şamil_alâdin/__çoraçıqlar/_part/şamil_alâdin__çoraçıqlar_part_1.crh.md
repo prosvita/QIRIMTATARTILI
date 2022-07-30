@@ -1,6 +1,6 @@
 Yapraqlar töküldi.
 Otlar-ölenler sarardı, soldılar.
-Çürük hıyar örkenleri arasında alma tökündisi çoqçıp yürgen uzun quyruqlı savusqanlarnıñ davuşı qarıq ve ğamlı çıqmaqta.
+Çürük hıyar örkenleri arasında alma töküntisi çoqçıp yürgen uzun quyruqlı savusqanlarnıñ davuşı qarıq ve ğamlı çıqmaqta.
 Bu hayriyetlikke degil.
 Ava deñişecek.
 Belki topraq buzlaycaq, belki qar yağacaq, çünki küz endi bitmek üzre.
@@ -67,7 +67,7 @@ Digeriniñ yüzü açıq.
 Başında altınlı fes ve mavı bürümçik.
 Eki acayip varlıq.
 İzaatqa kelmez tabiat serveti.
-Olar aqşam üstü gügümleri ile dereden suv almağa kelgenler, araretli, oynaq yürekleri sevgi ile tolup taşqanından sebep, suv başında öz aralarında dertleşüvge tutunğanlar.
+Olar aqşam üstü gügümleri ile dereden suv almağa kelgenler, araretli, oynaq yürekleri sevgi ile tolıp taşqanından sebep, suv başında öz aralarında dertleşüvge tutunğanlar.
 Gügümler unutılğan... kenarda bom-boş, yatsırap turalar.
 Eki peri eki taş üzerine oturğan, ayaqqaplarını çıqarıp, ayaqlarını suv içine tüşürgenler.
 Özende suv çağlay, aqa.
@@ -104,7 +104,7 @@ Hayalım sürette eken, talğın közlerimni zametle yuqarı köterdim, nazarım
 Ruzgârdan bükülgen dalları pencereniñ camını tırnap-tırnap almaqtalar.
 Ebediy yeşil şımşır... diger çıplaq terekler suvuq yel altında titreyler, sınalar.
 Bu qaviy bedenli terek, öyle degil.
-Demirden yasalı gemiler suv üstünde yüzeler.
+Demirden yasalı gemiler suv üstünde yüreler.
 Bunıñ bir kesegi bata.
 Tabiatnıñ cilvesi!
 
