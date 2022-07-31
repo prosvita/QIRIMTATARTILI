@@ -665,7 +665,7 @@ Onı böyle auditoriyada muzakere etmek mümkün degil.
 — Tehnikiy mesele?
 Sel yolunı bir taraftan, plotina tıynağına tüşürmek, diger taraftan, selni özenniñ şağı yalılarına aqızıp, kanal üstünde eki büyük demir köpür qurmaq.
 Bu, siziñce, tehnikiy meselemi?— Curayev öz fikrini sabırlı, lâkin israrlı surette isbat etmege tırıştı.
-Söylenir eken, samaylarındaki qan damarları, asabiylikten, qabarmaqta ediler Menjevetskiyniñ teklifi qabul etilse, eki million kümüş devlet parası iqtisad etilecek.
+Söylenir eken, samaylarındaki qan damarları, asabiylikten, qabarmaqta ediler Menjevetskiyniñ teklifi qabul etilse, eki million kümüş devlet parası iqtisat etilecek.
 Siz bunı tehnikiy mesele deysiñiz.
 
 — Zakir Gulâmoviç, siz smena injenerisiñiz...— Torizo "smena injeneri", sözlerini ayrı bir aenknen ayttı,— ve Baş Dugümniñ partâçeykasınıñ sekretarısıñız.
