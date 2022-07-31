@@ -821,10 +821,10 @@ Musaadeñiznen...
 
 — Kelişmek içün meni sekiz ay beklediñizmi?
 
-— Musaadeñiznen...— dedi Mansurov, sualni işitmegen olıp,— Baş Dugüm idaresiniñ fikirini bildirmek isteyim.
+— Musaadeñiznen...— dedi Mansurov, sualni eşitmegen olıp,— Baş Dugüm idaresiniñ fikrini bildirmek isteyim.
 
-— Nasıl fikirini?
-Krasnânskayanıñ emirinimi?— dep soradı Toqtabayev qaba sesnen,— onı çoqtan bilemiz!
+— Nasıl fikrini?
+Krasnânskayanıñ emrinimi?— dep soradı Toqtabayev qaba sesnen,— onı çoqtan bilemiz!
 Emirler er yerde tolu: idare köridorları içinde, "Mavı qaya" qapusı üstünde, alay yerde... maşinistler nasıl çalışalar?
 Bu hususta laqırdı yoq.
 Torizo arqadaşqa itiraz etmek isteysiñiz.
@@ -834,10 +834,10 @@ Bir şey olsa, Almazovnı örnek etip körsetesiñiz.
 Bu yahşı degil.
 
 — Felsefeñizge itiyacımız yoq!— dedi oña İrada.
-Bunı er kes açıq-aydın işitti.
-Toqtabayevniñ ağızı açıq qaldı,— adamğa laqırdı etmege imkân bermeysiñiz?
-Aytsın, işiteyik...
-Krasnânskayanıñ emiri olsa, ne olğan?
+Bunı er kes açıq-aydın eşitti.
+Toqtabayevniñ ağzı açıq qaldı,— adamğa laqırdı etmege imkân bermeysiñiz?
+Aytsın, eşiteyik...
+Krasnânskayanıñ emri olsa, ne olğan?
 Onı diñlemek mümkün degilmi?
 Emirlerge ürmet etmek... tek ürmet etmek degil, olarnı eda etmek kerek.
 Toqtabayevniñ replikasını yañlış tanıyım.
@@ -847,10 +847,11 @@ Krasnânskaya qarındaşınen kene grafinni çaldı.
 — Devam etiñiz, Abdulla Sadıkoviç!— dedi o.
 
 — Maşinistler bir şey bilmeyler demek, elbette, yañlış fikir,— dedi Mansurov.
-O eski papkanı ep qarıştırmaqta edi,— sekiz aydan beri rıçag başındalar.
+O eski papkanı ep qarıştırmaqta edi,— sekiz aydan berli rıçag başındalar.
 Olarnıñ işine qıymet kesmek içün bunıñ özü kâfi.
-Kerçek. nuqsanları yoq... degil.
-Bunı epimiz bilemiz.— O, andan-mından alıp, çıbalıq söylendi,— Agapovnıñ yerine Karim Yoldaşevni tayin etmege, Agapovnı ise Baş idare kadrlar bölügi ihtiyarına yollamağa qarar berdik.
+Kerçek, nuqsanları yoq... degil.
+Bunı epimiz bilemiz.
+— O, andan-mından alıp, çıbalıq söylendi,— Agapovnıñ yerine Karim Yoldaşevni tayin etmege, Agapovnı ise Baş idare kadrlar bölügi ihtiyarına yollamağa qarar berdik.
 
 — Agapovnı kadrlar bölügine yollamaq ne kerek?— dep soradı Torizo,— Yoldaşevniñ yardımcısı yapsañız olmaymı?
 
@@ -870,9 +871,9 @@ Kimerde ekskavatorlar saatlarnen toqtap turalar.
 Elektrik küçü yetişmey.
 Andan soñ, yer patlatıcılarnıñ işini alıñız!
 Olarğa yahşı reber, qattı qol kerek.
-Yer patlatıcılarnıñ mesuliyetsizligi sebebinden, kimerde smena çalışmay tura.
-İşteki pervasızlıq bazan adamlarnı qurban ete.
-Hristofor Duranidi ağır yaralı, hastahanede yata... çünki parovoz maşinisti signalnı vaqıtında bermegen.
+Yer patlatıcılarnıñ mesüliyetsizligi sebebinden, kimerde smena çalışmay tura.
+İşteki pervasızlıq bazen adamlarnı qurban ete.
+Hristofor Duranidi ağır yaralı, hastahanede yata... çünki parovoz maşinisti signalnı vaqtında bermegen.
 
 — İra aqlı,— dedi Anna Yakovlevna,— Duranidiniñ yaralanuvı deşetli al.
 Yer patlatıcılar bürosınıñ başlığı bu facia içün işten alındı.
@@ -880,13 +881,14 @@ Lâkin mesele tek bunda degil.
 Zakir Gulâmoviç!
 Siz bir şeyler aytacaqsıñızmı?
 
-— Bir mesele aqqında...— dedi Curayev.— Siz, Mihail Eduardoviç, Baş Dugümde siyrek körünesiñiz.
+— Bir mesele aqqında...— dedi Curayev.
+— Siz, Mihail Eduardoviç, Baş Dugümde siyrek körünesiñiz.
 Bu meni pek raatsızlay.
 Partâçeyka olğanım içün degil.
 Açıqtan-açıq laqırdı eteyik.
 Siz, Mihail Eduardoviç büyük mütehassıñız.
 Ondan da ğayrı, bütün qurucılıqnıñ başlığısıñız.
-Sizni bu vazifege Merkeziy Kömitet tain etti.
+Sizni bu vazifege Merkeziy Kömitet tayin etti.
 Siz, eger isteseñiz, Baş Dugümge büyük yardım körsete bilesiñiz.
 İsteseñiz... bir ay evelsi men sizge telefon etip, büronıñ meclisine kelmeñizni rica ettim.
 Kelmediñiz.
