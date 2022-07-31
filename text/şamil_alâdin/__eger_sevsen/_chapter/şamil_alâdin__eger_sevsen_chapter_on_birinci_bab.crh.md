@@ -3,8 +3,8 @@
 İdare bizim barakqa beñzer binada.
 Bir farqı bar: içindeki odaları çoq.
 Çoq degil... balaban odalar fanernen bölüngenler.
-O sebepten, men köridor boyu keteyatqanda ince divar artındaki laqırdını işitip, toqtaldım.
-Başqa kişiniñ laqırdısını diñlemek yahşı şey degil, lâkin söz özüñe ait olsa, diñlemek isteysiñ.
+O sebepten, men köridor boyu keteyatqanda ince divar artındaki laqırdını eşitip, toqtaldım.
+Başqa kişiniñ laqırdısını diñlemek yahşı şey degil, lâkin söz özüne ait olsa, diñlemek isteysiñ.
 
 — Menim elimden kelecek şey degil...— bu, divar artında oturğan İradanıñ davuşı edi, — men yapalmam, Anna Yakovlevna!
 Maña avale etmeñiz!
@@ -13,7 +13,7 @@ Maña avale etmeñiz!
 Niçün avale etmeycek ekenim? — Krasnânskaya israr etmekte edi.
 — Ekskavatorcılar öz donatmalarını özleri ketirmek kerekler.
 Bizde takelajnikler yoq.
-Doğrusını aytsam, Mansurovqa toqunmaq isteyim.
+Doğrusını aytsam, Mansurovğa toqunmaq isteyim.
 O pek muqayt adam.
 Ondan da ğayrı, Taşkentke barıp kelmek içün menden eki saat evel ruhset aldı... qarısı bir afta evel ketken, alâ yoq.
 Qısqası, Mansurov mında yoq dep bil.
@@ -21,8 +21,8 @@ Qısqası, Mansurov mında yoq dep bil.
 
 — Curayev...
 
-— Curayevniñ vaqıtı yoq.
-Tursunovnn 6e-raber montaj ile meşğuller.
+— Curayevniñ vaqtı yoq.
+Tursunovnen beraber montaj ile meşğuller.
 Oña toqunmaq mümkün degil.
 Tünevin gece ekisini yuqlamağa qaytarğance esim ketti, saba beşte baqsam, aylanma kanalda hızmet eteler.
 Bu işni özüñ yapacaqsıñ!
@@ -31,12 +31,12 @@ Bu işni özüñ yapacaqsıñ!
 
 — İra!
 Men er şeyni tüşündim.
-Episini isapqa aldım.
+Episini esapqa aldım.
 Añladıñmı?
 
 Qaranlıq köridor içinde kimniñdir çızmaları gürsüldedi, Kandıba peyda oldı.
 
-Divar artından Anna Yakovlevnanıñ yarım-yurtı sözleri işitildi.
+Divar artından Anna Yakovlevnanıñ yarım-yurtı sözleri eşitildi.
 
 — Özüñniñ ne hızmet becereyatqanıñnı isbat etmek isteysiñmi?
 Vazifeni saña berdim — sen yapacaqsıñ!
@@ -80,7 +80,7 @@ Siz ise sol yalığa keçireceksiñiz!
 Anna Yakovlevna ile bütün cedvellerni közden keçirdik, tüşündik-taşındıq: sizniñ ekiñizden başqa bu işni yapacaq adam tapalmadıq.
 
 Mansurov bizni maqtay berdi.
-Lâkin ağızından çıqqan bu sözler qaba ediler.
+Lâkin ağzından çıqqan bu sözler qaba ediler.
 Eki nijnik ne yapa bilir?
 Külünçli şey.
 Nikolaynıñ başınıñ töpesindeki bir top saçı qıbırdanıp aldı.
