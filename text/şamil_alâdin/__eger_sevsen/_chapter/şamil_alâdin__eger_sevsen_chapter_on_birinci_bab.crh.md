@@ -258,7 +258,7 @@ Keder etme!
 
 — Ekskavatornı sol yalığa keçirmek... — dedi Nikolay.
 — Buña "ükümet meselesi" deyler.
-İnanmasañ, Mansurovtan sora. 
+İnanmasañ, Mansurovdan sora. 
 
 — Hucur adamlarsıñız...
 Bunıñ üstünde gece-kündüz tüşünmek ne kerek?
@@ -273,7 +273,7 @@ Men doğrusını aytam!
 
 — Toqta!
 Toqta! — dedi Kandıba, işaret parmağını köterip, — aqiqaten, zevqlı.
-Maşinanı çanağa belki bütünley qoymaq olmaz, lâkin yelkuvannı ayrı, kevdesini ayrı keçirmek mümkün.
+Maşinanı çanağa belki bütünley qoymaq olmaz, lâkin yelquvannı ayrı, kevdesini ayrı keçirmek mümkün.
 
 — Aferin, Arhipka! — dedim men.
 
@@ -287,11 +287,11 @@ Kandıba işke ciddiy ve muqayt baqıcı kişi.
 
 Nikolay niçün böyle sual berdi?
 Arhipka oña küsti, sarğuşlığı deral bitip ketti.
-Maşinanı özenden keçirüvniñ yeñi proyektini muzakere işine o da qoşuldı.
+Maşinanı özenden keçirüvniñ yañı proyektini muzakere işine o da qoşuldı.
 
 — Meni yamanlamaqtan başqa şey bilmeysiñiz.
 Arhipka öyle, Arhipka böyle... 
-çana yasamaq fikiri evelâ kimniñ aqılına keldi?
+çana yasamaq fikri evelâ kimniñ aqlına keldi?
 Arhipkanıñ degilmi?
 Amma bir adam sorasa: özümiz tüşünip çıqardıq, dersiñiz.
 Men bilem...
