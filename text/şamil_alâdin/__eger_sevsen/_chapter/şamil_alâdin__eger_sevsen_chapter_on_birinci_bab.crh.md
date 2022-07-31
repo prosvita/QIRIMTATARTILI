@@ -320,7 +320,7 @@ Arhipka üstündeki fufaykasını çıqardı, soñra kölmegini yırtıp, köter
 
 Biz ayretlendik, bir-birimizge baqıştıq.
 
-— Böyle adamda bile kibir ola... — dedi Hristofor ve küldi.
+— Böyle adam da bile kibir ola... — dedi Hristofor ve küldi.
 
 — Şeytanlı...— dedi Kandıba, başını çetke siltedi.
 
@@ -340,10 +340,10 @@ Yarın üyle maalinde anda körüşecek oldıq.
 
 Eki traktor, büyük çananı arqalarına taqıp, paromnıñ yanına çekip ketirdiler.
 Çana aman-aman parom keñlikte olıp çıqtı.
-Soñra, sol yalıdan sağ yalığa yeñi troslar uzatıp, uclarını sol yalıda bekittiler.
+Soñra, sol yalıdan sağ yalığa yañı troslar uzatıp, uclarını sol yalıda pekittiler.
 
 Ekinci künü saba erte kene paromğa keldik.
-Sağ yalıda, özenden elli metr uzaqta, demir yol platforması üstünde yeñi draglâynlar turmaqta ediler.
+Sağ yalıda, özenden elli metr uzaqta, demir yol platforması üstünde yañı draglâynlar turmaqta ediler.
 Olar, güya Amerikadan dağınıq alda ketirilip, Taşkentte cıyıştırılğanlar.
 Dağınıq alda Çar-Çaqqa ketirilip, soñ toplanılğan olsalar... biz çekişmez edik.
 Lâkin bunı kimge añlatacaqsıñ?
