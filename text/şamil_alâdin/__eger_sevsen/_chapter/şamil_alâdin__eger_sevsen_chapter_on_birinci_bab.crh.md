@@ -152,19 +152,19 @@ Ne yapacaqmız! — Nikolaynıñ elinden çektim.
 — Ne çare? — sualime sualnen cevap berdi, — Mansurovnıñ ögünde öyle dülber nutq irad ettiñ, endi yaldamamaq mümkün degil.
 Tek yaldamaq degil... belki uçmaq da kerek olur.
 Er vaqıt öyle...
-İşler güzel-güzel keteyatqanda, Mansurovqa beñzegen kişi peyda ola, ortalıqnı qarıştıra taşlay... tek işni degil, adamlarnıñ miyini de.
+İşler güzel-güzel keteyatqanda, Mansurovğa beñzegen kişi peyda ola, ortalıqnı qarıştıra taşlay... tek işni degil, adamlarnıñ miyini de.
 Özüniñ miyi ise çoqtan qarışıq.
 
-Biz, o vaqıtta epimiz Mansurovqa açuvlana edik, çünki o fikirimizce, ayatta özüni... ve özüne zaruriy yerni tapmağan dep bile edik.
+Biz, o vaqıtta epimiz Mansurovğa açuvlana edik, çünki o fikrimizce, ayatta özüni... ve özüne zaruriy yerni tapmağan dep bile edik.
 Plan tolmağan vaqıtlarda Mansurov açuvlana ve qıçıra, çünki başqa naçalnikler de öyle yapa — açuvlana ve qıçıra ediler.
 Krasnânskaya, Curayev ve Tursunov, özleriniñ daima hızmetnen meşğul ekenleri alda, sade adamlarnen — söz kelimi, Kandıba ve Raşidnen, menimnen, atta indemez Bassarabanen — qonuşuvlarını begene edik, amma Mansurovnıñ adamlarğa muamelesinde sadelik körmey edik.
 O adamlarğa qoşulıp iş yapalmay edi.
-Ekskavatorcılarnen oturıp bir piala çay içkence eki-üç adamnen qavğa etip yetiştire, bazan qavğa etmemege söz berip, kişilernen beraber otursa, qolaysız şaqaları içün er kesni ayrette qaldıra.
+Ekskavatorcılarnen oturıp bir piala çay içkence eki-üç adamnen qavğa etip yetiştire, bazen qavğa etmemege söz berip, kişilernen beraber otursa, qolaysız şaqaları içün er kesni ayrette qaldıra.
 Mansurovnı, institut bitirgen soñ, başqa injenerler kibi, qurucılıqqa yollap, büyük hata etkenler.
 Onıñ al-azırdaki... ebet, bugünki işi zevqlı.
 Energiya qurucılığı respublika arhivinde hızmet ete.
-Saba işke kele, yüksek, tozlı raflar arasına kirer-kirmez, elektrik plitanı ştepselge keçire, üstüne çaynikni qoya, sabadan aqşamğa qadar qoqulı kök çay içip otura.
-Bu yuvaş, uzaq körmez kişi mezkür hızmetni özüne pek kelişikli isap ete.
+Saba işke kele, yüksek, tozlu raflar arasına kirer-kirmez, elektrik plitanı ştepselge keçire, üstüne çaynikni qoya, sabadan aqşamğa qadar qoqulı kök çay içip otura.
+Bu yuvaş, uzaq körmez kişi mezkür hızmetni özüne pek kelişikli esap ete.
 
 Barakta tek Raşid bar edi.
 Stol başına oturğan, "Gülistannıñ" eski nomerini qarıştırmaqta:
@@ -183,15 +183,15 @@ Qaysını aceba?
 
 — Apansızdan körüştik...— dedi Raşid.
 Demek, haberni, er alda, Karamat aytqan.
-Lâkin kimden işitken? 
+Lâkin kimden eşitken?
 — Nege razılıq berdiñiz?
 Vazifeñiz neden ibaret, bilesiñizmi?
 
-— Bizge vazifeni bilmek şart degil, — dedim men, azaçıq külümsirep ve azaçıq ta asabiylenip, — Mansurov bilse, oldı!
+— Bizge vazifeni bilmek şart degil, — dedim men, azaçıq külümsirep ve azaçıq da asabiylenip, — Mansurov bilse, oldı!
 
 Saba İrada bizim barakqa keldi.
-Ömürinde ilki defa...
-Yeñi haber ketirdi: özenden maşina keçirüvge reberlik Almazovğa avale etilgen.
+Ömründe ilki defa...
+Yañı haber ketirdi: özenden maşina keçirüvge reberlik Almazovğa avale etilgen.
 
 İrada közüniñ qıyığından Bassaraba betke baqtı:
 
