@@ -214,14 +214,14 @@ Endi burğuçlap başlağanı duyuldı.
 
 ...Kerçekten de, teren ve deli Çar-Çaqtan böyle balaban agregatnı keçirmek mümkünmi?
 Mümkün olsa, bu vaqıtqa qadar niçün kimse keçirmegen?
-Dağınıq ekskavatornı cıyıştırmaq içün aftalar kerek, çünki işke keder etice manialar çoq ola: de detallerniñ bazıları yolda coyulğan, de cıyıştırayatqanda boltlarnıñ, yahut şaybalarnıñ yarısı sınıp kete...
+Dağınıq ekskavatornı cıyıştırmaq içün aftalar kerek, çünki işke keder etici manialar çoq ola: de detallerniñ bazıları yolda coyulğan, de cıyıştırayatqanda boltlarnıñ, yahut şaybalarnıñ yarısı sınıp kete...
 Qısqası, detallerni toplamaq degil, çoqusını yeñiden yapmaq kerek ola.
 Bunı ise, turğanı kibi sol yalığa keçirmek kerek.
 Ya yelquvanı?
 Onı çıqarıp almasañ, keder etmezmi?
 Çıqarayım deseñ, vaqıt alacaq... baraban, tros, valik!
 Yoq, canım... dağıtılacaq-cıyılacaq olsa, bunda Cevdetniñ ve Nikolaynıñ ne kerekligi bar?
-Şturmlamaq... bugün onı turğanı kibi, özenden keçrip, yarın aylanma kanalda çalıştırmaq kerek.
+Şturmlamaq... bugün onı turğanı kibi, özenden keçirip, yarın aylanma kanalda çalıştırmaq kerek.
 İşni Cevdetke ve Nikolayğa avale etilüviniñ sebebi bunda.
 Mansurov: ükümet vazifesi, demedimi?
 
@@ -251,7 +251,7 @@ Ekskavatorlarnı sol yalığa keçirsek, oldı, — Arhipka qızarıq ve arekets
 — Afyon patlatmaq içün qaldırğan edim.
 
 — Maña raqıñ kerekmey!
-Kişilerniñ qafaları ükümet meselesine meşğul.
+Kişilerniñ qafaları ükümet meselesinen meşğul.
 Keder etme!
 
 — Nasıl ükümet meselesi?
