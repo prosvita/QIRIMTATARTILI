@@ -798,22 +798,24 @@ Bazı ekskavatorlarımıznıñ rıçagları başında kütür adamlar oturalar.
 Öyle!
 Söz olar hususında kete.
 Siz, Abdulla Sadıkoviç, bu vaqıtqa qadar maşinistler meselesini yoluna qoyamadıñız.
-Anna Yakovlevna ve siz — ekiñiz maşinistlerniñ ve olarnıñ yardımcılarınıñ erkânını közden keçirmege borclı ediñiz.
+Anna Yakovlevna ve siz — ekiñiz maşinistlerniñ ve olarnıñ yardımcılarınıñ erkânını közden keçirmege borclu ediñiz.
 Bunı yapmadıñız!
 
 — Yapsaq, ne olacaq, bilesiñizmi?— dep soradı Krasnânskaya,— yarıdan ziyadesi işten boşatılacaq.
 Boşağanlarnıñ yerlerine kimlerni alacaqmız?
 Tek maşinistler degil.
 Ekskavatorlar da... eski-püskü maşinalar...
-Trosını bağlasañ, boltı sına, baraban qıza, kovşnıñ tişlerini tüzetseñ, hamutı qopa.
-Biz, er alde, bazı çareler körmek isteymiz.— Anna Yakovlevna Mansurovqa çevirildi:— Siz, ekskavator parkınıñ başlığı, bu hususta deyceksiñiz.
+Trosunı bağlasañ, boltı sına, baraban qıza, kovşnıñ tişlerini tüzetseñ, hamutı qopa.
+Biz, er alda, bazı çareler körmek isteymiz.
+— Anna Yakovlevna Mansurovğa çevirildi:
+— Siz, ekskavator parkınıñ başlığı, bu hususta deyceksiñiz.
 
 Torizo muşavere iştirakçileriniñ diqqatını bir meseleden diger meselege qolaylı-qolaylı avuştıra bilgeninden pek memnün qaldı.
 
 Mansurov qaarli alda ayaqqa turdı, eski portfelini qarıştıra başladı.
 Çoq vaqıt qarıştırıp turdı, soñ içinden bılaşıqça papka çekip çıqardı.
 
-— Maşinistler hususında biz evelde tüşüngen edik,— dedi o, parmağınen burunınıñ astını qaşıp aldı,— lâkin bazı meseleler hususında Torizo arqadaşnen kelişmek kerek edi.
+— Maşinistler hususında biz evelde tüşüngen edik,— dedi o, parmağınen burnunıñ astını qaşıp aldı,— lâkin bazı meseleler hususında Torizo arqadaşnen kelişmek kerek edi.
 Beklemege mecbur oldıq.
 Musaadeñiznen...
 
