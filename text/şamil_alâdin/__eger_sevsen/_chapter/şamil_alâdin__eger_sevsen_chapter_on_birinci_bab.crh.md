@@ -105,7 +105,7 @@ Anna Yakovlevna ve İradanıñ böyle yaqın odada bulunğanlarını bilmey edim
 Çünki Nikolay, sözlerime razı olmağanı taqdirde bile, Mansurovnıñ ögünde itiraz etmeycegine emin edim.
 — Topraq yığını üstündeki ekskavator astında süyreklenecekmizmi, yoqsa, Çar-Çaqnıñ quturğan suvları içinde çalqanacaqmızmı?
 Bizim içün farqı yoq.
-(Madamki olar meni diñlemekteler, barsın, romantik sözler işitsinler!)
+(Madamki olar meni diñlemekteler, barsın, romantik sözler eşitsinler!)
 ... lâkin eki adam ne yapa bilecek?
 Eki ekskavatornı sol yalığa keçirmek içün, eñ azdan, otuz adam kerek!
 
@@ -117,7 +117,7 @@ Mansurovnıñ kim ekenini bilesiñiz.
 
 Bu siziñnen tahminiy laqırdı.
 
-— Repetitsiya, öylemi?— Nikolay kuldi.
+— Repetitsiya, öylemi?— Nikolay küldi.
 Mansurovnıñ yüzü ciddiyleşti.
 — Tıraş ögrenüv kibi bir şey...
 Er türlü eksperiment bizim terimiz üstünde yapıla.
@@ -134,7 +134,7 @@ mına-mına üzülmek üzre ekenlerini sezdim.
 
 — Seni añlamaq mümkün degil, Cevdet! — dedi o ve şırq etip yerge tükürdi, soñ potüginen üstüni taptadı.
 — Başıñnı soqmaq içün daima hamut arap yüresiñ!
-Mansurovqa ise yalıñız saña beñzer ögüzler kerek.
+Mansurovğa ise yalıñız saña beñzer ögüzler kerek.
 
 — Hamut?
 Nasıl hamut?
