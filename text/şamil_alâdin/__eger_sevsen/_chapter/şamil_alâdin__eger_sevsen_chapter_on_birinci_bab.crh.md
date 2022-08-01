@@ -419,15 +419,15 @@ Olardan platformanıñ qabırğasında eñiş tambır yasadıq.
 
 Biz qızışıp işledik.
 Arhipka qurnazlıqqa urdı.
-Daima İradanıñ etekleri yanında dolanıp yurdi.
+Daima İradanıñ etekleri yanında dolanıp yürdi.
 
-İrada bunı eslemedi... eslemege vaqıtı da yoq edi.
+İrada bunı eslemedi... eslemege vaqtı da yoq edi.
 Biz de çoq qulaq asmadıq.
 Amma Bassaraba ve Agapovnıñ brigadalarındaki adamlar Arhipkanı, İradanıñ yardımcısı bellep, onıñ emirlerini eda ete berdiler.
 Biz küldik...
 Arhipka açuvlandı.
 
-Eñiş tambırnı yasap bitirdik.
+Eniş tambırnı yasap bitirdik.
 İrada çıhrıhlarnıñ çelik alatları teşkerilmesini emir etti.
 Atlarnı teşkerdik... ve eñ küç hızmet de ondan soñ başladı.
 Etrafı çelik yiplernen bağlı ekskavator aqırın-aqırın bütün kevdesinen aşağı cılışmaq kerek edi.
