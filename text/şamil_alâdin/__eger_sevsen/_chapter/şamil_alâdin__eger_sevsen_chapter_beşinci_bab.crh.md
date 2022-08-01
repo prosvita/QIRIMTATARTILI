@@ -371,7 +371,8 @@ Amma İra öyle yapmay.
 
 Petâ emce İranıñ yanına çapıp bardı, selâm berdi, soñ kevdesi ile barak yolunı kestirip, ögünde qadalıp turdı.
 
-— Furunnı ne vaqıt açacaqsıñız, Pötr Vasilyeviç? — soradı İra, resmiy davuşnen. — Sekiz yüz gramm ötmek içün er kün İskanderge barıp kelecekmizmi?
+— Furunnı ne vaqıt açacaqsıñız, Pötr Vasilyeviç? — soradı İra, resmiy davuşnen. 
+— Sekiz yüz gramm ötmek içün er kün İskanderge barıp kelecekmizmi?
 Er kes yoruldı.
 Bezdi.
 İşçilerniñ sizge canları ağıra.
