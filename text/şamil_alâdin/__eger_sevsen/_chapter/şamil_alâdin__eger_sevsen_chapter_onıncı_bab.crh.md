@@ -163,19 +163,13 @@ Ayaqlarımnı avuştırmaq istedim, deral eñseme suv tolqunı urdı.
 — E-ey!
 Kim bar anda?— dep qıçırdım kene.
 Ses çıqmadı.
-
 Bundan soñ, başqa neticege keldim: arqamnı pamuq ştanğa tayağanda, eki ayaq üstünde degil, bir ayaq üstünde turmaq, diger ayaqqa ise raatlıq bermek kerek.
 Şay etip, bir ayağımnen yerge tireldim, birden qabırğam ağırıp başladı.
-
 Yoq, böyle mümkün degil.
 Özennen oynap başladım: ellerimni artıma uzatıp, pamuq urbalarnı tuttım, arqamnı ise azaçıq boşattım.
 Yoq, canım... suvnıñ aquvı, tek arqamnı tayandırğanım taqdirde toqtay eken.
-Özen güya susa, diñlenip tura, qıbırdandımmı, uvulday... ögündeki er şeyni ura, yıqa, özen maña:
-
-"A!
-Sen meni toqtatmaq isteysiñ... lâkin, haberiñ olsun, meni toqtatacaq küç daa doğmadı", demek istey.
+"A, Sen meni toqtatmaq isteysiñ... lâkin, haberiñ olsun, meni toqtatacaq küç daa doğmadı", demek istey.
 Doğdımı, doğmadımı — onı körermiz.
-
 Qıbırdamay turmaq kerek.
 Endi ne qadar turdım, bilmeyim.
 Belki on daqiqa turğandırım, belki yarım saat...
@@ -183,16 +177,13 @@ Omuzlarımnıñ ve boyunımnıñ ağrısı tutı.
 Közlerimni topraq yığınınıñ töpesine tiklep, qıçıra berdim:
 
 — E-ey!
-E-ey!
 
 Böyle etip sabağa qadar qıçırıp turmaq mümkün.
 Asılda, işçiler smenağa ketkende mutlaqa bu yoldan keçeceklermi?
 Bu şartmı?
-Olar işke Ayıq-Burun betteki kestirme yolnen de kete bileler.
 Kim bilsin, belki bu yoldan qatnap alışqan kişiler bardır?
 
 — E-ey!
-E-ey!
 
 Yoq, bu yerde çoq turmaq mümkün degil.
 Arqamnı divardan qurtarsam, yavaş-yavaş topraq yığınlarınıñ üstüne çıqsam, ne ola?
@@ -202,7 +193,6 @@ Elbette!
 Ammonal... benzin!
 
 — E-ey!
-E-ey!
 
 Suv başımızğa büyük felâket ketire bilir.
 Özüne öyle dere açar ki, soñundan onı taş, beton ve ağaçnen bekitip olamazsıñ.
@@ -212,7 +202,6 @@ Bir qaç saat turğan olsa ne, omuzları çıqacaq edimi?" derler.
 "Cevdetniñ pervasızlığı sebebikden ammonal ve yelektrik donatması skladları ğayıp oldılar".
 Ebet... menim qorqaqlığım sebebinden ulu iş elâk olacaq.
 Bu ne demek?
-
 Toqta, toqta!
 Niçün menim qorqaqlığım sebebinden?
 Qorqaq kişi meni kibi olamı?
@@ -221,7 +210,6 @@ Ondan da ğayrı... men tesadüfen bu yerge kelmegen, bu levhanı körmegen olsa
 Bu munafıq fikirlerni işitkende öz-özümden utandım.
 Buzlı suv içinde terlep kettim.
 Qafama böyle ibret şeyler kirmesinler dep, kene qıçırdım.
-
 Qıçıra-qıçıra... yoruldımmı?
 Yoqsa, suvuq meni ezgeledimi?
 Yuqsırap başladım.
