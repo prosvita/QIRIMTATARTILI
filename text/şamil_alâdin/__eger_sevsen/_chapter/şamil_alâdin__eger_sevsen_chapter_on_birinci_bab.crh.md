@@ -415,7 +415,7 @@ Soñra çananı traktorğa taqıp paromğa çekip alıp ketmek...
 işte, birinci vazife!
 
 Gece bizim içün kütükler ve qalın, uzun şpallar azırlap qoyğanlar.
-Olardan platformanıñ qabırğasında eñiş tambır yasadıq.
+Olardan platformanıñ qabırğasında eniş tambır yasadıq.
 
 Biz qızışıp işledik.
 Arhipka qurnazlıqqa urdı.
@@ -433,7 +433,7 @@ Atlarnı teşkerdik... ve eñ küç hızmet de ondan soñ başladı.
 Etrafı çelik yiplernen bağlı ekskavator aqırın-aqırın bütün kevdesinen aşağı cılışmaq kerek edi.
 Bunıñ içün çarhlar ve mürekkep bloklar areketke keldiler.
 İradanıñ tam, keskin emirleri mücibi, alatlar tartıldı.
-Tekaran daa, tekaran daaa... draglâyn, niayet, qıbırandı, yerinden köçti.
+Tekaran daa, tekaran daa... draglâyn, niayet, qıbırandı, yerinden köçti.
 
 — Toqta-a! 
 — İrada elini başı üstünde yüksekke köterip, davuşını soza berip qıçırdı, — platforma qaburğasındaki tiremeler sınayatqanğa beñzeyler.
@@ -449,10 +449,11 @@ Ayrette qaldıq.
 Kimdir: "acele yardım" dep qıçırdı.
 Biz külüştik.
 
-— Arhipkağa şan-şeref! — dedi Raşid, onıñ omuzını taptap, — sensiz Çar-Çaqnıñ alı ne olur edi?
+— Arhipkağa şan-şeref! — dedi Raşid, onıñ omuzını taptap, — 
+sensiz Çar-Çaqnıñ alı ne olur edi?
 Tasavur etalmayım.
 
-İnsan qarını aç ekende açuvlı, toq ekende merametli, yuvaş ola.
+İnsan qarnı aç ekende açuvlı, toq ekende merametli, yuvaş ola.
 Aşap toyğan soñ ne Hristofor, ne Nikolay, ne Karim — Arhipkağa ters söz aytalmadılar.
 
 Kimer usullarnı işniñ ketişatında tüşünip çıqarmaq, birini digerine uydurmaq kerek oldı.
