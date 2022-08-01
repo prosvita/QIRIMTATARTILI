@@ -576,7 +576,7 @@ Menim Baş-Dugümde bulunğan ilki aftalarımda, hatrimde ebediyen qalacaq müim
 Qaç künler sıdırğı küçlü yağmur yağdı, yollarnı balçıq bastı, Baraktan çıqıp aşhanege barıp yetmek qaramanlıq esap etildi.
 Ekskavatorda çalışmaq meşaqatlı.
 Amma tabiat felâketleri nazar itibarğa alınmadı.
-Kovşqa balçıq ne qadar yapışsa-yapışsın, biz — nijnikler ne qadar bulaşsaq-bulaşayıq, demir yolnı vaqıtında yasap yetiştirmek kerekmiz.
+Kovşqa balçıq ne qadar yapışsa-yapışsın, biz — nijnikler ne qadar bulaşsaq-bulaşayıq, demir yolnı vaqtında yasap yetiştirmek kerekmiz.
 Em yasap yetiştire edik.
 Soñra yağmurlar toqtadı.
 Cıllı künler keldiler.
@@ -601,19 +601,19 @@ Sel taşqını, niayet, Çar-Çaqqa kelip yetken soñ, özen quturdı, yüksek q
 Hazar Kendniñ yanında yalıdan çıqıp, qışlaqlarğa, çöllerge ve bağçalarğa yayıldı.
 Sel baraklarnıñ aralıqları içinde rastkelgen er şeyni bastı-yoğurdı, Ayiq-Burun betke keteyatqanda yolundan çıqtı, gidromonitorlar skladına, demir yol qulbesine çapqıldı.
 
-"Mavı qayağa" yaqınlağanda, gecelein bizni uyanttılar.
+"Mavı qayağa" yaqınlağanda, gece bizni uyanttılar.
 Biz, elbet de, selni toqtatalmadıq.
 Toqtatalmaz edik... uzun, teren çuqurlar, arıqlar qazıp, Qazaq-Tas betke doğrulttıq.
 Sel bizim körsetken yolumıznen ketmedi.
-Ögündeki çuqurlarnı toldırıp, topraq yığınlarını oyup, teşip Ayiq-Burun yamaçlarına yuvurdı, bizim qum tolu çuvallardan, taşlardan, kütüklerden yasalı kestirmelerimizni özünen beraber süyreklep alıp ketti.
+Ögündeki çuqurlarnı toldurıp, topraq yığınlarını oyıp, teşip Ayiq-Burun yamaçlarına yuvurdı, bizim qum tolu çuvallardan, taşlardan, kütüklerden yasalı kestirmelerimizni özünen beraber süyreklep alıp ketti.
 
-Biz yandıq-küydik... sel aylanma kanalnı toldıracaq, bir yıllıq zametimizni çakağa çıqaracaq dep qorqtıq.
+Biz yandıq-küydik... sel aylanma kanalnı tolduracaq, bir yıllıq zametimizni çakağa çıqaracaq dep qorqtıq.
 Qaranlıq içinde bizim kişilerniñ qaysı — ne iş yapayatqanını bilmek küç edi, amma biñlernen ellerde kürekler, kirkalar, ketmenler — bu felâketnen küreşmekteler.
 Birisi: ağaç qazıqlar ketirilsin, dep qıçıra, digeri — sel tolu arıqnıñ çetlerine taşlar ketirip qoymaq içün peşine adamlar taqıp, Hazar Kend betke çapa, kimerler asabiy areketler ve davuşlarnen aşağı-yuqarı yurtqalay, lâkin er kes biri-biriniñ sözüni diñley, yorğunlıq ve telüke hususında kimse tüşünmey.
 Yanğın söndüreyatqan alayğa beñzey.
 
-Ayiq-Burun betten deşetli gurultiler işitildi.
-Yarım saatten soñ selniñ aqıntısı zayıfladı.
+Ayiq-Burun betten deşetli gürültiler eşitildi.
+Yarım saattan soñ selniñ aqıntısı zayıfladı.
 Biz aylanma kanalnıñ kenarında toplandıq... 
 ne ikmet ekenini bilalmay, taaciplenip turğanda, Arhipka...— kene Arhipka — talağı qatıp, yuvurıp keldi.
 
