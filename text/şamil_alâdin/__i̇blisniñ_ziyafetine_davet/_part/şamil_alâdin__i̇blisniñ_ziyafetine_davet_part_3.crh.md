@@ -1,7 +1,8 @@
 Üsein Şamil turdı.
 Çıqıp, Acire hanımnı qıdırmaq içün qapuğa doğrulğanda, qapu açıldı, elinde zembili, Acire kirdi.
 
-– Seni ğayıp ettim, – dedi Üsein taaciplenip, – qayda ediñ?
+– Seni ğayıp ettim, – dedi Üsein taaciplenip, 
+– qayda ediñ?
 
 – Bazarğa bardım, – dedi qarısı, köteringi yürekle. 
 – Bu yerge yaqın eken.
