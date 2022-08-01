@@ -162,6 +162,7 @@ Ayaqlarımnı avuştırmaq istedim, deral eñseme suv tolqunı urdı.
 
 — E-ey!
 Kim bar anda?— dep qıçırdım kene.
+
 Ses çıqmadı.
 Bundan soñ, başqa neticege keldim: arqamnı pamuq ştanğa tayağanda, eki ayaq üstünde degil, bir ayaq üstünde turmaq, diger ayaqqa ise raatlıq bermek kerek.
 Şay etip, bir ayağımnen yerge tireldim, birden qabırğam ağırıp başladı.
