@@ -14,8 +14,8 @@ Qomşu evlerde kimse yoq.
 Olarnıñ saipleri yazlıq mevsimni bitirip, şeerdeki qışlıq evlerine qayttılar.
 
 Qart qazah Aman, bu evlerniñ qaravulı, omuzında, tüfegi, yoldan künde eki kere keçe, kimerde toqtalıp, qapumıznı qaqa: “Süt... qatıq kerekmi?” dep soray.
-“Kerek...” desem, ertesi künü tañda qarısı Han Babu qapu ögündeki terekniñ çatallı pıtaqları arasında bir bardaq süt, yahut qatıq qaldırıp kete.
-Yazda Aman bizim evni sıqça ziyaret ete.
+“Kerek...” desem, ertesi künü tañda qarısı Han Babu qapu ögündeki terekniñ çatallı pıtaqları arasında bir bardaq süt yahut qatıq qaldırıp kete.
+Yazda Аman bizim evni sıqça ziyaret ete.
 Özü bir çaqrım uzaqta, demiryol keçidi yanında yaşay.
 
 Şimdi ava bulutlı.
@@ -42,7 +42,7 @@ Kündüz elektrik çırağı yaqmağa istemeyim.
 Yaqsam, közlerim yorula, yaşlana.
 Evelde öyle olmay edi.
 Evde bu arada özümden başqa kimse yoq.
-Aqırından ayaqqa turam, kibrit çertem, şamdamlar üstündeki yeşil ve qırmızı renkli çıraqlarnı yaqam.
+Aqırından ayaqqa turam, kibrit çertem, şamdanlar üstündeki yeşil ve qırmızı renkli çıraqlarnı yaqam.
 Çıraqlar yanğan soñ, odanıñ içinde azaçıq mavı, azaçıq da sarı ışıqlı efsaneviy müit ükümran ola.
 Bir talay vaqıt keçe.
 Çıraqlar qıza, alevleri töpege sozula, yelpirey... tosat-tosat küçlü etip çatlaylar.
