@@ -503,27 +503,29 @@ Karim parom betke eppi cılışqan edi, dalğalar onı qaqıştırıp, özenniñ
 Men acizlikte qaldım.
 Karim sol yalığa yaldap çıqa bilirmi eken dep qasvetlendim.
 Taqatı yetermi eken?
-Amma çoq tüşünip turmağa vaqıtım yoq edi.
+Amma çoq tüşünip turmağa vaqtım yoq edi.
 Ayağımdaki çızmalarımnı, üstümdeki fufaykamnı çıqarıp, ekskavator kögertesine attım.
 Baqsam, Raşid de soyunayata.
 
 Kimdir:
 
 — Ma, güzel tut!— dep qıçırdı, uzaqta Karimniñ yanında şap etip yip ucu tüşti.
-Karim can alâmetinen eki qollap yipke yapıştı.
+Karim can alâmetinen eki qollunen yipke yapıştı.
 Biz diger ucundan özümizge çektik.
-Suvuqtan qat-qan, mecalsızlanğan Karim, niayet, paromğa ayaq basqanı kibi, gurs etip yıqıldı, serilip qaldı.
+Suvuqtan qatqan, mecalsızlanğan Karim, niayet, paromğa ayaq basqanı kibi, gurs etip yıqıldı, serilip qaldı.
 
 Yarım saattan soñ parom kelip skelege urundı, Krasnânskayanıñ maşinası Karimni medpunktqa alıp ketti.
 Onı gece aşhanede rastketirdik.
-Üstünde yeñi urba.
+Üstünde yañı urba.
 Yanaqları ve közleri, qıp-qırmızı... özü İskander betke keteyata edi.
 
-— Draglâyn...— dedi o, meni körer-körmez, — draglâyn ne oldı? — Karim ğaliba sarğuş edi.
+— Draglâyn...— dedi o, meni körer-körmez, 
+— draglâyn ne oldı? — Karim ğaliba sarğuş edi.
 Oña medpunktta qarardan çoq spirt içirgenge beñzeyler.
 
-— İş sırısında! — dedi Almazov oña ve ne oldı-ne qaldı, episini ikâye etti.
-— Meni pek qorquzdıñ, Qış-qıyamet künü böyle muqaytsızlıq... mümkünmi?
+— İş sırasında! — dedi Almazov oña ve ne oldı ne qaldı, episini ikâye etti.
+— Meni pek qorquzdıñ, 
+Qış-qıyamet künü böyle muqaytsızlıq... mümkünmi?
 
 Karim suvğa nasıl yıqılğanını añlatmaq istedi, sözleri bir-birine bağlanmadılar.
 
@@ -550,14 +552,14 @@ Biz onıñ degeni kibi yaptıq.
 Tecribe... er hızmette tecribe kerek.
 Epimiz Arhipkağa taaciplendik: eki kün evelki Arhipka qayda?
 
-Arhipka daima böyle idrakli olması içün oña, belki, daima mesül vazifeler berip turmaq kerektir?
+Arhipka daima böyle idraklı olması içün oña, belki, daima mesül vazifeler berip turmaq kerektir?
 Belki de daima İradanıñ yanında bulunuvı zarurdır?
 Amma, yoq... soñunda Arhipka kene eski Arhipka olıp ketti.
 
-Eki ekskavator Çar-Çaqtan keçirip, aylanma kanalnıñ ağızında yerleştirilgen soñ, men tüşündim: yahşı, biz bu hızmetni yaptıq, lâkin tek men ve Nikolay yaptıqmı?
+Eki ekskavator Çar-Çaqtan keçirip, aylanma kanalnıñ ağzında yerleştirilgen soñ, men tüşündim: yahşı, biz bu hızmetni yaptıq, lâkin tek men ve Nikolay yaptıqmı?
 Parom başında ekskavatorlarnıñ yanında ne qadar adam bar edi?
 Biri onı yaptı, digeri bunı.
-Öyle ise Mansurov bu işni maña ve Nikolayğa niçün "ükümet vazifesi" del berdi?
+Öyle ise Mansurov bu işni maña ve Nikolayğa niçün "ükümet vazifesi" dep berdi?
 
 Pek taaciplendim.
 Soñ taaciplenmedim.
@@ -570,8 +572,8 @@ Bunı Mansurov yahşı bile.
 
 Menim Baş-Dugümde bulunğan ilki aftalarımda, hatrimde ebediyen qalacaq müim adiseler olıp keçtiler...
 
-...Yeñi yıl arfesinde ava deñişti.
-Qaç künler sıdırğı küçlü yağmur yağdı, yollarnı balçıq bastı, Baraktan çıqıp aşhanege barıp yetmek qaramanlıq isap etildi.
+...Yañı yıl arfesinde ava deñişti.
+Qaç künler sıdırğı küçlü yağmur yağdı, yollarnı balçıq bastı, Baraktan çıqıp aşhanege barıp yetmek qaramanlıq esap etildi.
 Ekskavatorda çalışmaq meşaqatlı.
 Amma tabiat felâketleri nazar itibarğa alınmadı.
 Kovşqa balçıq ne qadar yapışsa-yapışsın, biz — nijnikler ne qadar bulaşsaq-bulaşayıq, demir yolnı vaqıtında yasap yetiştirmek kerekmiz.
