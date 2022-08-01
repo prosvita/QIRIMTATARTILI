@@ -458,20 +458,22 @@ Aşap toyğan soñ ne Hristofor, ne Nikolay, ne Karim — Arhipkağa ters söz a
 
 Kimer usullarnı işniñ ketişatında tüşünip çıqarmaq, birini digerine uydurmaq kerek oldı.
 Şimdi bu şeyler hususında laqırdı etsek, safiyet sözler olıp keleler.
-Amma o vaqıtta Raşid ekskavatornıñ arqasına bir bolt qaqıp, ucuna şayba ve vint keçirse — ulu keşf isap etile edi.
+Amma o vaqıtta Raşid ekskavatornıñ arqasına bir bolt qaqıp, ucuna şayba ve vint keçirse — ulu keşf esap etile edi.
 
 Sağ yalıda eki traktor emir beklep turalar.
-Draglâyn çana üstüne qoyılıp, yerinden köçkende men, Raşid ve Karim, ondan soñ, Agapovnıñ nijniklerinden biri — dört kişi çana üstüne mindik, çünki çelik alatlarğa ve çana üstündeki demir kenetlerge köz-qulaq olıp turmaq kerek.
+Draglâyn çana üstüne qoyulıp, yerinden köçkende men, Raşid ve Karim, ondan soñ, Agapovnıñ nijniklerinden biri — dört kişi çana üstüne mindik, 
+çünki çelik alatlarğa ve çana üstündeki demir kenetlerge köz-qulaq olıp turmaq kerek.
 
 Apansızdan Krasnânskaya peyda oldı.
 İrada ile çananıñ etrafını dolanıp çıqtı, soñ maşinistlerden birer-birer soradı: draglâynnı yerge tüşürmek mümkünmi-degilmi?
-Sabadan beri yelquvannı ekskavatornıñ kevdesinden qurtarıp aluvnen meşğul maşinistlerden: "mümkün!" cevabını işitken soñ, İradağa, işke başlamaq içün emir bermege ruhset etti.
-Soñ traktorlarnıñ motorları uvuldadı, yipler areketke keldi, signalcılar küçük bayraçıqlarını köterdi... çana yerinden sıcırıp köçti.
+Sabadan berli yelquvannı ekskavatornıñ kevdesinden qurtarıp aluvnen meşğul maşinistlerden: "mümkün!" cevabını eşitken soñ, İradağa, işke başlamaq içün emir bermege ruhset etti.
+Soñ traktorlarnıñ motorları uvuldadı, yipler areketke keldi, 
+signalcılar küçük bayraçıqlarını köterdi... çana yerinden sıcırıp köçti.
 
 Traktorlar, draglâynnı paromnıñ ucuna çekip ketirgen soñ, bir-birinden ayrılıştılar.
 Biri arqadan kelip, çananı üytedi...
 Üytegen soñ, çana paromnıñ üstüne mindi.
-Ustten ekskavator basqan soñ, paromnıñ özü suvğa kömüldi, ekskavatornıñ köpçekleri suv üstünde qaldılar.
+Üstten ekskavator basqan soñ, paromnıñ özü suvğa kömüldi, ekskavatornıñ köpçekleri suv üstünde qaldılar.
 Parom cönedi.
 Biz ekskavator kögertesindemiz.
 Parom de sağğa sallana, de solğa.
@@ -489,7 +491,7 @@ Olar — anda, biz — mındamız.
 — Aşağı egil!
 
 Omuzından tutıp, özüme taba çekmek içün elimni uzatqan edim, parom birden sekirdi... 
-çelik alat ğıçırdadı, çana üstündeki mahas — ağaç demir qamuttan qurtuldı, avada yarım daire yasap, Karimniñ köküsine urdı.
+çelik alat ğıçırdadı, çana üstündeki mahas — ağaç demir qamuttan qurtuldı, avada yarım daire yasap, Karimniñ köksüne urdı.
 Karim başlı-ayaqlı aylanıp, özen astında yoq oldı.
 Bir talaydan suv üstünde peyda oldı, paromğa uzanayata edi...
 suvğa şişken pamuq urbası ve uzun rezina çızmaları onı aşağı tartıp alıp kettiler.
