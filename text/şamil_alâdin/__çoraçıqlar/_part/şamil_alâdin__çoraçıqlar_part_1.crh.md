@@ -459,8 +459,8 @@ Ağaç ayaqnen serbest yürip olamaysıñ, – dedim Yunusqa. – O sebepten, se
 Semirmek kimse içün faydalı degil.
 Bare, qoltuq tayaqnen yürmege alış!
 Qoltuq tayaqlarnen yürmesi yengil!” Yunusnıñ maña kene canı ağırdı.
-“Qoltuq tayaqlarnen de yürip olamayım,sağ qolum cansız kibi,siñirleri ezilgen, qopqan.
-Bu qol değil,аreketsiz sopa parçası.
+“Qoltuq tayaqlarnen de yürip olamayım, sağ qolum cansız kibi, siñirleri ezilgen, qopqan.
+Bu qol değil, аreketsiz sopa parçası.
 İnanmasañ, özüñ de baq... – O, egildi, sol elinen kölmegini çıqarıp, sağ omuzını maña çevirdi.
 Qoltuğı astında mavı renkli eki oyuq kördim...
 Yüregim sıqletlendi.
@@ -478,10 +478,10 @@ Sükünet çoq devam etti.
 Niçün siyrek kelem?
 Bunı nasıl añlatırsıñ?
 “Vaqıt yetişmey, ağa!” dedim men.
-“Vaqıtım yetişmey, deysiñmi?
+“Vaqtım yetişmey, deysiñmi?
 Üsturtqa, Guzarğa ketip, qum sahralarındaki yerteşerler arasında aylarnen yüresiñ... yañ qaytıp keldiñ degende, bir daa yoq olıp ketesiñ!
-Buña vaqıtıñ yetişe de!
-Maña kelip alımnı soramaq içün vaqıtıñ yetişmeymi?” Ne dersiñ buña?
+Buña vaqtıñ yetişe de!
+Maña kelip alımnı soramaq içün vaqtıñ yetişmeymi?” Ne dersiñ buña?
 Bu, elbet de, doğmuşlar arasında daima sezilip kelgen öpkelenüv, öz kişiñni ziyaret içün “vaqıt yoqluğı”.
 “Niçün, ağa?
 Men tap seniñ degeniñ qadar, zekâsız degilim.
@@ -550,7 +550,7 @@ Menim ilki ocam!
 Ve tam bir daimiyetten soñ bu körüşüv!
 Ne qadar hayriyetli vaqia!
 Böyle eyecanlı müitte tüşüncelerim çıbaldı... musafirimden sorap bilmek istegen fikirlerimniñ tertibi bozuldı.
-Balalıq çağımda zeinimde basılı qalğan izler şimdi açıldı, sınıfta ocanıñ bizge qara tahta üzerinde bor ile qıyışlı-qonğırlı, beyaz arifler yazdırğanı ve olarnı, o, ariflerni, büyük meşaqqat ile ecelep oquğanımız hatirime keldi.
+Balalıq çağımda zeinimde basılı qalğan izler şimdi açıldı, sınıfta ocanıñ bizge qara tahta üzerinde bor ile qıyışlı-qıñğırlı, beyaz arifler yazdırğanı ve olarnı, o, ariflerni, büyük meşaqqat ile ecelep oquğanımız hatirime keldi.
 
 – Bizim köyge qaysı yılda kelgen ediñiz, ocam? – dep soradım musafirden. – On sekizdemi?
 
