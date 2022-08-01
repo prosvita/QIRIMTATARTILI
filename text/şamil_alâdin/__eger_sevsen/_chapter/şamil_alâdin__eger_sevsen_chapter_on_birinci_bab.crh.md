@@ -396,7 +396,7 @@ Tek cesürlik kerek.
 Biz kimseniñ yapa bilmegen işini yapmağa kirişeyatamız.
 Buña lâyıq qıymet kesilirmi eken?
 Kişi ömürinde ne qadar çoq hızmet ete, bilesiñizmi?
-Albu ise, bir teşkerilip körülse, çoqusı içki nizam qaidesi mücibi, bu adamnıñ degil de, diger adam yapmağa borclı hızmetni yapqanı añlaşıla.
+Albu ise, bir teşkerilip körülse, çoqusı içki nizam qaidesi mücibi, bu adamnıñ degil de, diger adam yapmağa borclu hızmetni yapqanı añlaşıla.
 Lâkin kişi yapa.
 Em ekseri vaqıt avesliknen yapa.
 
