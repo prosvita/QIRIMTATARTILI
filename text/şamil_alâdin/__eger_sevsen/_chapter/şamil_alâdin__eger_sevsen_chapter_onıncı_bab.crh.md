@@ -403,7 +403,6 @@ Bir talay vaqıt açıq közlerimnen yattım.
 Soñ, qulağımnıñ üstünde Toqtabayevniñ sesi yanğıradı.
 O komendantnen laqırdı etmekte edi.
 Toqtabayev meni hastahanege yollamalarına israr ete, komendant razı degil.
-
 Közlerimni açtım.
 Köterilip, krovat üstünde oturdım.
 
@@ -413,9 +412,7 @@ Toqtabayev közlerini lipildetip maña baqtı.
 
 — Özüñni nasıl is etesiñ? 
 — Yahşı.
-
 — Öyle olsa... isteseñ smenağa çıq!
-
 — Pamuqlı ştan ve bıcaq meselesini çezdik,— dedi komendant ve kürsüge işaret etti.
 
 Kürsüniñ üzerinde yeñi fufayka ve ştan yatmaqta ediler.
@@ -423,10 +420,9 @@ Açıq, yeşil tüslü materialdan... diagonal.
 
 — E! — dedim men.
 — Komandir forması eken de!
-
 — Özüñe lâyığını taptıq,— dedi Toqtabaev ve öksürerek, eñqastan mıyığınıñ ucunı burdı.
-
-— Böylelerden tek yigirmi çift alğan edik, dedi komendant: — anda, kanalda taşlap kelgenleriñni ise...— o terenden köküs keçirdi,— buhgalteriyanen añlaştım, aktnen yoqqa çıqaracaqmız.
+— Böylelerden tek yigirmi çift alğan edik, dedi komendant: — anda, kanalda taşlap kelgenleriñni ise...
+— o terenden köküs keçirdi,— buhgalteriyanen añlaştım, aktnen yoqqa çıqaracaqmız.
 Yazıp-çızıp qoydım.
 Siziñ balalar imza ettiler.
 Ayaq astında taptalğan, çamurğa bılanğan onı endi qaydan tapacaqsıñ?
