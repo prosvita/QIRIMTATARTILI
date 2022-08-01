@@ -215,10 +215,8 @@ Yoqsa, suvuq meni ezgeledimi?
 Yuqsırap başladım.
 Tizlerim zayıfladı, büklene berdiler...
 Büklengen arada arqama suv urdı.
-Tekrar teşikke tayandım.
 
 — E-ey!
-E-ey!
 
 Qıçıra berdim.
 Öyle çoq qıçırdım ki, oña alışıp qaldım.
@@ -226,12 +224,10 @@ Soñundan, ne yapqanımdan haberim bile olmadı: qıçırdımmı, qıçırmadım
 Bir şey bilmedim.
 
 — E-ey!
-E ey!
 
-Üstüme çaqıl töküldi.
+Üstüme çaqıl tüştü.
 
 — E-ey!
-E-ey!
 
 — Ne qıçıra beresiñ şu?
 
