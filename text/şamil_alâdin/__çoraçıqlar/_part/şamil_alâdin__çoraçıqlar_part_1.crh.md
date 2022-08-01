@@ -290,16 +290,16 @@ Cenk meni pek ezdi, pek hırpaladı.
 Alâ onıñ serpindesi altındam.
 Yaralı ayağımnıñ ve sınıq qaburğamnıñ qaytavlı ağrılarınen çekişem.
 
-– Siziñ, ocam, bana ağızıñızdan bir türlü... ne deyim sizge, zevqlı sözçikler çıqtı.
+– Siziñ, ocam, bana ağzıñızdan bir türlü... ne deyim sizge, zevqlı sözçikler çıqtı.
 Çıqtımı... yoqsa, maña öyle eşitildimi?
 Lâkin, bilmeyim, men qulaqtan daa pek zayıf degilim.
 O sözçiklerden soñ tekrar yürekten uruldım.
 Hatirime Yaman Geçti deresi keldi.
-Burunıma kiyik otlarnıñ acayip qoqusı urdı.
+Burnuma kiyik otlarnıñ acayip qoqusı urdı.
 Siz: “aci-güci...” dediñiz!
 Niçün öyle dediñiz, ocam?
 
-Men eminim, bu ibare musafirniñ ağızından tesadufen çıqmadı.
+Men eminim, bu ibare musafirniñ ağzından tesadufen çıqmadı.
 Olarnıñ, o sözlerniñ, efsaneviy manası bar.
 Ama, oca açıqtan-açıq izaat berüvden çekingen kibi sezildi.
 Yengilden yutqundı, köz qapaqlarını aşağı endirdi, hayli vaqıt ayaqlarınıñ uclarına baqıp susıp oturdı.
@@ -309,12 +309,12 @@ Men şay... özüm! – dedi oca, bir talaydan soñ, azaçıq tutuqlanıp.
 Sizni doquz yaşındasıñız belledim.
 Yañıldım.
 Ayıp etmeñiz, men kimerde o yıllardaki vaqialarnıñ özünen yaşayım, – oca yavaş-yavaş açıla başladı. – Siz Memed-Aliniñ qızınen bir ralede otura ediñiz.
-Teneffüsler vaqıtında Emine sizni “aci-güci mandalaç, acınıñ qızını al da qaç!” dep eriştire turğan.
+Teneffüsler vaqtında Emine sizni “aci-güci mandalaç, acınıñ qızını al da qaç!” dep eriştire turğan.
 Hatiriñizdemi?
 Siz bu sözlerni azetmey ediñiz.
 Bir defa, ders vaqıtında, qız qulağıñız altında gizliden: “aci-güci...” dep fısıldağanda...
 Ebet, Emine öyle degende, siz açuvlandıñız, qıznı türttiñiz, rale üstündeki merekep şişesi yuvarlandı, qıznıñ üstüne merekep töküldi.
-Anteri bılaştı.
+Anteri bulaştı.
 Soñra Abdulla emcesi yetişip keldi, meni sögdi.
 Aşaladı.
 Erzaqtan marum etilecegimni ayttı.
@@ -364,7 +364,7 @@ Ve pamuq zavodında içtimaiy hızmet!
 – Arifmemet oca sağmı?
 
 – Ağammı?
-Yoq! – musafir tutulıp-tutulıp nefes aldı. – Cenk vaqıtında ğayıp oldı.
+Yoq! – musafir tutulıp-tutulıp nefes aldı. – Cenk vaqtında ğayıp oldı.
 Evel Qara deñizde “İliç” gemisinde terciman edi.
 Bilseñiz kerek!
 
@@ -409,7 +409,7 @@ Cenk bitkeni çoq vaqıt oldı.
 Duşman ateşinen yaqılğan-yıqılğan şeerler ve köyler artıq yeñiden quruldı.
 Sağ-selâmet, yahut elsiz-ayaqsız, yarıcannen qaytıp kelip, evleriniñ qapuları ögünde toqtalıp, secde etken, bosağanı öpip, soñra içeri atlağan erkeklerniñ endi ölgeni – öldi, qalğanı – qaldı.
 Yaş qocalarından marum kelinler qartaydı.
-Bombalar ceenneminden tesadufen qurtulıp qalğan balalar östi-büyüdi... olarnıñ da balaları oldı.
+Bombalar ceenneminden tesadüfen qurtulıp qalğan balalar östi-büyüdi... olarnıñ da balaları oldı.
 Qartanalar torunlarına qartbabalarınıñ cesürliklerini ikâye eteler.
 Çölde unutılıp qalğan sınıq pülemötlarnı, top arabalarını topraq örtti, üzerlerini ot biyledi.
 Ama adamlarnıñ ağızlarından: “Elâk oldı”, “esir tüşti”, “kontslager...”, “gaz ocağı” sözleri alâ tüşmeyler.
@@ -444,7 +444,7 @@ Sağ qolu eki zeerli qurşun ile ağır yaralanğan.
 Onı Taşkentke ketirdim.
 Ükümet Yunusqa yaşamaq içün şeerniñ merkezinde kvartira ve yengil avtomobil berdi.
 O, bir şeyge ihtiyac sezmey yaşadı.
-“Sen baltanen yasalı ağaç ayaqnen yüresiñ,ükümet saña zavodda yapılğan soyunı berdi,onıñnen niçün yürmeysiñ?” dedim oña bir defa, evini ziyaret etken vaqıtımda.
+“Sen baltanen yasalı ağaç ayaqnen yüresiñ,ükümet saña zavodda yapılğan soyunı berdi,onıñnen niçün yürmeysiñ?” dedim oña bir defa, evini ziyaret etken vaqtımda.
 Yunus sözlerime ıncındı, asabiylendi.
 Men sezdim, onı ıncıtqan şey – menim sözlerim degil.
 Özüniñ müşkül vaziyeti edi.
@@ -452,7 +452,7 @@ Men sezdim, onı ıncıtqan şey – menim sözlerim degil.
 Onı taqmaq içün qasıqta yer olmaq kerek.
 Menimkinde yer yoq.
 Ayağım bütünley kesilip alınğan”.
-Ağam öyle degende, yüregim solqıldadı, közlerim yaşlandı.
+Ağam öyle degende, yüregim solquldadı, közlerim yaşlandı.
 Biraz vaqıt daa keçti, meni Yunusnıñ vaziyeti kene kederlendirdi.
 “Sen, ağa, az areket etesiñ!
 Ağaç ayaqnen serbest yürip olamaysıñ, – dedim Yunusqa. – O sebepten, semiresiñ.
