@@ -211,13 +211,13 @@ Bizge, yeñi akimiyet qurula başlağan devirde kelgen ediñiz, ocam!
 Pek rezaletli devir edi o yıllar!
 
 – Sizge... ebet!
-O vaqıtta epiñiz kiçkene çöçamiyler... ediñiz.
+O vaqıtta epiñiz kiçkene çоçamiyler... ediñiz.
 Kerçek, özüm de esli degil edim.
 Soñra siziñ köyni terk ettim.
 Şeerge, öz evimizge qaytıp keldim.
 Babamız yerindeki Arifmemet ağam darıldı.
 “Niçün keldiñ?
-Özüñe malüm, bizim keçinişimiz de pek ziynetli degil, – dedi maña. – Menim artqaç tamaq baqmağa alım yoq.”
+Özüñe malüm, bizim keçinişimiz de pek ziynetli degil, – dedi maña. – Menim artqaç tamaq baqmağa alım yoq”.
 “Qayttım, çünki başqa çarem olmadı...” dedim men.
 O çoq tüşünip oturdı.
 “Kelmege – keldiñ... ket, Totayköyde oqu!” dedi, niayet.
@@ -237,7 +237,7 @@ Men ocanıñ çalıq, aqıllı sözlerini hoşnutlıqnen diñlemekte olıp, aqı
 
 – Zamet etmeñiz! – dedi maña.
 – Oturıñız, biraz qonuşayıq!
-Menim yarım künlük vaqıtım bar.
+Menim yarım künlük vaqtım bar.
 Gece poyezdinen Şahrihanğa qaytacağım. – Qatiyen razı olmadı.
 Meni yerime oturmağa mecbur etti.
 Özü bir talay sustı.
@@ -274,7 +274,7 @@ Birazdan Fatma qave pişirip ketirdi.
 Oca ile ekimiz hoşnutlıqle içtik.
 Çünki men ilki ocamnı, musafir ise, ilki şakirdini körmekle, tasvirge kelmez alda memnün edik.
 Ocağa, masa üzerindeki almağa buyurmasını rica ettim, o teşekkür bildirdi, almağa bir defa bile toqunmadı.
-Onıñ beñizindeki ifade tosat-tosat deñişti, oturğan yerinde bazan bir yanbaşı üstünden tüşti, digeri üstüne mindi.
+Onıñ beñzindeki ifade tosat-tosat deñişti, oturğan yerinde bazan bir yanbaşı üstünden tüşti, digeri üstüne mindi.
 Közleri çereme bunarlı ve kergin baqtılar.
 Menden bir şeyler soraycaq, belki de bir şeyler üstünde davalaşacaq, ama cesaret etip olamağan kibi köründi.
 
