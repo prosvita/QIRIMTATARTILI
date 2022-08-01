@@ -51,7 +51,7 @@ Ortalıq balavuz qoquy.
 Özüm odanıñ ortasında alçaq kürsü üstünde oturam, ayaqlarımnı ögge uzatıp, televizor baqam.
 Mikis Teodorakiske barışıqnı mühkemlendirüv oğrundaki müim hızmetleri içün Lenin mukâfatı berilgeni beyan etilmekte.
 Quvurçıq saçlı, dedil çereli kişi...
-Yunanistannı almanlar zapt etken devirde özüniñ faşist apishanelerinde çekken ziyetlerini yunanca ve türkçe ikâye ete.
+Yunanistannı almanlar zapt etken devirde özüniñ faşist apishanelerinde çekken еziyetlerini yunanca ve türkçe ikâye ete.
 Men diqqatle diñleyim.
 Teodorakis acayip kompozitor.
 Kilim üzerinde Serovnıñ “Tatar qadınları” buluna.
@@ -190,8 +190,8 @@ Söyleñiz, muallim, bu yaqlarğa nasıl tüştiñiz?
 
 Musafir külümsiredi, sustı.
 Menim ayretli nidalarıma cevap bermege aşıqmadı.
-“Sabur et!Episi hususında tafsilâtlı izaat alırsıñ!” dep tüşüngen kibi sezildi.
-Müçelerini topladı, pekitti, evelâ içinde çalqanğan araretni, zeinindeki fikirlerni tertipke çekti, soñra şamdam üzerindeki çıraqlarnıñ lipildegen yarığını eslep, ayretle közetti, indemedi.
+“Sabır et! Episi hususında tafsilâtlı izaat alırsıñ!” dep tüşüngen kibi sezildi.
+Müçelerini topladı, pekitti, evelâ içinde çalqanğan araretni, zeinindeki fikirlerni tertipke çekti, soñra şamdan üzerindeki çıraqlarnıñ lipildegen yarığını eslep, ayretle közetti, indemedi.
 Asılında ev içinde iç bir şeyniñ maiyetine itibar bermedi.
 Menim sözlerimni de eşitmedi.
 O tüşündi.
