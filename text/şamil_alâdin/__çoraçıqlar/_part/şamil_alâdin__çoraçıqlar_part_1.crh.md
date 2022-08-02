@@ -299,7 +299,7 @@ Burnuma kiyik otlarnıñ acayip qoqusı urdı.
 Siz: “aci-güci...” dediñiz!
 Niçün öyle dediñiz, ocam?
 
-Men eminim, bu ibare musafirniñ ağzından tesadufen çıqmadı.
+Men eminim, bu ibare musafirniñ ağzından tesadüfen çıqmadı.
 Olarnıñ, o sözlerniñ, efsaneviy manası bar.
 Ama, oca açıqtan-açıq izaat berüvden çekingen kibi sezildi.
 Yengilden yutqundı, köz qapaqlarını aşağı endirdi, hayli vaqıt ayaqlarınıñ uclarına baqıp susıp oturdı.
@@ -312,7 +312,7 @@ Ayıp etmeñiz, men kimerde o yıllardaki vaqialarnıñ özünen yaşayım, – 
 Teneffüsler vaqtında Emine sizni “aci-güci mandalaç, acınıñ qızını al da qaç!” dep eriştire turğan.
 Hatiriñizdemi?
 Siz bu sözlerni azetmey ediñiz.
-Bir defa, ders vaqıtında, qız qulağıñız altında gizliden: “aci-güci...” dep fısıldağanda...
+Bir defa, ders vaqtında, qız qulağıñız altında gizliden: “aci-güci...” dep fısıldağanda...
 Ebet, Emine öyle degende, siz açuvlandıñız, qıznı türttiñiz, rale üstündeki merekep şişesi yuvarlandı, qıznıñ üstüne merekep töküldi.
 Anteri bulaştı.
 Soñra Abdulla emcesi yetişip keldi, meni sögdi.
@@ -320,7 +320,7 @@ Aşaladı.
 Erzaqtan marum etilecegimni ayttı.
 
 – Rica etem, sizge, ocam!
-Menimnen “siz” dep qonuşmañız! – dedim musafirge. – “Sen” deñiz!“Siz” deseñiz, pek azaplanam!
+Menimnen “siz” dep qonuşmañız! – dedim musafirge. – “Sen” deñiz! “Siz” deseñiz, pek azaplanam!
 
 Oca evelâ menim sözlerimniñ manasını añlamadı... añlağan soñ özüni sıqıntılı vaziyette is etti.
 Yüzü qızardı.
@@ -392,7 +392,7 @@ Tatamnıñ oğlu Bilâl... cenkte öldi.
 Cenk ocanıñ başına esapsız felâketler ketirgen.
 Eñ üyken ağası Amet de... birinci cian muarebesinden qaytıp kelmegen edi.
 Ocadan büyügi, yüksek qıyafetli Asannı Bağçasarayda daima eki atlı lelenka üstünde köre edim.
-Müessiselerniñ birinde hocalıq işlerinen meşğul edi.
+Müessiselerniñ birinde hocalıq işlerinen meşğül edi.
 Şimdi o da ayatta yoq.
 
 Ocanıñ doğmuşlarınıñ episiniñ taqdirlerini sorap bildim.
@@ -444,7 +444,7 @@ Sağ qolu eki zeerli qurşun ile ağır yaralanğan.
 Onı Taşkentke ketirdim.
 Ükümet Yunusqa yaşamaq içün şeerniñ merkezinde kvartira ve yengil avtomobil berdi.
 O, bir şeyge ihtiyac sezmey yaşadı.
-“Sen baltanen yasalı ağaç ayaqnen yüresiñ,ükümet saña zavodda yapılğan soyunı berdi,onıñnen niçün yürmeysiñ?” dedim oña bir defa, evini ziyaret etken vaqtımda.
+“Sen baltanen yasalı ağaç ayaqnen yüresiñ, ükümet saña zavodda yapılğan soyunı berdi, onıñnen niçün yürmeysiñ?” dedim oña bir defa, evini ziyaret etken vaqtımda.
 Yunus sözlerime ıncındı, asabiylendi.
 Men sezdim, onı ıncıtqan şey – menim sözlerim degil.
 Özüniñ müşkül vaziyeti edi.
@@ -614,7 +614,7 @@ Bizlerge oqumaq, insan olmaq içün uquq berdi, – dedi Bayburtlı, – fuqare 
 Tatar ebediyen cail qalacaqmı?
 Çoq tüşünmege acet yoq.
 Ket, köyde bir talay çalış!
-Biz bu mektepte, köy mektepleri içün acele sürette ocalar azırlav işinen meşğulmiz.
+Biz bu mektepte, köy mektepleri içün acele sürette ocalar azırlav işinen meşğülmiz.
 Olar oquvnı bitirseler, çar-çapik volostlarğa ketecek, fuqare balalarını oqutacaqlar.
 O vaqıtta, isteseñ, seni çağırtıp alırmız”.
 
@@ -625,7 +625,7 @@ Razı oldım.
 Çünki ocalıqqa aves edim.
 Evge barıp, anam ile sağlıqlaştım.
 O, menim daa bala qıyafetime baqıp, coştı, ağlamsıradı.
-Evden çıqayatqanda qoluma ufaq boğça tuttırdı... “Ma, oğlum!
+Evden çıqayatqanda qoluma ufaq boğça tutturdı... “Ma, oğlum!
 Kölmek, çorap... yüzbez.
 Saña kerek olur!” dedi.
 Men lelenkağa oturıp, Mahuldürge kettim.
