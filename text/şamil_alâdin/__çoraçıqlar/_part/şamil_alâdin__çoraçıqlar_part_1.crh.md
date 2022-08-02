@@ -173,9 +173,9 @@ Oña ne “bir filcan qave”, ne de eki ihtiyar kişi arasında olacaq qonuşma
 Selâmetniñ dünyası başqa.
 Selâmet gidrogeolog.
 O, Çarvaqnı qurğan.
-Şimdi bent divarlarını pekitüvniñ yeñi usulınen meşğul.
+Şimdi bent divarlarını pekitüvniñ yeñi usulınen meşğül.
 
-Men ocanıñ bağırına atıldım, o meni quçaqladı.
+Men ocanıñ bağrına atıldım, o meni quçaqladı.
 Men onıñ alını-evalını, o menimkini, soraştıq.
 Men, sevinip, onıñ arqasını eki qolumnen, eki yaqlap taptadım, o da menimkini.
 Men, şaşmalap, onıñ sağ qulağınıñ kenarından öptim, o mañlayını menim yanağıma tayap, kevdesinen köküsime sıyıqtı.
@@ -199,7 +199,7 @@ O tüşündi.
 Hayli vaqıt böyle sükünet ve tüşünce içinde keçken soñ, musafir etli közqapaqlarını maña köterdi.
 
 – Barlığı-yoqluğı bellisiz adamnıñ ancaq bugün apansızdan kelüvi, elbet de... – ocanıñ lafı bu yerde üzüldi.
-O, boyunını ögge uzatıp, qaç defa yutqundı, soñra devam etti: – Elbet de, böyle ziyaret iç bir tasavurğa sığmay.
+O, boynunı ögge uzatıp, qaç defa yutqundı, soñra devam etti: – Elbet de, böyle ziyaret iç bir tasavurğa sığmay.
 Ama meni tanıycağıñızğa iç de emin degil edim.
 
 – Ümütsizden kelüviñizde, men, aksine, bir ilâ-ilik körem.
