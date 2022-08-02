@@ -486,18 +486,19 @@ Keniş yel başladı.
 Endi İra ile yan-yanaşa yürmek mümkün.
 O toqtaldı... közleri menim közlerime doğruldılar.
 
-— Sizni ğaip ettim dep qorqtım,— dedi o, ve bir azdan soñ ilâve etti: — külecegim kele... bizim yaqlarda, çölde kervan yürgende, eñ arqadaki deveniñ boynuna çañ taqalar.
+— Sizni ğaip ettim dep qorqtım, — dedi o, ve bir azdan soñ ilâve etti: — külecegim kele... bizim yaqlarda, çölde kervan yürgende, eñ arqadaki deveniñ boynuna çañ taqalar.
 Ögde yetekçi deveniñ üstündeki kişi diñlene bere, arttan çañ sesi işitilemi, demek, kervannıñ işi sırasında.
 Çañnıñ sesi işitilmese... kervanda fena iş oldı.
 Men de öyle... yürem-yürem, soñra toqtalıp, diñlenem.
 Şporlarıñıznıñ davuşı çıqamı?
-Demek, menim cansaqlarım keleyata. — İra, özüni tutalmay, şaqıldap küldi.
+Demek, menim cansaqlarım keleyata. 
+— İra, özüni tutalmay, şaqıldap küldi.
 
 "Deve" degeni içün maña açuvlanmaq kerekmi edi?
 Bilmeyim.
 Men de küldim.
 
-— Bilesiñmi, İra,— dedim soñra,— men, aqiqaten, atlı asker qıtasında hızmet ettim.
+— Bilesiñmi, İra, — dedim soñra, — men, aqiqaten, atlı asker qıtasında hızmet ettim.
 Anda maña daima eskandron komandiriniñ artından yürmekni ögrettiler.
 
 Qıznıñ çeresi deñişti.
