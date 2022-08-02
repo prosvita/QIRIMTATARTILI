@@ -475,7 +475,7 @@ Yer yüzünde ayat asıl olğandan berli içtimaiy qurum qaç defa deñişti... 
 Yoq, o meni beklemekte edi.
 
 — Sizni atlı askerden keldi, dediler.
-Şimdi buña emin oldım,— dedi qız ve ilekârane külümsiredi, soñ yoluna devam etti.
+Şimdi buña emin oldım, — dedi qız ve ilekârane külümsiredi, soñ yoluna devam etti.
 
 Onıñ artından beş daqiqa indemey yurdim.
 Cevap bermek içün sözler qıdırdım.
