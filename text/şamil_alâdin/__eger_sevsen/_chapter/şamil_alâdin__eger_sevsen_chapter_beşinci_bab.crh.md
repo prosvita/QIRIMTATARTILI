@@ -444,9 +444,9 @@ Bizim baracaq qışlağımız sol yalıda, qayalar astında edi.
 Sotsialist şeerçikni evelâ Hazar Kendde qurmaq istep, anda bir qaç umumiy barak yasağanlar.
 Şimdi olarnıñ birinde ekskavator maşinistleri ve dalğıcılar mektebi, digerinde ise tehnika donatması buluna.
 
-Bizim barak yanından keçeyatqan maalimizde, İradan afu istey, içeri kirdim, üstümdeki fufaykanı çıqarıp, şinelimni kiydim, portupeyli qu-şağımnı bağladım, furajkamnı alıp, çıqtım.
+Bizim barak yanından keçeyatqan maalimizde, İradan afu istey, içeri kirdim, üstümdeki fufaykanı çıqarıp, şinelimni kiydim, portupeyli quşağımnı bağladım, furajkamnı alıp, çıqtım.
 
-— Tez oluñız, Bekirov! — dep qıçırdı injener,— vaqıt az qaldı.
+— Tez oluñız, Bekirov! — dep qıçırdı injener, — vaqıt az qaldı.
 
 Qız, çalılar arasındaki, tar soqaq boyu yuqarı cönedi.
 Men onıñ peşine tüştim.
