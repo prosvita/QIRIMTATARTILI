@@ -584,13 +584,13 @@ Ama köyüñiz hususında hatirimde qalğan bazı adiseler tarihiy emiyetten mar
 Men özüm, Selâmet oğlu Abdureşid, bu şiddetli, furtunalı yeñi asırnıñ birinci yılında Bağçasarayda ruhaniy qorantada doğdım.
 Babam Selâmet efendi Arslan-ağa maallesindeki mektepniñ ocası edi.
 O, Cemiyet-i Hayriye yardımınen yeñi mektep binası yasatıp, özü şu mektepniñ müdiri oldı.
-Hatiriñizde olsun ki, soñundan şuralar akimiyeti devirinde medeniyet saasında belli-başlı erbaplar olıp yetişken Osman Zeki, Ümer İpçi, Yaqub ve Fevzi Musanifler, Üsein Penerci, Abdulla, Seit-Ümer, Yaqub Kürkçiler bu mektepte okudılar.
+Hatiriñizde olsun ki, soñundan şuralar akimiyeti devrinde medeniyet saasında belli-başlı erbaplar olıp yetişken Osman Zeki, Ümer İpçi, Yaqub ve Fevzi Musanifler, Üsein Penerci, Abdulla, Seit-Ümer, Yaqub Kürkçiler bu mektepte oqudılar.
 Yaqub Şakir-Ali mında muallimlerniñ birisi edi.
 Birinci cian muarebesi başlağan yılı babam vefat etti.
 O sebepten ailemizniñ vaziyeti ağırlaştı, men Salaçıqta halama kettim, onıñ evinde yaşadım.
 Eki yıl dayımnıñ baqqal tükânında kâyalıq yaptım.
 Evimizde işler tekaran çığırına mingen soñ, tekrar şeerniñ özüne qaytıp, Darülmualliminde oqudım.
-Yaz tatilleri vaqıtında ırğatlıq etip, aqça qazanıp, darülmualliminde oquvım içün yılda altmış kümüş töledim.
+Yaz tatilleri vaqtında ırğatlıq etip, aqça qazanıp, darülmualliminde oquvım içün yılda altmış kümüş töledim.
 
 1920 senesi noyabr 14-te şeer Vrangel askeriy küçlerinden azat etildi.
 Şuralar akimiyeti qurulğanı on altı kün degende, Mahuldür muallimi İsmail Aqqiy efendi Asan oğlu, şu köylü İbraim ağanıñ lelenkasına oturıp, ekisi oca qıdırıp Bağçasarayğa kelgenler.
@@ -608,7 +608,7 @@ Yaşım on doquzda.
 Menden oca olurmı?” dep tüşündim.
 Lâkin Yaya Naci şeerimizde pek müteber kişi, onıñ teklifine itiraz etmek mümkün degil.
 Yaya Naci ve Arifmemet ağam meni ayarta başladılar.
-“Padişa devirinde halqımız insanlıq uqquından marum edi.
+“Padişa devirinde halqımız insanlıq uquğından marum edi.
 Endi emekçi halqlar beklegen akimiyet keldi.
 Bizlerge oqumaq, insan olmaq içün uquq berdi, – dedi Bayburtlı, – fuqare köylü balalarını sen oqutmasañ, men oqutmasam, Arifmemet ağañ oqutmasa, kim oqutacaq?
 Tatar ebediyen cail qalacaqmı?
@@ -647,7 +647,7 @@ Biz lelenka üstündemiz.
 Üstümde urbam yufqa.
 Ayaqlarım üşüy... indemeyim.
 Betim, ğaliba, mos-mor.
-İbraim ağa (bu adamğa, qaza neticesinde bir közü zararlanğanı üçün, köyde Kör İbram dey ediler) yavaştan arqasına aylanıp baqa, menim alımnı seze.
+İbraim ağa (bu adamğa, qaza neticesinde bir közü zararlanğanı içün, köyde Kör İbram dey ediler) yavaştan arqasına aylanıp baqa, menim alımnı seze.
 “Atlar aqırın yüreler, sekir tüş yerge!
 Biraz cayav yür!” dey maña.
 Men, acemiyligim içün, İsmail efendiden utanıp, yerge tüşüvden red etem.
@@ -806,7 +806,7 @@ Ne qadar?
 Nasıl?
 İstiqbal kösterecek!
 
-Tabiatnıñ mücizeliligine ayretlenip, baqıp turğan vaqıtımda İbram ağa lelenkanı yol boyu aşağı aydap ketti, soñra iri azbarğa kirdi, atlarnı tuvardı, ahırğa qapadı.
+Tabiatnıñ mücizeliligine ayretlenip, baqıp turğan vaqtımda İbram ağa lelenkanı yol boyu aşağı aydap ketti, soñra iri azbarğa kirdi, atlarnı tuvardı, ahırğa qapadı.
 Men episini kördim, eşittim.
 Ondan soñ taş basamaqlı tik merdiven boyu yolğa, menim yanıma çıqtı.
 
@@ -960,7 +960,7 @@ Men sınıf defterini alıp (defterni özümnen almağa aqılım yetkenine soñu
 Ders hanege kirdik.
 Müdir, bizni ürmet ile ayaqqa qalqqan talebelerni, eliniñ areketinen yerlerine oturttı, meni olarğa taqdim etti.
 “Bugünden itibaren sizlerniñ, yani birinci ve ekinci sınıflarnıñ, ocası Abdureşid efendi... – dedi müdir.
-Talebeler derslerge vaqıtında kelip – vaqıtında ketmek, yeñi ocanı sevmek-saymaq, sözüni tutmaq kerekligini, til qaytarmaq, ders vaqıtında sınıftan çıqmaq, biri-birinen laqırdı etmek yasaq ekenini, nizamğa tabi olmağanlar ceza köreceklerini añlatıp, balalarnıñ ve menim işlerimizde muvafaqiyet istep, ders haneden çıqtı.
+Talebeler derslerge vaqıtında kelip – vaqtında ketmek, yeñi ocanı sevmek-saymaq, sözüni tutmaq kerekligini, til qaytarmaq, ders vaqtında sınıftan çıqmaq, biri-birinen laqırdı etmek yasaq ekenini, nizamğa tabi olmağanlar ceza köreceklerini añlatıp, balalarnıñ ve menim işlerimizde muvafaqiyet istep, ders haneden çıqtı.
 
 Müdir ketken soñ men yazı tahtası ögüne keldim, yüzümni talebelerge çevirip, sınıf defterini masa üzerine qoydım: “Selâm aleykim, qıymetli talebeler! – dedim balalarğa.
 Birinci ve ekinci sınıflarda talebelerge böyle muracaat, ocalıq ameliyatında körülgen şeymi, bilmeyim.
@@ -968,7 +968,7 @@ Maña: “birinci dersiñni böyle sözlernen başlarsıñ” dep kimse aytqanı
 Bu öz teşebbüsim sayesinde doğğan ilki ocalıq usulım.
 Talebeler menim selâmıma qarşılıq olaraq: “aleykim selâm, ürmetli muallimimiz Abdureşid efendi!” dep, bir ağızdan cevap berdiler.
 Yoq... doğrusını aytsam, episi bir ağızdan olıp çıqmadı.
-Talebelerniñ bir qısımı sözlerni ötkür, açıq-aydın söyledi, bir qısımınıñ davuşı tınıq, mecalsız eşitildi.
+Talebelerniñ bir qısımı sözlerni ötkür, açıq-aydın söyledi, bir qısmınıñ davuşı tınıq, mecalsız eşitildi.
 Nasıl da olsa, balalar menim kendilerine muracaatımnıñ asıl manasını doğru añlağanlarından ve, episi olmasa da, ekseriy sözlerni doğru ve açıq söylegenlerinden memnün qaldım.
 Lâkin balalar ocanıñ selâmına böyle nezaketli cevap berilmek kerekligini qaydan bildiler?
 Bunı olarğa kim ögretti? – Men sizge ana tilimizde oqumağa ve yazmağa ögretecegim.
