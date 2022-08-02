@@ -504,7 +504,8 @@ Anda maña daima eskandron komandiriniñ artından yürmekni ögrettiler.
 Qıznıñ çeresi deñişti.
 Sözlerimni begendi, ğaliba.
 
-— Meni de eskadron komandiri bellediñizmi? — dep soradı o. — Beñzeyimmi?
+— Meni de eskadron komandiri bellediñizmi? — dep soradı o. 
+— Beñzeyimmi?
 
 — Er alda, geceleri, bizim qardaş kibi, rels... şpal taşığanlardan degilsiñiz.
 
