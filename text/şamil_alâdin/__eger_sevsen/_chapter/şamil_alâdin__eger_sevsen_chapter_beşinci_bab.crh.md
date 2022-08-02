@@ -513,12 +513,15 @@ Biz endi keniş ve tüz yel boyu yan-yanaşa adımlamaqta edik.
 Kenardan maña onıñ betiniñ bir yaqı körüne.
 Qaşı gür, yanağı topaç et yapıştırılğan kibi tığız, qıp-qırmızı.
 
-— Çar-Çaqqa kelgeniñiz çoqtanmı? — tınç davuşnen soradı qız,— Gece sizni birinci defa kördim.
+— Çar-Çaqqa kelgeniñiz çoqtanmı? — tınç davuşnen soradı qız.
+— Gece sizni birinci defa kördim.
 Qaydan keldiñiz?
 
-— Uzaqtan! — dedim men. — Pek uzaqtan, İra!
+— Uzaqtan! — dedim men. 
+— Pek uzaqtan, İra!
 
-— Menim adım İrada! — dedi qız ve közlerime azaçıq darğın kibi baqtı. — Sizde böyle ad barmı?
+— Menim adım İrada! — dedi qız ve közlerime azaçıq darğın kibi baqtı. 
+— Sizde böyle ad barmı?
 
 — İrade, degen söz bar, amma ad işitmedim.
 Menim doğıp ösken köyimizde Edaye degen qız bar edi.
