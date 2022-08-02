@@ -420,7 +420,7 @@ Saatına baqtı, közüniñ üstüne tüşken bir top saçını yavluğınıñ a
 — Yuqlap?
 E-elbette!
 
-— Sizge bir hızmet... 
+— Sizge bir hızmet...
 Baş üstünde...— dedim men.
 Azaçıq külümsiredim.
 
