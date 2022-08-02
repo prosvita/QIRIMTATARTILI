@@ -377,14 +377,17 @@ Er kes yoruldı.
 Bezdi.
 İşçilerniñ sizge canları ağıra.
 
-— Salı künü peç yaqılacaq,— dedi kömendant,— Canları niçün maña ağıra?
+— Salı künü peç yaqılacaq, — dedi kömendant.
+— Canları niçün maña ağıra?
 Niçün kommunhozğa ağırmay?
 Qapunıñ ögünde tsementten basamaqlar yasap beriñiz, dedim.
 Red etti.
 Şimdi canları ağıramı?
 
-— Salı künü? — İra qanaatsız alda qaytarıp soradı,— İskanderge dört kün daa qatnaycaqmız.
-Öylemi? — Furunnıñ açıluvını qaldıra bergeniñiz — bu üçünci defa.
+— Salı künü? — İra qanaatsız alda qaytarıp soradı,
+— İskanderge dört kün daa qatnaycaqmız.
+Öylemi? 
+— Furunnıñ açıluvını qaldıra bergeniñiz — bu üçünci defa.
 Sizge "Yengil kavaleriya" nı yollamaq kerek...
 
 İranıñ "kavaleriyası" iç komendantnıñ keyfini bozar bellemegen edim.
