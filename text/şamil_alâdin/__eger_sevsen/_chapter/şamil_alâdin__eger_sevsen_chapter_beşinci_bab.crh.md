@@ -403,11 +403,14 @@ Material qayda?
 
 Komendnant yüregindeki derdini birden tökti.
 Bu, sögünç ve darğınlıq degil, bu — smena injeneri ögünde özüniñ çıqımsızlığını aqlav içün ıntıluv edi.
-Eger bu hususta "Molniya" çıqsa, işçiler komendantnıñ canını yaqacaqlar: "Vay-vay, Petâ emce!
-Bizge bayat ötmek ne qadar vaqıt daa aşatacaqsıñız?" — dep, gece-kündüz peşinden yürecekler.
+Eger bu hususta "Molniya" çıqsa, işçiler komendantnıñ canını yaqacaqlar: 
+"Vay-vay, Petâ emce!
+Bizge bayat ötmek ne qadar vaqıt daa aşatacaqsıñız?" 
+— dep, gece-kündüz peşinden yürecekler.
 
 — Öyle olsa... yahşı! — dedi komendant.
-Gürdeli sözleri İranı qandırdı bellep, birden yımşadı,— Bazar künü peçke ötmek qoyıp baqayıq... nasıl olur eken?
+Gürdeli sözleri İranı qandırdı bellep, birden yımşadı.
+— Bazar künü peçke ötmek qoyıp baqayıq... nasıl olur eken?
 
 İra indemedi.
 Saatına baqtı, közüniñ üstüne tüşken bir top saçını yavluğınıñ astına cıyıştırğan soñ, maña çevirildi.
