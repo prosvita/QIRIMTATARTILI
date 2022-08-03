@@ -332,7 +332,7 @@ Partiyağa ğayet sadıq kişi.
 
 Toqtabayev tekrar qapunı açtı.
 
-— Biraz ava kirsin,— dedi o,— ocaq tütep başladı.
+— Biraz ava kirsin, — dedi o, — ocaq tütep başladı.
 Uçurumnı köresiñmi? — közleriniñ areketinen yalını kösterdi,— qırq ayaq... meni andan alıp çıqqan ediler.
 Niçün qırq ayaq?
 Çünki özenniñ yalısı ketken sayın yüksele, sırımlar açıla bere.
@@ -359,7 +359,7 @@ Toqtabayev saatine baqtı, çeresi deral deñişip ketti.
 — Ketmek kerek.
 Yoqsa, ortağa kene "bülleten" kelip kirer.
 Sen de ket!
-Menim aytqan şeylerimni arqadaşla-rıña añlat!
+Menim aytqan şeylerimni arqadaşlarıña añlat!
 
 O kepkasını kiydi, bosağadan tışarı atlayım degende, artına aylandı.
 
