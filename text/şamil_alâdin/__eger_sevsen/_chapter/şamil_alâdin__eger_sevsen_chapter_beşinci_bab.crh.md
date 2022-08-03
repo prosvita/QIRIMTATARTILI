@@ -568,7 +568,8 @@ Yazda tatil vaqıtında bardım, köyde yoq edi.
 Çöl bette yaşağan doğmuşı kelip alıp ketken...
 Qımıznen tedaviy etmek istegenler.
 
-— Bu ilki sevgiñiz edimi? — İrada qalbimdeki eecannı sezdi. — Vaqinaı öyle ikâye ettiñiz ki, güya episi keçip ketken.
+— Bu ilki sevgiñiz edimi? — İrada qalbimdeki eecannı sezdi. 
+— Vaqinaı öyle ikâye ettiñiz ki, güya episi keçip ketken.
 
 Men kederli külümsiredim ve İradanıñ şübeli fikirini tasdıq ettim.
 
