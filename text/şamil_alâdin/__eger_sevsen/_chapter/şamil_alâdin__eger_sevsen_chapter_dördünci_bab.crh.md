@@ -247,7 +247,9 @@ Vatandaşlar muarebesi devrinde... ana komsomol qayda edi!
 Aç, çıplaq, üstünde yırtıq şinel, özü ep ögge yuvura edi.
 Şimdi yaşlar çeşit şeyler uydurıp çıqaralar.
 "Yengil kavaleriya", "Reyd brigadası", bilmem daa neler.
-Bu saña, eliñde vintovka, duşmanğa ücümge yuvuruvğa beñzemey, qardaş! — Toqtabaev elini cebine soqtı, kisesini çıqarıp, sigar yasay boşladı. — Şimdi, elbette, devir başqa.
+Bu saña, eliñde vintovka, duşmanğa ücümge yuvuruvğa beñzemey, qardaş! 
+— Toqtabaev elini cebine soqtı, kisesini çıqarıp, sigar yasay boşladı. 
+— Şimdi, elbette, devir başqa.
 
 O vaqıtta Toqtabayevnen olğan subetni şimdi hatrime ketirsem, taaciplenem.
 
