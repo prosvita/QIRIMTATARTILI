@@ -64,10 +64,11 @@ Polkta ekende divar gazetasında çalışqan, maqalelerni temizge çekken edim.
 İşitkenmi aceba?
 Belki meni sınamaq isteydir?
 
-Başlañız! — O, qısqa teri paltosınıñ cebinden küçük fırçı ve üstünde bir şeyler yazılı kâğıt çıqarıp, maña berdi.
+Başlañız! 
+— O, qısqa teri paltosınıñ cebinden küçük fırçı ve üstünde bir şeyler yazılı kâğıt çıqarıp, maña berdi.
 
 — E!
-Yazıñız acaip eken de! — dedi İra, yazayatqanımnı körip,— siz bizim içün hazinesiñiz!
+Yazıñız acaip eken de! — dedi İra, yazayatqanımnı körip, — siz bizim içün hazinesiñiz!
 Haberiñiz barmı?
 
 Tezden "Yengil kavaleriya" bülleteni azır oldı.
