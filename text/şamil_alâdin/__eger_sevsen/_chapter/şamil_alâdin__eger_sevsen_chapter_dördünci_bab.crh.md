@@ -160,7 +160,9 @@ Siz bizim yerimizni tutacaq yaş nesilsiñiz!
 
 — Yuriñiz kettik! — dedi maña İra, yerinden qalqıp.
 
-— Yoq, Bekirov mında qalsın. — Toqtabayev maña kürsüni körsetti: — Oturıñız!
+— Yoq, Bekirov mında qalsın. 
+— Toqtabayev maña kürsüni körsetti: 
+— Oturıñız!
 
 İra meni qorçalar belledim, lâkin indemey, çıqıp ketti.
 Azaçıq canım ağırdı.
@@ -171,11 +173,12 @@ Toqtabayev şimdi meni tınçıqtırmağa azırlanayata.
 — Sen ne?
 Kerçekten de atlı askerde hızmet ettiñmi? — dep soradı Toqtabayev.
 
-Men başımnı qaqıttım. — "Ebet!"
+Men başımnı qaqıttım. 
+— "Ebet!"
 
 — Demek, şay! — qart mehanik hayli vaqıt susıp turdı.
 
-— Menim qardaşım da atlı askerde,— dedi soñ,— rastelişmediñizmi?
+— Menim qardaşım da atlı askerde, — dedi soñ, — rastelişmediñizmi?
 Toqtabayev.
 Adı Madamin.
 
