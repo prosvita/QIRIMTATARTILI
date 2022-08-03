@@ -345,7 +345,9 @@ Güzel...
 Ekincisinde yıqıldım.
 Aşağıda, aylanma kanalnıñ bitken yerinde, aqıntı biraz sakince, yalı yüksek degil.
 Amma mında pek deşetli.
-Özüñ ayt, plotinanı qayda qurmaq mümkün? — Toqtabayev parmağınen ögündeki avanı türtip körsetti: — Mında!
+Özüñ ayt, plotinanı qayda qurmaq mümkün? 
+— Toqtabayev parmağınen ögündeki avanı türtip körsetti: 
+— Mında!
 Tek bu yerde!
 Geologlar zevqlı kişiler.
 Plotina qırqayaqnıñ yanında olmaq kerek dediler.
