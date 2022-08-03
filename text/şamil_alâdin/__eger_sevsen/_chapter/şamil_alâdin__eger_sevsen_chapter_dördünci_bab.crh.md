@@ -292,7 +292,7 @@ Perokoptakinden küçlü.
 
 Toqtabayev artqa-ögge yürer eken, birden toqtaldı, quşağı astından küçük şişeçik çıqarıp, tiliniñ astına nas qoydı.
 
-— Men anda cenk ettim...— dedi o,— aysa!
+— Men anda cenk ettim... — dedi o, — aysa!
 Qızıl bayraq ordenim de bar.
 Ordenim bar, lâkin taqmayım, çünki maqtanğan adetim yoq.
 Er alda ondoquzıncı seneden berli partiya azasım.
