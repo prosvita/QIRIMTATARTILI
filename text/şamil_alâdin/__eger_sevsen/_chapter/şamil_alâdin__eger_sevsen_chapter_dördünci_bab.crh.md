@@ -116,19 +116,22 @@ Kepkasını çıqarıp, astarına yüzündeki ve boynundaki terini sildi.
 
 Yandım, piştim...— stolnıñ yanından keçeyatqanda, közlerine bülleten çalındı.
 Toqtaldı, oqup baqtı,— birincide, eki saat degil, bir saat...— dedi o, ökünçli davuşnen.
-Astındaki imzalarnı körgen soñ, esini ğaip ete yazdı,— Bekirov? — Yalq etip betime baqtı: — Sizsiñizmi?
+Astındaki imzalarnı körgen soñ, esini ğaip ete yazdı, — Bekirov?
+— Yalq etip betime baqtı: 
+— Sizsiñizmi?
 Zevqlı şey!
 Kelir-kelmez, yengil kavaleriya oldıñızmı?
 
 — Atlı asker olğan soñ... ne yapacaq?
 İra asıl da keyfini bozmadı.
 Küle berdi.
-Niçüd küle berdi?
+Niçün küle berdi?
 Añlap olamadım.
 Menim şporlarımnı mısqıllapmı?
 Toqtabayevniñ sözlerini mantıqsız tanıpmı?
 
-— Barsın, öyle olsun! — dedi Toqtabayev — Öz-özüni tenqid yahşı şey.
+— Barsın, öyle olsun! — dedi Toqtabayev.
+— Öz-özüni tenqid yahşı şey.
 Partiyanı temizlev komissiyasınıñ reisi olğan vaqıtımda özüm de tenqid etken edim.
 
 Toqtabayev darıldı, lâkin sezdirmek istemedi.
@@ -141,7 +144,7 @@ Kimse özüni sıqmay.
 De şifer yoq, de tahta yoq... de adam yoq.
 
 — Bunı sizge partkom avale etkenge beñzey...
-Siz ise bizge, komsomolğa yüklemek isteysiñizmi? — dedi İra, öpkelenip,— hucursıñız, Mavlân aka!
+Siz ise bizge, komsomolğa yüklemek isteysiñizmi? — dedi İra, öpkelenip, — hucursıñız, Mavlân aka!
 Bizim qolumızdan ne kelecek?
 Bir şey de...
 Aydı, teşkerip baqayıq, soñ?
