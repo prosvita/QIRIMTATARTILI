@@ -90,7 +90,8 @@ Men tabi oldım.
 Kâğıtnıñ astına familiyamnı yazdım.
 
 — Ne?
-Ne? — dep soradı İra. — Bekirov?
+Ne? — dep soradı İra. 
+— Bekirov?
 Tanış familiyağa beñzey.
 Qaydan keldiñiz?
 
