@@ -213,7 +213,7 @@ Bir qısımında ecnebiy memleket mütehassısları, diger qısımında — biz 
 Toqtabayev qapunı qapattı, soñ çöyün ocaq yanına kelip, qatranlı ellerini qızdırmağa tutundı.
 
 — Sen otur.
-Men şimdi saña episini añlatırım,— dedi o,— mında ilki partkomnıñ sekretarı kim edi?
+Men şimdi saña episini añlatırım, — dedi o, — mında ilki partkomnıñ sekretarı kim edi?
 Men edim.
 Dnepr qurucılığında Toqtabayevnıñ mına böyle... balaban sureti asılı tura edi.
 Ekskavatorcı edim.
@@ -227,10 +227,14 @@ Sanayı meselesinde pek ğarip: araba, eşek, çigir, ketmen...
 Maşina qayda?
 Biñ sene evel, on biñ sene evel adamlar topraqnı tıpqı böyle qazğan, böyle saçqanlar.
 Afrikadaki kibi.
-Bizge qışlaq ealisini — episini işçi sınıfı etrafına birleştirmek kerek Nasıl?
-Olarğa traktor ve elektrik küçü berüv yolınen.— Toqtabayev bu yerde toqtaldı, nelerdir tüşüngen kibi oldı, soñ başını doğrulttı: — seniñnen kimse musaabe yapmadımı?
+Bizge qışlaq ealisini — episini işçi sınıfı etrafına birleştirmek kerek. 
+Nasıl?
+Olarğa traktor ve elektrik küçü berüv yolınen.
+— Toqtabayev bu yerde toqtaldı, nelerdir tüşüngen kibi oldı, soñ başını doğrulttı: 
+— seniñnen kimse musaabe yapmadımı?
 
-Men başımnı köndelenden salladım. — "Yoq!"
+Men başımnı köndelenden salladım. 
+— "Yoq!"
 
 — Bu da yapmadımı? — o qapu betke işaret etti.
 
