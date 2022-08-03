@@ -578,12 +578,13 @@ Men kederli külümsiredim ve İradanıñ şübeli fikirini tasdıq ettim.
 Yel örge çıqa başladı.
 İrada toqtadı, tonınıñ dögmelerini çezdi, omuzları üzerine tüşken yavluğını açıp, başına ğayrıdan bağladı.
 
-— Biz hızmette qulaqlı qalpaq kiyemiz,— dedi o, menim baqa bergenimden utanıp,— qalpaq oñaytlı.
-Yavluq baş üstünde turmay, aşağı cılışa bere,— ögümizde peyda olğan evlerni eslep, dedi: — işte, Hazar Kend!
+— Biz hızmette qulaqlı qalpaq kiyemiz, — dedi o, menim baqa bergenimden utanıp, — qalpaq oñaytlı.
+Yavluq baş üstünde turmay, aşağı cılışa bere, — ögümizde peyda olğan evlerni eslep, dedi: 
+— işte, Hazar Kend!
 
 Ve hoş çere ile külümsiredi.
 
-— Aşağı tüşeyik!..— dedim men oña, özen yalısını kösterip,— anda yol tegiz... ve yaqın.
+— Aşağı tüşeyik!..— dedim men oña, özen yalısını kösterip, — anda yol tegiz... ve yaqın.
 
 Teklifimni güya işitmegen kibi, indemedi.
 
@@ -593,7 +594,8 @@ Teklifimni güya işitmegen kibi, indemedi.
 Belki öyledir...
 
 — Biz keldik! — dedi qız.
-Bu sözlerni o eki saat evelsi Petâ emcenen nasıl laqırdı etken olsa, öyle resmiy davuşnen söyledi. — Siz komsomol-sıñızmı?
+Bu sözlerni o eki saat evelsi Petâ emcenen nasıl laqırdı etken olsa, öyle resmiy davuşnen söyledi. 
+— Siz komsomol-sıñızmı?
 
 Men başımnı qaqıttım.
 
@@ -606,7 +608,8 @@ Sizge uçötqa kirmek kerek.
 — Ebet!
 Lâkin sekretar degilim.
 Sekretar promakademiyağa ketti.
-Men muvaqqatım. — İrada maña hışımlı nazar bıraqtı.
+Men muvaqqatım. 
+— İrada maña hışımlı nazar bıraqtı.
 
 — Menim aqqımda eppi şeylerni bildiñiz, öylemi?
 
