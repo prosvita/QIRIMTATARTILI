@@ -187,13 +187,13 @@ Adı Madamin.
 — O Saratovda.
 
 Toqtabayev kene sustı.
-Men bekledim: "evelâ çalış, er şeyni bil.
-Başqasına aqılnı soñ ögretirsiñ!" — dep başlaycaqtır belledim.
+Men bekledim: "evelâ çalış, er şeyni bil. Başqasına aqılnı soñ ögretirsiñ!" — dep başlaycaqtır belledim.
 Amma Toqtabayev başqa saadan baas etti.
 
 — Bu yerde ilki çadırnı men qurdım...— dedi o ve sıçrap ayaqqa turdı, qapunı aralıq etti.
 İçeri suvuq yel kirdi.
-Men de ayaqqa turdım: — bu yerde ise,— o selbi terek betke işaret etti, — geologlar yaşay ediler.
+Men de ayaqqa turdım: 
+— bu yerde ise, — o selbi terek betke işaret etti, — geologlar yaşay ediler.
 Cigerlerim suvuqlanğan vaqıtta olarda yattım.
 Yıqıldım... bilesiñmi?
 Uçurumdan ayaqlarım kurtuldı, başlı-ayaqlı yuvarlanıp, özenge tüştim.
