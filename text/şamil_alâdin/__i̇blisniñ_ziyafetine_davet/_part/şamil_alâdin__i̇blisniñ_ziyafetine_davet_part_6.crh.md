@@ -214,7 +214,7 @@ Bilesiñizmi?
 Men sizler içün... ondan da qıymetli işler yaptım.
 
 Cemaledin ve Aciredin oturğan yerlerinden telgenip aldılar.
-Közlerine çöp tüşken kibi, köz qapaqlarını tez-tez oynattılar.
+%
 Tuccar ne?
 Oca ne?
 Aradaki farqnı tayin etüv üstünde tüşündiler.
