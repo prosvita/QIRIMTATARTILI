@@ -266,9 +266,9 @@ Ne içün?
 
 — Pamuq içün,— dedim men, ögüni aldırıp.
 
-— Pamuq içün... öyle! —
-Toqtabayev közlerini yuma berip küldi. —
-Bunı quçaq balası da bile,— dedi maña,— bizim Orta Asiyada pamuqnı istegeniñ qadar asramaq mümkün.
+— Pamuq içün... öyle! 
+— Toqtabayev közlerini yuma berip küldi.
+— Bunı quçaq balası da bile, — dedi maña, — bizim Orta Asiyada pamuqnı istegeniñ qadar asramaq mümkün.
 Nasıl?
 Topraq yeterlik, amma suv az.
 Plotina qurayatamız.
