@@ -158,7 +158,8 @@ Bir ayağını kilim üzerine uzatıp, digerini tizden büklep oturğan Acı
 Alınıhatirini sorav yerine, onıñle davağa tutundıq.
 Bu musulmanlıq degil.
 Üsein ocağa ciddiy lafıñız olsa, onıñ içün başqa yer ve başqa vaqıt tapıñız!
-Oca menim evimde musafir... unutmañız!
+Oca menim evimde musafir...
+unutmañız!
 
 – Menimki dava degil, Aciredin! – dedi Cemaledin bay.
  – Men bu köyde kimniñ nasıl uquqqa malik ekenini oña hatırlatmaq istedim.
