@@ -6,7 +6,7 @@ Qapaqlanıp, buz içinde qatıp qalğan çapçaqnıñ üstünde oturmağa niyetl
 Kevdemni doğrulttım.
 Qarşımda İra turmaqta edi.
 
-— Mında ne yapasıñız? — dep soradı o menden,  işten soñ aşamaq ve raatlanmaq kerek.
+— Mında ne yapasıñız? — dep soradı o menden, - işten soñ aşamaq ve raatlanmaq kerek.
 Siz yalıda kezinesiñiz!
 Bir şey añlamayım.
 
@@ -33,10 +33,11 @@ Qız sustı.
 Soñ egilip, yerden küçük, tögerek lâpek taşçıq aldı, erkek bala kibi, elini soza berip, bar küçünen özenniñ ortasına fırlattı.
 Taşnıñ suv üstünde sıranen qaldırğan alqalarına baqıp, seyir etip, zevqlanıp turdı.
 
-— Yuriñiz! — dedi o, soñ maña,— smena bitti.
+— Yuriñiz! — dedi o, soñ maña, — smena bitti.
 Men artıq smena injeneri degilim.
 Komsomol komitetiniñ sekretarım...
 Rica etem, yuriñiz! 
+
 — Qayda?
 Niçün?
 
@@ -46,7 +47,7 @@ Soñ aytırım.
 "Mavı qayağa" keldik.
 
 — Kimse yoq...
-Pek güzel,— dedi İra,— şimdi siz bir şey köreceksiñiz, lâkin taaciplenmek kerekmey.
+Pek güzel, — dedi İra, — şimdi siz bir şey köreceksiñiz, lâkin taaciplenmek kerekmey.
 Qana, qapaqnı tutıp turıñız!
 
 O kürsüni qaranlıq köşege çekti, tavannıñ çetinde mıhı qurtulıp, aralıq qalğan fanerniñ arasına qolunı tıqtı, içeriden yeşil çiçekli bir rulon divar kâğıtı çekip çıqardı.
@@ -55,7 +56,7 @@ Men kâğıtnı tanıdım.
 Onı Merkeziy komitetniñ sekretarı komsomol reberlerine taqsim etken edi.
 İra uzun parça kesip aldı, qalğanını kene tavanda saqladı.
 
-— Yazıñız nasıl? — dep soradı menden,— dülbermi?
+— Yazıñız nasıl? — dep soradı menden, — dülbermi?
 
 Bu qızğa qaydan rastkeldim, aceba?
 Polkta ekende divar gazetasında çalışqan, maqalelerni temizge çekken edim.
