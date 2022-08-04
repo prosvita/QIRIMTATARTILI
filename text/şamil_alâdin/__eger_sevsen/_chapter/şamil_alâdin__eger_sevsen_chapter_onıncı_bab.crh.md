@@ -53,8 +53,8 @@ Bu zeerli sözler meni quturttılar.
 — Bekleyim... körmeysiñizmi, qıymetli Vahid Samatoviç?
 — Siz meni bilesiñizmi?
 — Bilem.
-— Davuşımda, ğaliba, mısqıl ziyadece edi.
 
+Davuşımda, ğaliba, mısqıl ziyadece edi.
 O taaciplendi, omuzlarını qısıp aldı.
 Tekrar etrafıma baqındım, İrada yoq.
 Topraq obasından aşağı kene çaqıllar töküldi.
