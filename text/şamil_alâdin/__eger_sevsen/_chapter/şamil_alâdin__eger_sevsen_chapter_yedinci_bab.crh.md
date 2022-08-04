@@ -187,7 +187,7 @@ Ellerimni köterdim, ökçelerimnen polnı yengilden dübürdete berip, stolnı�
 Ket-kete suratnı arttırdım.
 Qızışqan soñ, şeñlenip kettim.
 Em oynadım, em tüşündim: "Men qıyamet ekenim de!
-Özümniñ haberim yeq eken!
+Özümniñ haberim yoq eken!
 Niçün?
 Ya Vinnitsada, korpus aveskârları ölimpiadasında iştirak etkenim... unuttıñmı?"
 
