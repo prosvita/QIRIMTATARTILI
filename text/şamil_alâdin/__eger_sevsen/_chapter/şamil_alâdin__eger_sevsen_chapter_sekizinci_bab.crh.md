@@ -19,7 +19,8 @@ Bu — soñ derece ayıp şey, çünki epimizge aydutlar dep baqacaqlar, dedim.
 
 Men, elbette, dülber nutq söylemege bilmeyim, "mına", "añlaşılamı", "demek" sözlerini tekrarlay berip, eki-üç cümle quraştırıp ayttım, soñ koykamnıñ üstüne otura qoydım.
 
-— Toplaşuvnı yañlış alıp barasıñ,— dedi maña Nikolay. — Madamki sen komsomolsıñ, bizni, bitaraflarnı, terbiyelemege borclısıñ.
+— Toplaşuvnı yañlış alıp barasıñ,— dedi maña Nikolay.
+— Madamki sen komsomolsıñ, bizni, bitaraflarnı, terbiyelemege borclısıñ.
 Toplaşuvda reys ve sekretar olmaq şart.
 Reis mecliske reberlik yapsın, sekretar protokol yazsın.
 Bu seniñki ne?
