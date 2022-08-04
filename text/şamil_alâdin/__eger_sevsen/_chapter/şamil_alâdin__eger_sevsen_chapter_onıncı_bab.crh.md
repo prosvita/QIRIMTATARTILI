@@ -272,16 +272,13 @@ Arqam yorulğanda men de öyle yapa edim.
 O öyle degende, közlerime yarıq urdı.
 Başımnı köterip, töpege baqacaq oldım, aşağı çaqıl ve topraq parçaları töküldi.
 Fenerler... yavaş-yavaş aşağı enmekte ediler.
-
 Bir özüm turğan vaqtımda, kök asıl da yoq, yıldızlar ise kanalnıñ divarları üstünde asılıp turğan kibi kele edi.
 Şimdi kökni ve yıldızlarnı kördim.
-
 Amma, közlerime bir şey olğanğa beñzey.
 Ağırıp başladılar.
 Başım ağırlaşıp ketiy.
-Sıcaqlandm.
+Sıcaqlandım.
 Zayıflıqnıñ alâmeti olmalı.
-
 Suv yolunıñ ağızına brezent qoyıp, üstünden taş ve topraq toldırdılar.
 Anna Yakovlevna yüksek topraq obasından aşağı yaş qız kibi, tayıp tüşti, suv teşigini taşnen bekitip, betonnen sılamaqnı emir etti.
 
@@ -290,15 +287,12 @@ Sizge başqa çare körmek kerek.
 Saba dalğıcılarnı çağırıñız!
 Özenge tüşip, bu qaçaq suvnıñ yolunı tapsınlar.
 Bu işni tez yapmaq kerek, yoqsa skladlar elâk ola bileler.
-Aylanma kanal bitmegence, skladlarnı başqa yerge avuştırmağa çaremiz yoq.— Anna Yakovlevna, elindeki fenerni köterip, suv çıqayatqan oyuqnı baqtı,— taş... evelâ taş toldırıñız!— dedi o,— soñra beton tökersiñiz!
-Bu ne?— teşik içinden yorğanğa beñzer şeyler çıqarayatqanlarını körip, ayrette qaldı,— sizden sorayım!
-
+Aylanma kanal bitmegence, skladlarnı başqa yerge avuştırmağa çaremiz yoq, — Anna Yakovlevna, elindeki fenerni köterip, suv çıqayatqan oyuqnı baqtı,— taş... evelâ taş toldırıñız!— dedi o,— soñra beton tökersiñiz!
+— Bu ne?— teşik içinden yorğanğa beñzer şeyler çıqarayatqanlarını körip, ayrette qaldı,— sizden sorayım!
 — Bekirovnıñ urbaları!— dedi Tursunov.
-
 — Bekirovnıñ?
-Kene Bekirovmı?—Anna Yakovlevna kederli ve taacipli közlerini oynatıp aldı.
+Kene Bekirovmı? — Anna Yakovlevna kederli ve taacipli közlerini oynatıp aldı.
 — Paromda Bekirov, kanalda Bekirov, Zevqlı!
-
 — Biçare...— dedi Tursunov,— men kelgende çır-çıplaq edi.
 Bu ayazda...
 
@@ -374,17 +368,16 @@ O, qalın ödeyallarnıñ üstünden, meni sıcaq ütünen ütülemekte edi.
 Arqamnı ütülegen sayın suv içecegim kele berdi, soñunda tamağımnıñ içi qurıp qaldı.
 Öksürip başladım.
 Sabır et!
-Sabır et, kazak! —Dey edi komendant,— içten yanğanıñ yahşı.
+% Sabır et, kazak! — Dey edi komendant.
 
 Ütülenip bittim.
 Hayli vaqıt keçti, Petâ emdje bir qalay qaynaq suv ketirip, içine balaban kesek şeker bıraqtı.
 
 — Şeker kerekmey!
 Men şekersiz isteyim!
-
 — Yoq, qardaş, men seni tedaviy etmek içün ketirdim, tedaviy etecegim!
-Şekernen iç... em çoq laqırdı etme!
 
+Şekernen iç... em çoq laqırdı etme!
 O, çaqısını çıqarıp, qalay içindeki suvnı qarıştırdı.
 Çaynıñ özü yoq edi.
 Üç qalay sıcaq suv içtim, soñ özümni güzel is ete başlağan kibi oldım.
@@ -393,6 +386,7 @@ O, çaqısını çıqarıp, qalay içindeki suvnı qarıştırdı.
 — Yoq, qardaş...
 iç bir yaqqa ketmeycek siñ!
 Yeriñde yatacaq ve susacaqsıñ!
+
 Ödeyallar astında közlerimni yumdım.
 Yumdım degende, İradanıñ sözlerini işittim:
  "Aqşam Çatal-Çinar yanında..."
