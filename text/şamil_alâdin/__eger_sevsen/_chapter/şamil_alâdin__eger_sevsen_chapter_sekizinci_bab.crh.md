@@ -170,7 +170,8 @@ Bağşışlarnı qabul etmegen.
 Yalan aytasıñ! — Kandıba iddetlenip ayqırdı.
 Hristofor ise açuvlanıp, kitapnı krovat üstüne attı.
 Er vaqıt öyle ola.
-Kandıba kitaptaki şeyge inanmasa, basa qavğa ete.— Asâ niçün qalmadı?
+Kandıba kitaptaki şeyge inanmasa, basa qavğa ete.
+— Asâ niçün qalmadı?
 Niçün çıqıp ketti?
 
 — Men saña o yerini oquğan edim...
