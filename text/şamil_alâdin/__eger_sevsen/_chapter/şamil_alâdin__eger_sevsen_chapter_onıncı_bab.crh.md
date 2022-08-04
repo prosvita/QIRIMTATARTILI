@@ -390,13 +390,12 @@ O, çaqısını çıqarıp, qalay içindeki suvnı qarıştırdı.
 Üç qalay sıcaq suv içtim, soñ özümni güzel is ete başlağan kibi oldım.
 
 — Sağ oluñız, Petâ emce!— dedim men,— evge keteyim!
-
 — Yoq, qardaş...
 iç bir yaqqa ketmeycek siñ!
 Yeriñde yatacaq ve susacaqsıñ!
-
 Ödeyallar astında közlerimni yumdım.
-Yumdım degende, İradanıñ sözlerini işittim: "AqşamÇatal-Çinar yanında..."
+Yumdım degende, İradanıñ sözlerini işittim:
+ "Aqşam Çatal-Çinar yanında..."
 İradanıñ çeresi şeñ edi.
 Bir şeyler daa tüşünmege tedariklendim, amma beyutta qalğanım.
 Tap aqşam uyandım.
