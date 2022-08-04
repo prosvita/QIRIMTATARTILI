@@ -103,9 +103,11 @@ Muşuqtanmı? — Arhipka maña közlerini tikledi,— nasıl etip?
 
 — Onı bilgeniñ çoqtanmı?
 
-— Çoqtan. — Arhipka tuyüldi.
-Sesi üzülip-üzülip çıqtı. — Sen allanı bilgeniñ çoqtanmı?
-Qayda o? — dep soradı menden ve özü cevap berdi. — Kök yüzünde.
+— Çoqtan,-Arhipka tuyüldi.
+Sesi üzülip-üzülip çıqtı.
+— Sen allanı bilgeniñ çoqtanmı?
+Qayda o? — dep soradı menden ve özü cevap berdi.
+— Kök yüzünde.
 Muşuq qayda?
 Yer yüzünde.
 Ne yerde olsañ — anda!
