@@ -250,10 +250,12 @@ Oca qolluqnı yibermey, vira ileri cılıştı.
 Ağlavını-sızlavını toqtatıp olamadı.
 Yanığı ket-kete o qadar küçlü ceryan etti ki, ağrı ta, yüregine urıp, yürüşini çığırdan çıqarayatqanı kenardan sezildi.
 Ayaqlarınıñ areketi deñişti.
-Kelip, onıñ yerine kirmek içün kimsede cesaret tapılmadı, çünki tabutnıñ arqasından taban-tabanğa kelgen kişiler Üsein Toqtarğazınıñ kederi ne qadar tesellisiz... onı yatıştırmağa ıntıluvnıñ ne qadar faydasız ekenligini bile ediler.
+Kelip, onıñ yerine kirmek içün kimsede cesaret tapılmadı, çünki tabutnıñ arqasından taban-tabanğa kelgen kişiler Üsein Toqtarğazınıñ kederi ne qadar tesellisiz...
+ onı yatıştırmağa ıntıluvnıñ ne qadar faydasız ekenligini bile ediler.
 Er alda, Ablâmit Şeyh-zade bu alğa başqa köz ile baqtı.
 Nusret İlmiyniñ qulağına nelerdir fısıldadı.
-Nusret efendi ihtiyatle barıp, tabut altına, Üsein ocanıñ ögüne soquldı... ocalardan kimdir tez-tez Üseinni qoltuqlap, çetke çekip, artta qaldırdı, soñra ekevleşip kenardan yavaş-yavaş kettiler.
+Nusret efendi ihtiyatle barıp, tabut altına, Üsein ocanıñ ögüne soquldı...
+ ocalardan kimdir tez-tez Üseinni qoltuqlap, çetke çekip, artta qaldırdı, soñra ekevleşip kenardan yavaş-yavaş kettiler.
 Halq aqıntısı ep küçlendi, ep ileri ıntıldı.
 Caddeniñ bir yaqında – qadınlar gimnaziyasınıñ.
  diger yaqında – erkekler gimnaziyasınıñ talebeleri özleriniñ yaraşıqlı kiyimlerinde saf olıp, yas tutıp, tertip ile yürgenleri alda, tabutnıñ arqasında, halqnıñ ögünde, Ruşdiye şagirtleri bulunmaqta ediler.
@@ -385,7 +387,8 @@ Onıñ caqındaki qan qaydan keldi?
 Üsein oca iç bir şey añlap olamay, tükâncığa çevirilgen arada, Acı Erbain qamçılar bağlamı arasından diger bir qamçını çıqarıp aldı, kerile berip, ocanıñ yelkesine endirdi.
 Ocağa esini toplap, ne olıp – ne keçkenini bilmege imkân bermedi, tekrar yandırdı.
 “Acı Erbain, siz aqıldan azdıñızmı? – dep qıçırdı oca.
- – Bu ahmaqlıq ne sebepten?” Yoq...
+ – Bu ahmaqlıq ne sebepten?”
+Yoq...
 Acı Erbain toqtamadı.
 Kene qamçısını köterdi.
 Üsein oca vucuttan yufqa kelse de, cısman zayıf, ruhtan qorqaq adamlardan degil edi.
@@ -411,7 +414,7 @@ Üsein oca Acı Erbain efendini öldüreyata! – dep qıçırdı.
 Tez!
 Yardım etiñiz!” Adamlar bir-birlerine baqıştı, yerlerinden qıbırdamadılar.
 “Acı Erbain baynımı? – dep soradı köylülerden birisi.
- – Kim öldüreyata?” “Üsein oca...”
+ – Kim öldüre yata?” “Üsein oca...”
 
 Üsein oca degen soñ, adamlar şübelendiler... tükânnıñ içine sürüşip kirdiler, çünki iri kevdeli Emirzaqov ocanı urıp, saqatlaya bileceginden qorqtılar.
 Dört mazallı kişi, kötekleşicilerniñ ortasına kirdi.
@@ -762,7 +765,8 @@ Ve iş asıl da aqarette degil.
 Kündüz olğan körüşüvde oca ziyafetke davetten red etkenini Meñlibey, şübesiz, Acı Erbainge yetiştirgen olmalı.
 Erbain Meñlibeyni tızıqtırıp yibergenge beñzey: “Öl!
 Qal!
-Lâkin Üsein muallimni eviñe alıp kel!” Ebet!
+Lâkin Üsein muallimni eviñe alıp kel!”
+ Ebet!
 Öyle degen olsa kerek.
 Yüzsüz Meñlibey, şimdi ocanıñ evine sürip keldi.
 
@@ -801,7 +805,8 @@ Ayaqları astındaki örnekli kiyizge közetip oturdı.
 
 – Ne vaqıt? – dep soradı oca, niayet.
 
-Yarın... üyleden soñ, – dep cevap berdi Meñlibey. – Kelirsiñizmi?
+Yarın... üyleden soñ, – dep cevap berdi Meñlibey.
+– Kelirsiñizmi?
 
 Üsein oca indemedi.
 Musafirniñ çeresi deñişti.
@@ -809,7 +814,8 @@ Yengil, devamlı nefes aldı.
 Hoşnut, eyecanlı alda, sağlıqlaşıp, çıqtı.
 Özüne bir filcan qave teklif etilmegenine bile emiyet bermedi.
 
-– Ziyafet... oppadaqtan bu ne? – dep taaciplendi Acire, musafir ketken soñ. – Körüle...
+– Ziyafet... oppadaqtan bu ne? – dep taaciplendi Acire, musafir ketken soñ.
+ – Körüle...
 Malayğa bir iş daa buyurılğan!
 Nasıl iş eken?
 Qaydan bilirsiñ?
@@ -1076,7 +1082,8 @@ Artından penir parçası qaptı, soñra çekmeniniñ yeñinen dudaqların�
  – Oqyanusta... dünyanıñ ta, çetinde.
 Anda adamnı qarağa tüşürip, qoluna çoyun qazan, tüfek ve bir çımtım da barot berip, taşlap keteler.
 “Öz çareñni – özüñ tap, – deyler oña.
- – Başqasınıñ küçüne işanma!” Adam özüniñ çaresini özü tapa... yaşay.
+ – Başqasınıñ küçüne işanma!”
+Adam özüniñ çaresini özü tapa... yaşay.
 
 – Men de öz çaremni taparım, – dedi Erbain, iddetlenip.
  – Boğday saçarım.
