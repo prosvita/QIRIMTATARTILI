@@ -226,7 +226,8 @@ Ocağa itiraz etsinlermi, etmesinlermi?
 – Bilem... aqçasız iş yoq, – dedi oca.
 Nazarı ögündeki tabaq üstündeki filcanğa tüşti.
 İçindeki qave artıq suvıp, qalğan edi.
-“Alıp bir yutum içeyim de, lafnı soñ devam eteyimmi eken...” dep qolunı filcanğa uzatmağa niyetlendi... qolu öz-özlüginden keri çekildi.
+“Alıp bir yutum içeyim de, lafnı soñ devam eteyimmi eken...” dep qolunı filcanğa uzatmağa niyetlendi...
+ qolu öz-özlüginden keri çekildi.
 Subetçiler oña közetip, nenidir beklep oturğanlarını eslep, alel-acele fikirlerini topladı.
 
 – İş tek aqçada degil, – dedi oca.
