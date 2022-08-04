@@ -328,7 +328,8 @@ Bir kesegini özüm aldım.
 Arhipka bu arada egilip, tumboçka içinde nedir qıdırmaqta edi.
 — Muşuq olmağan olsa, Arhipkanen isap qısqa olur edi.
 
-— Meni isap-qasapnen qorquzamazsıñ. — Arhipka stol üstüne bir paçka da prânik attı: — Arhipkada er şey bar,— dedi o.
+— Meni isap-qasapnen qorquzamazsıñ. — Arhipka stol üstüne bir paçka da prânik attı:
+— Arhipkada er şey bar,— dedi o.
 Soñ menim yanıma kelip oturdı.
 
 — Alâ acizlik içindesiñmi? — dep soradı menden ve ilâve etti: — qadın degen qabile istegen kişisini bahtlı yahud ğarip ete bile.
