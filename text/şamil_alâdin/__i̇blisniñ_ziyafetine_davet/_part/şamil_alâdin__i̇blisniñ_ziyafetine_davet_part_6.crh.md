@@ -510,8 +510,8 @@ Azbarğa çıqmaq içün qapu betke çevirilgende, Qaramanovnı eslep, ayre
 – Va-ay!
 İbraim oca! – dedi Acire...
 Qaramanov ile çoqtan aşna kibi.
-Albuki, İbraim oca aqqındaki tasavurı – Üsein ocadan eşitken ufaq-tüfek fikirlerden ibaret olıp, özüni körgeni yoq edi.
-Öyle olsa da, Qaramanov ekenini bir körüşte bildi.
+%
+%
  – Ayıp etmeñiz!
 Evge kirgen şorbacınıñ tek özüdir, belledim.
 Hoş keldiñiz!
