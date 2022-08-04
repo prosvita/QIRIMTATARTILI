@@ -114,12 +114,15 @@ Kerçek aytam — yalıñız ötel ve restoranlardan.
 Muzıka ve oyun gece-kündüz tınmay.
 Yemekler... o! Tekaran daa yürseñ — maallelerde adamlarnıñ soqaqlarda ayaq astında yatqalağanlarını ve açıq avada aç-çıplaq ömür keçirgenlerini köresiñ.
 Skelede adamlar yanımızdan keçkende "bolşevik", "Lenin", "koroşo" dep pısıldaylar.
-Olar bileler... episini bileler. — Nikolaynıñ parmaqları gitara telleri üzerinde oynağanları alda, sözüni devam etti: — Daa ne?
+Olar bileler... episini bileler.
+— Nikolaynıñ parmaqları gitara telleri üzerinde oynağanları alda, sözüni devam etti: — Daa ne?
 İspaniyamı?
 Barselona, şübesiz dülber şeer.
-Yalığa ayaq bastım deysiñ, seni acaip ispan qızları sarıp alalar: "yur, yur, keteyik!" — deyler. — "Yoq, qızlar, menim şeerde acele işim bar" — deyim. — "İşiñ barmı?
+Yalığa ayaq bastım deysiñ, seni acaip ispan qızları sarıp alalar: "yur, yur, keteyik!" — deyler.
+— "Yoq, qızlar, menim şeerde acele işim bar" — deyim.
+— "İşiñ barmı?
 Öyle olsa, ket! — deyler.
-Nasıl isteseñ, öyle yap: istessñ ket, istemeseñ — ketme.
+Nasıl isteseñ, öyle yap: isteysiñ ket, istemeseñ — ketme.
 İstesen tavernağa barayıq!" Olar gece-kündüz matroslarnen kezeler…
 Yap-yaş qızlar.
 Ya türkü aytıp başlasalar?
