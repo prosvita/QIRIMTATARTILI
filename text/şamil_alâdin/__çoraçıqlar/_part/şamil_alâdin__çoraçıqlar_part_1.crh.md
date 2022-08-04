@@ -488,7 +488,7 @@ Men tap seniñ degeniñ qadar, zekâsız degilim.
 Vaziyetiñni bilem, özüm de cenklerde oldım.
 Vaqıt ruhset etkende kelip ketem.
 Alıñnı-hatiriñni sorayım.
-Ama, sen talap etken kibi, er cuma ertesi saña kelmege... yoq, bunıñ içün imkânım yoq!” Yunus menimnen razı olmadı.
+Ama, sen talap etken kibi, er cumaertesi saña kelmege... yoq, bunıñ içün imkânım yoq!” Yunus menimnen razı olmadı.
 İtiraz etmek içün çımqındı-yutqundı... sustı.
 
 1982 senesi sentâbrniñ doquzıncı kününde Yunus vefat etti.
@@ -540,7 +540,7 @@ Oca sol yeñiniñ ucunı azaçıq yuqarı köterip, saatına közetti.
 – Qorqam... – dedi o. – Selâmet tezden Çarvaqta işlerini bitirip kelir, men de Taşkentke qaytmağa mecbur olurım.
 Siziñnen lafımız üzülip qalır.
 
-– Bizde qalırsıñız! – dedim men. – Laqırdı, içün zaruret büyük.
+– Bizde qalırsıñız! – dedim men. – Laqırdı içün zaruret büyük.
 Yarın sizni vokzalğa özüm ozğarırım.
 
 – Mümkün degil, – dedi Abdureşid oca. – Saba qızım meni Andijan vokzalında bekleycek.
@@ -568,7 +568,7 @@ Körmek istedim.
 Özüñiz şaatsıñız ki, men şimdi doquz yaşında degilim, – böyle diye, başımda bir top saçımnı tutıp kösterdim. – Bularnı köresiñizmi?
 Men alâ taaciplenem... siz, şeerli adam, bizim köyge nasıl etip tüştiñiz?
 Biz bunı sizden sorap-bilip olamadıq, çünki kiçkene edik.
-Kimer ocalar dersler vaqıtında öz ayatlarını ikâye eteler.
+Kimer ocalar dersler vaqtında öz ayatlarını ikâye eteler.
 Bu meraqlı.
 Siz bizlerni ep tahtağa çağıra ediñiz.
 
