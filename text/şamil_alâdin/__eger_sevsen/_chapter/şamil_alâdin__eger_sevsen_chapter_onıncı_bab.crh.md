@@ -311,12 +311,9 @@ Yüzü ap-aq oldı.
 Menimnen şaqa etme!
 Şaqa etseñ, buhgalteriyağa raport yazarım.
 Urbalarıñnıñ aqqını maaşıñdan beş qat ziyade basıp alır.
-
 — İhtiyar sizde,— dedim men,— gece... başqa çare tapalmadım.
-
 — Toqta!
 Maña baq, Bekirov!— Petâ emceniñ qaşları aşağı endiler,— gece kanalda... sen ediñmi?
-
 — E!
 Teşik başta keñ degil edi.
 Soñundan... 
@@ -332,7 +329,6 @@ Adamlar kelgen soñ oyuq içinden çıqarıp yerge taşladılar.
 Petâ emce meni diqqatnen diñledi, amma közleri ep polğa mıhlı edi.
 
 — Yetti... mesele belli,— dedi o, soñundan atılıp turdı, elimden qapqaç etti,— yur, kettik!
-
 — Qayda?
 — Menim evime!
 Sıcaq çay içmege!
