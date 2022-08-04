@@ -290,7 +290,7 @@ Al, aşa!
 Stolnıñ üstüne dop etip qattı şey tüşti.
 Başımnı köterip baqtım, yarım qatalaq kolbasa.
 
-— Bu ülkede ne kolbasa, ne raqı  bir şey yoq,— dedi Arhipka.
+— Bu ülkede ne kolbasa, ne raqı, bir şey yoq,— dedi Arhipka.
 
 — Niçün? — Basit taaciplendi, — Kök-Boğazda olmasa Aq-Çolaqqa ket.
 Anda tolu.
@@ -310,7 +310,7 @@ Gece olsun küñdüz olsun...
 Niçün?
 Kimse bilmey.
 
-Demek, tezden stantsiya çalışacaq,— dedi Hristofor,— Lâkin bir şey taacipli: Arhipka bugün niçün cümert?
+Demek, tezden stantsiya çalışacaq,— dedi Hristofor,— lâkin bir şey taacipli: Arhipka bugün niçün cümert?
 
 — Qızğanç olğanımnı kördiñmi?
 
@@ -319,12 +319,14 @@ O! Bunı añlatmağa vaqıt kerek!
 Kolbasanı beş kesekke böldim.
 Bir kesegini özüm aldım.
 
-— Dülgerler baragında olıp keçken şeyden İradanıñ haberi barmı?— dep soradı Arhipka. — Oña bir şey aytmadıñmı?
+— Dülgerler baragında olıp keçken şeyden İradanıñ haberi barmı?— dep soradı Arhipka.
+— Oña bir şey aytmadıñmı?
 
-— Ufaq-tüfek meselelernen oğraşmayım,— dedim men,— qavğanıñ sebepçisi kim ekenini Özüm de bilmeyim,.
+— Ufaq-tüfek meselelernen oğraşmayım,— dedim men,— qavğanıñ sebepçisi kim ekenini Özüm de bilmeyim,
 
 — Mına, kim sebepçi! — Kandıba közlerinen Arhipkağa işaret etti.
-Arhipka bu arada egilip, tumboçka içinde nedir qıdırmaqta edi. — Muşuq olmağan olsa, Arhipkanen isap qısqa olur edi.
+Arhipka bu arada egilip, tumboçka içinde nedir qıdırmaqta edi.
+— Muşuq olmağan olsa, Arhipkanen isap qısqa olur edi.
 
 — Meni isap-qasapnen qorquzamazsıñ. — Arhipka stol üstüne bir paçka da prânik attı: — Arhipkada er şey bar,— dedi o.
 Soñ menim yanıma kelip oturdı.
