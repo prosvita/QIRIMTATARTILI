@@ -768,7 +768,7 @@ Memedaliniñ buhar degirmeni eki afta evelsi köylü boğdayınıñ pudundan eki
 Bu sözlerni ulu adam aytqan.
 Men olarnı qaydadır oqudım.
 Osman beyni akimiyetten marum etken soñ, mülkiyetinden de quru qaldırmaq kerek.
-Bu eki işni bir pereden yapmaq ğayet mürekkep.
+Bu eki işni bir kereden yapmaq ğayet mürekkep.
 
 Ğavr köpüri yanında oñ qolğa tik yol ayırıldı.
 Obalı-çuqurlı, enişli-yoquşlı...
@@ -860,7 +860,7 @@ Peşkir.
 Köşede iri sandıq üstünde cıyılğan töşek, yurğan, yastıq.
 Pencerede perde.
 İbram ağa qaç kereler maña baqtı.
-Fikirimni bilmek istedi.
+Fikrimni bilmek istedi.
 Albu ki menim içün ne qadar uyğunlıq kerek?
 Başım üstünde dam, astımda töşek olsa, kâfi.
 Odanı taqdir ettim.
@@ -881,7 +881,7 @@ Qave pişirmek de kerekmey.
 
 İbram ağa indemedi.
 Azbar qapuğa doğru adımladı.
-Qapuğa yakıñlağan soñ maña işaret parmağını köterdi.
+Qapuğa yaqınlağan soñ maña işaret parmağını köterdi.
 Yanına bardım.
 
 – Şimdi ne işiñ bar? – dep soradı menden. – İsmail efendinen nasıl añlaştıñız?
