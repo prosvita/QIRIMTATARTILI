@@ -263,7 +263,7 @@ Demek, men bu yerde uç buçuq saat turğanım.
 — İradanı körmediñizmi?— dep soradım men.
 Ne aqılnen, bilmeyim.
 
-— İradanı..?—Tursunov titrep ketti.
+— İradanı..? —T ursunov titrep ketti.
 Oyuq divar içindeki pamuq ştannı qavi tutaraq, ayaq üstünde, kevdesini doğrulttı.
 Arqam yorulğanda men de öyle yapa edim.
 
@@ -311,9 +311,9 @@ Yüzü ap-aq oldı.
 Menimnen şaqa etme!
 Şaqa etseñ, buhgalteriyağa raport yazarım.
 Urbalarıñnıñ aqqını maaşıñdan beş qat ziyade basıp alır.
-— İhtiyar sizde,— dedim men,— gece... başqa çare tapalmadım.
+— İhtiyar sizde, — dedim men, — gece... başqa çare tapalmadım.
 — Toqta!
-Maña baq, Bekirov!— Petâ emceniñ qaşları aşağı endiler,— gece kanalda... sen ediñmi?
+— Maña baq, Bekirov!— Petâ emceniñ qaşları aşağı endiler,— gece kanalda... sen ediñmi?
 — E!
 Teşik başta keñ degil edi.
 Soñundan... 
