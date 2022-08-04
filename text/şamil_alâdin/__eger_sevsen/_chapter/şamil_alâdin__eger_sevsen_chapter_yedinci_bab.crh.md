@@ -43,7 +43,7 @@ Bizde... de tros üzüle, de elektrik küçüniñ bir fazası olmay.
 Almazovnıñ maşşallası bar.
 Birincide, o — acaip maşinist.
 Onı epimiz seve, saya, sözüni tuta ve taqdiri içün qayğıramız.
-Ekincide, bizde nşni taşlap ketken kişi olmay.
+Ekincide, bizde işni taşlap ketken kişi olmay.
 Üçüncide, Almazov daimiy surette tehnikiy kadrlar azırlay, zira şimdi er şeyni kadrlar al eteler.
 
 ...Men böyle degende oquyıcınıñ çeresinde gizli tebessüm peyda olayatqanını sezem.
