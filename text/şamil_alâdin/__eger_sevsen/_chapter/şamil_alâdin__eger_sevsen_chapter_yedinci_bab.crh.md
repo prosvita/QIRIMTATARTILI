@@ -133,7 +133,8 @@ Maña kelgen mektüp!
 
 — Yoq.
 Saña kelgen mektüp degil.
-Maña keldi...— dedi Hristofor, oyununı toqtatıp. — Saña mektüp yoq...— Hristofor bu sözlerni, yazıqsınıp ve öpkelenip ayttı.
+Maña keldi...— dedi Hristofor, oyununı toqtatıp.
+— Saña mektüp yoq...— Hristofor bu sözlerni, yazıqsınıp ve öpkelenip ayttı.
 
 — Öyle olsa, mektüpni Arhipkağa niçün berdiñ? — dep cekirdim men.
 
