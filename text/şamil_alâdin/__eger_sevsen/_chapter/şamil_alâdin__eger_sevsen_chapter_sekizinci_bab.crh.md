@@ -192,7 +192,8 @@ Qaqırıp polğa tükürdi, soñ ketip koykası üstüne yıqıldı.
 Peçkanıñ qapağı açıq qalğan soñ, dam üstünde uvulday bergen yel trubağa kirdi, baraknıñ içi tütünge toldı.
 
 Arhipka, dünyada ne qadar pesnut söz olsa, episini cıyıştırıp, bizni sögerek, peçkanıñ ögüne yuvurıp bardı, saksaul parçasınen türtip qapaqnı yaptı, soñ ayağınen tepip qapunı artınace açtı.
-Kandıba, Karim ve Raşid oña şübeli-şübeli baqtılar: — Delirdimi, ne? — dep tüşündiler olar, soñ mesele añlaşıldı.
+Kandıba, Karim ve Raşid oña şübeli-şübeli baqtılar.
+ — Delirdimi, ne? — dep tüşündiler olar, soñ mesele añlaşıldı.
 Hristofor asıl da sesini çıqarmadı.
 Gece işten qaçıp ketkeninden berli Arhipkanen laqırdı etmey edi.
 Bassaraba da indemedi.
@@ -202,7 +203,8 @@ Asıl da siyrek laqırdı ete.
 
 — Saña mektepniñ ne kerekligi bar? — dedi Kandıba,— şay da ülemasıñ!
 
-— Men şpal taşımaqtan bezdim,— dedi Arhipka. — Şaadetname olmasa, rıçag başına qoymaylar.
+— Men şpal taşımaqtan bezdim,— dedi Arhipka.
+— Şaadetname olmasa, rıçag başına qoymaylar.
 
 Raşid gizliden Arhipkanıñ artına keçti.
 
