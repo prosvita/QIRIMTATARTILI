@@ -145,7 +145,7 @@ Ahmaq, aqıldan azacaq edi.
 
 — Ber oña mektüpni..! — dep qıçırdı Kandıba.
 
-— Oynasın... beririm.— Arhipka degeninden qaytmadı.
+— Oynasın... beririm,— Arhipka degeninden qaytmadı.
 
 Kandıba küldi.
 Menim oynağanımnı körecegi keldi ğaliba.
