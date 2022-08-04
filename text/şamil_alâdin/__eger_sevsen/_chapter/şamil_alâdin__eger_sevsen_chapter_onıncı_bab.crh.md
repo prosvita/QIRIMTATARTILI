@@ -242,6 +242,7 @@ Meni çetke üytep, üstüme özüniñ paltosını yaptı, soñra arqasını suv
 
 — Çıq..!
 Topraq yığını töpesine çıq!— dep cekirdi maña.
+
 Cekirmedi, akim davuşnen ayttı.
 Soñ çoq vaqıt ceblerini qarıştırıp turdı, niayet, papiros çıqarıp, birisini menim ağızıma qaptırdı, digerini özüniñkine tıqtı.— Yaq!— dedi.
 
@@ -252,8 +253,7 @@ Tursunov meseleniñ nasıl olğanını añlattı.
 Evine bardım.
 Beraber idarege keldik, adamlarnı topladıq.
 O yaq-bu yaq, bu qadar vaqıt keçti.
-
-— Saat qaç?— dep soradım ondan. 
+— Saat qaç?— dep soradım ondan.
 Tursunov sol elini közlerine yaqın ketirdi, papirosını çekip, yarıqlattı:
 
 — On birge çerik bar.
