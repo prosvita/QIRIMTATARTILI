@@ -607,7 +607,8 @@ Seit-Mambet Irızkeldiyev qayda?
  –Kimerde adamlardan şikâyetler eşitile...
  “Balalarımızda islâm dini aqqında tasavur yoq”, deyler.
 Siziñ adıñıznı da añalar.
-Hususan Cemaledin bay... onıñ fikirince, Üsein oca köyde bir yıl daa qalğan olsa, cami de qapalacaq eken.
+Hususan Cemaledin bay...
+ onıñ fikirince, Üsein oca köyde bir yıl daa qalğan olsa, cami de qapalacaq eken.
 
 – Cemaledin bay yañlışa.
 Men talebelerge Quran da oquttım, namaz qıluvnı... atta cuma künleri minarede ezan oquvnı da ögrettim.
@@ -623,7 +624,8 @@ Ne azap, ne de nefret... bir şey sezilmedi.
 İçten sakin köründi.
 Ocanıñ içtimaiy adiselerge nazarı İbraimge, ğaliba, evelden malüm edi, o sebepten taaciplenmedi.
 
-– Üsein efendi, – dedi o, iç beklenilmeden. – Mümkün olsa, şu acayip alette bir şeyler çalıñız.
+– Üsein efendi, – dedi o, iç beklenilmeden.
+ – Mümkün olsa, şu acayip alette bir şeyler çalıñız.
 Davuşını sağındım.
 
 Ev saibi, İbraim ocanıñ ricasını tabiiy arzu dep qabul etti.
