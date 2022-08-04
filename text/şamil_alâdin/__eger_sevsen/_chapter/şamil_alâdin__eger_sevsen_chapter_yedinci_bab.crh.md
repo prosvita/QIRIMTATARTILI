@@ -231,7 +231,8 @@ Men cevap bermedim.
 
 — Azaplanma, Cevdet!
 Bu — işniñ niayeti degil,— dedi Hristofor.
-Meni ruhlandırmağa tırıştı. — Kozırler episi mende.
+Meni ruhlandırmağa tırıştı.
+— Kozırler episi mende.
 Köresiñmi?— tekrar maña muracaat etip,— bütün kozırler mende!
 Sen de kozırlerni almaq kereksiñ! — dedi.
 
