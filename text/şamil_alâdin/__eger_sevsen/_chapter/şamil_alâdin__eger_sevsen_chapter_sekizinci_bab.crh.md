@@ -182,7 +182,8 @@ Nikolay qızıştı.
 Dava Turgenevniñ "Asâ"sı üstünde edi.
 
 — O ne?
-Esire edimi? — Kandıba, az qaldı, Hristofornıñ ğırtlağına yapışayazdı. — Deli qız...
+Esire edimi? — Kandıba, az qaldı, Hristofornıñ ğırtlağına yapışayazdı.
+— Deli qız...
 Böyle hucur sevgi olsunmı?
 Adresini bilmegeni ne?
 Men qıznıñ yerinde olsam...— O peçkanıñ yanına keldi, odunlarnı qarıştırıp baqtı, sılaq ekenligini körgen soñ, açuvlandı...
