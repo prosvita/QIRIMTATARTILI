@@ -28,7 +28,8 @@ Oturırmız, laqırdı etermiz, darqar ketermiz.
 İç izi qalmaz.
 Ne deysiñ buña?
 
-— Bir şey de, — dedim men. — Doğru fikir!
+— Bir şey de, — dedim men.
+— Doğru fikir!
 
 — Öyle olsa, meclisni qapalı ilân etem, — dedi Nikolay.
 
@@ -55,7 +56,8 @@ Bir şey yoq...
 Ne?
 Yoqsa bu Çatqal eteginde bir monastırmi?
 
-— Maña baq, Arhipka! — dedi Kandıba. — Bizge seniñ sentimental fikirleriñ... felsefeñ kerekmey.
+— Maña baq, Arhipka! — dedi Kandıba.
+— Bizge seniñ sentimental fikirleriñ... felsefeñ kerekmey.
 
 Arhipka bu sözlerniñ ne demek ekenini añladı.
 Sustı.
