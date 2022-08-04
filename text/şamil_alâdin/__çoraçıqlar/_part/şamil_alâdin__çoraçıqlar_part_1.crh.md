@@ -942,7 +942,7 @@ Endi onıñ yerinde siz işleyceksiñiz.
 Sizge, Abdureşid efendi, işni başından başlamaq faydalı olur.
 O sebepten birinci ve ekinci sınıflarnı sizge işanam.
 Olarnı oqutacaq ve terbiyeleyceksiñiz! – Böyle degende İsmail efendi sağ eliniñ işaret parmağını yuqarı köterdi. – Yeñi akimiyet, yani şuralar ruhunda terbiyeleyceksiñiz!
-Yaya efendi ve Safiye hanım bizde rus tili derslerinen meşğuller.
+Yaya efendi ve Safiye hanım bizde rus tili derslerinen meşğüller.
 Nasıl, Abdureşid efendi?
 Menim tevsiyem ile razısıñızmı?
 
