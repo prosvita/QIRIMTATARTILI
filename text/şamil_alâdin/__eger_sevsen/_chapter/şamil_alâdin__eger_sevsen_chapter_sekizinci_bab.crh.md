@@ -87,7 +87,7 @@ Arhipka qısmen aqlı edi.
 Zevq, eglence ceetinden bizde, kerçekten de, maqtanmağa şey yoq edi.
 Barakta kimerde gitara, yahud garmon davuşları işitile, amma çoqqa barmay, tınalar.
 İşçiler ya işke çıqıp kete, ya da hızmetten yorulıp kele, alel-acele aşap, yuqlamağa yataqoyalar.
-İstraat künleri gidromonitorlar ve ekskavatorcılar paromğa minip, sağ yalığa kete, anda magazinden apaylarına o-bu satın/p alalar.
+İstraat künleri gidromonitorlar ve ekskavatorcılar paromğa minip, sağ yalığa kete, anda magazinden apaylarına o-bu satın alalar.
 Maşinistler aqşam sarğuş qaytıp keleler.
 
 Klub qurulayata.
