@@ -579,7 +579,7 @@ Men anda yalıñız meşaqqat degil, eyilik de kördim.
 Ve men, eski akimiyet memleketni şuralar idaresine aç, çıplaq, ğarip alda qaldırıp ketkenini unutmaq istemeyim.
 “Özüñiz aqqıñızda...” deysiñiz!
 Özüm aqqımda ne deyim sizge?
-O zamanda mende tercimen al yoq... on doquz yaşında, sanki bala edim.
+O zamanda mende tercimeiyal yoq... on doquz yaşında, sanki bala edim.
 Ama köyüñiz hususında hatirimde qalğan bazı adiseler tarihiy emiyetten marum degiller.
 Men özüm, Selâmet oğlu Abdureşid, bu şiddetli, furtunalı yeñi asırnıñ birinci yılında Bağçasarayda ruhaniy qorantada doğdım.
 Babam Selâmet efendi Arslan-ağa maallesindeki mektepniñ ocası edi.
@@ -608,18 +608,18 @@ Yaşım on doquzda.
 Menden oca olurmı?” dep tüşündim.
 Lâkin Yaya Naci şeerimizde pek müteber kişi, onıñ teklifine itiraz etmek mümkün degil.
 Yaya Naci ve Arifmemet ağam meni ayarta başladılar.
-“Padişa devirinde halqımız insanlıq uquğından marum edi.
+“Padişa devrinde halqımız insanlıq uquğından marum edi.
 Endi emekçi halqlar beklegen akimiyet keldi.
 Bizlerge oqumaq, insan olmaq içün uquq berdi, – dedi Bayburtlı, – fuqare köylü balalarını sen oqutmasañ, men oqutmasam, Arifmemet ağañ oqutmasa, kim oqutacaq?
 Tatar ebediyen cail qalacaqmı?
 Çoq tüşünmege acet yoq.
 Ket, köyde bir talay çalış!
 Biz bu mektepte, köy mektepleri içün acele sürette ocalar azırlav işinen meşğülmiz.
-Olar oquvnı bitirseler, çar-çapik volostlarğa ketecek, fuqare balalarını oqutacaqlar.
+Olar oquvnı bitirseler, çar-çabik volostlarğa ketecek, fuqare balalarını oqutacaqlar.
 O vaqıtta, isteseñ, seni çağırtıp alırmız”.
 
 Yaya Nacide adamnı qandıruv qabiliyeti küçlü, çünki bilgiden qudretli edi.
-Arifmemet ağam da Yaya Naciniñ fikirine qoşuldı.
+Arifmemet ağam da Yaya Naciniñ fikrine qoşuldı.
 Ekevleşip meni ayarttılar.
 Razı oldım.
 Çünki ocalıqqa aves edim.
@@ -743,7 +743,7 @@ Yantıqlarnı aşadıq.
 Birer meşrebe de maqsıma içtik.
 
 İsmail efendi elli yaşlarında, yufqa, qara saqallı, yüksek adam.
-Maqsıma içken vaqıtımızda aydın, temiz közlerinen maña baqa berdi, külümsiredi.
+Maqsıma içken vaqtımızda aydın, temiz közlerinen maña baqa berdi, külümsiredi.
 
 – Men Arifmemet ile çoqtan tanışım, – dedi, niayet, – siziñ ağañız ekenini bilmey edim.
 Zıncırlıda onıñnen beraber oqudıq.
