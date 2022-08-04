@@ -387,7 +387,8 @@ Qısqası, o vaqıtta kimsege qulaq asmay edim.
 
 Skladqa keldim.
 İç bir şeyge közümiz yoq.
-Narâdnı uzattıq. — Bu resmiy işlerni Nikolay yahşı bile edi,— baqsam, atını çaptırıp bir kişi keldi: böyle-böyle, barja zıncırdan qurtuldı, üstünde yanğın bar.
+Narâdnı uzattıq.
+— Bu resmiy işlerni Nikolay yahşı bile edi,— baqsam, atını çaptırıp bir kişi keldi: böyle-böyle, barja zıncırdan qurtuldı, üstünde yanğın bar.
 
 — Nasıl barja?
 
