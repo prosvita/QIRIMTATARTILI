@@ -227,7 +227,8 @@ Rahil külküge qulaq asmadı.
 — Pek sıcaqlandıñızmı, ne? — dep soradı o.
 İçeri kirip, qapunı qapattı.
 
-— Arhipkanıñ bürtükli betini körmeseñ, eki daqiqa oturalmaysıñ, — dedi Kandıba.— Bezmediñmi ondan?
+— Arhipkanıñ bürtükli betini körmeseñ, eki daqiqa oturalmaysıñ, — dedi Kandıba.
+— Bezmediñmi ondan?
 
 — Arhipkadan bezmek olurmı? — Rahil yasama ğurur ile onıñ krovatına doğruldı.
 
@@ -237,11 +238,13 @@ Rahil cevap bermedi.
 Egilip, Arhipkanıñ qulağına bir şeyler pısırdadı.
 Soñ başını töpege tikledi.
 
-— Kilsege? — taaciplenip soradı. — Niçün?
+— Kilsege? — taaciplenip soradı.
+— Niçün?
 
 Qız, koftasınıñ tışqa asılıp qalğan ucunı yubkasınıñ içine tıqtı, kölmeginiñ astında coyılıp ketken küçük köküslerine kederli baqtı elini pervasız alda sallap, krovat üstüne oturdı.
 
-— Aqayğa çıqa bermekten yoruldım,— dedi o. — Bekârlıq yahşı.
+— Aqayğa çıqa bermekten yoruldım,— dedi o.
+— Bekârlıq yahşı.
 Elbette, Arhipka razı olsa, bir kere daa evlenip baqmaq mümkün.
 
 Men onı acıdım, çünki soñki sözleri — yürekteki ağrınen çıqqan sözler edi.
@@ -256,6 +259,7 @@ Qız çıqtı.
 Onıñ artından Arhipka yuvurıp ketti.
 
 — E!
-Ya men? — Nikolay gitarasını qaqıp aldı. — Ekşip-pükşüpmi?
+Ya men? — Nikolay gitarasını qaqıp aldı.
+— Ekşip-pükşüpmi?
 Yo-o-q!
 Men de kettim.
