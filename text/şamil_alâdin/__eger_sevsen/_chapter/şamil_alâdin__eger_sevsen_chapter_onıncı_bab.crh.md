@@ -357,8 +357,7 @@ Uyandım.
 O, qalın ödeyallarnıñ üstünden, meni sıcaq ütünen ütülemekte edi.
 
 — Qıbırdama!
-
-— Bu ne demek ola, Petâ emce?
+ — Bu ne demek ola, Petâ emce?
 Çay içersiñ, dep ketirdiñiz, şimdi ütü...
 
 Arqamnı ütülegen sayın suv içecegim kele berdi, soñunda tamağımnıñ içi qurıp qaldı.
