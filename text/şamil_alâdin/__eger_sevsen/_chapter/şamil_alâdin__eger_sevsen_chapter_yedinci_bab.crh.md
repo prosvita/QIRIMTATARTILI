@@ -201,7 +201,8 @@ Kandıba ayaqqa qalqıp, maña el çırptı.
 Arhipka indemedi, yelkesini qaşıdı.
 
 — Bu qadarına közüm batmay...— dedi o.
-Bu onıñ eñ aqıllı şaqası edi. — Polkta böyle şeylernen oğraştıñızmı?
+Bu onıñ eñ aqıllı şaqası edi.
+— Polkta böyle şeylernen oğraştıñızmı?
 
 Men indemedim.
 İndegende de, Arhipka ep bir aytqanımnı añlamaycaq edi.
