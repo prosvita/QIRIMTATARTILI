@@ -222,7 +222,7 @@ Ders başlanmazdan evel ayaqqa turıp, şimdilik soba yaqmaq içün odun yoqluğ
 Bundan soñ, Mansurov şu sözlerni ayttı: tezden parkqa yeñi ekskavatorlar kelecek.
 Olarnıñ üstünde eski ekskavotorlarnıñ maşinistleri çalışacaqlar.
 Yardımcılar — üyken nijniklerden tain etilecek.
-Amma yeñi ekskasator-larnıñ nijnikleri — bunı, mektepni bitirgen, bilgili adamlar olmaq kerekler.
+Amma yeñi ekskasatorlarnıñ nijnikleri — bunı, mektepni bitirgen, bilgili adamlar olmaq kerekler.
 
 Mansurov sözüni bitirgen soñ:
 
