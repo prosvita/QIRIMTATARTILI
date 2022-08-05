@@ -1,6 +1,18 @@
 {
   "sync": [239, 240, 241],
   "notes": [
-    "s239-241: ru"
-  ]
+    "s239-241: crh-RU,ru"
+  ],
+   "attributes": {
+    "crh-RU": {
+      "author": " Enver Özenbaşlı",
+       "title": "Qırımlarnıñ baştaş yazıları",
+      "year": "2013"
+    },
+      "ru": {
+      "author": "Энвер Озенбашлы",
+        "title": "Эпитафии крымцев",
+        "year": "2013"
+      }
+   }
 }
