@@ -1,6 +1,18 @@
 {
   "sync": [518, 519, 520],
   "notes": [
-    "s518-520: ru"
-  ]
+    "s518-520: crh-RU,ru"
+  ],
+   "attributes": {
+    "crh-RU": {
+      "author": "Amitov Emil",
+       "title": "Uçurımlı yol",
+      "year": "1971"
+    },
+      "ru": {
+      "author": "Амитов Эмиль",
+        "title": "Дорога над кручей",
+        "year": "1971"
+      }
+   }
 }
