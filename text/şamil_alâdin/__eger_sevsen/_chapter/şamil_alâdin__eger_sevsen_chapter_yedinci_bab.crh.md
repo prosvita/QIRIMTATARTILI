@@ -570,7 +570,8 @@ Er kesten soñ Arhipka keldi.
 Agapov topraqnıñ qattı ekenligi hususında şikâyetlendi; soñra Almazovnen beraber topraq yığınından aşağı, yalığa tüşip, tizgece balçıqqa batıp, Hazar-Kend betke yurdiler.
 Bir talaydan soñ tekrar çuqur içinde peyda olıp, bir şeyler aqqında laqırdı etip turğan soñ töpege çıqtılar.
 
-— Topraq qattı degil,— dedi Andrey Zaharoviç, endi evge qaytmağa niyetlengen Agapovğa. — Lâkin topraqnıñ böyle oluvı em yahşı, em de fena.
+— Topraq qattı degil,— dedi Andrey Zaharoviç, endi evge qaytmağa niyetlengen Agapovğa.
+— Lâkin topraqnıñ böyle oluvı em yahşı, em de fena.
 
 Raşid rubilnikni keçirdi.
 İş başladı.
