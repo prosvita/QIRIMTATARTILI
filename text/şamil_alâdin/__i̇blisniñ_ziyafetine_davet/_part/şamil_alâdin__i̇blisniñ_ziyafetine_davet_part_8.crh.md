@@ -8,7 +8,7 @@ Üküm-qarar bekler kibi, közlerini Acerge tikledi, sustı.
 Acer indemey, keri çevirildi, sofağa çıqıp ketti.
 
 – Vaqıtı kelir... yazğan eserleriñizniñ episi tab olunır! – sesi aşhaneden ocağa zornen eşitildi.
- – Acire ayttı, dersiñiz!
+%
 
 Öyle dese de, Üsein oca köyde göñlü içün teselli bula bilmedi.
 Kendine sadıq dostları EmirAli Qayışev, Menseit Kömürci, Settar oca ile alâqasınıñ üzülgenine de çoq azaplanmaqta.
