@@ -176,7 +176,7 @@ O istegen kişisine: "sen" diye de bilir edi, lâkin "siz" dey edi.
 Aydı, cöne!
 Yarın aqşamğa iş yapılğan, azır olsun!
 
-Oña adı ve babasınıñ adını qoşıp,— Zakir Gulâmoviç, dep muracaat etseler, darıla: rica etem, menim adımnı öyle uzun etip aytmañız, dey.
+Oña adı ve babasınıñ adını qoşıp, — Zakir Gulâmoviç, dep muracaat etseler, darıla: rica etem, menim adımnı öyle uzun etip aytmañız, dey.
 
 Curayev bir qaç sene evel institut bitirgen.
 Endi eppi tecribeli injener.
@@ -186,7 +186,7 @@ Amma özüne ve kostümine baqqanda, buña kimse inanmaz.
 Yüksek boylu, süyekli kişi, üstünde qara kostüm.
 Yaqın kelgen soñ, ellerini kördim.
 Olarğa — temiz eller demek az, qarardan ziyade temiz...
-Yueyü, o qadar diqqatlı, o qadar muqayt tıraş olğan ki, temizligi ceetinden üner ola bilecek.
+Yüzü, o qadar diqqatlı, o qadar muqayt tıraş olğan ki, temizligi ceetinden üner ola bilecek.
 Küçük, süyrü saqalı ve qısqa mıyıqları pek cıynaqlı.
 Burunınıñ üstünde pensne.
 İnjener kimerde başını aşağı egiltip, közlüginiñ üstünden baqa.
