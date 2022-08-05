@@ -678,7 +678,8 @@ Draglâyn tezden terenlik, qaranlıq içine tüşip, elâk olacaq.
 Böyle, qasevetlenip turğanda, ekskavatornıñ kevdesini ortken tahta divarlarnıñ çatırdısı birden toqtadı.
 Maşina cansızlanıp, susıp qaldı.
 
-— Cevdet! — dep qıçırdı Nikolay. — Bu ne demek?
+— Cevdet! — dep qıçırdı Nikolay.
+— Bu ne demek?
 
 Topraq yığınınıñ töpesine çıqtıq.
 Kovşnı körip, ayrette qaldıq: o özüniñ azamatlı tişlerinen balaban çaqmaq taşqa ilişken, tros adden aşıq tartılıp qalğan: Bu, beklenilmegen adise, uçurımdan aşağa sarqayatqan ekskavatornı toqtattı.
