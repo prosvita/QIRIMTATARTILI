@@ -97,7 +97,8 @@ Bu maşinalar bizge Dneprden keldiler.
 Sen olarnı proyekt mücibi işletmek isteysiñ.
 Olacaq şeymi? 
 — Curayev papiros yaqtı, bir talaydan soñ meni esine ketirip, cebinden ekinci papirosnı çıqarıp, indemey, maña uzattı.
-Özü İradadan soradı: — ekskavatorda işleysiñizmi?
+Özü İradadan soradı: 
+— ekskavatorda işleysiñizmi?
 
 — Yoq.
 
@@ -108,18 +109,19 @@ Lâkin... bu ceetten özümni pek küçlü is etmeyim.
 
 — Bu yeri fena.
 Evellerde injenerniñ elinden er şey kele edi.
-Plotina-nıñ divarı üstünde qol arabanen yüre, elinde mala, divarlarnı sılay, aqlay turğan.
+Plotinanıñ divarı üstünde qol arabanen yüre, elinde mala, divarlarnı sılay, aqlay turğan.
 Biz... yaş injenerler, olardan artta qalmaq kerekmizmi?
 
-— Qasvetlenmeñiz, Zakir Gulâmoviç! — dedi İrada,— episi qolumız-dan kelir.
+— Qasvetlenmeñiz, Zakir Gulâmoviç! — dedi İrada, — episi qolumızdan kelir.
 Tek vaqıt kerek.
 Keçken afta Baş İdarede meclis oldı.
 "Sen — ilki injenersiñ...— dedi maña Torizo — ilki injener özbek qadını!
 Bu — doğrumı?
 
-— Bilmeyim,— Curayev omuzlarını qıstı,— belki öyledir.
+— Bilmeyim, — Curayev omuzlarını qıstı, — belki öyledir.
 Lâkin siz — sovet injenerisiñiz.
 Tehnikanı egerlemek kereksiñiz! — o tez-tez yurdi, tuvar tezegi tütüni basqan kiçik aralıq içine kirip ketti. 
+
 Soñ biz Mansurovnen körüştik.
 O ayaqqap ustahanesi ögünde ümütsizden peyda oldı.
 
