@@ -1,6 +1,18 @@
 {
   "sync": [656],
   "notes": [
-    "s656: ru"
-  ]
+    "s656: crh+ru"
+  ],
+  "attributes": {
+    "crh-RU": {
+      "author": "Türkmen halq masalı",
+      "title": "Ayvanlar tilini anlağan adam",
+      "year": "N/A"
+    },
+    "ru": {
+      "author": "Туркменская народная сказка",
+      "title": "Язык зверей",
+      "year": "N/A"
+    }
+  }
 }
