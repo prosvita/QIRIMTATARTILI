@@ -46,7 +46,7 @@ Kişi sigarını bir-biri artından sıq-sıq içine çekti, tütünini burunın
 Komsomol!
 Almazovda nijnik...
 
-— Guzel! — dedi Curayev, soza berip,— soñki vaqıtlarda komsomol az kele.
+— Guzel! — dedi Curayev, soza berip, — soñki vaqıtlarda komsomol az kele.
 Sen anda Merkeziy Komitette bu hususta bir-eki söz ayt.
 Menim adımdan...
 
