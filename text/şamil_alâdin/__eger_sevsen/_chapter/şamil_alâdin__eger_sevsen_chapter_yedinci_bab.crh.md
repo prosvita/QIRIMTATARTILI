@@ -689,13 +689,13 @@ Aydavcınıñ artında, ayaq üstünde, Hristofor tura.
 Soñ Toqtabayev ve İrada peyda oldılar.
 İrada uçurımnıñ çetine keldi, tüpsiz qaranlıqqa köz etti: topraq kesekleri ve taşlar alâ avdarıla bermekte ediler.
 
-İrada bu deşetni körse esini ğaip eter.
-bellegen edim.
+İrada bu deşetni körse esini ğaip eter bellegen edim.
 Yoq... ğaip etmedi.
 
 — Men sizge, Mavlân aka, ne degen edim?
 Töpesi yanıq qarağaç hatiriñizdemi?
-Onıñ yanındaki uçastkada ekskavatornı artqa cılıştırmazdan evel topraqnı teşkeriñiz, demegenmi edim? — qız içindeki eecannı sezdirmemege tırışsa da, bazan sesi qaltırap, bazan nefesi tutulıp, özüni elge bermekte edi. — Söyleñiz, Mavlân aka, topraqnı teşkeriñiz degenmi edim?
+Onıñ yanındaki uçastkada ekskavatornı artqa cılıştırmazdan evel topraqnı teşkeriñiz, demegenmi edim? — qız içindeki eecannı sezdirmemege tırışsa da, bazan sesi qaltırap, bazan nefesi tutulıp, özüni elge bermekte edi.
+— Söyleñiz, Mavlân aka, topraqnı teşkeriñiz degenmi edim?
 Demegenmi edim?
 
 Toqtabayev indemedi.
