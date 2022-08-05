@@ -1,6 +1,24 @@
 {
   "sync": [235],
   "notes": [
-    "s235: ru+uk"
-  ]
+    "s235: ru+uk,crh-RU"
+  ],
+  "attributes": {
+    "crh-RU": {
+      "author": "Aleksandr Puşkin",
+      "title": "Bağçasaray Çeşmesi",
+      "year": "1937",
+      "translator": "Şemi-zade Eşref"
+    },
+    "ru": {
+      "author": "Александр Пушкин",
+      "title": "Бахчисарайский фонтан",
+      "year": "1823"
+    },
+    "ukr": {
+      "author": "Олександр Пушкін"
+      "title": "Бахчисарайський Фонтан"
+      "year": "2008"
+    }
+  }
 }
