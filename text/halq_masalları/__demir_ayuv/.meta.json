@@ -2,5 +2,17 @@
   "sync": [657],
   "notes": [
     "s657: ru"
-  ]
+  ],
+  "attributes": {
+    "crh-RU": {
+      "author": "Ğağauz halq masalı",
+      "title": "Devir ayuv",
+      "year": "N/A"
+    },
+    "ru": {
+      "author": "Гагаузкая народная сказка",
+      "title": "Железный ведмедь",
+      "year": "Н/A"
+    }
+  }
 }
