@@ -129,11 +129,11 @@ O ayaqqap ustahanesi ögünde ümütsizden peyda oldı.
 Sigizmund Genrihoviç de mında.
 Lâkin yataqhane içün koyka yoq ve yaqında olacaqqa beñzemey...— özü terenden köküs keçirdi.
 
-— Bunı, Abdulla Sadıqoviç, maña aytqanda ne fayda? — dedi İrada,— koyka tapıp berir belleysiñizmi?
+— Bunı, Abdulla Sadıqoviç, maña aytqanda ne fayda? — dedi İrada, — koyka tapıp berir belleysiñizmi?
 
 Men kenarda indemey turdım, eki injener arasındaki munasebetler parlaq olmağanına yazıqsındım.
 
-— Rica etem,— dedi Mansurov,— Anna Yakovlevnağa eki söz aytıñız...
+— Rica etem, — dedi Mansurov, — Anna Yakovlevnağa eki söz aytıñız...
 
 — Eki söz?
 Niçün?
