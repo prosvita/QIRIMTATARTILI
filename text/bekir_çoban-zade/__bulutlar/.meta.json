@@ -1,6 +1,20 @@
 {
   "sync": [238],
   "notes": [
-    "s238: ru"
-  ]
+    "s238: сrh-RU, ru"
+  ],
+   "attributes": {
+    "crh-RU": {
+      "author": "Çoban-zade Bekir",
+       "title": "Bulutlar",
+      "year": "2003"
+    },
+      "ru": {
+      "author": "Бекир Чобан-заде",
+        "title": "Облака",
+        "year": "2003",
+        "translator": "Дружинин Сергей"
+      }
+   }
 }
+
