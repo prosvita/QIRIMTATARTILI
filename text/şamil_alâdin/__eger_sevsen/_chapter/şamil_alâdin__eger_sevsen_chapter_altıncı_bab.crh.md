@@ -54,23 +54,26 @@ Menim adımdan...
 Eleslenip baqtı.
 
 — Öz adımdan aytsam ne ola? 
+
 Curayev küldi.
 Tekrar ellerimizni sıqqan soñ, dedi:
 
 — Bir şey de...
-İsteseñiz, öz adıñızdan aytıñız,— lâkin İradanıñ ğururı azaçıq tırnalğanını sezdi.
+İsteseñiz, öz adıñızdan aytıñız, — lâkin İradanıñ ğururı azaçıq tırnalğanını sezdi.
 
 Biznen sağlıqlaşqanını unutıp, ellerini omuzlarımız üzerine qoyaraq, bizimnen beraber yol boyu cönedi:
 
 — Gece nasıl?
 Mücizesiz keçtimi?
 
-— Troslar üzüle berdiler,— dedi İrada. — Bu — bir.
+— Troslar üzüle berdiler, — dedi İrada. 
+— Bu — bir.
 Ondan soñ, elektrikler de baştaqlaşqan kibi körüneler.
 
 — Baba evden çıqsa, oğlu tavannı teşe eken.
-Tursunov ketkenden beri, energiya kerçekten de, az. — Curayev, sezilir-sezilmez külümsirep, İradanıñ yüzüne baqtı.
-Qız azaçıq qızardı, lâkin özüni tez-tez elge aldı,— amma qabaat troslarda degil.
+Tursunov ketkenden beri, energiya kerçekten de, az. 
+— Curayev, sezilir-sezilmez külümsirep, İradanıñ yüzüne baqtı.
+Qız azaçıq qızardı, lâkin özüni tez-tez elge aldı, — amma qabaat troslarda degil.
 Yük ağır.
 Trosnıñ diametri küçük.
 
@@ -79,7 +82,8 @@ Qız meraqlandı.
 — Siz, Zakir Gulâmoviç, bunı öz tecribeñizge esaslanıp aytasıñızmı?
 
 — Onıñ emiyeti yoq.
-Sabır etmek kerek,— Curayev ellerini omuzlarımız üstünden alıp, yolnıñ çetine çıqtı. — Bu büyük sır.
+Sabır etmek kerek, — Curayev ellerini omuzlarımız üstünden alıp, yolnıñ çetine çıqtı.
+— Bu büyük sır.
 Men onı Agapovda araret uyantmaq içün yaptım.
 Yuqlay bere...
 Haberiñiz barmı?
@@ -91,7 +95,8 @@ Bu hususta men sizge qaç kere ayttım... unuttıñızmı?
 — Muqayt olunsa, elbette... çünki şimdi tros tapmaq pek küç.
 Bu maşinalar bizge Dneprden keldiler.
 Sen olarnı proyekt mücibi işletmek isteysiñ.
-Olacaq şeymi? — Curayev papiros yaqtı, bir talaydan soñ meni esine ketirip, cebinden ekinci papirosnı çıqarıp, indemey, maña uzattı.
+Olacaq şeymi? 
+— Curayev papiros yaqtı, bir talaydan soñ meni esine ketirip, cebinden ekinci papirosnı çıqarıp, indemey, maña uzattı.
 Özü İradadan soradı: — ekskavatorda işleysiñizmi?
 
 — Yoq.
