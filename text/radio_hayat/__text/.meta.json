@@ -1,6 +1,18 @@
 {
   "sync": [651, 652],
   "notes": [
-    "s651-652: ru,uk"
-  ]
+    "s651-652:, ru,uk"
+  ],
+  "attributes": {
+    "crh,ru,uk": {
+      "author": "Сhubarov.R",
+      "title": "Radio Hayat",
+      "year": "2018"
+    },
+    "ru": {
+      "author": "Чубаров.Р",
+      "title": "Радио Хаят",
+      "year": "2018"
+    }
+  }
 }
