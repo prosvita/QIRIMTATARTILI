@@ -707,7 +707,8 @@ Böyle çıqımsızlıq ziyankârlıq demek ola.
 
 Toqtabayev bir şey aytmadı.
 
-— "Mavı qayada" sekiz saat yuqlap, soñ turıp evge ketmege alışıp qaldıñız! — dedi İrada. — Lâkin bundan soñ böyle olmaycaq.
+— "Mavı qayada" sekiz saat yuqlap, soñ turıp evge ketmege alışıp qaldıñız! — dedi İrada.
+%— Lâkin bundan soñ böyle olmaycaq.
 
 Toqtabayev oña arqasını çevirdi, qulağını köterip, negedir diñlendi.
 Men demir köpür betke baqtım: bizim tarafqa üç traktor daa keleyata edi.
@@ -718,7 +719,8 @@ Toqtabayev onıñ adetini bile eken, cevap bermey, indemey turğanınıñ sebebi
 
 — Tros barmı? — dep soradı İrada.
 Biz kögertede, yaşçik içinde qalın tros barlığını ayttıq.
-Bu qıznıñ göñlüne hoş keldi. — Traktorlar kelgence ekskavatornıñ kevdesini trosnen bağlap qoyıñız!
+Bu qıznıñ göñlüne hoş keldi.
+— Traktorlar kelgence ekskavatornıñ kevdesini trosnen bağlap qoyıñız!
 
 Toqtabayev Raşidni ve Hristofornı yanına çağırıp, tros ketirilmesini emir etti.
 Raşid kögertege çıqıp, trosnı yerge taşladı.
