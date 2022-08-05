@@ -24,7 +24,7 @@ Keteyatqanda de yük maşinasınıñ, de develer kervanınıñ, de yüksek köp�
 
 Soqaqlarda ve küçük aralıqlarda çeşit milletler tilinde laqırdı işitile.
 Mavı renkli pamuqlı halat kiygen qart, pencerege baqıp, özbek tilinde laqırdı ete.
-Başlarında telpekleri eki kişi... biri yolnıñ bir çetinde, ekincisi diger çetinde toqtağan, bütün küçlerinen qıçı-rıp, qazah tilinde bir şeyler hususında iddalaşmaqtalar.
+Başlarında telpekleri eki kişi... biri yolnıñ bir çetinde, ekincisi diger çetinde toqtağan, bütün küçlerinen qıçırıp, qazah tilinde bir şeyler hususında iddalaşmaqtalar.
 Üstüne kök bıcaq, santraç ştan, eslicerek kişi yeñi evniñ sofası ögünde toqtağan, sarı plaşçlı yaş adamnı — yardımcısı olmalı — araretli italyan tınçıqtırmaqta.
 Bu, İtaliya proyekt işlerini eda etici, İsveçre firmasınıñ konsultantı.
 Lâkin, diqqat etiñiz!
