@@ -425,7 +425,8 @@ Hazar Kendden asma yip yolğace, tahminen, eki buçuq kilometr.
 
 İranıñ çırayı topraq kibi oldı.
 "Tez, idarege yetiş! — dep qıçırdı atlı kişige,— doğru idarege bar, aşağı paromğa adam yibersinler".
-Özü ise qapunıñ yanaşasında yatqan qıyış-qunğır sırıqnı maña kösterip: — bunı vagonetkağa alıp ketiñiz! — dep emir etti.
+Özü ise qapunıñ yanaşasında yatqan qıyış-qunğır sırıqnı maña kösterip:
+— Bunı vagonetkağa alıp ketiñiz! — dep emir etti.
 
 Sırıqnıñ ucuna ince tros parçası bağlap, beş metr yükseklikte sallanıp turğan vagonetkanıñ çetine iliştirip qoydıq.
 
