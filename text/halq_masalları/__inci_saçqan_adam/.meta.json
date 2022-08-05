@@ -2,5 +2,17 @@
   "sync": [658],
   "notes": [
     "s658: uk"
-  ]
+  ],
+  "attributes": {
+    "crh-RU": {
+      "author": "Qandımova S., Umerov N.",
+      "title": "İnci saçqan adam",
+      "year": "2012"
+    },
+    "uk": {
+      "author": "Бекірова З., Кононенко Д., Гуменюк В.",
+      "title": "Людина,що шукає перлину",
+      "year": "2012"
+    }
+  }
 }
