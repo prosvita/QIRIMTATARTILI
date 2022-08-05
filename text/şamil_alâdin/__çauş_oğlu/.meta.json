@@ -2,5 +2,17 @@
   "sync": [375, 376, 377, 378, 379],
   "notes": [
     "s375-379: crh+ru"
-  ]
+  ],
+  "attributes": {
+    "crh-RU": {
+      "author": "	Alâdin Şamil",
+      "title": "Çauş oğlu",
+      "year": "1957"
+    },
+    "ru": {
+      "author": "Алядин Шамиль",
+      "title": "Чавуш оглу",
+      "year": "1957"
+ }
+  }
 }
