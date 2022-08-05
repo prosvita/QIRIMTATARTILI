@@ -36,17 +36,17 @@ O, kepkasını çıqarıp, bizge sallay.
 İradanıñ hatirinden şarqnıñ nezaket qaideleri çıqtı.
 Evelâ, al-hatır soraycağı yerde, birden hızmet hususında laqırdı başladı.
 
-— Mehanizmler shemasını divarğa tünevin asıp qoydıq,— dedi kişi — yataqhane çoqtan azır, tek... koyka yoq.
+— Mehanizmler shemasını divarğa tünevin asıp qoydıq, — dedi kişi — yataqhane çoqtan azır, tek... koyka yoq.
 
 Kişi sigarını bir-biri artından sıq-sıq içine çekti, tütünini burunından dumanlatıp çıqararaq, tüpçigini yerge bıraqtı, rezina çızmasınen üstüne basıp ezdi, elini evelâ İradağa, soñra maña uzattı.
 
 — Curayev! — dedi o ve eleslenip betime baqtı.
 
-— Bekirov! — dedi İrada,— putövka ile kelgen.
+— Bekirov! — dedi İrada, — putövka ile kelgen.
 Komsomol!
 Almazovda nijnik...
 
-— Gu-zel! — dedi Curayev, soza berip,— soñki vaqıtlarda komsomol az kele.
+— Guzel! — dedi Curayev, soza berip,— soñki vaqıtlarda komsomol az kele.
 Sen anda Merkeziy Komitette bu hususta bir-eki söz ayt.
 Menim adımdan...
 
