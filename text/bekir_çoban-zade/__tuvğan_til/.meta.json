@@ -1,7 +1,7 @@
 {
   "sync": [237],
   "notes": [
-    "s237: ru"
+    "s237: crh-RU+ru"
   ],
    "attributes": {
     "crh-RU": {
@@ -10,11 +10,9 @@
       "year": "1918"
     },
       "ru": {
-      "author": "",
-        "title": "",
-        "year": "",
-        "translator": ""
+      "author": "Бекир Чобан-заде",
+        "title": "Родной язык",
+        "year": "1918"
       }
    }
-}
 }
