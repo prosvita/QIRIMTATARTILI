@@ -2,5 +2,19 @@
   "sync": [237],
   "notes": [
     "s237: ru"
-  ]
+  ],
+   "attributes": {
+    "crh-RU": {
+      "author": "Çoban-zade Bekir",
+       "title": "Tuvğan til",
+      "year": "1918"
+    },
+      "ru": {
+      "author": "",
+        "title": "",
+        "year": "",
+        "translator": ""
+      }
+   }
+}
 }
