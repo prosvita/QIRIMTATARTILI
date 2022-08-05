@@ -205,7 +205,7 @@ O, zanıma qalsa, yalıñız Komsomol Merkeziy Komitetiniñ tehnikanı menimsev 
 Lâkin endi çıqıp ketmek qolaysız keldi.
 Qart injener yavaştan bıcağınıñ ögüni çezip, jiletiniñ cebinden saatini çıqardı.
 
-— Vaqıt!..— dedi o,— başlamağa vaqıt, dostlar!
+— Vaqıt!..— dedi o, — başlamağa vaqıt, dostlar!
 
 Kursantlar, basamaqlarnı gürsüldete, berip, sınıfqa doğruldılar.
 
@@ -214,7 +214,9 @@ Kursantlar, basamaqlarnı gürsüldete, berip, sınıfqa doğruldılar.
 Nasıl?
 Kiresiñizmi?
 
-Kirem! — dedim men. — Bu faydalı şey...— Ekimiz olarnıñ artından yurdik.
+Kirem! — dedim men. 
+— Bu faydalı şey...
+— Ekimiz olarnıñ artından yurdik.
 Bizim artımızdan Sigizmund Genrihoviç, Mansurov ve Curayev kelip, ögdeki kürsülerge oturdılar.
 Ders başlanmazdan evel ayaqqa turıp, şimdilik soba yaqmaq içün odun yoqluğı sebebinden, sınıfta fufaykanen oturmaq mümkün ekenligini, lâkin qalpaqlarını çıqaruv zarurlığını ders vaqıtında tütün içmek yasaq etilgenini bildirdi.
 Bundan soñ, Mansurov şu sözlerni ayttı: tezden parkqa yeñi ekskavatorlar kelecek.
