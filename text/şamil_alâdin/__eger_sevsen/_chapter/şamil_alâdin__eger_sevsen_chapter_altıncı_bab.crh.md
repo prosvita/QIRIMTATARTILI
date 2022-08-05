@@ -163,14 +163,13 @@ Curayev ise namuslı işlerini gizley.
 
 Onıñ yerinde başqası olsa, yaqanı qurtarmaq içün deral bir şey işandırır, yalan patlatır, çıqar keter.
 Curayev... yoq!
-Onıñ özüne ait ameliy sözleri bar: "yahşı... körermiz!" — dep taşlay ve sen yanından ketkeniñ kibi, areket etip başlay, öz ibaresinen söylegende, adamlarnı, aqiqiy bolşeviklerni, amamğa... aşhanege, kommunhozğa qoya", eger zaruret olsa, kene şu yerlerge komsomollarnı "taşlay" ve daima bir şeyni talap ete:
-
-"yarın aqşamğa azır olsun!" Em, kerçekten de, yarın aqşam amamda kotöllar yaqılğan, suvu qaynağan ola, ondan yüzlerce kişiler yuvunıp, temizlenip çıqayatqan vaqıtta, kommunhoznı, yahut komendant Petâ emceni dünyada eñ hoş, eñ acaip sözlernen maqtay, amma Curayevni añğan kişi olmay.
+Onıñ özüne ait ameliy sözleri bar: "yahşı... körermiz!" — dep taşlay ve sen yanından ketkeniñ kibi, areket etip başlay, öz ibaresinen söylegende, adamlarnı, aqiqiy bolşeviklerni, amamğa... aşhanege, kommunhozğa qoya", eger zaruret olsa, kene şu yerlerge komsomollarnı "taşlay" ve daima bir şeyni talap ete: "yarın aqşamğa azır olsun!" 
+Em, kerçekten de, yarın aqşam amamda kotöllar yaqılğan, suvu qaynağan ola, ondan yüzlerce kişiler yuvunıp, temizlenip çıqayatqan vaqıtta, kommunhoznı, yahut komendant Petâ emceni dünyada eñ hoş, eñ acaip sözlernen maqtay, amma Curayevni añğan kişi olmay.
 Yalıñız amam meselesinde degil, er şeyde öyle.
 
 O Mansurovnen laqırdını qısqadan kese.
 
-— Maña baq! — dey oña Curayev,— Sen bolşeviksiñmi?
+— Maña baq! — dey oña Curayev, — Sen bolşeviksiñmi?
 Bolşevik olsañ, Leninniñ saat ustasınen etken laqırdısını hatiriñe ketir: "siz" dey o... añladıñmı?
 Lenin!
 O istegen kişisine: "sen" diye de bilir edi, lâkin "siz" dey edi.
