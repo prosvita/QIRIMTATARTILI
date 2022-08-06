@@ -1,6 +1,17 @@
 {
   "sync": [650],
   "notes": [
-    "s650: ru"
-  ]
+    "s650: crh+ru"
+  ],
+  "attributes": {
+    "crh-RU": {
+      "author": "	Yunus Şevket",
+      "title": "Edebiyatımızda ''lager nesiri''",
+      "year": "2002"
+    },
+    "ru": {
+      "author": "Юнус Шевкет",
+      "title": "«Лагерная проза» в нашей литературе",
+    }
+  }
 }
