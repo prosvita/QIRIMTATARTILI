@@ -151,7 +151,7 @@ Kandıba küldi.
 Menim oynağanımnı körecegi keldi ğaliba.
 
 — Oynasañ ne?
-Beliñ sınacaqmı?
+%
 Kavalerler sağ taraftan, hanımlar sol yaqtan!
 
 — Oyna şunı! — dedi Karim.
