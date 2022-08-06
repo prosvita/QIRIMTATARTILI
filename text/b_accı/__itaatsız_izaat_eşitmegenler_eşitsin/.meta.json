@@ -1,6 +1,16 @@
 {
   "sync": [236],
   "notes": [
-    "s236: ru"
-  ]
+    "s236: crh-RU+ru"
+  ],
+   "attributes": {
+    "crh-RU": {
+      "author": "Accı Bekir",
+       "title": "İtaatsız izaat: eşitmegenler eşitsin",
+    },
+      "ru": {
+      "author": "Аджи Бекир",
+        "title": "Непослушное послушание"
+      }
+   }
 }
