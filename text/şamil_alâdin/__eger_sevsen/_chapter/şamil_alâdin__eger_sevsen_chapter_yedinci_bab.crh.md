@@ -654,7 +654,7 @@ Maşinist, topraq yığını eşileyatqanını körip:
 Bunı kim ayttı?
 Almazovmı?
 Atamızmı?
-Ne demek olsun!
+%
 Yanımda yatqan eki şpalnı alıp, ekskavatorğa yuvurdım.
 Areketsiz tiklenip qalgan köpçekniñ astına qoydım.
 Soñ kene çaptım... kene ketirip, relsniñ astına köndelenlep tıqtım.
