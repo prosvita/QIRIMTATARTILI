@@ -3,4 +3,19 @@
   "notes": [
     "s613: сrh+ru+uk"
   ],
+  "attributes": {
+    "crh-RU": {
+      "author": " Frenk halq massalları",
+      "title": "Qaşqır çıqçıqbalaban ve kiyik qurtlar",
+    },
+    "ru": {
+      "author": "Французкое народное творчество",
+      "title": "Волк,улитка и осы",
+    },
+    "ru": {
+      "author": " Французька народна творчість",
+      "title": "Вовк,равлик та оси",
+    }
+  }
+}
   
