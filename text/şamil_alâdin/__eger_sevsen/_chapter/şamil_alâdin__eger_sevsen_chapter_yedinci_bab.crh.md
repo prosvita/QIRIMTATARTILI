@@ -810,7 +810,8 @@ Kerçek, komsomollar az degil.
 Olarnıñ komiteti başında Şadmanova özü tura.
 
 — Men komsomol sekretarı degilim.
-Muavinim,— dedi İrada.— Arada farq bar.
+Muavinim,— dedi İrada.
+— Arada farq bar.
 
 — Al azırda sekretar sensiñ,— Curayev itiraz etti,— burğuçlay berme!
 Özüñ merkezkomnıñ azasısıñ.
@@ -850,7 +851,8 @@ Peçka yanında pek qızışıp kettim.
 Pek küç mesele...— dedim men,— elbet de... er kesteki eki el, eki ayaq onda da bar.
 Amma... bilmeyim, tırışıp baqmaq kerek.
 
-— Tırışıp baqıñız! — dedi Curayev. — Söz kelimi, bugün ekskavatorda olğan qazanı Toqtabayevke o kelip bildirdi...
+— Tırışıp baqıñız! — dedi Curayev.
+— Söz kelimi, bugün ekskavatorda olğan qazanı Toqtabayevke o kelip bildirdi...
 Bu da bir iş alâmeti.
 Öyle degilmi?
 
