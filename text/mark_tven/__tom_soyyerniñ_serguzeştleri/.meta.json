@@ -1,6 +1,28 @@
 {
   "sync": [614, 615, 616],
   "notes": [
-    "s614-616: en,ru,uk"
-  ]
+    "s614-616: crh-RU,en,ru,uk"
+  ],
+   "attributes": {
+    "crh-RU": {
+      "author": "Mark Tven",
+       "title": "Tom Soyerniñ serguzeştleri",
+      "year": "1876"
+    },
+      "ru": {
+      "author": "Марк Твен",
+        "title": "Приключения Тома Сойера",
+        "year": "1876"
+      },
+     "uk": {
+      "author": "Марк Твен",
+        "title": "Пригоди Тома Сойера",
+        "year": "1876"
+   },
+     "en": {
+      "author": "Маrk Twain",
+        "title": "The Adventures of Tom Sawyer",
+        "year": "1876"
+     }
+   }
 }
