@@ -231,7 +231,7 @@ Orta mektep direktorı oldım.
 Köyge nemselerniñ top-arabaları kelip kirgende mektepte derslerim devam etmekte edi.
 Siz meni, Mahuldürden ketti, başqa yerde debdebeli ayat sürdi belleydirsiñiz!
 Yoq!
-Muallimlik yer yerde bir.
+Muallimlik er yerde bir.
 
 Men ocanıñ çalıq, aqıllı sözlerini hoşnutlıqnen diñlemekte olıp, aqırından ayaqqa turdım, evde acayip cınıstan kimse yoqluğı sebebinden, özüm aşhanege çıqıp, qave pişirip ketirmek isteginen qapuğa doğruldım, oca niyetimni duyıp, meni toqtattı.
 
@@ -239,7 +239,7 @@ Men ocanıñ çalıq, aqıllı sözlerini hoşnutlıqnen diñlemekte olıp, aqı
 – Oturıñız, biraz qonuşayıq!
 Menim yarım künlük vaqtım bar.
 Gece poyezdinen Şahrihanğa qaytacağım. – Qatiyen razı olmadı.
-Meni yerime oturmağa mecbur etti.
+Meni yerime oturtmağa mecbur etti.
 Özü bir talay sustı.
 Sözü ne üzerinde üzülgenini eske ketirmek içün tüşündi... hatırlap olamadı.
 Men, sözü muallimlikniñ alı... üstünde bölüngenini hatırlattım.
