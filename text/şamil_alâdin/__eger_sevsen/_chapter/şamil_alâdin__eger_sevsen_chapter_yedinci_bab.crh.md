@@ -394,7 +394,7 @@ Narâdnı uzattıq.
 — Nasıl barja?
 
 — Qurucılıqta nasıl barja bar?
-Sorap oturğanıñ ne?
+%
 Hazar Kendde.
 
 Çar-Çaq özü, umumen, teren özen, lâkin onıñ boyunda çeşit bentler, qayalar, aylanmalar barlar.
