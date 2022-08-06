@@ -871,8 +871,8 @@ Yarın aqşam neticesini maña bildirirsiñiz!
 
 — Laqırdı etip baqarım! — dedim men.
 
-— Başqa iş yeq.
-Men kettim. — Curayevniñ, niçündir, birden ketecegi keldi.
+— Başqa iş yoq.
+Men kettim, — Curayevniñ, niçündir, birden ketecegi keldi.
 Em, aqiqaten, ellerimizni qattı sıqaraq, çıqtı.
 
 Biz skemle üstünde qaldıq.
