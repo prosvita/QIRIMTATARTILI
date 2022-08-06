@@ -1,6 +1,18 @@
 {
   "sync": [653],
   "notes": [
-    "s653: ru"
-  ]
+    "s653:crh+ru"
+  ],
+  "attributes": {
+    "crh-RU": {
+      "author": "Çelebicihan Noman",
+      "title": "Qarılğaçlar duası",
+      "year": "1913"
+    },
+    "ru": {
+      "author": "Челебиджихан Номан",
+      "title": "Молитва ласточек"
+      "year": "1913"
+    }
+  }
 }
