@@ -8,5 +8,17 @@
     "s251-320: uk",
     "s445-447: uk",
     "s449-454: uk"
-  ]
+  ],
+  "attributes": {
+    "crh-Uk": {
+      "author": "	Qandımova S., Umerov N.",
+      "title": "	Halq icadı",
+      "year": "2012"
+    },
+    "uk": {
+      "author": "",
+      "title": "Народна творчість",
+      "year": "2012"
+    }
+  }
 }
