@@ -95,7 +95,7 @@ Ne vaqıt bitecek?
 Kimse bilmey, çünki klub plan mücibi, devlet parasınen degil, komsomollarnıñ öz küçlerinen... bedava qurula.
 Torizo onıñ divarlarını qalamaq içün bir bataq teneke... şifer bermedi.
 Klub binası umumiy inşaatnıñ iqtisadı esabına qurulmaqta.
-Bir kün yarım tonna ganç, yahud tsement tapıla qoysa, Hristofor, Nikolay, Raşid, men  boş vaqıtımızda yuvurıp barıp, rastvor yasay, binanıñ bir köşesini, qalap ve sılap kelemiz.
+Bir kün yarım tonna ganç, yahud tsement tapıla qoysa, Hristofor, Nikolay, Raşid, men  boş vaqıtımızda yuvurıp barıp, rastvor yasay, binanıñ bir köşesini, qalap ve sılap kelemiz.
 Soñ biraz ağaç tapılğance beklemek kerek ola.
 
 Arhipka turmuş problemaları hususında çoq davalaşıp oturdı.
