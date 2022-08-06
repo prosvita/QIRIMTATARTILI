@@ -1,6 +1,26 @@
 {
   "sync": [595, 596, 597, 598, 599, 600, 601, 602, 603, 604],
   "notes": [
-    "s595-604: ru,uk"
-  ]
+    "s595-604: crh+ru+uk"
+  ],
+  "attributes": {
+    "crh-RU": {
+      "author": "	Raspe Rudolf",
+      "title": "	Baron Münhauzenniñ serguzeştleri",
+      "year": "1941"
+    },
+    "ru": {
+      "author": "Распэ Рудольф Эрих",
+      "title": "Приключения Барона Мюнхгаузена",
+      "year": "N/A"
+    },
+    "uk": {
+      "author": "Распе Рудольф",
+      "title": "Пригоди Барона Мюнхаузена",
+      "year": "N/A"
+
+
+    
+    }
+  }
 }
