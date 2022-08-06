@@ -1,6 +1,16 @@
 {
   "sync": [654],
   "notes": [
-    "s654: en,ru,uk"
-  ]
+    "s654: crh-RU,en,ru,uk"
+  ],
+   "attributes": {
+    "crh-RU": {
+      "author": "İnşalar cıyıntığı",
+       "title": "Eyiqomşucılıq"
+    },
+      "ru": {
+      "author": "Cборник рассказов",
+        "title": "Добрососедство"
+      }
+   }
 }
