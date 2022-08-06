@@ -2,5 +2,21 @@
   "sync": [367, 368, 369, 370, 371, 372, 373, 374],
   "notes": [
     "s367-374: crh+ru+uk"
-  ]
+  ],
+  "attributes": {
+    "crh-RU": {
+      "author": "Alâdin Şamil",
+      "title": "İblisniñ_ziyafetine_davet",
+      "year": "1987"
+    },
+    "ru": {
+      "author": "Алядин Шамиль",
+      "title": "Приглашение на пир к дьяволу",
+      "year": "1987"
+   },
+    "ru": {
+      "author": "Алядін Шаміль",
+      "title": "Запрошення на бенкет до диявола",
+    }
+  }
 }
