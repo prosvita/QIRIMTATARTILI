@@ -32,5 +32,5 @@ jobs:
       uses: reviewdog/action-eslint@v1
       with:
         reporter: ${{ github.event_name == 'pull_request' && 'github-pr-review' || 'github-check' }}
-        eslint_flags: --ext js,json --ignore-pattern '!.meta.json' .
+        eslint_flags: --ext js,json --ignore-pattern "!.meta.json" .
         fail_on_error: "true"
