@@ -171,7 +171,7 @@ Yara daa taze.
 Gençlik “Vetan hadimi”ne büyük ümütler bağlay edi.
 Yazıq ki, halqnıñ serbestligi içün yeñi fikirler söylegen “Vetan hadimi”... artıq yoq.
 
-– Afu etiñiz, muallim! – dedi Üsein oca basıq davuşle, – men fikirimni, biraz başqa sözlernen ifade ettim.
+– Afu etiñiz, muallim! – dedi Üsein oca basıq davuşle, – men fikrimni biraz başqa sözlernen ifade ettim.
 Men demek istedim ki, eki gazetada emel bir olmalı.
 Eki gazeta da adaletsizlikke qarşı küreşmege borclular.
 Abdureşid Mediyev küreşti.
@@ -183,7 +183,7 @@ Musavatsızlıq ile!
 
 – Küreşti... lâkin yeñdimi? – Naşir iddetlenip soradı.
  – Yeñe bilirmi edi?
-– Yoq, yeñip olamadı.Yeñmek içün çoqluq ve halqnıñ birligi kerek.
+– Yoq, yeñip olamadı. Yeñmek içün çoqluq ve halqnıñ birligi kerek.
 
 – Yeñmek içün küç lâzim, – diye itiraz etti İsmail efendi.
  – Biz zayıfmız.
@@ -202,20 +202,20 @@ Üsein Şamil bu fikirlerge qarşı degil, ama şimdi olar, o fikirler ciddi
 Azatlıqnı elde etmek içün, büyük Rusiye halqlarını horlayıcı devlet qurumını yıqmaq kerek...
 Naşir bu hususta susa.
 Kendi mulâazalarında pek muqayt.
-Öyle oldıqta, Toqtarğazı öz fikirini açıq ifade etmege borclu, lâkin öyle yapmağa şimdi acet barmı?
+Öyle oldıqta, Toqtarğazı öz fikrini açıq ifade etmege borclu, lâkin öyle yapmağa şimdi acet barmı?
 O, bu evge yekâne maqsat ile, yani muallimge öz şiirleri “Terciman”da basılmasını rica etmek içün keldi.
 Elbette, basılmağa lâyıq olsalar.
-Lâkin, şimdiki tatar gençliginiñ qafası, “Terciman”da demokratik istiqamet açıqaydın ifade etilsin degen fikir ile bant ekenini Toqtarğazı hatirden çıqarmay.
+Lâkin, şimdiki tatar gençliginiñ qafası, “Terciman”da demokratik istiqamet açıq-aydın ifade etilsin degen fikir ile bant ekenini Toqtarğazı hatirden çıqarmay.
 Şimdi içindeki araretini tıyıp olamadı.
 
 – Afu etiñiz, İsmail efendi, – dedi Üsein oca, – farz eteyikki, bizim keride qaluvımıznıñ sebeplerinden birisi – cailligimiz olsun.
 O alda, cailligimizniñ sebebi nede?
 Bizni esirler vaziyetinde tutqan ne?
 Bizni horlağan ve ayaq astında taptağan ne?
-Bizni insan uquqından marum etken ne?
+Bizni insan uquğından marum etken ne?
 Padişa akimiyeti degilmi?
 
-Ev saibi, Toqtarğazınıñ ağızından: “insanlıq uquqından marum etken... padişa akimiyeti” ibarelerini eşitkende, közlerini sıq-sıq açtı ve yumdı, çünki muallimniñ evi, basmahanesi, azbarı – hafiyeler ile muasarağa olunğan, evge ve basmahanege kimler kire – kimler çıqa, nasıl laqırdılar ola, episini politsiya idaresine daimiy surette yetiştirip turalar.
+Ev saibi, Toqtarğazınıñ ağzından: “insanlıq uquğından marum etken... padişa akimiyeti” ibarelerini eşitkende, közlerini sıq-sıq açtı ve yumdı, çünki muallimniñ evi, basmahanesi, azbarı – hafiyeler ile muasarağa olunğan, evge ve basmahanege kimler kire – kimler çıqa, nasıl laqırdılar ola, episini politsiya idaresine daimiy sürette yetiştirip turalar.
 
 Rusiye musulmanları oqusalar, bilimli adamlar olsalar, beyaznı – qaradan ayırmağa bilseler, – dedi naşir, – zülmetten qurtuluv yolunı da taparlar.
 Rusiye musulmanlarına, Avropa halqları kibi ileri olmaq içün bilgi, medeniyet kerek.
@@ -240,7 +240,7 @@ Musulmanlarnıñ özleri de çeşit tabaqalı, zengini de bar, fuqaresi de b
 Dünyanı keze.
 Yaşay.
 Demekki, iş – adamnıñ diniy mensübiyetinde, yahut medeniyet seviyesinde degil, cemiyette tutqan içtimaiy yerinde.
-Öyle eken, fikirimce, emekdar halqnıñ ellerindeki buğavlarnı qırmaq, onı azat etmek kerek.
+Öyle eken, fikrimce, emekdar halqnıñ ellerindeki buğavlarnı qırmaq, onı azat etmek kerek.
 
 Toqtarğazı bu evge, şiirleri “Teciman”da derc etilüvini rica içün kelse de, içtimaiy serbestlikni ifadege ziyade yol bergeni, İsmail efendiniñ çeresindeki aqçıllıqtan sezilmekte edi ki, bu vaqıtqa qadar naşirniñ evine kelip-ketkenlerden iç kimse siyasiy mulâazalarda bu derecege köterilmegen edi.
 Ocanıñ bir qaç tikçe sözü naşirniñ yüregini qırdı.
@@ -294,7 +294,7 @@ Parijdeki rus emigrantları maña büyük alicenaplıq kösterdi, ev tapıp 
 Meni İvan Sergeyeviç Turgenev ile körüştirdiler.
 O, meni evine musafirlikke davet etti.
 İvan Sergeyeviç, mendeki iqtisadiy qıyınlıqnı bilgen soñ, maña ödünçke para berdi.
-Onıñ evinde musafirlikte bulunğan vaqıtımda menimle fransız tilinde qonuşa edi.
+Onıñ evinde musafirlikte bulunğan vaqtımda menimle fransız tilinde qonuşa edi.
 Fransızca yahşı laqırdı etkenimni bilgen soñ, özüniñ eserleriniñ fransız tiline tercime etilüvinde ve elyazmalarnı redaktirlevde yardım köstermemni rica etti.
 
 İvan Sergeyeviçniñ para yardımı sayesinde o, Parijden İspaniyağa seyaatqa ketti.
@@ -322,7 +322,7 @@ Zöreniñ doğmuş qız qardaşı Zeynepke evlendim.
 O da hasta edi, çoq yaşamadı.
 Taqdirim öyle eken, Üsein efendi.
 Artıq ihtiyar oldım.
-Ama ayatımdan neşman degilim.
+Ama ayatımdan peşman degilim.
 Men bu faniy dünyadan boş araba kibi ketmem.
 Halqım içün elimden kelgen bütün işlerni yaptım.
 Çoq yıllar keçerler, men ayatta olmam, itimal, bazı oqumış adamlar menim aqqımda: “İsmail bey rus padişasına satılğan edi...” derler ve belki yazarlar.
@@ -333,7 +333,7 @@ Rus halqı özüniñ sadeligi, qalbiniñ pakligi, rus tabiatına has doğma
 O, sebepten, musulman onıñ müitinde özüni yabaniy adam olaraq is etmey ve rus adamlarınen birlikte oquvdan ve olarğa yaqın bulunuvdan qaçınmay”.
 
 Soñki sözlerni aytqanda, onıñ közleriniñ kenarlarında iri qozyaşı tamçıları yıltıradılar.
-Muallim bu tamçilerni musafirlerden gizlemege tırışmadı ve atta yavluğı ile olarnı silmedi.
+Muallim bu tamçılarnı musafirlerden gizlemege tırışmadı ve atta yavluğı ile olarnı silmedi.
 Üsein oca, özüniñ eyecanğa kelgen qalbini raatlandırmaq içünmi, bilmem niçün, ayaqqa qalqtı, eki qolunen özüniñ kevdesini eki yaqqa quçaqladı, ne yapmaqnı ve ne aytmaqnı bilmey, muallimniñ ögünde dalğın alda, indemey turdı.
 
 – Otur!
@@ -358,7 +358,7 @@ Olar şimdilik özüñizde tursunlar.
 
 Eskender efendi, onıñle razılığını bildirip, başını salladı.
 Üsein defter içinden eki eser yazılı kâğıtlarnı yırtıp alıp, masa üzerine qoydı.
-Naşirniñ elini minnetdarlıq ile sıqtı, sevinçinden, şaşmalap, qapuğa doğruldı, soñra keri qaytıp, peterburglı musafirniñ elini de sıqıp, dağlılar qanunı mücibiy üç kere sallap, çıqtı.
+Naşirniñ elini minnetdarlıq ile sıqtı, sevinçinden, şaşmalap, qapuğa doğruldı, soñra keri qaytıp, peterburglı musafirniñ elini de sıqıp, dağlılar qanunı mücibi üç kere sallap, çıqtı.
 
 Üsein oca muallimniñ odasında sınağan kerginlikten alâ özüne kelip olamay, basamaqlardan aşağı, azbarğa tüşkende, arqasında cıllı ter sezdi, özü hoşnut alda külümsiredi.
 Soñra, yolğa, çıqıp, tozlu yol boyu Orta Medrese betke adımlağanda, bugün nasıl adamlar ile qonuşqanı hususında tüşündi, yüregi iftiharle düküldedi.
