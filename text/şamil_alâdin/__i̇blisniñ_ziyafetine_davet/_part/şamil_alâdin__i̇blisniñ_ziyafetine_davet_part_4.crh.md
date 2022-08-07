@@ -407,7 +407,7 @@ Men öz işimde çekişem, çırpınam ve imkâniyetke köre çalışam
 
 Men gazetamda tedrici oluv tertibini tayin ettim, bu tertipni oquyıcılarğa da ögretmek isteyim, esas maqsadım – oquyıcını ürkütmemektir.
 Birinci vaqıtlarda men özümniñ çıqarğan qararım ile kifayetlene edim, yani gazetada bu, yahut şu vaqialar aqqında sade haberler derc ete edim.
-Üç yıl öyle devam etti, soñra gazetanıñ mündericesini tekaran kenişlettim, oña tenqidiy elementler kirsettim.
+Üç yıl öyle devam etti, soñra gazetanıñ mündericesini tekâran kenişlettim, oña tenqidiy elementler kirsettim.
 Lâkin bunıñ içün öz oquyıcılarıma evelâ bazı şeylerni añlatmaq kerek oldı ki, tenqidiy – mısqıl, fitnecilik, edepsizlik ile qarıştırmasınlar.
 Bu añlatuvlar çoqqa sürdi, alâ devam etmekte.
 Oquyıcılarım arasında şimdi bile İsmail muallim bizni mısqıllay bellegenler bar.
