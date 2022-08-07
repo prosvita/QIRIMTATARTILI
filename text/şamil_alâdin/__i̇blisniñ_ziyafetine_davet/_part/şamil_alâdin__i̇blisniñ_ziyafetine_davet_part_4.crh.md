@@ -26,7 +26,7 @@ Naşir, parmağınen bu sadeflerge basıp, özüne kerek adamnı üzеrine 
 Divardaki çengellerge “Terciman”nıñ taze sanınıñ korrektura tabaqları ilingen.
 Yerde, kilimniñ etrafında, qaverenkli vyana oturğıçları ve meşin kreslolar turalar.
 
-İsmail efendi, genç müellifniñ şiirlerini yuquvğa yürekten tutunğanını, şiirlerniñ saibi ite naşir şiirlerimni begenirmi, begenmezmi dep, olarnıñ taqdiri hususında qasevetlenip oturğanını sezgen Samoyloviç, Toqtarğazınıñ yeñiniñ ucundan tutıp, yavaştan özüne çekti.
+İsmail efendi, genç müellifniñ şiirlerini оquvğa yürekten tutunğanını, şiirlerniñ saibi ise naşir şiirlerimni begenirmi, begenmezmi dep, olarnıñ taqdiri hususında qasevetlenip oturğanını sezgen Samoyloviç, Toqtarğazınıñ yeñiniñ ucundan tutıp, yavaştan özüne çekti.
 
 – Mektepte balalarğa ne oqutasıñız?– dep soradı alçaq ses ile,
 
@@ -71,9 +71,9 @@ Aleksandr Nikolayeviç içün, boğday ekilgen çöl uyezdlerinde ocanın�
 Lâkin dağlıq uyezdlerdeki vaziyet hususında tasavur elde etip olamadı.
 
 – Afu etiñiz, Eskender efendi! – dedi Üsein musafirge, – özüñiz qaysı yaqlardan buyurdıñız?
-Nasıl iş ile meşğulsiñiz?
+Nasıl iş ile meşğülsiñiz?
 
-– Men Sankt-Peterburgda yaşayım, – ocanıñ köndelen qoyulğan suali Aleksandr Nikolayeviçni meraqlandırdı. –Darülfununda oqudım, şimdi Melioranskiy ve Radlov reberligi altında türk ve tatar tillerini tedqiq ile meşğülim.
+– Men Sankt-Peterburgda yaşayım, – ocanıñ köndelen qoyulğan suali Aleksandr Nikolayeviçni meraqlandırdı. – Darülfununda oqudım, şimdi Melioranskiy ve Radlov reberligi altında türk ve tatar tillerini tedqiq ile meşğülim.
 
 – Bağçasarayğa ne vaqıt keldiñiz?
 
@@ -112,7 +112,7 @@ O tütünni, qoqusından bildi.
 
 – Acayip qoqu.
  – Samoyloviç pek hoşlandı.
- – Tüsi efsaneviy.
+ – Tüsü efsaneviy.
 Altınrenk.
 
 Aleksandr Nikolayeviç sigar yasadı, yerinden qalqıp, pencere yanına bardı, sigarını yaqtı, azaçıq içine çekken soñ, tışqa, azbarğa közetti.
@@ -146,8 +146,8 @@ Naşir, defterni asabiyetle kreslo üzerine bıraqıp, ayaqqa qalqtı.
 – Men bellesem, beyazğa daima – beyaz, qarağa – qara demek kerekmiz.
 Öyle degilmi, muallim? – dedi Üsein oca.
 
-– Şübesiz...– İsmail Gasprinskiy musafirniñ fikirini tasdıqlap, başını eki kere qaqıttı.
-– Er şeyniñ öz adı, oz taнinatı var.
+– Şübesiz... – İsmail Gasprinskiy musafirniñ fikrini tasdıqlap, başını eki kere qaqıttı.
+– Er şeyniñ öz adı, oz tayinatı var.
 Ve Abdureşid efendi bu ceetten aqlı edi.
 Kendiñize malüm, er şeyge özüniñ adını qoydı.
 Qaraya – qara dedi, beyaza – beyaz...
