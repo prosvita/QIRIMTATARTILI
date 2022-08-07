@@ -57,7 +57,7 @@ Olar, kerek olsa, susmağa da bileler.
  – Üç ay içinde balalarğa endeseniñ episini ögretip olamazsıñ.
 
 – Doğru.
-Müddet pek küçük. – Üsein oca peterburglı musafirniñ fikiri ile razı oldı.
+Müddet pek küçük. – Üsein oca peterburglı musafirniñ fikri ile razı oldı.
  – Öyle vaqıtta yarım çuval un daa bermege mecbursıñ.
 Başqa çare yoq!
 
@@ -73,7 +73,7 @@ Lâkin dağlıq uyezdlerdeki vaziyet hususında tasavur elde etip olamadı.
 – Afu etiñiz, Eskender efendi! – dedi Üsein musafirge, – özüñiz qaysı yaqlardan buyurdıñız?
 Nasıl iş ile meşğulsiñiz?
 
-– Men Sankt-Peterburgda yaşayım, – ocanıñ köndelen qoyulğan suali Aleksandr Nikolayeviçni meraqlandırdı. –Darılfnunda oqudım, şimdi Melioranskiy ve Radlov reberligi altında türk ve tatar tillerini tedqiq ile meşğulim.
+– Men Sankt-Peterburgda yaşayım, – ocanıñ köndelen qoyulğan suali Aleksandr Nikolayeviçni meraqlandırdı. –Darülfununda oqudım, şimdi Melioranskiy ve Radlov reberligi altında türk ve tatar tillerini tedqiq ile meşğülim.
 
 – Bağçasarayğa ne vaqıt keldiñiz?
 
@@ -99,7 +99,7 @@ Rusiye matbuatında Qırımdaki çöl ealisiniñ çıñları hususında mer
 Albuki, Qırımdaki çıñlarnı men Stavropol güberniyası noğaylarında körip ve eşitip olamadım.
 Sizdeki bu çıñlar Qırımda yaratılğanğa beñzeyler.
 
-İsmail efendi ep Toqtarğazınıñ eserlerinen meşğul edi.
+İsmail efendi ep Toqtarğazınıñ eserlerinen meşğül edi.
 Onda, ayni bir şiirni bir qaç kere qaytarıp oqumaq adeti bar.
 Samoyloviç, muallimniñ köryola üstünde yatqan kisesini özüne taba çekti, içinden bir çimtim tütün alıp, qoqladı.
 Tütünden burunına ğayet hoş qoqu urdı.
@@ -147,7 +147,7 @@ Naşir, defterni asabiyetle kreslo üzerine bıraqıp, ayaqqa qalqtı.
 Öyle degilmi, muallim? – dedi Üsein oca.
 
 – Şübesiz...– İsmail Gasprinskiy musafirniñ fikirini tasdıqlap, başını eki kere qaqıttı.
-– Er şeyniñ öz adı, oz tainatı var.
+– Er şeyniñ öz adı, oz taнinatı var.
 Ve Abdureşid efendi bu ceetten aqlı edi.
 Kendiñize malüm, er şeyge özüniñ adını qoydı.
 Qaraya – qara dedi, beyaza – beyaz...
@@ -217,16 +217,16 @@ Padişa akimiyeti degilmi?
 
 Ev saibi, Toqtarğazınıñ ağızından: “insanlıq uquqından marum etken... padişa akimiyeti” ibarelerini eşitkende, közlerini sıq-sıq açtı ve yumdı, çünki muallimniñ evi, basmahanesi, azbarı – hafiyeler ile muasarağa olunğan, evge ve basmahanege kimler kire – kimler çıqa, nasıl laqırdılar ola, episini politsiya idaresine daimiy surette yetiştirip turalar.
 
-Rusiye musulmanları oqusalar, bilimli adamlar olsalar, beyaznı – qaradan ayırmağa bilseler, – dedi naşir, – zulmattan qurtuluv yolunı da taparlar.
+Rusiye musulmanları oqusalar, bilimli adamlar olsalar, beyaznı – qaradan ayırmağa bilseler, – dedi naşir, – zülmetten qurtuluv yolunı da taparlar.
 Rusiye musulmanlarına, Avropa halqları kibi ileri olmaq içün bilgi, medeniyet kerek.
 
 Aleksandr Nikolayeviç bu laqırdığa qoşulmaq istemedi.
 O, İsmail efendiniñ musafiri, yarın Foti Sala vadiysindeki köylerge ketecek... ne ev saibine, ne de yaş müellifke itiraz etmek niyeti yoq.
-Çünki böyle mulâazalar içün darılfnunda başı eppi belâlarğa qalğan edi.
+Çünki böyle mulâazalar içün darülfununda başı eppi belâlarğa qalğan edi.
 Ama bu yerde İsmail efendiniñ soñki sözleri onı subetke küçük ilâve yapmağa mecbur etti.
 
 
-– Bilgi, medeniyet... bular, zulmattan qurtulmaq içün pek az degilmi? – dep taşladı, – ondan başqa, İsmail efendi, siz cealetni, medeniyetsizlikni yalıñız musulmanlarda köresiñiz!
+– Bilgi, medeniyet... bular, zülmetten qurtulmaq içün pek az degilmi? – dep taşladı, – ondan başqa, İsmail efendi, siz cealetni, medeniyetsizlikni yalıñız musulmanlarda köresiñiz!
 Niçün, qıymetli muallim?
 Rusiyede bütün milletler aynı vaziyette... kerçek, olarnıñ zenginleri de bar, fuqareleri de!
 
@@ -307,7 +307,7 @@ İsmail muallim, tütün kisesini tizleri üstüne qoyıp, sigar yasavğa 
 De tütün yerge töküldi, de kâğıt elinden uçıp ketti.
 Niayet, sigarnı yasap, bitirgen vaqıtta, qapu yavaştan açıldı, elindeki tabaq üstünde cezve ve filcanlar ile esli qadın kirdi.
 Qadınnıñ saçları hınalı.
-O divar yanındaki alçaq masanı karyolağa yaqın çekip, üstüne tabaqnı koydı.
+O divar yanındaki alçaq masanı karyolağa yaqın çekip, üstüne tabaqnı qoydı.
 Qadın içeri nasıl davuşsız kirgen olsa, öyle yavaştan kabinetten çıqtı.
 
 – Rica etem, qıymetli musafirlerim! – dedi naşir, özü filcanlarğa qave qoyuvğa tutundı, – laqırdığa dalıp, ev saibi vazifelerimni unuttım.
@@ -332,7 +332,7 @@ Doğrusını aytsam, men rus halqına qarşı iç bir vaqıt aks fikirde olma
 Rus halqı özüniñ sadeligi, qalbiniñ pakligi, rus tabiatına has doğma adaleti ile diger halqlarnı özüne celp ete, özüne yaqınlaştıra.
 O, sebepten, musulman onıñ müitinde özüni yabaniy adam olaraq is etmey ve rus adamlarınen birlikte oquvdan ve olarğa yaqın bulunuvdan qaçınmay”.
 
-Soñki sözlerni aytqanda, onıñ közleriniñ kenarlarında iri qozyaşı tamçileri yıltıradılar.
+Soñki sözlerni aytqanda, onıñ közleriniñ kenarlarında iri qozyaşı tamçıları yıltıradılar.
 Muallim bu tamçilerni musafirlerden gizlemege tırışmadı ve atta yavluğı ile olarnı silmedi.
 Üsein oca, özüniñ eyecanğa kelgen qalbini raatlandırmaq içünmi, bilmem niçün, ayaqqa qalqtı, eki qolunen özüniñ kevdesini eki yaqqa quçaqladı, ne yapmaqnı ve ne aytmaqnı bilmey, muallimniñ ögünde dalğın alda, indemey turdı.
 
