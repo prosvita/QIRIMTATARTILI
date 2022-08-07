@@ -365,7 +365,7 @@ Soñra, yolğa, çıqıp, tozlu yol boyu Orta Medrese betke adımlağanda, b
 
 ***
 
-Asan Kara, mezkür ikâyetniñ müellifi, bu yerçikke kelgende, mevzudan biraz çetke çıqıp, İsmail Gasprinskiy, keçken asırnıñ soñunda ve bu asırnıñ başında Şarq halqları içün nasıl adam olğanını ve, söz kelimi, elli yıl daa keçken soñ bazı adamlarnıñ tasavurında nasıl adam ola bilecegi aqqında küçük izaat bere.
+Asan Kara, mezkür ikâyeniñ müellifi, bu yerçikke kelgende, mevzudan biraz çetke çıqıp, İsmail Gasprinskiy, keçken asırnıñ soñunda ve bu asırnıñ başında Şarq halqları içün nasıl adam olğanını ve, söz kelimi, elli yıl daa keçken soñ bazı adamlarnıñ tasavurında nasıl adam ola bilecegi aqqında küçük izaat bere.
 
 “Eger, oquyıcı, büyük maddiy ve içtimaiy marumiyet müitinde yaşap, bütün ayatını mazlum halqlar menfaatı içün hızmetke sarf etken bu adam hususında aqiqatnı bilmese, ulu adaletsizlik olur! — dep yaza müellif.
  — Men devlet hadimi degilim.
@@ -375,13 +375,13 @@ Men onıñ aqqında halqnıñ medeniyetini yükseltüv oğrunda ulu işler
 Tünevin unter ofitser Seit-Nafe Çalanov maña, İsmail Gasprinskiyniñ vefat etkeni eki yıl olğanını söyledi.
 Yıllar keçerler, çoq yıllar keçerler, bu adamnıñ qıymetli hızmetlerini inkâr etici adamlar da tapılırlar.
 Men ne diye bilir edim?
-Yalıñız şunı ki, Gasprinskiy aqqında bir fikirge kelmek içün, onıñ yaşağan ve işlegen devirindeki devlet qurumını teren sürette ögrenmek kerek.
+Yalıñız şunı ki, Gasprinskiy aqqında bir fikirge kelmek içün, onıñ yaşağan ve işlegen devrindeki devlet qurumını teren sürette ögrenmek kerek.
 O sayede İsmail muallimni añlamaq mümkün.
 
 %
 
 İsmail Gasprinskiy, rus tilinde yazğan ilki maqalesinde özüniñ siyasiy tüşüncelerini ğayet aydın ve açıq sürette ifade ete.
-Dey ki, dünya boyunca seyaatlarım vaqıtında yaptığı muşaedelerim neticesinde, boysundırılğan, umumen, yabaniy qabilege, başqa iç bir halq, bizim üyken qardaşlarımız – ruslar kibi merametli ve temizqalpli munasebet köstermey.
+Dey ki, dünya boyunca seyaatlarım vaqtında yaptığı muşaedelerim neticesinde, boysundırılğan, umumen, yabaniy qabilege, başqa iç bir halq, bizim üyken qardaşlarımız – ruslar kibi merametli ve temizqalpli munasebet köstermey.
 Rus adamı çeşit halqlarnı öz sadeligi, diqqatlılığı ve qanındaki rus tabiatına has insaniyetligi sayesinde özüne celp etip, çeşit halqlar ile qolay añlaşa ve olarğa tez alışa.
 Musulmanlar Rusiyede özlerini yat adam is etmegenleriniñ ve rus adamları ile muamelede bulunuvdan ve olarğa yaqınlaşuvdan çekinmegenleriniñ sebebi bundadır.
 
