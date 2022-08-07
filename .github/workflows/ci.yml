@@ -23,3 +23,13 @@ jobs:
             export CHANGED_FILES=$(git diff --name-only --diff-filter=ACMRT remotes/origin/master HEAD)
         fi
         npm test
+
+  eslint:
+    runs-on: ubuntu-latest
+    steps:
+    - uses: actions/checkout@v2
+    - name: Check codestyle
+      uses: reviewdog/action-eslint@v1
+      with:
+        reporter: ${{ github.event_name == 'pull_request' && 'github-pr-review' || 'github-check' }}
+        eslint_flags: --ext js,json --ignore-pattern '!text/**/.meta.json' .

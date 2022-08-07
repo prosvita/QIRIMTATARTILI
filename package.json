@@ -4,6 +4,7 @@
   "description": "Qırımtatar tiline tercime etüv programması",
   "scripts": {
     "build": "node tools/build-source.js",
+    "eslint": "$(npm bin)/eslint .",
     "test": "tools/speller.sh"
   },
   "repository": {
@@ -18,6 +19,8 @@
   "homepage": "https://github.com/prosvita/QIRIMTATARTILI#readme",
   "private": true,
   "devDependencies": {
+    "eslint": "^8.21.0",
+    "eslint-plugin-json": "git+https://github.com/edg2s/eslint-plugin-json.git#indent",
     "transliteration.crh": "^0.2.1",
     "yaspeller": "^v6.0.2"
   },
