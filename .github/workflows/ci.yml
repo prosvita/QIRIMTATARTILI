@@ -33,3 +33,4 @@ jobs:
       with:
         reporter: ${{ github.event_name == 'pull_request' && 'github-pr-review' || 'github-check' }}
         eslint_flags: --ext js,json --ignore-pattern '!text/**/.meta.json' .
+        fail_on_error: "true"
