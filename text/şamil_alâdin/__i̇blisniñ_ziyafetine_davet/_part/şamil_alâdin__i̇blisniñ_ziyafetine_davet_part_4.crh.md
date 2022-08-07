@@ -40,7 +40,7 @@ Toqtarğazı soñki sualge birden cevap bermege cesaret etalmadı, toqtaldı, 
 
 – Kimerde... iş ocanıñ özünden de bağlı ola, – diye ilâve etti.
 
-– Ocanıñ özünden?– musafirniñ davuşında inamsızlıqqa beñzer aenk sezildi.
+– Ocanıñ özünden? – musafirniñ davuşında inamsızlıqqa beñzer aenk sezildi.
 – Nasıl manada?
 
 – Bilesiñizmi..?
