@@ -15,14 +15,14 @@ Ep tüşündi.
 Tesadüfen közlerine, şiirler müellifiniñ şahsiyeti aqqında satırlar çalındı.
 O, bu satırlarnı sevinçle oqudı, soñra taaciplendi.
 Güya bir şeyler söylemek ister kibi, közlerini Üseinge köterdi, baqtı-baqtı, iç bir şey söylemedi, közlerini kene aşağı endirdi.
-Defterni qarıştıra berdi, ve o yerini, bu yerini tekrartekrar oqudı.
+Defterni qarıştıra berdi, ve o yerini, bu yerini tekrar-tekrar oqudı.
 
 Naşir, defterniñ mündericesini tedqiq ile bant ekende, Üsein iş odasını közden keçirdi, muallimniñ aldındaki emen masa ile meraqlandı.
 Onıñ üstünde üç yaqlama engeller bar.
 Divar yaqta, eki qatlı şkafçıqlar qoyulğan.
 Sol yaqta yeşil qalpaqlı lampat.
 Onıñ yanaşasında elektrikli sadefler.
-Naşir, parmağınen bu sadeflerge basıp, özüne kerek adamnı üzürine çağıra ve ne yapmaq kerekligini emir ete bile.
+Naşir, parmağınen bu sadeflerge basıp, özüne kerek adamnı üzеrine çağıra ve ne yapmaq kerekligini emir ete bile.
 Divardaki çengellerge “Terciman”nıñ taze sanınıñ korrektura tabaqları ilingen.
 Yerde, kilimniñ etrafında, qaverenkli vyana oturğıçları ve meşin kreslolar turalar.
 
