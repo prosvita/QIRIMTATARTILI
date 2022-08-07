@@ -387,9 +387,9 @@ Musulmanlar Rusiyede özlerini yat adam is etmegenleriniñ ve rus adamları il
 
 Eger biz, Rusiyedeki türk-tatarlarnıñ ruslaşuvı ve, bunıñle beraber, olarnıñ bu usul ile birleştirilüvini elde etüv mümkün degil degen fikirge keldik ise, olarnı fende ve tasilde musavat ve üriyet esasında ahlâqiy ceetten birleştirmek ve yaqınlaştırmaq kerekmiz.
 
-Musulmanlarnıñ rus medeniyetine yaqınlaşuvı, olarnıñ fikriy seviyesini ve bilgisini yükseltüp yolu ile yapıla bilinir, bu ise yalıñız tatar tiliniñ mektepte ve edebiyatta vatandaşlıq içtimaiy añ keregi derecede azır ve gazetanıñ özü vatandaşlıq uquqını endi elde etken.
+Musulmanlarnıñ rus medeniyetine yaqınlaşuvı, olarnıñ fikriy seviyesini ve bilgisini yükseltüv yolu ile yapıla bilinir, bu ise yalıñız tatar tiliniñ mektepte ve edebiyatta vatandaşlıq içtimaiy añ keregi derecede azır ve gazetanıñ özü vatandaşlıq uquğını endi elde etken.
 
-Menim beş seneden beri neşir etmekte oldığım “Terciman”nıñ doğuvı köstere ki, onıñ içün ulu ekenligini isbat ettim.
+Menim beş seneden beri neşir etmekte oldığım “Terciman”nıñ doğuvı köstere ki, onıñ içün içtimaiy añ keregi derecede azır ve gazetanıñ özü vatandaşlıq uquğını endi elde etken.
 
 Menim vaziyetim ağır, öyle olsa da, gazetam, abunecilerniñ miqdarı ceetinden ep ilerilemekte ve al-azırda gazeta Rusiyeniñ er bir köşesinde bulunmaqta.
 
@@ -401,7 +401,7 @@ Rusiye musulmancılığı özüniñ şarqtaki ve künbatıdaki dindaşlar
 Rusiye musulmancılığı ruslar vatanınıñ menfaatını bilmey, onı duymay, ruslar vatanınıñ qaari-qaseveti ve sevinçi aqqında tasavurı yoq, Rusiyeniñ umumdevlet faaliyeti, ğayreti oña añlaşılmay.
 Rus tilini bilmeyüvi onı rus fikirlerinden ve edebiyatından uzaqta tuta.
 Rusiye musulmancılığı özüniñ eski tasavurı ve hurafatı müitinde, bütün diger insanlıqtan uzaqta yaşay, onı bir tilim ekmek elde etüvden başqa iç bir şey qasvetlendirmey, qarınınıñ emirinden başqa, diger idealı yoq.
-Başqa merkezlerdeki musulmanlar nisbeten hariciy medeniy ayat keçirgende, bizim halqımıznıñ turmuşı – Yermak ve Çoban Girey devirindeki maddiy ve maneviy levhanı ifade etmekte.
+Başqa merkezlerdeki musulmanlar nisbeten hariciy medeniy ayat keçirgende, bizim halqımıznıñ turmuşı – Yermak ve Çoban Girey devrindeki maddiy ve maneviy levhanı ifade etmekte.
 Bizge ne yapmaq kerek ola.
 Men öz işimde çekişem, çırpınam ve imkâniyetke köre çalışam.
 
