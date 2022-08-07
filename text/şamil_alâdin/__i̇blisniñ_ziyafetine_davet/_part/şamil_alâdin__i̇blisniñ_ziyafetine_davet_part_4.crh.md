@@ -440,7 +440,7 @@ Özüm içün netice yaptım.
 – Soñra, Rusiye musulmanlarınıñ gazetacısı oldıñız, öylemi?
 
 – Öyle.
-Menim dindaşlarımnıñ rus vatandaşlarımızğa sıqiy alda yaqınlaşuvı zarur ekenligine qaniy olup gazeta çıqara başladım.
+Menim dindaşlarımnıñ rus vatandaşlarımızğa sıqiy alda yaqınlaşuvı zarur ekenligine qaniy olıp gazeta çıqara başladım.
 Men bu zaruretni öz gazetamda etraflıca teşviqat etem ve eminim ki, bu ğaye menim qabile qardaşlarımnın añında vira keniş yer işğal etmekte.
 
 Ama “İsmail Mustafa oğlunın, soyadı, yani familiyası – Gaspralı edi.
