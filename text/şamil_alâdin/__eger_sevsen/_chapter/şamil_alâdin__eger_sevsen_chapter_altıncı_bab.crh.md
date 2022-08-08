@@ -337,10 +337,12 @@ Bu hususta şimdiçik aytıp keçtim.
 Men fikrimni toplaycaq olıp tırışqan arada kursantlar külüştiler.
 
 — Bulutlar içinde ediñiz, öylemi? — dedi injener,— olucı şey. 
+
 Dersten soñ, İrada meni yer patlatıcılar idaresine alıp ketti.
 Onı tapmaq qolay degil eken.
-Qışlaqnıñ civarında bağçanıñ ortasında cayuvdan büyük çadır... içinde qızarıp turğan çöyün ocaq. —
-Biz onı qışlaq soqaqlarında qıdırıp yurdik,— Müdirniñ kabineti, buhgalteriya, teminat bölügi — episi bir yerde.
+Qışlaqnıñ civarında bağçanıñ ortasında cayuvdan büyük çadır... içinde qızarıp turğan çöyün ocaq. 
+— Biz onı qışlaq soqaqlarında qıdırıp yurdik.
+— Müdirniñ kabineti, buhgalteriya, teminat bölügi — episi bir yerde.
 Menim içeride oturacağım kelmedi.
 Çıqtım.
 İrada müdirnen davağa tutındı, eki saatten ziyade iddalaştı.
