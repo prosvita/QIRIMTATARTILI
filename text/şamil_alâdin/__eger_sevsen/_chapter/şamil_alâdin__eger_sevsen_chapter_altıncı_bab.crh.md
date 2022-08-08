@@ -270,8 +270,8 @@ Menjevetskiy, umumen, hucur adam.
 Alâ evlengeni yoq... bekâr!
 İdarede çalışqan qızlar aytalar: kölmegini özü krahmallap, özü ütülep kiye eken.
 Amma büyük mütehassıs.
-Altın qafası bar. —
-İrada elini tersine siltedi,—
+Altın qafası bar. 
+— İrada elini tersine siltedi, —
 Dünyada çeşit adamlar bar... ne deysiñiz?
 
 Men indemedim.
