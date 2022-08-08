@@ -381,7 +381,8 @@ Bu alâmetler onda daima birinci yerni işğal ete ediler.
 ...Qız çadırdan çıqqan maalde qışlaqnıñ soqaqları üzerine qaranlıq ene başlağan edi.
 İradanıñ yüzü maña pek yorğun köründi.
 
-— Bekirov, bu ne? — dep qıçırdı o. — Böyle keç oldımı?
+— Bekirov, bu ne? — dep qıçırdı o. 
+— Böyle keç oldımı?
 Aşıqmaq kerek, sklad qapalır.
 
 Sklad bağçadan uzaqta, qışlaqnıñ diger çetinde edi.
@@ -389,8 +390,10 @@ Sklad bağçadan uzaqta, qışlaqnıñ diger çetinde edi.
 Eski, uslupsız binağa kelip yetkende ekimizniñ de talağımız şişken edi.
 İrada qart Kostâğa narâdnı uzattı.
 
-— Nafile zamet...— dedi o, kâğıtnı İradağa qaytarıp berdi. — Keç oldı.
-Maşinañız qayda? — dep soradı soñ, — Arqañızğa alıp keteceksiñizmi?
+— Nafile zamet...— dedi o, kâğıtnı İradağa qaytarıp berdi. 
+— Keç oldı.
+Maşinañız qayda? — dep soradı soñ.
+— Arqañızğa alıp keteceksiñizmi?
 
 — Maşina?
 Raatsız olmañız!
