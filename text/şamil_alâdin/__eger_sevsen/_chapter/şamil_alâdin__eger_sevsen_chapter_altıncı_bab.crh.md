@@ -236,7 +236,9 @@ Taşkent vadisi bu suvlarnen ğıdalana.
 Çar-Çaqtan ayırılıp kanal bir çoq arıqlarğa daa bölüne.
 Şeerlerniñ er bir soqağında, azbarında arıq bar, lâkin er kes, suv yetişmey, dep şikâyetlene.
 Suv çoq, amma tabiat suvnı doğru taqsim etmege bilmey.
-Yılnıñ bir mevsiminde suv çoq, diger mevsiminde az. — Böyle degen soñ injener pensnesini çıqarıp, yavluğınen sürtti ve tekrar taqqan soñ, qollarını arqasına qoyıp, parmaqlarını bir-birine tirkedi. — Tabiatqa yardım etmelimiz,— dedi Menjevetskiy — yalıñız suvnı cıyuvda degil, onı turbinalarnı areketke ketirüvge de mecbur etmelimiz! — soñ sağ elini pencere betke siltedi,— yalıda, töpesi yanıq çinarnı, elbet de, körgendirsiñiz...
+Yılnıñ bir mevsiminde suv çoq, diger mevsiminde az. 
+— Böyle degen soñ injener pensnesini çıqarıp, yavluğınen sürtti ve tekrar taqqan soñ, qollarını arqasına qoyıp, parmaqlarını bir-birine tirkedi.
+— Tabiatqa yardım etmelimiz, — dedi Menjevetskiy — yalıñız suvnı cıyuvda degil, onı turbinalarnı areketke ketirüvge de mecbur etmelimiz! — soñ sağ elini pencere betke siltedi,— yalıda, töpesi yanıq çinarnı, elbet de, körgendirsiñiz...
 Biz Çar-Çaqnıñ dağlar arasında iñildep, quturıp aqayatqan bu yerinde, tar boğaz içinde, plotina quracaqmız.
 Plotina suvnıñ seviyesini yuqarı köterecek.
 Kötergen soñ suv özenden çıqıp, çöllerge ketecek.
