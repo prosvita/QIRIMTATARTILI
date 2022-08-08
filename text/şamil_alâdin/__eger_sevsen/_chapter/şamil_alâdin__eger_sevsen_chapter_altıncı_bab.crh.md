@@ -311,7 +311,7 @@ Men, şporlı çızmalarımnen polnı gürsüldete berip, ortağa çıqtım.
 Yuqarı byef ne demek? 
 — Sigizmund Genrihoviç böyle degende, avuçınıñ birini yuqarı, digerini aşağı qoyıp körsetti.
 
-— Yuqarı ve aşağı ufqiy çizgiler arasında suvnıñ seviyesindeki farq,— dedim men.
+— Yuqarı ve aşağı ufqiy çizgiler arasında suvnıñ seviyesindeki farq, — dedim men.
 Onıñ bana aytıp keçkeni aqılımda edi.
 
 Menjevetskiy menim cevabımdan memnün qaldı.
@@ -326,7 +326,8 @@ Tüşüncege daldım.
 Bir daa qulaqlarıma derenden Menjevetskiyniñ sesi keldi.
 
 — Sizden sorayım!
-İşitesiñizmi, kavaleriya? — Dep şaşmaladım.
+İşitesiñizmi, kavaleriya? 
+— Dep şaşmaladım.
 Közlerim sağğa-solğa aylandılar.
 Zornen esimni topladım.
 
