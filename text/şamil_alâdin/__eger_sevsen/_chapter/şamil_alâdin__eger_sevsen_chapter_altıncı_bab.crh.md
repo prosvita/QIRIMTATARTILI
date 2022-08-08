@@ -292,7 +292,7 @@ Menjevetskiy Çar-Çaq qurucılığınıñ elverişli ceetlerini isbatqa keçti.
 Sade tilnen aytqanda, memleketimizde er bir adam on altışar metr basma ve modepalam artqaç olacaq, yani er kesniñ altışar kölmegi olacaq.
 Altı kölmek!
 Qaysımızda altı kölmek bar?
-Kimer kişide eki, kimersinde  üç.
+Kimer kişide eki, kimersinde üç.
 Amma bunda — birden altı kölmek...
 
 Kiriş sözünden soñ Sigizmund Genrihoviç proekt üstünde toqtaldı.
