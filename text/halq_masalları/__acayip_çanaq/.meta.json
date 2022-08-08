@@ -1,18 +1,16 @@
 {
   "sync": [655],
   "notes": [
-    "s655: crh+ru"
+    "s655: crh-ru+ru"
   ],
   "attributes": {
     "crh-RU": {
       "author": "Türk halq masalı",
       "title": "Acayip çanaq",
-      "year": "N/A"
     },
     "ru": {
       "author": "Турецкая народная сказка",
       "title": "Чудесная миска",
-      "year": "N/A"
     }
   }
 }
