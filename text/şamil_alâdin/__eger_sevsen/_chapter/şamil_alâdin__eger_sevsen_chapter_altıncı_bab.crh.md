@@ -308,7 +308,8 @@ Tahtağa davet etti.
 Men, şporlı çızmalarımnen polnı gürsüldete berip, ortağa çıqtım.
 
 — Söyleñiz: aşağı byef ne demek?
-Yuqarı byef ne demek? — Sigizmund Genrihoviç böyle degende, avuçınıñ birini yuqarı, digerini aşağı qoyıp körsetti.
+Yuqarı byef ne demek? 
+— Sigizmund Genrihoviç böyle degende, avuçınıñ birini yuqarı, digerini aşağı qoyıp körsetti.
 
 — Yuqarı ve aşağı ufqiy çizgiler arasında suvnıñ seviyesindeki farq,— dedim men.
 Onıñ bana aytıp keçkeni aqılımda edi.
