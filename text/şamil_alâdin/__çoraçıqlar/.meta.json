@@ -5,6 +5,7 @@
   ],
   "attributes": {
     "crh-RU": {
+       "Language": "Qırımtatar tili"
       "author": "Alâdin Şamil",
       "title": "Çoraçıqlar",
       "year": "1987"
@@ -15,6 +16,7 @@
       "year": "1987"
     },
     "ru": {
+      "Language": "Крымскотатарский"
       "author": "Алядин Шамиль",
       "title": "Чорачиклар",
       "year": "1987"
