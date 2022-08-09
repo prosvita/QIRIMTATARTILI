@@ -5,10 +5,12 @@
   ],
   "attributes": {
     "crh-RU": {
+       "Language": "Türkmen tili"
       "author": "Türkmen halq masalı",
       "title": "Ayvanlar tilini añlağan adam",
     },
     "ru": {
+      "Язык оригинала": "Тюркменский"
       "author": "Туркменская народная сказка",
       "title": "Язык зверей",
     }
