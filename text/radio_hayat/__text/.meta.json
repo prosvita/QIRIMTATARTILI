@@ -5,16 +5,19 @@
   ],
   "attributes": {
     "crh": {
+      "Language": "Ukrainian"
       "author": "Сhubarov.R",
       "title": "Radio Hayat",
       "year": "2018"
     },
     "ru": {
+      "Язык оригинала": "Украинский"
       "author": "Чубаров.Р",
       "title": "Радио Хаят",
       "year": "2018"
       },
     "uk": {
+      "Мова оригіналу": "Українська"
       "author": "Чубаров.Р",
       "title": "Радіо Хаят",
       "year": "2018"
