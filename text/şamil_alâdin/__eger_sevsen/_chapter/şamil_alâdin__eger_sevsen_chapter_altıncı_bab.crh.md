@@ -404,10 +404,12 @@ Skladçınıñ elleri taqatsız, közleri zayıf ekenliginden, yazuv-çızuv uza
 Men qaldım.
 Narâd mücibi, rolikler, demir qamutlar, elektrik şnurı qabul etip aldım.
 
-— Yap-yaş qız, amma nezaketni bilmey, — dedi Kostâ emce. — Sklad qapalı deyim, vira içeri soqula.
+— Yap-yaş qız, amma nezaketni bilmey, — dedi Kostâ emce. 
+— Sklad qapalı deyim, vira içeri soqula.
 Kündüz kommunhoz maşinasınen kelip alıp ketse ne ola?
 Er şeyni özü bilgeni kibi yapa.
-Ne bitmegen klub oldı... skladçı öpkelenip toqtağan soñ, közlerini maña tikledi. — Sen kimsiñ?
+Ne bitmegen klub oldı... skladçı öpkelenip toqtağan soñ, közlerini maña tikledi.
+— Sen kimsiñ?
 Ekspeditormı?
 
 — Yoq, men nijnikim!
@@ -426,6 +428,7 @@ E!
 Yagma yoq! — dep qıçırdı Kostâ emce.
 Çuvallarğa toqunma!
 Añladıñmı? 
+
 Men taaciplendim.
 
 — Niçün?
