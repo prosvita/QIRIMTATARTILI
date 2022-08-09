@@ -473,7 +473,7 @@ Geceniñ bey vaqıtında tsementni ve diger mallarnı maşinağa yüklep, Sotsia
 Aşhane yanından keçeyatqanda İrada maşinanı toqtattı.
 Kabinadan yerge tüşti.
 
-— Episini klub qaravulına teslim etiñiz,— dedi o maña,— muqayt oluñız, tsement açıq avada qalmasın!
+— Episini klub qaravulına teslim etiñiz, — dedi o maña, — muqayt oluñız, tsement açıq avada qalmasın!
 Yarın aqşam ve gece smenalarınıñ komsomolları klub qurucılığına çıqacaqlar.
 Ekskavatorcılardan başqa...
 Añlaşıldımı?
@@ -485,7 +485,8 @@ O injenerler içün qurulğan evlerniñ arasındaki qaranlıq aralıq boyu ketti
 Men mallarnı teslim etip, barakqa qayttım.
 
 "Sizni çoq zametke qoydım, afu etiñiz...
-Geceñiz hayır, Cevdet!" Bu sözler İradanıñ ağızından çıqtımı?
+Geceñiz hayır, Cevdet!" 
+Bu sözler İradanıñ ağızından çıqtımı?
 Tevbe!
 Men oña yalıñız familiyamnı aytqan edim, adımnı qaydan bildi?
 Sus, Cevdet!
