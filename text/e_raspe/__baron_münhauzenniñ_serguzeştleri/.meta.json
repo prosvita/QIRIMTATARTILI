@@ -5,15 +5,18 @@
   ],
   "attributes": {
     "crh-RU": {
+      "Language": "Alman tili"
       "author": "Raspe Rudolf",
       "title": "Baron Münhauzenniñ serguzeştleri",
       "year": "1941"
     },
     "ru": {
+      "Language": "Немецкий"
       "author": "Распэ Рудольф Эрих",
       "title": "Приключения Барона Мюнхгаузена" ,
     },
     "uk": {
+      "Language": "Німецька"
       "author": "Распе Рудольф",
       "title": "Пригоди Барона Мюнхаузена",
 
