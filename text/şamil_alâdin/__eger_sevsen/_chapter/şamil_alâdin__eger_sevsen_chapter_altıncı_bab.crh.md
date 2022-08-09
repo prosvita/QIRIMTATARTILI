@@ -459,12 +459,14 @@ Azbarğa çıqtım.
 Şoför, elleri uzun kişi, üstümdeki arbiy urbanıñ toz ile örtüngenini eslep, elimdeki brezentni qaqıp aldı, podvalğa tüşip ketti.
 Maşina yanında dolanğan İrada, menim kölgemni kördi.
 
-— Halat kiydiñizmi? — dedi maña ciddiy sesnen ve cevabımnı beklemey, ilâve etti: — Aqıllı iş yapqansıñız!
+— Halat kiydiñizmi? — dedi maña ciddiy sesnen ve cevabımnı beklemey, ilâve etti: 
+— Aqıllı iş yapqansıñız!
 
 Skladçı küldi, indemedi.
 
 — Halat?
-Nasıl halat? — taaciplenip qıçırdım, soñ dudağımnı tişledim: — Ebet.
+Nasıl halat? — taaciplenip qıçırdım, soñ dudağımnı tişledim: 
+— Ebet.
 Halat kiydim! — dedim.
 
 Geceniñ bey vaqıtında tsementni ve diger mallarnı maşinağa yüklep, Sotsialist şeerçikke keldik.
