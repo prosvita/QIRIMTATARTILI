@@ -5,10 +5,12 @@
   ],
   "attributes": {
     "crh-RU": {
+      "Language": "Ğağauz tili"
       "author": "Ğağauz halq masalı",
       "title": "Demir ayuv",
     },
     "ru": {
+      "Язык оригинала": "Гагаузкий"
       "author": "Гагаузкая народная сказка",
       "title": "Железный ведмедь",
     }
