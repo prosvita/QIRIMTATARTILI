@@ -5,16 +5,19 @@
   ],
   "attributes": {
     "crh-RU": {
+      "Language": "Qırımtatar tili"
       "author": "Alâdin Şamil",
-      "title": "İblisniñ_ziyafetine_davet",
+      "title": "İblisniñ ziyafetine davet",
       "year": "1987"
     },
     "ru": {
+      "Language": "Крымскотатарский"
       "author": "Алядин Шамиль",
       "title": "Приглашение на пир к дьяволу",
       "year": "1987"
    },
     "uk": {
+      "Language": "Кримськотатарська"
       "author": "Алядін Шаміль",
       "title": "Запрошення на бенкет до диявола",
     }
