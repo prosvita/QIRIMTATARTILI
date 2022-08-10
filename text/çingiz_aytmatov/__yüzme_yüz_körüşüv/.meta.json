@@ -8,12 +8,13 @@
       "author": "Aytmatov Çengiz",
        "title": "Yüzme yüz körüşüv",
       "year": "1958",
-      "original language": "kyrgyz"
+      "language": "Kyrgyz"
     },
       "ru": {
       "author": "Чингиз Айтматов",
         "title": "Лицом к лицу",
-        "year": "1958"
+        "year": "1958",
+        "language": "кыргызский"
       }
    }
 }
