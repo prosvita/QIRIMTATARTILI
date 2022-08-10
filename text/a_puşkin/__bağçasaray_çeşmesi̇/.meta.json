@@ -8,17 +8,22 @@
       "author": "Aleksandr Puşkin",
       "title": "Bağçasaray Çeşmesi",
       "year": "1937",
-      "translator": "Şemi-zade Eşref"
+      "translator": "Şemi-zade Eşref",
+      "language": "Rus tili"
     },
     "ru": {
       "author": "Александр Пушкин",
       "title": "Бахчисарайский фонтан",
-      "year": "1823"
+      "year": "1823",
+       "translator": "ЭшреЕф Шемьи-Заде",
+      "language": "Русский"
     },
     "ukr": {
       "author": "Олександр Пушкін"
       "title": "Бахчисарайський Фонтан"
-      "year": "2008"
+      "year": "2008",
+       "translator": "Ешреф Шемї-заде",
+      "language": "Російська"
     }
   }
 }
