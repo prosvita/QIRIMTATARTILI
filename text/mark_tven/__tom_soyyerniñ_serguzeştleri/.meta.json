@@ -7,22 +7,26 @@
     "crh-RU": {
       "author": "Mark Tven",
        "title": "Tom Soyerniñ serguzeştleri",
-      "year": "1876"
+      "year": "1876",
+      "language": "Ingliz tili"
     },
       "ru": {
       "author": "Марк Твен",
         "title": "Приключения Тома Сойера",
-        "year": "1876"
+        "year": "1876",
+        "language": "Английский"
       },
      "uk": {
       "author": "Марк Твен",
         "title": "Пригоди Тома Сойера",
-        "year": "1876"
+        "year": "1876",
+       "language": "Англійська"
    },
      "en": {
       "author": "Маrk Twain",
         "title": "The Adventures of Tom Sawyer",
-        "year": "1876"
+        "year": "1876",
+       "language": "English"
      }
    }
 }
