@@ -7,13 +7,16 @@
     "crh-RU": {
       "author": "Bektore Şevqi",
        "title": "Volğa qızıl aqarken",
-      "year": "2011"
+      "year": "2011",
+       "translator": "Basirov Valeriy",
+      "language": "Qırımtatar tili"
     },
       "uk": {
       "author": "Бекторе Шевкі",
         "title": "Волги червона течія",
         "year": "2003",
-        "translator": "Басиров Валерій"
+        "translator": "Басиров Валерій",
+        "language": "Кримськотатарська"
       }
    }
 }
