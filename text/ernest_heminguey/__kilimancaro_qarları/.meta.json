@@ -7,22 +7,26 @@
     "crh-RU": {
       "author": "Hemingway Ernest",
        "title": "Kilimancaro Qarları",
-      "year": "1936"
+      "year": "1936",
+      "language": "Ingliz tili"
     },
       "ru": {
       "author": "Эрнест Хемингуэй",
         "title": "Снега Килиманджаро",
-        "year": "1936"
+        "year": "1936",
+        "language": "Английский"
       },
      "uk": {
       "author": "Ернест Гемінгвей",
         "title": "Сніги Кіліманджаро",
-        "year": "1936"
+        "year": "1936",
+       "language": "Англійська"
    },
      "en": {
       "author": "Hemingway Ernest",
         "title": "The Snows of Kilimanjaro",
-        "year": "1936"
+        "year": "1936",
+       "language": "English"
      }
    }
 }
