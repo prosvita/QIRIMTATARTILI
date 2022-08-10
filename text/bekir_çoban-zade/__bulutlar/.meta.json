@@ -7,12 +7,14 @@
     "crh-RU": {
       "author": "Çoban-zade Bekir",
        "title": "Bulutlar",
-      "year": "2003"
+      "year": "2003",
+      "language": "qırımtatar tili"
     },
       "ru": {
       "author": "Бекир Чобан-заде",
         "title": "Облака",
         "year": "2003",
+        "language": "крымскотатарский",
         "translator": "Дружинин Сергей"
       }
    }
