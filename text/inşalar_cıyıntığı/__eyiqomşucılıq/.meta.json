@@ -6,19 +6,23 @@
    "attributes": {
     "crh-RU": {
       "author": "İnşalar cıyıntığı",
-       "title": "Eyiqomşucılıq"
+       "title": "Eyiqomşucılıq",
+       "language": "Qırımtatar tili"
     },
       "ru": {
       "author": "Cборник рассказов",
-        "title": "Добрососедство"
+        "title": "Добрососедство",
+         "language": "Крымскотатарский"
       },
      "uk": {
       "author": "Збірка творів",
-        "title": "Добросусідство"
+        "title": "Добросусідство",
+        "language": "Кримськотатарська"
       },
      "en": {
       "author": "A collection of essays",
-        "title": "Good-neighbourliness"
+        "title": "Good-neighbourliness",
+        "language":"Crimean Tatar"
       }
    }
 }
