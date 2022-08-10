@@ -7,12 +7,14 @@
     "crh-RU": {
       "author": "Amitov Emil",
        "title": "Uçurımlı yol",
-      "year": "1971"
+      "year": "1971",
+      "language": "Qırımtatar tili"
     },
       "ru": {
       "author": "Амитов Эмиль",
         "title": "Дорога над кручей",
-        "year": "1971"
+        "year": "1971",
+        "language": "Крымскотатарский"
       }
    }
 }
