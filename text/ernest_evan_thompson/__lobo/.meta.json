@@ -7,12 +7,14 @@
     "crh-RU": {
       "author": "Ernest Evan Thompson",
        "title": "Lobo",
-      "year": "1898"
+      "year": "1898",
+      "language": "Ingliz tili"
     },
       "uk": {
       "author": "Ернест Томпсон",
         "title": "Лобо",
-        "year": "1898"
+        "year": "1898",
+        "language": "Английский"
       }
    }
 }
