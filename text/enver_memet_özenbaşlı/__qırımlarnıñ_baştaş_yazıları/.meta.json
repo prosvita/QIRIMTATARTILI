@@ -7,12 +7,14 @@
     "crh-RU": {
       "author": " Enver Özenbaşlı",
        "title": "Qırımlarnıñ baştaş yazıları",
-      "year": "2013"
+      "year": "2013",
+      "language": "qırımtatar tili"
     },
       "ru": {
       "author": "Энвер Озенбашлы",
         "title": "Эпитафии крымцев",
-        "year": "2013"
+        "year": "2013",
+        "language": "крымскотатарский"
       }
    }
 }
