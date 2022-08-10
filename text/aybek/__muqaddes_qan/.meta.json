@@ -8,13 +8,14 @@
       "author": "Oybek",
        "title": "Muqaddes Qan ",
       "year": "1971",
-      "original language": "uzbek",
+      "language": "uzbek",
       "translator": "Seitumer Emin"
     },
       "ru": {
       "author": "Айбек",
         "title": "Сященная кровь",
-        "year": "1971"
+        "year": "1971",
+        "language": "узбекский"
       }
    }
 }
