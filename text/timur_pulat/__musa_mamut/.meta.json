@@ -7,12 +7,14 @@
     "crh-RU": {
       "author": "Pulat Timur",
        "title": "Musa Mamut aqqında povest",
-      "year": "1972"
+      "year": "1972",
+      "language": "Qırımtatar tili"
     },
       "ru": {
       "author": "Пулатов Тимур",
         "title": "Повесть о Мусе Мамуте/История одного возвращения (повесть о Мусе Мамуте)",
-        "year": "1972"
+        "year": "1972",
+        "language": "Крымскотатарский"
       }
    }
 }
