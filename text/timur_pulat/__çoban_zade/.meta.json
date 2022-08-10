@@ -6,11 +6,13 @@
    "attributes": {
     "crh-RU": {
       "author": "Timur Pulat",
-       "title": "Çobanzade"
+       "title": "Çobanzade",
+      "language": "Qırımtatar"
     },
       "ru": {
       "author": "Тимур Пулат",
-        "title": "Чобан-заде: Через тернии – к звёздам"
+        "title": "Чобан-заде: Через тернии – к звёздам",
+        "language": "Крымскотатарский"
       }
    }
 }
