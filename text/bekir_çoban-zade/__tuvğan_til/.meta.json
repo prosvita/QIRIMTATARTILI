@@ -7,12 +7,14 @@
     "crh-RU": {
       "author": "Çoban-zade Bekir",
        "title": "Tuvğan til",
-      "year": "1918"
+      "year": "1918",
+      "language": "qırımtatar tili"
     },
       "ru": {
       "author": "Бекир Чобан-заде",
         "title": "Родной язык",
         "year": "1918"
+        "language": "крымскотатарский"
       }
    }
 }
