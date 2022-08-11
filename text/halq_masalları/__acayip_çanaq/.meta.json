@@ -5,12 +5,12 @@
   ],
   "attributes": {
     "crh-RU": {
-      "Language": "Türk tili"
+      "Language": "Türk tili",
       "author": "Türk halq masalı",
       "title": "Acayip çanaq",
     },
     "ru": {
-      "Language": "Турецкий"
+      "Language": "Турецкий",
       "author": "Турецкая народная сказка",
       "title": "Чудесная миска",
     }
