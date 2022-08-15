@@ -62,7 +62,7 @@ Yüksek dolap üstündeki grammofonda Aşır Usta “Ne eylediñ, ne eyledi
 Adamlarnıñ başları üzerinde sigar tütüni, insan teri ve azaçıq da qave qoqusı qarışıq, renksiz duman asılıp turmaqta.
 
 Bizim musafirler divar dolabı yanında yer tapıp, oturdılar.
-Oturğanları kibi, öglerinde qırmızı fesli, aqçıl betli garson peyda oldı.
+Oturğanları kibi, öglerinde qırmızı fesli, aqçil betli garson peyda oldı.
 
 – Efendi azretlerine ne lâzim? – o sağ elini köküsi üzerine qoyıp, belinecek egildi. 
 – Yemekmi?
