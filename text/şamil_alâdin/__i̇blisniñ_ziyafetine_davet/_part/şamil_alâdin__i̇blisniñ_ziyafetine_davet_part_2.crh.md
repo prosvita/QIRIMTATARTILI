@@ -142,7 +142,7 @@ O subetke serbest ceriyan bermek istedi, çünki özü resmiy laqırdığa 
  
 – Er kes öyle dey, faqat nasıl deñişkenimni kimse aytmay. 
 – Femi efendi zevqlanıp küldi. –
-Azğanımmı?
+- Azğanımmı?
 Semirgenimmi?
 Siz, eski dostum da, öyle...
 
@@ -154,7 +154,7 @@ O qadar vaqıt keçti!
 Men eslice körünemmi? – musafirden tekrar soradı.
 
 Şamil endi uyğunsızlıqta qaldı.
-Afız darılmaq üzremi, yoqsa dostunıñ fikirini taqdirlemek isteymi?
+Afız darılmaq üzremi, yoqsa dostunıñ fikrini taqdirlemek isteymi?
 Er alda, Şamil öz sözüni tasdıqlap, yavaştan başını salladı: 
 
 – Baq, bu doğru!
