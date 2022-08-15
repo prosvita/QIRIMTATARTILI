@@ -45,7 +45,7 @@ Olarnıñ özlerini ve eşyalarını vokzalğa alıp ketmek kerek.
 İşiñ bitken soñ, kir!
 Qapınırmız.
 
-Burma mıyıqlı kişi – (asılında, onıñ mıyığı burma degil, ucları töpege qaytıq) – yelkesi üzerine cılışqan qalpağını doğrulttı, elindeki kümüş saplı, sırlı tayağını avada canbazlıqle oynata berip, qavehane betke yönedi.
+Burma mıyıqlı kişi (asılında, onıñ mıyığı burma degil, ucları töpege qaytıq) yelkesi üzerine cılışqan qalpağını doğrulttı, elindeki kümüş saplı, sırlı tayağını avada canbazlıqle oynata berip, qavehane betke yönedi.
 Qadın, elindeki balanı bir omuzdan, diger omuzğa avuştıraavuştıra, yanaşalap adımladı.
 
 Kemer Divar yanında musafir eki qanatlı qapunı, zembeleginden çekip, açtı.
