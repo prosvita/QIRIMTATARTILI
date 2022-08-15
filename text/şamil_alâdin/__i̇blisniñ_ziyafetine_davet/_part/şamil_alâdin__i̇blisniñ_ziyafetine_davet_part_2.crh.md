@@ -219,7 +219,7 @@ Fikret Şerifniñ eske tüşürilüvi Üsein ocanı eyecanğa ketirdi.
 Özüni nasıl tutmaq mümkünligini bilmey, cebinden tütün qutusını çıqarıp, sigar yasadı, kibrit ile sigarnı yaqıp, tütünini açközlükle içine çekti.
 
 – Aziz efendi ne alda? – dep soradı o, Afızdan.
-Ağızı içinden topar-topar tütün çıqtı. – Sağselâmetmi?
+Ağzı içinden topar-topar tütün çıqtı. – Sağselâmetmi?
 
 Femi efendiniñ, nedendir abdırağan kibi, kevdesi silkindi, başı aqırından köküsi üzerine tüşti.
 İndemey oturdı.
@@ -228,13 +228,13 @@ Cevap eşitilmedi.
 Oca onıñ çeresindeki aqçıl renkni eslegen soñ, yalınayaq qor üstüne basqan kibi, sıçrap turdı.
 
 – Afız!
-Sizge ne oldı? – dep qıçırdı, Üsein oca, Feminiñ omuzlarından silkiterek. 
+Sizge ne oldı? – dep qıçırdı Üsein oca, Feminiñ omuzlarından silkiterek.
 – Niçün indemeysiñiz?
 
 – Babam hastalandı... vefat etti, – dedi Afız.
 
 “Vefat etti...” 
-Bu sözler Üseinniñ qalbini kuyutip yiberdiler.
+Bu sözler Üseinniñ qalbini küyütip yiberdiler.
 
 – Aziz efendimi? – dep soradı o tekrar, çünki Afıznıñ sözleriniñ manasını tekmil tasavur etip olamadı. 
 – Ata neden hasta edi?
