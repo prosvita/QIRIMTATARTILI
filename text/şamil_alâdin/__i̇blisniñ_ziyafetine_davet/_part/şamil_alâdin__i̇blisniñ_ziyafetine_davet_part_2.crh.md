@@ -262,7 +262,7 @@ Mektüpteki sözler quru ve qabaca ediler.
 Qarasuvbazardaki Ministr tatar mektebine usul-i cedid ders muallimi lâzim.
 “Terciman”da ilânıñıznı oquyıp, Sizi muallimlige davet etmeye qarar verdim.
 Seneviy maaşıñız üç yüz kümüş.
-Oquv vaqıtı alafranga tertibi ile saat on ekiden – dörde qadardır.
+Oquv vaqtı alafranga tertibi ile saat on ekiden – dörde qadardır.
 Şakirtlerniñ miqdarı otuz-otuz beş bala.
 Yılda eki ay tatil.
 
