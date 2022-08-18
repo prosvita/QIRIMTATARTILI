@@ -46,7 +46,7 @@ İşiñ bitken soñ, kir!
 Qapınırmız.
 
 Burma mıyıqlı kişi (asılında, onıñ mıyığı burma degil, ucları töpege qaytıq) yelkesi üzerine cılışqan qalpağını doğrulttı, elindeki kümüş saplı, sırlı tayağını avada canbazlıqle oynata berip, qavehane betke yönedi.
-Qadın, elindeki balanı bir omuzdan, diger omuzğa avuştıraavuştıra, yanaşalap adımladı.
+Qadın, elindeki balanı bir omuzdan, diger omuzğa avuştıra-avuştıra, yanaşalap adımladı.
 
 Kemer Divar yanında musafir eki qanatlı qapunı, zembeleginden çekip, açtı.
 Ülkün ayattan keçip, salonğa çıqtılar.
@@ -57,7 +57,7 @@ Qaysı yeñe, qaysı yeñile, kenarda turıp bilmek küç, ama ardını kesm
 Şaqıldı çıqqan sayın kişiler, qaşlarını yüksekke köterip, yelkelerini burıp, köşege baqalar.
 Külgenler – bazirgân oğulçıqları, keyfliler.
 
-Yüksek dolap üstündeki grammofonda Aşır Usta “Ne eylediñ, ne eylediñ sen baña?” degen efkârlı türküni söylemekte.
+Yüksek dolap üstündeki grammofonda Aşır Usta “Ne eylediñ, ne eylediñ sen bana?” degen efkârlı türküni söylemekte.
 
 Adamlarnıñ başları üzerinde sigar tütüni, insan teri ve azaçıq da qave qoqusı qarışıq, renksiz duman asılıp turmaqta.
 
@@ -219,7 +219,7 @@ Fikret Şerifniñ eske tüşürilüvi Üsein ocanı eyecanğa ketirdi.
 Özüni nasıl tutmaq mümkünligini bilmey, cebinden tütün qutusını çıqarıp, sigar yasadı, kibrit ile sigarnı yaqıp, tütünini açközlükle içine çekti.
 
 – Aziz efendi ne alda? – dep soradı o, Afızdan.
-Ağzı içinden topar-topar tütün çıqtı. – Sağselâmetmi?
+Ağzı içinden topar-topar tütün çıqtı. – Sağ-selâmetmi?
 
 Femi efendiniñ, nedendir abdırağan kibi, kevdesi silkindi, başı aqırından köküsi üzerine tüşti.
 İndemey oturdı.
