@@ -21,7 +21,7 @@ Aydavcı, qaşqa cüyrenniñ ağızlığını almaq içün tamaqsasını 
 Özüne alâ bala dep baqılğanına, ğaliba, tekaran ıncındı.
 İndemey hamutlarnı ve cügenlerni çıqardı, nohtalarnı keçirdi, niayet, ilâve etti. 
 – Atlarnıñ qasevetini çekmeñiz, Üsein emce!
-Özüñizniñ işiñizni baqınız!
+Özüñizniñ işiñizni baqıñız!
 
 – Geceni mögedek astında keçireceksiñ.
 Onı da bilesiñmi?
@@ -29,11 +29,11 @@ Onı da bilesiñmi?
 – Bilem.
 
 Bu hızmetler Ümer içün yeñilik degil.
-O köyden “Veli-Baba” han-azbarına afta sayın kelipkete, mındaki kâyalar, qantar hızmetçileri, aşçılar, qapucılar ile çoqtan tanış.
+O köyden “Veli-Baba” han-azbarına afta sayın kelip kete, mındaki kâyalar, qantar hızmetçileri, aşçılar, qapucılar ile çoqtan tanış.
 Tanışlıq, malüm ki, büyük üstünlik.
 Atlarnı suvarmaq, yem bermek... bu da işmi?
 Ümerniñ boyunında ondan müimce vazifeler bar.
-Söz kelimi, arabada, üstleri kampa ile örtüli eki sele erik ve bir tarpi armut bar.
+Söz kelimi, arabada, üstleri qampa ile örtüli eki sele erik ve bir tarpi armut bar.
 Olarnı bazarğa alıp ketip, babasınıñ daimiy müşterisi, Kerimge teslim etmek, baqqal tükânından qave, şeker... qarın yağı, elva alıp, tez-tez köyge qaytmaq kerek.
 Babasınıñ emiri öyle.
 Ondan başqa hızmetler de bar.
