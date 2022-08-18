@@ -18,7 +18,7 @@ Yem bermege de unutma!
 Aydavcı, qaşqa cüyrenniñ ağızlığını almaq içün tamaqsasını çeze yata edi, emcesiniñ safdil ögütlerini eşitip, külümsiredi.
 
 – Bilem men... – dedi Ümer.
-Özüne ali bala dep baqılğanına, ğaliba, tekaran ıncındı.
+Özüne alâ bala dep baqılğanına, ğaliba, tekaran ıncındı.
 İndemey hamutlarnı ve cügenlerni çıqardı, nohtalarnı keçirdi, niayet, ilâve etti. 
 – Atlarnıñ qasevetini çekmeñiz, Üsein emce!
 Özüñizniñ işiñizni baqınız!
