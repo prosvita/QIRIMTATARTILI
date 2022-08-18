@@ -385,7 +385,7 @@ Şiir tesirli çıqtı.
 Femi efendi medresede ekende şiirler oqumağa bile ve seve turğan.
 
 Balığı yerse balıq,
-Bunı taqdir etti halq,
+Bunı taqdir etti Halіq,
 Zuluma insan degil lâyıq,
 Kel, yanalım!
 Kel, yanalım!
@@ -409,7 +409,7 @@ yoq, ahırını hatırlap olamadı.
 – teren duyğularımızı ifa itmişsiñiz.
 Alla razı olsun, Şamil efendi!
 Kim bilir, ebet, kim bilir?
-Vaqıtı kelir, belki siz büyük edip olursıñız!
+Vaqtı kelir, belki siz büyük edip olursıñız!
 
 – Teşekkür sizge, Femi efendi! – dedi Üsein Şamil. 
 – Men kendim, büyük oluvnı degil, zulmet altında hırpalana, ezile, bir avuç qadar qalğan halqımıznı düşünem.
