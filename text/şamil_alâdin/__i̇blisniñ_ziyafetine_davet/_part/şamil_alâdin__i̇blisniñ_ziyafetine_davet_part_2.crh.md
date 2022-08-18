@@ -312,7 +312,7 @@ Bir defa Afız müderristen resmiy ruhset alıp, evge keldi.
 Yanında özü kibi genç kişi bar edi.
 
 “Bu Şamil.
-Özü Kökközlü, – dedi Femi, dostunı anasına ve babasına taqdim etip, – Fikret Şerif ile üçümiz bir ücrede yaşaymız.”
+Özü Kökközli, – dedi Femi, dostunı anasına ve babasına taqdim etip, – Fikret Şerif ile üçümiz bir ücrede yaşaymız”.
 
 Evde musafirler...
 Suade hanımnıñ aqrabaları bar edi.
