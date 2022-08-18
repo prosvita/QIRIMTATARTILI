@@ -308,7 +308,7 @@ Aziz efendi oña yardımlar etti... fuqare Toqtar aqaynıñ oğlu ekeni içu
 Yoq!
 İşniñ tarihı ğayet sade.
 
-Bir defa Afız müderisten resmiy ruhset alıp, evge keldi.
+Bir defa Afız müderristen resmiy ruhset alıp, evge keldi.
 Yanında özü kibi genç kişi bar edi.
 
 “Bu Şamil.
