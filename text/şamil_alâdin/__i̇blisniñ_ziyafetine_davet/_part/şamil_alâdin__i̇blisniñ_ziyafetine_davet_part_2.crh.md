@@ -158,7 +158,7 @@ Afız darılmaq üzremi, yoqsa dostunıñ fikrini taqdirlemek isteymi?
 Er alda, Şamil öz sözüni tasdıqlap, yavaştan başını salladı: 
 
 – Baq, bu doğru!
-Bu dostça – dedi Afız.
+Bu dostça, – dedi Afız.
  – Men, aqiqaten, qartaydım!
 
 – Evlisiñizmi, Afız efendi?
