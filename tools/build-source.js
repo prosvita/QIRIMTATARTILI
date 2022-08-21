@@ -67,20 +67,20 @@ function generateSource(generatedDir, data) {
     }
 }
 
-function renameCyrillicSource(generatedDir, data) {
-    // Create generated dir
-    fs.mkdirSync(generatedDir, {recursive: true})
+// function renameCyrillicSource(generatedDir, data) {
+//     // Create generated dir
+//     fs.mkdirSync(generatedDir, {recursive: true})
 
-    for (const interim of data.filter((item) => item.lang === 'crh-RU')) {
-        const newFilename = path.basename(interim.filename).replace(/\.crh-RU\.md$/, '.crh-Cyrl.md')
-        const genFilename = path.join(generatedDir, newFilename)
-        const text = fs.readFileSync(interim.filename, 'utf8')
+//     for (const interim of data.filter((item) => item.lang === 'crh-RU')) {
+//         const newFilename = path.basename(interim.filename).replace(/\.crh-RU\.md$/, '.crh-Cyrl.md')
+//         const genFilename = path.join(generatedDir, newFilename)
+//         const text = fs.readFileSync(interim.filename, 'utf8')
 
-        fs.writeFileSync(genFilename, text)
-        interim.filename = genFilename
-        interim.lang = 'crh-Cyrl'
-    }
-}
+//         fs.writeFileSync(genFilename, text)
+//         interim.filename = genFilename
+//         interim.lang = 'crh-Cyrl'
+//     }
+// }
 
 function saveSource(sourceDir, data) {
     // Create source dir
@@ -105,6 +105,7 @@ function saveCropusAttributes(attributesFile, data) {
 }
 
 function saveCropusList(listFile, data) {
+    /* eslint-disable-next-line no-useless-escape */
     const reFile = new RegExp(/(?<basename>[^\/]+)\.(?<lang>[^\.]+)\.md$/, 'i')
     const list = {}
     const langs = []
@@ -138,6 +139,7 @@ function saveCropusList(listFile, data) {
 }
 
 async function getSyncedFileList(issues, metaFiles) {
+    /* eslint-disable-next-line no-useless-escape */
     const reFile = new RegExp(/(?:\/(?<author>[^\/]+)__(?<title>[^\/]+))?\.(?<lang>[^\.]+)\.md$/, 'i')
     const list = []
 
@@ -225,7 +227,7 @@ async function getIssues(octokit, owner, repo) {
         return true
     }
 
-    while (await paginate(page++)) {}
+    while (await paginate(page++)) {}   /* eslint-disable-line no-empty */
 
     return data
 }
