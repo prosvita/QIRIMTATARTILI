@@ -347,7 +347,7 @@ Hastalıqnıñ ise sabırı yoq.
 O beklep olamay.
 Köy tabipleri mandalaç qaynatıp, sıcaq suvuna accı biber qoyıp, hastağa içireler.
 Soñra qızğın tulalar üstüne sılaq talaş töşep, üstüne Abibulla ağanı çalqağa yatqıza... ulpaqlı yorğan ile örteler.
-Evdekiler çapa -çapqalaylar, hastanı ayaqqa tursatalar.
+Evdekiler çapa-çapqalaylar, hastanı ayaqqa tursatalar.
 Üsein keçikip kele.
 “Sen, ağa, şımşır kibi sağlam ediñ! – dey Üsein.
  – Pattadaqtan nasıl etip hastalana qoydıñ?” Abibulla, kerçekten de, pelit tömegi kibi, qaviy ve şeñ adam.
@@ -393,7 +393,7 @@ Sen onı añlamazsıñ!”
 Ağa yarı keder, yarı mısqılnen külümsiredi ve başını manalı surette salladı.
 
 “Yigirmi beş kümüş içün medreselerde oqumaq kerek ediñmi? – o toqtadı, Üseinge azaplı közlerinen baqtı, – taşla o cöreme hızmetiñni!
-eşitesiñmi, Üsein?
+Еşitesiñmi, Üsein?
 Taşla ocalığıñnı, köç-kel mında... köyde pomidor saç, soğan-sarımsaq asra.
 Dağda fındıq, acı-alma, ahlap cıy, Nasvernge alıp-ketip sat.
 Başqa şey kerekmey.
@@ -491,7 +491,7 @@ Dülber sözler aytıldı.
 
 Ziyafet qalabalığı eppi yatışqan edi, ziynetli odalarnıñ birinde, babası Osman Şerif, müderis evde musafirlikte bulunuvından faydalanıp, oğlu Fikret hususında bir daa qonuştı.
 Babanıñ sabırlı ve iltifatlı laqırdısı oğlunıñ qararını bu sefer de deñiştirip olamadı.
-Fikret Kairge, Stambulğa ketüvden qatıyyen red etti.
+Fikret Kairge, Stambulğa ketüvden qatіyen red etti.
 Müderis oña taaciplenmedi.
 “Madamki oğlan sanat, istisal mütehassısı oluv derdinde...
 E! – dedi o... boyunını omuzları içine çekti, – öyle olğanda, Berlinge yahut Londrağa ketsin!
@@ -527,7 +527,7 @@ Qısqa -cevabında iftihar sezildi.
 Demiryol qurucılığında ameliyat keçtim.
 Biraz sustı, nelerdir tüşündi.
 – Ya siz, Şamil efendi?
-Ne işle meşğulsiñiz? –dep soradı.
+Ne işle meşğulsiñiz? – dep soradı.
 
 – Ocalıq ile, – dedi Üsein.
  – Köyde... balalarnı oqutam.
@@ -589,14 +589,14 @@ Tenine güya uzun bizler sançılğan kibi oldı.
 Süküt oturmağa endi mecalı qalmadı.
 Elindeki topraq meşrebeni köterip mermer masa üzerine urdı, meşrebe parçakesek olıp, içindeki maqsıma etrafqa saçıldı.
 Özü atılıp ayaqqa turdı... turğanda, ayağı astındaki kürsüge ilişti, kürsü yıqıldı.
-Köşede, yüksek çapçaq yanındaki kiyiz oturğıçta yuqsırağan Sandura, tarıdan seskenip bir qaqındı, ziyaretçilerge bunarlı közlerini tikledi, baqtı-baqtı, bozana içün adetten tış adise körünmegen soñ, tekrar közlerini yumdı.
+Köşede, yüksek çapçaq yanındaki kiyiz oturğıçta yuqusırağan Sandura, tarıdan seskenip bir qaqındı, ziyaretçilerge bunarlı közlerini tikledi, baqtı-baqtı, bozana içün adetten tış adise körünmegen soñ, tekrar közlerini yumdı.
 
 Oca bozananı terk etmek niyetinen qapuğa doğrulğan edi, niçündir, toqtaldı...
 
 – “Alim olmaq tatarnıñ arcı iş degil” eken.
 Özüñiz Peterburgğa niçün kettiñiz? – dedi Fikretke.
 – Men bana qıqırdağıñıznı üzip taşlamaq istedim... soñ o tüşünceden vazgeçtim.
-Ayıp.. bir vaqıtlarda siz böyle adam degil ediñiz!
+Ayıp... bir vaqıtlarda siz böyle adam degil ediñiz!
 
 Fikret yerinden qalqtı, yüzüne ve bıcağı üzerine tüşken maqsımanı yavlığınen sürtti, galstugınıñ tüyümini tüzetti.
 
