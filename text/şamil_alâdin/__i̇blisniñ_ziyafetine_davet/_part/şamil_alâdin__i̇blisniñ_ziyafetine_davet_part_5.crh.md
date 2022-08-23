@@ -616,7 +616,7 @@ Oca ne olıp – ne keçkenine qıymet kesmek içün bir talay ayaq üstün
  – Niçün? – oca taaciplendi.
 
 – Furuncı para almadı.
-Tanışıñız eken .
+Tanışıñız eken.
 
 Üsein bozana saibine hucur-hucur baqtı... bir şey añlamadı.
 Avuçı içine paranı tıqıp, bosağadan tışqa atladı.
