@@ -76,7 +76,7 @@ O yuqarıdan aşağı enmekte edi.
 
 – Ata sizni qabul ettimi? – dep soradı o Üsein Şamilden.
 
-– Qabul etti, – dedi oca.
+– Qabul etti,– dedi oca.
 
 – Çoq eyi.
 Çoq eyi, – dep tekrarladı Femi efendi.
@@ -184,7 +184,7 @@ Olar ep susmaqta ediler.
 Suade hanım bir şey añlamay, Femige çevirildi:
 – Bu ne demek ola, niayet, maña bilmek mümkünmi?
 
-Oğlunıñ ağızından söz çıqmadı.
+Oğlunıñ ağzından söz çıqmadı.
 Onıñ qaşları bir töpege köterildi, bir de aşağı endiler.
 Tamşandı, yutqundı.
 Sükünetniñ sebebini iza etmek içün özünde küç tapıp olamay, çekişip turğan vaqıtta, onı bu müşkül vaziyetten mecul musafir qurtardı.
@@ -242,7 +242,7 @@ Altı yıl evelkisi kibi, adiy sohtalarmız.
 Şimdi tesadüfen körüştik.
 Tekaran oturışmaq, eglenmek isteymiz.
 Men ise, söz kelimi, birden qaşlarımnı tüyümçekledim, atta dostumnıñ maña uzatqan qolunı tutmadım.
-Ağızıma suv aldım, sustım... oturam.
+Ağzıma suv aldım, sustım... oturam.
 Maña ne yapar ediñiz?
 Sizden sorayım... ne yapar ediñiz?
 
@@ -271,11 +271,11 @@ Sizler şimdi ekiñiz, Buykada töpeleri şiddetli yellerden sınıp, astlar
 
 
 – Borsayğan terekler?
-Bizlermi?– Femi efendi gürsüldep küldi.
+Bizlermi? – Femi efendi gürsüldep küldi.
 – Men bilmek isteyim, – dedi ev saibi, külküsi yatışqan soñ.
  – Özüñiz bu daqiqada ne tüşünesiñiz?
 
-– Şahsen men... qalqıp, sofadaki potüklerimni kiyip, tayağımnı alıp, çıqıp ketmek... fikirindem.
+– Şahsen men... qalqıp, sofadaki potüklerimni kiyip, tayağımnı alıp, çıqıp ketmek... fikrindem.
 
 Üsein efendi kerçek ayttımı?
 Yoqsa, özünde yeñi bir qabiliyet daa barlığını kösterip, yanındaki eki dostunı taaciplendirmek istedimi, Alla bilsin!
