@@ -1,7 +1,7 @@
 ***
 
 Ekindi maalinde oca “Veli-Baba” qavehanesine qaytıp keldi.
-Han azbarında senek, tırnavuz, yüvez, aqlap, qızılçıq yüklü köylü azbarlarını eslep, itimal, köydeşler kelgendirler, fikirinen olarğa yaqınlaştı.
+Han azbarında senek, tırnavuz, yüvez, aqlap, qızılçıq yüklü köylü azbarlarını eslep, itimal, köydeşler kelgendirler, fikrinen olarğa yaqınlaştı.
 Atlar, ögüzler çürük toban ve tezek sasığan ahır içinde hıtır-hıtır malat aşamaqta ediler.
 Köylülerniñ başlarında yufqa yünlü qalpaqlar, ayaqlarında çarıqlar, bellerinde eki-üç qat sarılı qırmızı-mavı yolaqlı quşaqlar.
 Ay Petri betten kelgen yeşil közlü, quru kevdeli, areketçen kişiler... olar yarın saba bazarda mallarını satıp, tükânlardan ev sımarışlarını alıp, evlerine qaytacaqlar.
