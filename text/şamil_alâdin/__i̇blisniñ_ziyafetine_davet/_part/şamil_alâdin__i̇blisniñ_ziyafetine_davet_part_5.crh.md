@@ -898,7 +898,7 @@ Acı-Bekirniñ tükânı, danğalaq Vasilniñ tükânı, Barbi aqaynıñ
 
 Eñ kârlısı, eñ zengini Talipniñki.
 Onda qave içmek, domino oynamaq mümkün.
-Patta-satta siyasiy vaqialar aqqında laqırdı çıqa, alevlenip kete, dava köterile... iş, kimerde, bir-birini aqaretlev, kimerde kötek ile bite.
+Patta-satta siyasiy vaqialar aqqında laqırdı çıqa, alevlenip kete, dava köterile... iş kimerde bir-birini aqaretlev, kimerde kötek ile bite.
 Kişiler keç maalde darqap kete, saba erte turıp, çöl hızmetine cöney, yerge qaranlıq çökkende qaytıp keleler.
 
 Köyde ayat böyle neşesiz, mazun devam eter eken, rus-yapon muarebesi başladı.
@@ -935,7 +935,7 @@ Türkü derslerinde özü kemane çalıp, refaqatlıq etti.
 Üsein oca acayip kemaneci edi.
 
 Oca küneş şavleleri arareti altında köy boylap ketkende, padişalıqnıñ bu acayip yeşil adağa yalıñız istiraat diyarı diye baqıp, yerli halqnı müşkül iqtisadiy aldan qurtarmaq içün iç de çare körmegenine kederlenmekte edi.
-Bir defa Üsein oca, vaqıf topraqlarnıñ bir qısımı fuqare köylülerge berilmesini arzu etip, uyezd topraq işleri idaresine ketken vaqıtında, demiryol stantsiyasında, ayaqları buğavlı kişilerniñ trende Sibirge, kürek cezasına yollanılğanını körgen edi.
+Bir defa Üsein oca, vaqıf topraqlarnıñ bir qısmı fuqare köylülerge berilmesini arzu etip, uyezd topraq işleri idaresine ketken vaqıtında, demiryol stantsiyasında, ayaqları buğavlı kişilerniñ trende Sibirge, kürek cezasına yollanılğanını körgen edi.
 Şimdi közleri ögünde o, ğarip adamlar kevdelendiler.
 Oca eyecanlandı... omuzları özözlüginden silkinip aldılar.
 Bu ağır tüşüncelerden qurtulmaq içün toqtaldı, ufuqta çalqana yatqan mavı deñiz betke bir talay közetip turdı.
@@ -1012,7 +1012,7 @@ Mektepte dersleriñiznen meşğul olıp tursañız, şimdilik, kâfiy, ç
 
 Üsein oca razı oldı.
 Qayışev ketken soñ, gecelik faaliyetini toqtattı.
-Özüniñ şahsiy ayatı... sevgisi, evi-barqı, kelecegi hususında tüşündi ve onıñle meşğul oldı.
+Özüniñ şahsiy ayatı... sevgisi, evi-barqı, kelecegi hususında tüşündi ve onıñle meşğül oldı.
 O hatip Mambetniñ altı qızından eñ kencesi Acirege quda yiberdi.
 Mambet – bir at, eki ögüz ve biraz da topraqqa saip olsa da, asılında, caminiñ vaqıf topraqlarını kirağa berip, onıñ kelirinen güzel keçingen, ağırmaq adam...
 Üsein ocağa göñüli yaqın edi.
@@ -1033,7 +1033,7 @@ Oca oqup tanış oldı ve mezkür ükümni eki kün – eki gece zarfında 
 – Menim eki defa aytqan adetim yoqtır.
 Üç kün soñra kelirim, köyde bolsañ, Kefeye götürip, apshaneye tıqarım.
 Ömürlik orada kalırsıñ.
-Nezaretiñ emiri öyle, kattıdır.”
+Nezaretiñ emiri öyle, qattıdır.”
 
 “Qayda ketmege borclum?” – dep soradı ondan Toqtarğazı.
 
