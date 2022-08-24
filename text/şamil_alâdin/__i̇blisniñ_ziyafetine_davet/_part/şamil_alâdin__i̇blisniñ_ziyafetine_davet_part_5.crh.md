@@ -738,7 +738,7 @@ Siziñ, Üsein efendi, aqşam bu evde olacağıñıznı bilip, ziyafetke as
 
 Fikretniñ lafı bitmedi.
 Eyecanlandı... yerine otura qoydı.
-Ev saipleri içün onıñ ağızından çıqqan sözlerniñ özleri endi kâfi edi.
+Ev saipleri içün onıñ ağzından çıqqan sözlerniñ özleri endi kâfi edi.
 
 – Teşekkür, Fikret efendi! – dedi Femi, dostunıñ sözlerinden memnün qalıp.
  – Rica etem, qadeler içindeki acayip qırmızı şingenlikni Üsein efendiniñ ve Acire hanımnıñ şereflerine içeyik!
