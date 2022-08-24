@@ -622,7 +622,7 @@ Üsein bozana saibine hucur-hucur baqtı... bir şey añlamadı.
 Avuçı içine paranı tıqıp, bosağadan tışqa atladı.
 
 Suade hanım ile Acire sofrağa oturğan soñ, yaş hızmetkâr keldi, musafirlerniñ öglerine sıcaq piteler qoyıp, tar, yüksek filcanlarnı alıp, olarnıñ yerine büllür qadeler qoydı.
-Mühtelif suvuq yemekler ve içimlikler musafirler kelmezden zvel sofra üzerine mearetle yaraştırılıp tizilgen edi.
+Mühtelif suvuq yemekler ve içimlikler musafirler kelmezden еvel sofra üzerine mearetle yaraştırılıp tizilgen edi.
 
 – Aziz musafirlerim, Şamil ve Zekkiy efendiler!
 Acire hanım! – dedi ev saibesi.
@@ -650,7 +650,7 @@ Suade hanım ayretke keldi.
 Eki musafirniñ... de birine baqtı, de digerine.
 Çerelerindeki bulutnı eslegen soñ, özüniñ çırayı da deñişti.
 
-–Femi!
+– Femi!
 Balam!
 Men bir şey añlamayım! – dedi o titrek davuşnen.
  – Efendiler niçün küskünler?
@@ -679,7 +679,7 @@ Dava ne üzerinde başlap, nasıl bitkenini, közlerinen körmey tura, tasav
 Ne olmadı?
 Men bilmeyim.
 Bilmek de istemeyim.
-Al -azırda bizim evimizdesiñiz.
+Al-azırda bizim evimizdesiñiz.
 Fikret şimdi istiraatta... bu künlerde bizni eki defa ziyaret etti.
 Üsein efendiniñ körünmegeni altı yıl.
 Yerleriñizden turıp, sofrağa oturması pek küç olsa, köterip alıp-kelip qoyayıq.
@@ -694,7 +694,7 @@ Bugün de öyle olsun.
 Fikret efendi, siziñ içün ne yapayım?
 Ögüñizde secde eteyimmi?
 
-– Menimmi?– Osman oğlu Fikret taaciplendi.
+– Menimmi? – Osman oğlu Fikret taaciplendi.
  – Siz ne aytasıñız, Suade apte?
 Maña yalvarmaq kerekmey!
 
@@ -736,7 +736,7 @@ Özüm köyge qaytacaq edim.
 Siziñ, Üsein efendi, aqşam bu evde olacağıñıznı bilip, ziyafetke aselet keldim.
 “Öz ğayelerimden qatiyen vazgeçtim...” diye ögüñizde tevbe etmek içün degil, sizge yaptığım aqsız muameleme peşman ekenimni izar etmek ve sizden afu istemek, o vaqıtta aytqan sözlerimni keri almaq mıradı ile keldim.
 
-Fikretniñ lafı bitmedi .
+Fikretniñ lafı bitmedi.
 Eyecanlandı... yerine otura qoydı.
 Ev saipleri içün onıñ ağızından çıqqan sözlerniñ özleri endi kâfi edi.
 
@@ -747,7 +747,7 @@ Öyle degilmi, valide azizim?
 
 – Öyle, oğlum!
 Öyle! – dedi Suade hanım.
- – Bitsin -ketsin!
+ – Bitsin - ketsin!
 
 Sofra başındakiler qadelerini biri-birleriniñkine küçlü urıp, yañğıratıp, içtiler.
 Kimniñ qadesi kimniñkine toqundı... araret, şadlıq sadaları içinde tayin etmek, şübesiz, qıyın edi.
