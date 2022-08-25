@@ -3,7 +3,7 @@
 ### 3.1. İNKİŞAFNIÑ ESAS BASQIÇLARI, BİRİNCİ USTALAR
 
 Qırımtatar halqınıñ manzaralı-ameliy sanatı XX asırnıñ başına barıp, yüz bergen inqırazğa baqmadan, umumen, yüksek professional seviyesi ve asırlıq ananelerini saqlap qaldı.
-XIX asırnıñ soñlarından itibaren qırımtatar ustalarınıñ eşyaları eskilik mühlislerini, kollektsionerler, qırımşınas-alimlerniñ keniş dairesini qavrap alğan tedqiqatçılarnıñ diqqatını celp etkeni tesadufiy degil edi.
+XIX asırnıñ soñlarından itibaren qırımtatar ustalarınıñ eşyaları eskilik mühlislerini, kollektsionerler, qırımşınas-alimlerniñ keniş dairesini qavrap alğan tedqiqatçılarnıñ diqqatını celp etkeni tesadüfiy degil edi.
 Aveskârlıq kollektsiyalar ve cıymalarnıñ arasında ğayet populâr olğanları bu — belli qırımşınas A. A. Bertye-Delagard (Yalta) ve Aqmescitte Tavriya ilimler arhiv komissiyasınıñ kollektsiyaları, Svişçevniñ şahsiy gimnaziyasınıñ toplamı; Qırımdan tıştaki kollektsiyalardan ise Peterburg ve Moskva müzeyleriniñ bölükleri: Rusiye müzeyinde Millerniñ kollektsiyası ve Moskvada sabıq Rumântsev müzeyinde — al-azırda Halqşınaslıq müzeyinde Yanjulnıñ kollektsiyası belli edi.
 Bu kollektsiyalarnıñ esasını nağış ve toqumalar, qısmen, bediiy maden, quyumcılıq eşyaları teşkil ete ediler, episinden zayıf kiramet em de taş ve ağaç üstünde oyuv taqdim etilgen edi.
 Bu al — tesaduf degil.
