@@ -1,19 +1,21 @@
 {
-  "sync": [650],
-  "notes": [
+  "sync":[
+    650
+  ],
+  "notes":[
     "s650: crh-ru+ru"
   ],
-  "attributes": {
-    "crh-RU": {
-      "Language": "Qırımtatar tili",
-      "author": "Yunus Şevket",
-      "title": "Edebiyatımızda ''lager nesiri''",
-      "year": "2002"
+  "attributes":{
+    "crh-RU":{
+      "Language":"Qırımtatar tili",
+      "author":"Yunus Şevket",
+      "title":"Edebiyatımızda ''lager nesiri''",
+      "year":"2002"
     },
-    "ru": {
-      "Language": "Крымскотатарский",
-      "author": "Юнус Шевкет",
-      "title": "«Лагерная проза» в нашей литературе",
+    "ru":{
+      "Language":"Крымскотатарский",
+      "author":"Юнус Шевкет",
+      "title":"«Лагерная проза» в нашей литературе"
     }
   }
 }
