@@ -1,20 +1,37 @@
 {
-  "sync": [457, 458, 459, 460, 461, 462, 463, 464, 465, 466, 467, 468, 469, 470, 471, 472],
-  "notes": [
+  "sync":[
+    457,
+    458,
+    459,
+    460,
+    461,
+    462,
+    463,
+    464,
+    465,
+    466,
+    467,
+    468,
+    469,
+    470,
+    471,
+    472
+  ],
+  "notes":[
     "s457-472: crh-RU+ru"
   ],
-   "attributes": {
-    "crh-RU": {
-      "author": "Pulat Timur",
-       "title": "Musa Mamut aqqında povest",
-      "year": "1972",
-      "language": "Qırımtatar tili"
+  "attributes":{
+    "crh-RU":{
+      "author":"Pulat Timur",
+      "title":"Musa Mamut aqqında povest",
+      "year":"1972",
+      "language":"Qırımtatar tili"
     },
-      "ru": {
-      "author": "Пулатов Тимур",
-        "title": "Повесть о Мусе Мамуте/История одного возвращения (повесть о Мусе Мамуте)",
-        "year": "1972",
-        "language": "Крымскотатарский"
-      }
-   }
+    "ru":{
+      "author":"Пулатов Тимур",
+      "title":"Повесть о Мусе Мамуте/История одного возвращения (повесть о Мусе Мамуте)",
+      "year":"1972",
+      "language":"Крымскотатарский"
+    }
+  }
 }
