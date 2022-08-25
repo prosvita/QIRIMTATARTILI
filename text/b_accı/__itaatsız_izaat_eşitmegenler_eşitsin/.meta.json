@@ -1,18 +1,20 @@
 {
-  "sync": [236],
-  "notes": [
-    "s236: crh-RU+ru"
-  ],
-   "attributes": {
-    "crh-RU": {
-      "author": "Accı Bekir",
-       "title": "İtaatsız izaat: eşitmegenler eşitsin",
-       "language": "Qırımtatar tili"
-    },
-      "ru": {
-      "author": "Аджджы",
-        "title": "Непокорное пояснение: пусть знают все",
-         "language": "Крымскотатарский"
+   "sync":[
+      236
+   ],
+   "notes":[
+      "s236: crh-RU+ru"
+   ],
+   "attributes":{
+      "crh-RU":{
+         "author":"Accı Bekir",
+         "title":"İtaatsız izaat: eşitmegenler eşitsin",
+         "language":"Qırımtatar tili"
+      },
+      "ru":{
+         "author":"Аджджы",
+         "title":"Непокорное пояснение: пусть знают все",
+         "language":"Крымскотатарский"
       }
    }
 }
