@@ -1,28 +1,30 @@
 {
-  "sync": [654],
-  "notes": [
+  "sync":[
+    654
+  ],
+  "notes":[
     "s654: crh-RU,en,ru,uk"
   ],
-   "attributes": {
-    "crh-RU": {
-      "author": "İnşalar cıyıntığı",
-       "title": "Eyiqomşucılıq",
-       "language": "Qırımtatar tili"
+  "attributes":{
+    "crh-RU":{
+      "author":"İnşalar cıyıntığı",
+      "title":"Eyiqomşucılıq",
+      "language":"Qırımtatar tili"
     },
-      "ru": {
-      "author": "Cборник рассказов",
-        "title": "Добрососедство",
-         "language": "Крымскотатарский"
-      },
-     "uk": {
-      "author": "Збірка творів",
-        "title": "Добросусідство",
-        "language": "Кримськотатарська"
-      },
-     "en": {
-      "author": "A collection of essays",
-        "title": "Good-neighbourliness",
-        "language":"Crimean Tatar"
-      }
-   }
+    "ru":{
+      "author":"Cборник рассказов",
+      "title":"Добрососедство",
+      "language":"Крымскотатарский"
+    },
+    "uk":{
+      "author":"Збірка творів",
+      "title":"Добросусідство",
+      "language":"Кримськотатарська"
+    },
+    "en":{
+      "author":"A collection of essays",
+      "title":"Good-neighbourliness",
+      "language":"Crimean Tatar"
+    }
+  }
 }
