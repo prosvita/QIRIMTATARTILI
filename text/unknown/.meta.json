@@ -1,6 +1,22 @@
 {
-  "sync": [533],
-  "notes": [
-    "s533: ru"
-  ]
+  "sync":[
+    533
+  ],
+  "notes":[
+    "s533: crh-RU+ru"
+  ],
+  "attributes":{
+    "crh-RU":{
+      "author":"İsmail Asan oğlu Kerim",
+      "title":"Eki asır arasında",
+      "year":"1995",
+      "language":"Qırımtatar tili"
+    },
+    "ru":{
+      "author":"Керимов Исмаил",
+      "title":"На стыке веков",
+      "year":"1995",
+      "language":"Крымскотатарский"
+    }
+  }
 }

@@ -1,6 +1,19 @@
 {
   "sync": [612],
   "notes": [
-    "s612: uk"
-  ]
+    "s612: crh-ru+uk"
+  ],
+  "attributes": {
+    "crh-RU": {
+      "Language": "Arap tili",
+      "author": "Arap halq masalı",
+      "title": "Deñizci sindbad aqqında masal"
+    },
+    "uk": {
+      "Language": "Арабська",
+      "author": "Арабська народна казка",
+      "title": "Сіндбад-мореплавець",
+      "translator": "Е.Бекіров"
+    }
+  }
 }

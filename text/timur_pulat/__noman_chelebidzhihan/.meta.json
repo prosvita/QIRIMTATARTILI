@@ -7,12 +7,14 @@
     "crh-RU": {
       "author": "Timur Pulat",
       "title": "Noman Chelebidzhihan",
-      "year": "1234"
+      "year": "1234",
+      "language": "Qırımtatar tili"
     },
     "ru": {
       "author": "Тимур Пулатов",
       "title": "Номан Челебиджихан",
-      "year": "1234"
+      "year": "1234",
+      "language": "Крымскотатарский"
     }
   }
 }

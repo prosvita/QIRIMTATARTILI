@@ -1,6 +1,30 @@
 {
-  "sync": [380, 381, 382],
-  "notes": [
-    "s380-382: crh+ru"
-  ]
+  "sync":[
+    380,
+    381,
+    382
+  ],
+  "notes":[
+    "s380-382: crh+crh-ru"
+  ],
+  "attributes":{
+    "crh-RU":{
+      "Language":"Qırımtatar tili",
+      "author":"Alâdin Şamil",
+      "title":"Çoraçıqlar",
+      "year":"1987"
+    },
+    "crh":{
+      "Language":"Qırımtatar tili",
+      "author":"Alâdin Şamil",
+      "title":"Çoraçıqlar",
+      "year":"1987"
+    },
+    "ru":{
+      "Language":"Крымскотатарский",
+      "author":"Алядин Шамиль",
+      "title":"Чорачиклар",
+      "year":"1987"
+    }
+  }
 }

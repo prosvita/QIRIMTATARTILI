@@ -1,6 +1,18 @@
 {
   "sync": [657],
   "notes": [
-    "s657: ru"
-  ]
+    "s657: crh-ru+ru"
+  ],
+  "attributes": {
+    "crh-RU": {
+      "Language": "Ğağauz tili",
+      "author": "Ğağauz halq masalı",
+      "title": "Demir ayuv"
+    },
+    "ru": {
+      "Language": "Гагаузкий",
+      "author": "Гагаузкая народная сказка",
+      "title": "Железный ведмедь"
+    }
+  }
 }

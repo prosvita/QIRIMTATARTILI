@@ -1,0 +1,25 @@
+{
+  "env": {
+    "commonjs": true,
+    "es2021": true,
+    "node": true
+  },
+  "extends": [
+    "eslint:recommended",
+    "plugin:json/recommended"
+  ],
+  "parserOptions": {
+    "ecmaVersion": 12
+  },
+  "ignorePatterns": ["!.meta.json"],
+  "rules": {
+    "indent": ["error", 4],
+    "json/indent": ["error", 2],
+    "json/*": ["error", "allowComments"]
+  },
+  "overrides": [
+    {
+      "files": ["*.js", "*.json"]
+    }
+  ]
+}

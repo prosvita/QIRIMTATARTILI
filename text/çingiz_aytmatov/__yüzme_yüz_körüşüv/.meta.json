@@ -1,6 +1,22 @@
 {
-  "sync": [234],
-  "notes": [
-    "s234: ru"
-  ]
+  "sync":[
+    234
+  ],
+  "notes":[
+    "s234: crh-RU,ru"
+  ],
+  "attributes":{
+    "crh-RU":{
+      "author":"Aytmatov Çengiz",
+      "title":"Yüzme yüz körüşüv",
+      "year":"1958",
+      "language":"Qırğız tili"
+    },
+    "ru":{
+      "author":"Чингиз Айтматов",
+      "title":"Лицом к лицу",
+      "year":"1958",
+      "language":"Кыргызский"
+    }
+  }
 }

@@ -1,7 +1,6 @@
 'use strict'
 
 const async = require('async')
-const fs = require('fs')
 const path = require('path')
 
 const yadict = require('yaspeller/lib/dictionary')
