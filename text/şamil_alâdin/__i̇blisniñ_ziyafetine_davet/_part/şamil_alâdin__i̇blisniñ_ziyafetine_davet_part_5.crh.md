@@ -269,7 +269,6 @@ Sizni ekinci qattan atmaz edim.
 Añlaşıldımı, Femi efendi?
 Sizler şimdi ekiñiz, Buykada töpeleri şiddetli yellerden sınıp, astları qurıp, borsayıp, çoñqayıp qalğan terek kevdelerine beñzeysiñiz.
 
-
 – Borsayğan terekler?
 Bizlermi? – Femi efendi gürsüldep küldi.
 – Men bilmek isteyim, – dedi ev saibi, külküsi yatışqan soñ.
@@ -472,7 +471,7 @@ Oquvnıñ soñki aylarında Fikret eki kün ücrede körünmedi, soñ pey
 “Babam kelip-ketti... – dedi Fikret qısqadan, – tanışımıznıñ evinde qondı.
 Onıñle körüştim”.
 Bir qaç kün daa keçti.
-“Fikret Kairdeki “Al-ahzar”darılfnunına oqumağa ketecek...” degen haber eşitildi.
+“Fikret Kairdeki “Al-ahzar” darılfnunına oqumağa ketecek...” degen haber eşitildi.
 Kereçekmi bu?
 Yalanmı?
 Kimse bilmey.
@@ -549,12 +548,12 @@ E? Şamil efendi?
 Üsein oca, Fikretniñ mısqıl ve nefretle ifa etken fikirlerine, niçündir, emiyet bermedi.
 Sözlerini öz qulaqlarınen eşite turıp, ğarezlikle aytılğanına inanmadı.
 İnanmadımı aceba?
-Nasıl inanmasın ?
+Nasıl inanmasın?
 Özüni öyle, inanmağan, añlamağan, pervasız alda köstermek istedi.
 Aqiqatta, kederlenip, içten ateş aldı.
 Lâkin Fikret – onıñ, Üseinniñ, dostu... onıñ lafına ciddiy qıymet kesmek içün özünde birden qatiyet tapıp olamadı.
 Men Fikretni yañlış añlamadımmı aceba? – dedi o, öz-özüne!
- – Yoq!
+– Yoq!
 Mümkün degil!
 
 “Men ve maña beñzer... eski kiyimli, boş cepli adamlar, fuqare tatar balalarına oquv-yazuv ögretkenimiz içün biçare adamlarmız.
@@ -1170,17 +1169,10 @@ Puşkinni tilimizge tercime etsem, kederni unutam, alemde şiiriyet degen şe
 Yoq... şu sözlerni nasıl unutırsıñ?
 
 Canlı çeşme, sevgi çeşmesi,
-
 Eki gül ediye ketirdim saña!
-
 Susmaz şırıltıñnı sevem seniñ,
-
 Meftünim mazün közyaşıña.
-
 Seniñ kümüş tamçılarıñ
-
 Qalbime salqın çıq kibi sepile.
-
 Sen tökül, ah... sevinç çoqrağı!
-
 Şırılda... başıña kelgenlerni söyle!
