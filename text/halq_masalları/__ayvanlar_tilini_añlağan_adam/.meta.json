@@ -1,18 +1,20 @@
 {
-  "sync": [656],
-  "notes": [
+  "sync":[
+    656
+  ],
+  "notes":[
     "s656: crh-ru+ru"
   ],
-  "attributes": {
-    "crh-RU": {
-       "Language": "Türkmen tili",
-      "author": "Türkmen halq masalı",
-      "title": "Ayvanlar tilini añlağan adam"
+  "attributes":{
+    "crh-RU":{
+      "Language":"Türkmen tili",
+      "author":"Türkmen halq masalı",
+      "title":"Ayvanlar tilini añlağan adam"
     },
-    "ru": {
-      "Language": "Тюркменский",
-      "author": "Туркменская народная сказка",
-      "title": "Язык зверей"
+    "ru":{
+      "Language":"Тюркменский",
+      "author":"Туркменская народная сказка",
+      "title":"Язык зверей"
     }
   }
 }
