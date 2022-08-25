@@ -1,23 +1,25 @@
 {
-  "sync": [238],
-  "notes": [
+  "sync":[
+    238
+  ],
+  "notes":[
     "s238: сrh-RU, ru"
-    ],
-   "attributes": {
-    "crh-RU": {
-      "author": "Çoban-zade Bekir",
-       "title": "Bulutlar",
-      "year": "2003",
-      "language": "Qırımtatar tili",
-       "translator": "Drujınin Sergey"
+  ],
+  "attributes":{
+    "crh-RU":{
+      "author":"Çoban-zade Bekir",
+      "title":"Bulutlar",
+      "year":"2003",
+      "language":"Qırımtatar tili",
+      "translator":"Drujınin Sergey"
     },
-      "ru": {
-      "author": "Бекир Чобан-заде",
-        "title": "Облака",
-        "year": "2003",
-        "language": "Крымскотатарский",
-        "translator": "Дружинин Сергей"
-      }
-   }
+    "ru":{
+      "author":"Бекир Чобан-заде",
+      "title":"Облака",
+      "year":"2003",
+      "language":"Крымскотатарский",
+      "translator":"Дружинин Сергей"
+    }
+  }
 }
 
