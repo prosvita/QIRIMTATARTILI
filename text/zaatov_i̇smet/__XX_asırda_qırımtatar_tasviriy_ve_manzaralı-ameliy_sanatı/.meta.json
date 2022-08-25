@@ -1,26 +1,31 @@
 {
-  "sync": [384, 385, 386, 387],
-  "notes": [
+  "sync":[
+    384,
+    385,
+    386,
+    387
+  ],
+  "notes":[
     "s384-387: crh-ru+ru+uk"
   ],
-  "attributes": {
-    "crh-RU": {
-      "Language": "Qırımtatar tili",
-      "author": "Zaatov İsmet",
-      "title": "ХХ asırda tasviriy ve manzaralı ameliy sanatı",
-      "year": "2002"
-       },
-    "uk": {
-      "Language": "Кримськотатарська",
-      "author": "Заатов Ісмет",
-      "title": "Кримськотатарське образотворче мистецтво",
-      "year": "2002"
+  "attributes":{
+    "crh-RU":{
+      "Language":"Qırımtatar tili",
+      "author":"Zaatov İsmet",
+      "title":"ХХ asırda tasviriy ve manzaralı ameliy sanatı",
+      "year":"2002"
     },
-    "ru": {
-      "Language": "Крымскотатарский",
-      "author": "Заатов Исмет",
-      "title": "Кримскотатарское декоративно-прикладное исскуство",
-      "year": "2002"
+    "uk":{
+      "Language":"Кримськотатарська",
+      "author":"Заатов Ісмет",
+      "title":"Кримськотатарське образотворче мистецтво",
+      "year":"2002"
+    },
+    "ru":{
+      "Language":"Крымскотатарский",
+      "author":"Заатов Исмет",
+      "title":"Кримскотатарское декоративно-прикладное исскуство",
+      "year":"2002"
     }
   }
 }
