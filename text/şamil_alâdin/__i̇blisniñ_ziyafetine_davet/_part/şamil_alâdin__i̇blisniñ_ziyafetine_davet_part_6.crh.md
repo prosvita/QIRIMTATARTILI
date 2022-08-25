@@ -107,7 +107,7 @@ Temelli keldiñmi?
  – Ebu-Bekir böyle dep oturğanda aqsırdı.
 Elindeki filcanınıñ qavesi telgendi, tizleri üzerine töküldi.
 O filcannı deral tabaq üstüne qoydı.
-– Yaqlış olsa kerek.
+– Yañlış olsa kerek.
 Ne deysiñiz, Üsein oca?
 
 – Apshanede?
@@ -155,7 +155,7 @@ Cemaat bizlermiz, – qolunıñ qatiy areketinen yanındaki adamlarnı köster
 Bir ayağını kilim üzerine uzatıp, digerini tizden büklep oturğan Acı-Erbain, qaqına berip, arqasını yastıqtan qurtardı.
 
 – Afu etiñiz! – dedi o, Cemaledinge egilip, – Üsein ocanı üç buçuq yıl degende kördik.
-Alınıhatirini sorav yerine, onıñle davağa tutundıq.
+Alını-hatirini sorav yerine, onıñle davağa tutundıq.
 Bu musulmanlıq degil.
 Üsein ocağa ciddiy lafıñız olsa, onıñ içün başqa yer ve başqa vaqıt tapıñız!
 Oca menim evimde musafir...
@@ -205,7 +205,7 @@ Takos pite aqqındaki laf, mısqıl tarzında olsa da, şübesiz, ocanıñ ko
 Mulâaza, aqiqaten, çetke buruldı, ama onıñ aqaretli ruhu deñişmedi.
 
 – Üç yıl qalaqayımıznı aşadıñız! – dedi Ebu-Bekir, ocağa.
-– Ama Kökközlülerge aytıp, bizge bir macar tatlı soğan ketirip olamadıñız... iri, tögerek soğan.
+– Ama Kökközlіlerge aytıp, bizge bir macar tatlı soğan ketirip olamadıñız... iri, tögerek soğan.
 Çanaq qadar.
 Bilesiñizmi?
 
@@ -265,7 +265,7 @@ Tatlı soğan!
 Eltigen yalısından Kavkaz betke baqıp parmağını azaçıq qıbırdatsa, ertesi künü Temrükten oña üç gemi sabzevat ketirilecek.
 İş soğanda degil.
 İş şunda ki, Üsein muallim qaytıp keldi.
-O, yarın Kerçteki işçi dernekleriniñ azalarınen tekrar tapışacaq, cemaatnıñ miyini kene tönterüv işi ile meşğul olacaq, vel-asıl, Harcibiye aqqında gübernator azretleri indinde osal fikir doğacaq...
+O, yarın Kerçteki işçi dernekleriniñ azalarınen tekrar tapışacaq, cemaatnıñ miyini kene tönterüv işi ile meşğül olacaq, vel-asıl, Harcibiye aqqında gübernator azretleri indinde osal fikir doğacaq...
 
 – Öyle, Üsein oca! – dedi Cemaledin, laqırdığa yekün çekken kibi.
  – Biz seni çağırmadıq.
@@ -318,7 +318,7 @@ Musafir bosağadan tışqa atlaycaqta, tabaq üstündeki tolu filcan közle
 
 – Qaveñizni içmegensiñiz de, Üsein! – dep qıçırdı artından Aciredin.
 
-Musafir ev saibiniñ sözlerini eşitmegen, olıp, sofada ayakqaplarını kiydi, arqasına aylanıp bile baqmay, yolğa çıqtı.
+Musafir ev saibiniñ sözlerini eşitmegen olıp, sofada ayaqqaplarını kiydi, arqasına aylanıp bile baqmay, yolğa çıqtı.
 
 Acı-Erbain aralıq qapudan, ocanıñ artından bir talay közetip turdı, soñ tirseginen üytep qapını örtti.
 
@@ -467,7 +467,7 @@ Olacaqmı asıl da bir şey?
 Köylüniñ ondan haberi yoq.
 Köylü Aciredinniñ Ebu-Bekirniñ, Cemaledinniñ qolunda işley.
 İşlemese, açlıqtan ölecek.
-Ağızını açsa – uzaq, suvuq Sibir, Kürek cezası.
+Ağzını açsa – uzaq, suvuq Sibir, Kürek cezası.
 Ne çare?
 Susa...
 Taqdirine tabi olıp otura.
@@ -526,7 +526,7 @@ Eki oca hoşnut alda qave içtiler.
 İçti ve mektepniñ bugünki alı ve kelecegi aqqında fikirleştiler.
 Köy cemaatınıñ ayatı Acı-Erbain ve Cemaledinniñ qolları arasında qısıldı.
 Mektepte dersler cedveline dünyaviy fenler kirsetüvge ruhset yoq.
-Üsein Şamil keçken yıllarda yeñi fenler, yeñi usullar içün ne qadar ğayret etken... yeñi fenlerge musaadeni gübernatordan nasıl meşaqqatlarnen alğan edi!
+Üsein Şamil keçken yıllarda yeñi fenler, yeñi usullar içün ne qadar ğayret etken... yeñi fenlerge musaadeni gübernatordan nasıl meşaqatlarnen alğan edi!
 Endi episini yeñiden başlamaq kerek olacaq.
 
 İbraim oca qavesini içip, filcanını tepis içine qoyğan soñ, közlerini ev içinde bir manasız anda-mında kezdirgen vaqıtta, nazarı tesadüfen kemane üzerine tüşti.
