@@ -28,17 +28,8 @@ jobs:
     runs-on: ubuntu-latest
     steps:
     - uses: actions/checkout@v2
-    # - name: Use Node.js
-    #   uses: actions/setup-node@v1
-    #   with:
-    #     node-version: 12.x
-    # - name: npm install
-    #   run: npm install
     - name: Check codestyle
       uses: reviewdog/action-eslint@v1
       with:
         reporter: ${{ github.event_name == 'pull_request' && 'github-pr-review' || 'github-check' }}
-        # eslint_flags: --ext js,json --ignore-pattern "!.meta.json" .
         fail_on_error: "true"
-    # - name: ESLint
-    #   run: npm run eslint
