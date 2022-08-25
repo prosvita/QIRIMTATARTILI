@@ -946,14 +946,14 @@ Bir defa padişa topçuları Mitridattan şeer soqaqlarındaki numayışç�
 Bu vaqiadan soñ, dostları oña Harcibiyeden tışqa çıquvnı yasaq ettiler.
 
 O vaqıtta oca bekâr olıp, Menlibeyniñ evinde, ayrı odada yaşay edi.
-Kündüzleri mektepte talebelerniñ derslerinen, geceleri evde edebiy yaratıcılıqnen meşğul oldı.
+Kündüzleri mektepte talebelerniñ derslerinen, geceleri evde edebiy yaratıcılıqnen meşğül oldı.
 Öyle gecelerniñ birinde şairniñ qaleminden elemli satırlar töküldiler.
 
 Sen çekil halqnıñ arasından, çekil!
 Yürekler incerdi qorquñdan, çekil!
 
 İstesek, yarıqta da yuqlarız biz.
-Verdigiñ uyqu kerekmey, degiliz mutac!
+Verdigiñ uyqu kerekmey, degiliz muhtac!
 
 Uyan, sen, ey, halqım!
 Közüñni aç!
@@ -1088,7 +1088,7 @@ Oca, tükâncınıñ sualini tasdıqlap, başını qaqıttı.
 Talip sigarını tutandırdı, tütünni içine çekip, cigerlerini toldurdı.
 
 – Faydasız... – dedi o.
- – Tütün ağızından kesek-kesek olıp çıqtı.
+ – Tütün ağzından kesek-kesek olıp çıqtı.
  – Ağalar menden mal aluvnı biysinmeyler.
 Kepeden öz adamları ketireler.
 Calanğaç köylüniñ küçü tek upaq-tüpekke cete... at mıhı, çamaşır sabunı, kunaylan mayı, teren kaloş, raqı... – Talip böyle dep, cılmaydı.
