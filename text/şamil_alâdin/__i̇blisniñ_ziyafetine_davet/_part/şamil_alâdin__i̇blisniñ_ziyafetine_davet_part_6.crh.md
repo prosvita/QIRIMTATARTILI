@@ -22,7 +22,7 @@ Ne ocanıñ özü, ne de cemaat.
 Niçün qaytıp keldi?
 Çünki oca bu köyde ilki mektepni açtı.
 Adamlarğa qaranı tanıttı.
-Közlerini örtken zulmet perdesini yırtıp, alıp – attı, yarıqnı kösterdi.
+Közlerini örtken zülmet perdesini yırtıp, alıp attı, yarıqnı kösterdi.
 Soñ, bu yapqan işini özü begendi, ondan iftihar etti.
 Tek bu degil.
 Yoq... tek bu degil.
@@ -120,7 +120,7 @@ Ay Vasılda Ministr mektebinde muallim edim.
 Ocanıñ bu sözlerinden soñ Acı-Erbain, Ebu-Bekir, Cemaledin bir-birlerine baqıştılar.
 
 – Ministr mektebinde? – Ebu-Bekir belini doğrultıp, sarı kirpiklerini sıq-sıq oynattı, eleslenip qaldı.
-–Ay Vasılnı... o acayip köyni taşlap, bu taqır çölge keldiñizmi?
+– Ay Vasılnı... o acayip köyni taşlap, bu taqır çölge keldiñizmi?
 
 Qapu aqırından açıldı.
 Beline mavı, qıyıq şal bağlı yaş qadın utansırap, gülgüli çere ile içeri kirdi, Üsein ocanıñ ögüne itiyatle qave qoydı.
