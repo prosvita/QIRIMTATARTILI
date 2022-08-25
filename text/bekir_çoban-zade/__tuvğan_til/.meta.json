@@ -1,20 +1,22 @@
 {
-  "sync": [237],
-  "notes": [
+  "sync":[
+    237
+  ],
+  "notes":[
     "s237: crh-RU+ru"
   ],
-   "attributes": {
-    "crh-RU": {
-      "author": "Çoban-zade Bekir",
-       "title": "Tuvğan til",
-      "year": "1918",
-      "language": "Qırımtatar tili"
+  "attributes":{
+    "crh-RU":{
+      "author":"Çoban-zade Bekir",
+      "title":"Tuvğan til",
+      "year":"1918",
+      "language":"Qırımtatar tili"
     },
-      "ru": {
-      "author": "Бекир Чобан-заде",
-        "title": "Родной язык",
-        "year": "1918",
-        "language": "Крымскотатарский"
-      }
-   }
+    "ru":{
+      "author":"Бекир Чобан-заде",
+      "title":"Родной язык",
+      "year":"1918",
+      "language":"Крымскотатарский"
+    }
+  }
 }
