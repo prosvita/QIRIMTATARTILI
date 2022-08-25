@@ -6,6 +6,9 @@ on:
     - master
     paths:
     - text/**/*.md
+  pull_request:
+    branches:
+    - master
 
 jobs:
   build:
@@ -23,14 +26,14 @@ jobs:
     - name: Install node_modules
       run: |
         docker run -t --rm -w /build -v "$(pwd):/build" \
-            node:14-buster-slim \
+            node:14-buster \
             yarn install
 
     - name: Build source
       run: |
         docker run -t --rm -w /build -v "$(pwd):/build" \
             -e GITHUB_TOKEN="${{ secrets.GITHUB_TOKEN }}" \
-            node:14-buster-slim \
+            node:14-buster \
             node tools/build-source.js
 
     - name: Build corpora
