@@ -1,20 +1,22 @@
 {
-  "sync": [653],
-  "notes": [
+  "sync":[
+    653
+  ],
+  "notes":[
     "s653:crh-ru+ru"
   ],
-  "attributes": {
-    "crh-RU": {
-      "Language": "Qırımtatar tili",
-      "author": "Çelebicihan Noman",
-      "title": "Qarılğaçlar duası",
-      "year": "1913"
+  "attributes":{
+    "crh-RU":{
+      "Language":"Qırımtatar tili",
+      "author":"Çelebicihan Noman",
+      "title":"Qarılğaçlar duası",
+      "year":"1913"
     },
-    "ru": {
-      "Language": "Крымскотатарский",
-      "author": "Челебиджихан Номан",
-      "title": "Молитва ласточек"
-      "year": "1913"
+    "ru":{
+      "Language":"Крымскотатарский",
+      "author":"Челебиджихан Номан",
+      "title":"Молитва ласточек",
+      "year":"1913"
     }
   }
 }
