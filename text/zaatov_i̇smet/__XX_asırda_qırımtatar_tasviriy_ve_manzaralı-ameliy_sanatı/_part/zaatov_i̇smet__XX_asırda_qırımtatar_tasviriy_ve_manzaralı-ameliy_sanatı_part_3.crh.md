@@ -2,33 +2,33 @@
 
 ### 3.1. İNKİŞAFNIÑ ESAS BASQIÇLARI, BİRİNCİ USTALAR
 
-Qırımtatar halqınıñ manzaralı-ameliy sanatı XX asırnıñ başına barıp, yüz bergen inqırazğa baqmadan, umumen, yüksek professional seviyesi ve asırlıq ananelerini saqlap qaldı.
+Qırımtatar halqınıñ manzaralı-ameliy sanatı XX asırnıñ başına barıp, yüz bergen inqirazğa baqmadan, umumen, yüksek professional seviyesi ve asırlıq ananelerini saqlap qaldı.
 XIX asırnıñ soñlarından itibaren qırımtatar ustalarınıñ eşyaları eskilik mühlislerini, kollektsionerler, qırımşınas-alimlerniñ keniş dairesini qavrap alğan tedqiqatçılarnıñ diqqatını celp etkeni tesadüfiy degil edi.
-Aveskârlıq kollektsiyalar ve cıymalarnıñ arasında ğayet populâr olğanları bu — belli qırımşınas A. A. Bertye-Delagard (Yalta) ve Aqmescitte Tavriya ilimler arhiv komissiyasınıñ kollektsiyaları, Svişçevniñ şahsiy gimnaziyasınıñ toplamı; Qırımdan tıştaki kollektsiyalardan ise Peterburg ve Moskva müzeyleriniñ bölükleri: Rusiye müzeyinde Millerniñ kollektsiyası ve Moskvada sabıq Rumântsev müzeyinde — al-azırda Halqşınaslıq müzeyinde Yanjulnıñ kollektsiyası belli edi.
+Aveskârlıq kollektsiyalar ve cıymalarnıñ arasında ğayet populâr olğanları bu — belli qırımşınas A.A. Bertye-Delagard (Yalta) ve Aqmescitte Tavriya ilimler arhiv komissiyasınıñ kollektsiyaları, Svişçevniñ şahsiy gimnaziyasınıñ toplamı; Qırımdan tıştaki kollektsiyalardan ise Peterburg ve Moskva müzeyleriniñ bölükleri: Rusiye müzeyinde Millerniñ kollektsiyası ve Moskvada sabıq Rumântsev müzeyinde — al-azırda Halqşınaslıq müzeyinde Yanjulnıñ kollektsiyası belli edi.
 Bu kollektsiyalarnıñ esasını nağış ve toqumalar, qısmen, bediiy maden, quyumcılıq eşyaları teşkil ete ediler, episinden zayıf kiramet em de taş ve ağaç üstünde oyuv taqdim etilgen edi.
-Bu al — tesaduf degil.
+Bu al — tesadüf degil.
 Kollektsiyalarda toplanğan eksponatlar XIX asırnıñ soñunda ve XX asırnıñ başında esnafçılıq istisalı saasında mevcut real vaziyetni aks ettire ediler.
 1880-90 seneleri belli etnograf N. Haruzin tarafından ötkerilgen qırımtatar örnekleriniñ ilk tedqiqatları peyda oldılar.
 1920-nci senelerde qırımtatar ameliy sanat çeşitlerini sistematik sürette toplav başlana.
 Bağçasarayda Hansaray müzeyi halqnıñ maddiy medeniyetini ögrenüv merkezine çevirile.
-Qırımtatar milliy esnaflarını ğayrıdan tiklev işine qırımtatar sanatşınası, müzeyşınas, ressam U. Bodaninskiy ğayet degerli isse qoştı, U. Bodanskiy öz vaqıtında Bağçasarayda Hansaray-müzeyiniñ müdiri oldı.
+Qırımtatar milliy esnaflarını ğayrıdan tiklev işine qırımtatar sanatşınası, müzeyşınas, ressam U. Bodaninskiy ğayet degerli isse qoştı, U. Bodaninskiy öz vaqtında Bağçasarayda Hansaray-müzeyiniñ müdiri oldı.
 Memleket içün pek ağır vaqıtta o, halqnıñ medeniy baylığını saqlap qaluvda ciddiy iş başlay bildi.
 Bodaninskiyniñ faaliyeti sayesinde, "Bağçasaray müzeyinde toplanğan ilmiy baylıqlar muntazam artmaqtalar", — 1924 senesi Qırımnı ziyaret etken akademik Kraçkovskiyniñ qaydı.
 Müzey bediiy esnaflar, etnografiya ve arheologiya bölüklerinden, em de qırımtatar edebiyatı kitaphanesinden ibaret edi.
 1925 senesi büyük arheologiya-etnografiya ekspeditsiyasına yolbaşçılıq yaptı, onıñ maqsadı qırımtatar medeniyeti ve sanatınıñ vaziyetini ögrenmek edi, onıñ ketişatında müzeyniñ kollektsiyasına qoşulğan unikal turmuş eşyaları toplandı.
 1924 senesinden başlap 1929 senesine qadar ekspeditsiya Qırq-Azizler, Eski-Yurt, Eski Qırım, Çufut-Qale, Boykazak ve başqa yerlerni ögrenip çıqtı.
 Bodaninskiy teşviqat ve ilmiy işlernen faal ögraşa — o, qırımtatar milliy sanatı boyunca pek çoq lektsiya oqudı, maddiy medeniyet tarihı boyunca bir sıra maqaleler derc ettirdi.
-Onıñ areketleri sayesinde qırımtatar halqı sanatınıñ eksponatları (erkek ve qadın-qızlarnıñ urbaları, qaqmalı resimler, nağışlar) 1925 senesi Parijde ötkerilgen manzaralı sanat ve sanayı Halqara sergisine yollandı, mında olar kümüş medalnen taqdirlendiler (U.Bodaninskiyniñ malümatlarına köre, qırımtatar milliy nağışlarına tunç medal berilgen), soñra, 1927 senesi — Moskvağa Bütünittifaq sergisine yollanıldı.
+Onıñ areketleri sayesinde qırımtatar halqı sanatınıñ eksponatları (erkek ve qadın-qızlarnıñ urbaları, qaqmalı resimler, nağışlar) 1925 senesi Parijde ötkerilgen manzaralı sanat ve sanayı Halqara sergisine yollandı, mında olar kümüş medalnen taqdirlendiler (U. Bodaninskiyniñ malümatlarına köre, qırımtatar milliy nağışlarına tunç medal berilgen), soñra, 1927 senesi — Moskvağa Bütünittifaq sergisine yollanıldı.
 Qırımtatar ustalarınıñ ustalığı cian miqyasında tanıldı".
 Qırımtatar halq sanatını ögrenüv boyunca diger büyük merkez, Yaltada Buhara emiriniñ musadere olunğan sarayında yerleşken Şarq müzeyi oldı.
 Müzeyniñ başı, İstanbulda, Beyruta, Moskvada Şarqiy tiller institutında (1913-1914) keniş tasil alğan, yüksek bilgili mütehassıs, 1917 senesi Zıncırlı medreseniñ esasında teşkil olunğan (1917-1925 ss.) Meñli Geray han adına institutnıñ birinci rektorı, Şarq medeniyetini ve tarihını yahşı bilgen mütehassıs, Yaqub Kemal edi.
 Soñra o, yaqalanıp (1934 s.), atıp öldürmek ükümi çıqarıldı.
 Ya. Kemal qırımtatar ananeviy esnafları boyunca "Qırım hanlığında tsehlerniñ vesiqalı tarihı" adlı kitap yazdı.
-Müzey cenübiy yalıboyu qırımtatar em de "öz vaqıtında qırımtatarlarnıñ sanatına nasıldır tesir köstergen Şarq halqları" esnaflarınıñ eşyalarını ögrenüv, cıyuv, numayış etüv meselelerinen meşğul oldı.
+Müzey cenübiy yalıboyu qırımtatar em de "öz vaqıtında qırımtatarlarnıñ sanatına nasıldır tesir köstergen Şarq halqları" esnaflarınıñ eşyalarını ögrenüv, cıyuv, numayış etüv meselelerinen meşğül oldı.
 Öz nevbetinde, Kezlev etnografiya müzeyi karaim ve çöl taraflı qırımtatarlarnıñ sanatını ögrenüv meselelerinen oğraştı.
 Bu müzeyge Polina Yakovlevna Çepurina yolbaşçılıq yaptı.
 P. Ya. Çepurinanıñ faaliyetini ayrıca qayd etmelidir.
-Peterburg arheologiya institutınıñ mezunı Çepurina 1882 senesi Kiyevde doğdı, amma taqdir onıñ ömürini Qırım ile bağladı.
+Peterburg arheologiya institutınıñ mezunı Çepurina 1882 senesi Kiyevde doğdı, amma taqdir onıñ ömrüni Qırım ile bağladı.
 O — Qırımnıñ ameliy sanatı boyunca pek çoq maqalelerniñ müellifi (196-201), tedqiqatçı-alim, Qırımda bediiy esnaf artelleriniñ teşkilâtçısıdır.
 Maqaleleri sanatşınaslarnıñ şimdiki nesili içün de öz aktualligini coymadılar.
 Qırımtatar esnaf icadiyatını ögrenmege sebep — ustalarnıñ özlerinen tanışuv ve qonuşuv oldı.
