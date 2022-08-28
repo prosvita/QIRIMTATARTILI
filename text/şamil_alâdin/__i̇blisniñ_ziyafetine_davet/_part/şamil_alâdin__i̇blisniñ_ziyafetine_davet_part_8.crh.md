@@ -109,6 +109,7 @@ Üsein Şamil soñki yıllarda iri eserler yazdı.
 Ay Vasılda bir buçuq yıl “Saadet adası” üstünde işledi.
 O vaqıtta, bitirgen künü öyle eyecanlı, öyle şad edi ki, derslerinden soñ ocalarnı evge çağırıp, ziyafet berdi.
 Üsein Şamil özüniñ edebiy faaliyetinde “Saadet adası”nı özüniñ eñ iri eseri esap etti.
+
 Ondaki personajlar Dilâver ve Dilâra, ekisi de Küçük Lambatlı olıp, diniy mektepni bıraqıp, Rusiyege kete...
 yeñi usul mektebinde oqup, özleriniñ köyüne qaytıp keleler, lâkin köyde o vaqıt içinde bir şey deñişkeni yoq.
 Halq zalım padişadan ep horluq çekmekte.
