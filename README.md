@@ -31,10 +31,8 @@ Tercime etüv programma yañı imkânlar yaratır:
 İnternette online tarzında çalışqan terciman programmalar qolay işletile. Olarnıñ yardımınen istenilgen tilden başqasına tercime yapmağa mümkün. Dünyada ve bizlerde eñ çoq faydalanğan terciman programmaları:
 
   - [Google Translator](https://translate.google.com) — onıñ 103 til terkibine kire
-  - [Yandex.Translator](https://translate.yandex.com) — onıñ 88 til terkibine kire
   - [Microsoft Translator](http://www.bing.com/translator/) — onıñ 50 til terkibine kire
   - [online.ua Translator](http://pereklad.online.ua/ukr/yazyki/) — onıñ 53 til terkibine kire
-  - [PROMT Online-Translator](http://www.online-translator.com/Default.aspx?prmtlang=en) — onıñ 15 til terkibine kire
 
 Bu tercime içün programmalarnı er kes bedava faydalana bile. Olarnı em kompyuterde, em de zemaneviy telefonda işletmek mümkün.
 
