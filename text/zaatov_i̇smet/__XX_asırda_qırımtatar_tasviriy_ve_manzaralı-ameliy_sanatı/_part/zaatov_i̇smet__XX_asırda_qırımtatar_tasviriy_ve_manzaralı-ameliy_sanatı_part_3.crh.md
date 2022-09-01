@@ -24,7 +24,7 @@ Qırımtatar halq sanatını ögrenüv boyunca diger büyük merkez, Yaltada Buh
 Müzeyniñ başı, İstanbulda, Beyruta, Moskvada Şarqiy tiller institutında (1913-1914) keniş tasil alğan, yüksek bilgili mütehassıs, 1917 senesi Zıncırlı medreseniñ esasında teşkil olunğan (1917-1925 ss.) Meñli Geray han adına institutnıñ birinci rektorı, Şarq medeniyetini ve tarihını yahşı bilgen mütehassıs, Yaqub Kemal edi.
 Soñra o, yaqalanıp (1934 s.), atıp öldürmek ükümi çıqarıldı.
 Ya. Kemal qırımtatar ananeviy esnafları boyunca "Qırım hanlığında tsehlerniñ vesiqalı tarihı" adlı kitap yazdı.
-Müzey cenübiy yalıboyu qırımtatar em de "öz vaqıtında qırımtatarlarnıñ sanatına nasıldır tesir köstergen Şarq halqları" esnaflarınıñ eşyalarını ögrenüv, cıyuv, numayış etüv meselelerinen meşğül oldı.
+Müzey cenübiy yalıboyu qırımtatar em de "öz vaqtında qırımtatarlarnıñ sanatına nasıldır tesir köstergen Şarq halqları" esnaflarınıñ eşyalarını ögrenüv, cıyuv, numayış etüv meselelerinen meşğül oldı.
 Öz nevbetinde, Kezlev etnografiya müzeyi karaim ve çöl taraflı qırımtatarlarnıñ sanatını ögrenüv meselelerinen oğraştı.
 Bu müzeyge Polina Yakovlevna Çepurina yolbaşçılıq yaptı.
 P. Ya. Çepurinanıñ faaliyetini ayrıca qayd etmelidir.
@@ -33,21 +33,21 @@ O — Qırımnıñ ameliy sanatı boyunca pek çoq maqalelerniñ müellifi (196-
 Maqaleleri sanatşınaslarnıñ şimdiki nesili içün de öz aktualligini coymadılar.
 Qırımtatar esnaf icadiyatını ögrenmege sebep — ustalarnıñ özlerinen tanışuv ve qonuşuv oldı.
 1917 senesi halq ustası, nağışçı, otuzlı Ayşe Mambetova ile tesadufiy körüşüv, onıñ işini közetüv turmuş sanatınıñ bu çeşitiniñ peyda oluv şaraitleri ve sebeplerini ögrenüv meselesine alıp keldiler".
-1910 senesinden 1915 senesine qadar devirde Çepurina Qırımnıñ dağlı rayonınıñ bütün Şarqiy qısımını ve, qısmen, cenübiy yalıboyunıñ Kefe ve Sudaq taraflarını ögrenip çıqtı.
+1910 senesinden 1915 senesine qadar devirde Çepurina Qırımnıñ dağlı rayonınıñ bütün Şarqiy qısmını ve, qısmen, cenübiy yalıboyunıñ Kefe ve Sudaq taraflarını ögrenip çıqtı.
 Cenübiy-şarq Qırımnıñ uzaq dağlı köylerinde (Ayserez, Arpat, Qapsihor ve ilâhre) tedqiqatçı "resimi, koloriti, tiküv ve toquma tehnikası ceetten acayip nushalar" elde etti.
-Olarnıñ arasında İtaliya gemisi tasvirlengen Sudaq nağışı (HVІІ-HVІІІ asırlar), Köktebel nağışı ayat teregi tasvirlengen (HVІІІ asır).
+Olarnıñ arasında İtaliya gemisi tasvirlengen Sudaq nağışı (HVІІ-HVІІІ asırlar), Köktebel nağışı ayat teregi tasvirlengen (ХVІІІ asır).
 Tedqiqatçı karaim nağışlarınıñ ögrenüvine de büyük emiyet berdi.
 "İlmiy-tedqiqat işlerinen sıñırlanmaq mümkün degil.
 İşbu örnekli materialnı istisalda işletmeli.
 O, Şarq resimleri ğayet zayıf olğan çini-mayolik istisalına ve bizim sanayığa aqiqiy sanatnıñ taze aqımını kirsetir" — dey Çepurina.
-Çoq yıllıq tedqiqii işlerniñ neticesinde Çepurina, kelip çıquvını ve tarihiy inkişafını köstererek, qırımtatar örnekli tikişiniñ, bütün çeşitlerini, tikişlerniñ çeşitlerini tafsilâtlı ögrenip, episini yazıp aldı.
+Çoq yıllıq tedqiqiy işlerniñ neticesinde Çepurina, kelip çıquvını ve tarihiy inkişafını köstererek, qırımtatar örnekli tikişiniñ, bütün çeşitlerini, tikişlerniñ çeşitlerini tafsilâtlı ögrenip, episini yazıp aldı.
 Qırımtatar sanatınıñ ilk tedqiqatçıları büyük sevgi ile toplağan müzey kollektsiyalarınıñ taqdirleri facialıdır.
 1944 senesiniñ sürgünliginden soñ, Qırımda qırımtatarlar yaşağanınıñ şaatları olğan er angi maddiy şey yoq etilgen edi.
 Taqdir eken, Bağçasaray Hansaray-müzeyiniñ, Yalta Devlet tarihiy-edebiy birleşken müzeyiniñ, Qırım Cumhuriyet ülkeşınaslıq müzeyiniñ unikal kollektsiyaları yoq etilmey, saqlanıp qaldılar.
 1993-1995 seneleri Kiyevde, Aluşta, Yaltada; 1996 senesi Aqmescitte ve 2000 senesi Moskvada işbu saqlanıp qalğan nağış, basma ve kostümler kollektsiyaları birinci kere numayış etildiler.
 Olarnıñ sırasına 5-6 yıl içinde Qırımtatar sanat müzeyiniñ hadimleri toplağan kollektsiyanı da qoşmaq mümkün.
 Qırımtatar manzaralı-ameliy sanat eşyalarınıñ zengin kollektsiyalarına malik çetel müzeyleri sırasında — Rusiye etnografiya müzeyi (Sankt-Peterburg), Şarq halqlarınıñ rus müzeyi (Moskva), Rusiye tarihınıñ Devlet müzeyi (Moskva), Kreml tarihiy-mimarcılıq zapovedniginiñ Silâ müzeyi (Moskva), Berlin etnografiya müzeyi (Berlin), (GOHRAN) Qıymetli madenler müzeyi (Taşkent), Topqapu-saray müzeyi (İstanbul), Etnografiya müzeyi (Anqara), Halq sanatı müzeyi (Konstantsiya, Romaniya), şu cümleden Vena (Avstriya), Tula (Rusiye), Samarqand ve Buhara (Özbekistan) şeer müzeyleri barlar.
-Asırnıñ başında ananeviy esnaflar ciddiy inqırazda bulundılar, onıñ sebebi — 1921-22 seneleri Qırımda mevcut içtimaiy-siyasiy vaziyet, yüz bergen büyük açlıqtır.
+Asırnıñ başında ananeviy esnaflar ciddiy inqirazda bulundılar, onıñ sebebi — 1921-22 seneleri Qırımda mevcut içtimaiy-siyasiy vaziyet, yüz bergen büyük açlıqtır.
 Esnafçılarnıñ sayısı birden eksildi.
 Bu şaraitlerde halq hocalığını tiklev umumiy siyasetiniñ çerçivesinde ananeviy esnaflarnıñ tiklenüvi aktual mesele edi.
 Eali ve ustalarnıñ arasında yarıqlandıruv, añlatuv işleri başlana.
