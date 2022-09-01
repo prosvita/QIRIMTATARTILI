@@ -55,15 +55,15 @@ Qırımda milliy esnaf sanayısınıñ merkezi Bağçasaray edi.
 1920-nci yıllarda mında Şarq halqlarınıñ esnafsanayı tehnikumı açıldı, mında qırımtatarlardan ğayrı, qazantatarlar, astrahan tatarları, azerbaycanlar, özbekler, kavkazlılar (şu cümleden Dağıstannıñ meşur Kubaçi köyünden) ve başqaları (cemi 22 millet vekilleri) tasil aldılar.
 Tehnikumda dört oquv ustahanesi bar edi, bu — beş yıllıq oquv müddeti ile kilim toqumacılıq, nağış, himiya-boyacılıq, tahta işleri boyunca (stolâr) ustahaneler.
 Tehnikumda aman-aman 140 talebe oquy ve 20-ge yaqın oca ve instruktor ders bere edi.
-Mektepniñ maqsadı — "Şarqnıñ es naf ve bediiy sanayısı boyunca evel ki esnafçılarnıñ yerine ihtisaslı iş çiler azırlamaq, (Qılavuzdan, 1929 s. Aqmescit, Qırım devlet neşriyatı s. 92), esnaf istisalını ratsionalleştir mek ve mehanizmleştirmektir.
+Mektepniñ maqsadı — "Şarqnıñ esnaf ve bediiy sanayısı boyunca evelki esnafçılarnıñ yerine ihtisaslı işçiler azırlamaq, (Qılavuzdan, 1929 s. Aqmescit, Qırım devlet neşriyatı s. 92), esnaf istisalını ratsionalleştirmek ve mehanizmleştirmektir.
 1929-30-ncı oquv yıllarınıñ başında teh nikum, Bağçasarayda yeterlik oda olmaganı mana etilip, Kefege avuştırıldı, bu ise ahır-soñu onıñ qapaluvına alıp keldi.
 30-ncı yıllarda Qırımda (Kezlev, Bağçasaray, Qarasuvbazar ve ilâhre) çeşit bediiy arteller meydanğa ketirile, olar, ekseriyet ananeviy mahsulat işlep çıqaruvnen meşgul olalar (nağış ve tikiş).
 Bu artellerniñ episi eksportqa çalışqanlar.
 1930 senesi Bağçasarayda qırımtatar milliy nağışınıñ "İlk adım" adlı birinci kooperativ arteli açıla.
 Mında instruktor olaraq halq ustası İsmi Mansurskaya çalışa.
 Amma qısqa vaqıttan soñ, (1932 s.) oqutqan hadimlerniñ sayısı yeterlik olmağanı sebebinden, toqumacılıq ustahaneleri qapatılıp, tek nağış ustahaneleri qala.
-1930 senesi Kezlevde P.Çepurinanıñ yolbaşçılığında "Eski örnek" adlı meşur bediiy artel teşkil olundı.
-1935 senesi mayıs 25-te Moskvada Şarq medeniyetleri Devlet müzeyinde Çepurina toplağan materiallar ve artelde azırlanğan nümüneleri boyunca Qırım basmaları ve nağışlarınıñ sergisi açıldı.
+1930 senesi Kezlevde P. Çepurinanıñ yolbaşçılığında "Eski örnek" adlı meşur bediiy artel teşkil olundı.
+1935 senesi mayıs 25-te Moskvada Şarq medeniyetleri devlet müzeyinde Çepurina toplağan materiallar ve artelde azırlanğan nümüneleri boyunca Qırım basmaları ve nağışlarınıñ sergisi açıldı.
 Bağçasarayda "İleri" bediiy arteli meydanğa ketirildi, mında çölmekçilik sanatı ögretile edi.
 Artelniñ ustaları şekili ve vazifesi boyunca çeşit suv savutları azırlaylar.
 Olarnı qırımtatar nağışlarından alınğan ananeviy ösümlik örnekleri ile yaraştıralar.
@@ -71,10 +71,10 @@ Olarnı qırımtatar nağışlarından alınğan ananeviy ösümlik örnekleri i
 Koloritte yeşil, sarı, qaverenkli tüsler üstünlik etkenler.
 "İleri" arteliniñ amfora ve bardaqları Sankt-Peterburg, Aqmescit, Yalta, şu cümleden Qırımtatar sanatı müzeyiniñ kollektsiyalarında bizim künge qadar saqlanıp kelmekteler.
 
-XX asır milliy mazaralı-ameliy sanat inkişafınıñ mürekkep basqıçlarınen qayd oluna.
+XX asır milliy manzaralı-ameliy sanat inkişafınıñ mürekkep basqıçlarınen qayd oluna.
 Esnafçılıq, orta asırlarda olğanı kibi, XIX asırnıñ soñunda ve XX asırnıñ başında da, öz qanun ve qaideleri boyunca yaşağan, pekingen ve keniş sistemadan ibaret olğan.
 Bir soy ihtisasnıñ ustaları tsehlerge birleşip, olarğa baş usta yolbaşçılıq yapqan.
-Tsehniñ terkibine adiy ustalar, qolfalar, şegirtler kireler.
+Tsehniñ terkibine adiy ustalar, qаlfalar, şegirtler kireler.
 Tsehte pekingen iyerarhiya, oquv sisteması, ananeviy merasimler (usta unvanını berüv merasimi, tsehniñ memuriyetini saylav ve ilâhre merasimler) mevcut olğan.
 Tseh ve onıñ azalarınıñ faaliyeti ustav boyunca qattı nezaret altında bulunğan.
 ХІV-ХVІІ asırda çeçeklengen qırımtatar manzaralı-ameliy sanatı XIX asırnıñ soñunda ve XX asırnıñ başında bu çeçeklenüvniñ soñuna kele.
@@ -102,10 +102,10 @@ Eñ taacipli yeri şu ki, usta endi 70 yaşını toldurıp bu işlerden çetleş
 Qoluna tüşken bir tabaq kâgıtnıñ üstüne evelleri ştihel ile madenniñ üstünde sızğan soñra padişa raqısınen temizlep, şablonlarnen qaqıp çıqqan örneklerini qalem ile sızmağa tırıştı.
 Böyleliknen, qart usta kene de örnek sanatına muracaat etti.
 Qalafatov eki yıl içinde qalem, tuş, renksiz ve renkli qalemlernen sızılğan, üç yüzden ziyade örnekli kompozitsiya yarattı.
-Avropa sanatından alınğan bazı bir yañı usullarnı kirsetti, meselâ, rakurstan (qıska körünüş) faydalanuv, çeçekniñ dörtten üç qısımını tasvirlev (adeti-üzre musulman sanatında çeçekniñ yuqarıdan körünüşi ya da köndelen kesilgen şekilde tasvirlene).
+Avropa sanatından alınğan bazı bir yañı usullarnı kirsetti, meselâ, rakurstan (qıska körünüş) faydalanuv, çeçekniñ dörtten üç qısmını tasvirlev (adeti-üzre musulman sanatında çeçekniñ yuqarıdan körünüşi ya da köndelen kesilgen şekilde tasvirlene).
 Qalafatovnıñ örnekleri, Anadolu ve İran sanatınıñ elementlerini işleterek, eski qırımtatar örnekleri esasında yaratılğanlar.
 Amet Qalafatov Parijde (1925 s.) Bütüncian manzaralı-ameliy halq sanatı sergisinde, Moskvada (1939 s.) Bütünittifaq sergisinde ve, şu cümleden, Qırım bediiy sergilerinde (1937-1938) iştirak etti.
-1930-ncı yıllar onıñ icadında ğayet semeleri oldılar.
+1930-ncı yıllar onıñ icadında ğayet semereli oldılar.
 Qalafatov yaratqan örneklerden Qırımda aveskâr ressamlar, artellerniñ ustaları, toqumacılar, evde çalışqan nağışçı qadınlar keniş faydalandılar.
 1940 senesi, 80 yaşındaki Qalafatov Qırım ASSR Ressamları birligine qabul etildi, oña "Qırım halq örnekçisi" unvanı berildi.
 Ustanıñ yaratqan örnek kompozitsiyaları al-azırda Rusiye etnografiya müzeyinde (sabıq SSSR halqlarınıñ etnografiya müzeyi), Qırım Cumhuriyet ülkeşınaslıq müzeyinde, Yaltada birleşken tarih-edebiyat müzeyinde (88, s. 29), Aqmescitte Cumhuriyet qırımtatar sanatı müzeyinde, ciannıñ — Parij, London, Pekin, Moskva, Peterburg — iri müzeylerinde saqlanmaqtalar.
@@ -129,8 +129,8 @@ Efendiyevanıñ icadına has çizgiler, bu — resimniñ açıqlığı, kompozit
 Resim grafikanıñ açıqlığı, nazik şekillerniñ vecizligi ve simmetriyası ile ayırılıp tura.
 Eskiz bardaqtaki çeçek klassik kompozitsiyasına üslüpleştirilgen.
 Bardaq gügümni añdıra, çekek ise — ince saplı iri, dülber ğonce.
-Ğonceniñ etrafında, suv üstündeki tögerekler kibi, dekorativ elementler — alqalar, gyonce ve kertikli yapraqlarnı eki tarafından sarıp alğan yarımay şekilleri yerleşkenler.
-%Resim seyircini şekilnıñ temizliği ve sadeliginen meftün ete.
+Ğonceniñ etrafında, suv üstündeki tögerekler kibi, dekorativ elementler — alqalar, ğonce ve kertikli yapraqlarnı eki tarafından sarıp alğan yarımay şekilleri yerleşkenler.
+% Resim seyircini şekilnıñ temizliği ve sadeliginen meftün ete.
 "Menim örneklerim — menim fikirlerimdir" — dep ayta turğan A.Efendiyeva özüniñ kompozitsiyaları aqqında.
 Efendiyeva 1944 senesi uzaq sürgünlik yoluna dayanalmay, Samarqand civarında vefat etti.
 Belli qırımtatar dramaturgı vecemaat erbabı Seid-Abdulla Özenbaşlı (1867-1924), zamandaşlarınıñ aytqanına köre, çeber, eski nağış ustalarından biri olğan.
@@ -143,21 +143,21 @@ Z. Bekirova 1913 senesi Tavriya guberniyasınıñ Perekop uyezdindeki Mollalar k
 Tatar mektebini bitirgen soñ, soyları Adaviye Efendiyevanıñ yanına Kezlevge keldi ve "Eski örnek" arteline işke kirdi.
 Mında 1930 senesinden 1932 senesine qadar A. Efendiyevadan ğayrı, çeber usta K. Ya. Rıbalskaya da oña ustazlıq yaptılar.
 O, 1932-36 seneleri yollanma boyunca Moskvada bediiy-sanayı institutında tasil aldı.
-%1936 senesi tehnikumnı bitirgen soñ 1940 senesine qadar Moskva bediy sanayi institutında çalıştı.
+% 1936 senesi tehnikumnı bitirgen soñ 1940 senesine qadar Moskva bediy sanayi institutında çalıştı.
 Z. Bekirova Qazahistan, Turkmenistan, Şimaliy Ösetiya ve sabıq SSSR cumhuriyetleriniñ kilim toqumacılıq istisalı içün milliy örneklerniñ eskizlerini işlep çıqtı.
 Olarnıñ arasında — Nyü-Yorkta (1939 s.) ötkerilgen Bütüncian sergisine toqulğan "Develer" tüyli kilim; "Ösetiya" (1951 s.) tüylü kilim bellidir.
 İttifaq cumhuriyetleriniñ ustahane ve fabrikaları içün eskizler yapar eken, Bekirova olarnıñ milliy örneklerini tafsilâtlı ögrenir edi.
-Bu maqsad ile o, Orta Asiya ve Qazahistanda ekspeditsiyanen bulundı.
+Bu maqsat ile o, Orta Asiya ve Qazahistanda ekspeditsiyanen bulundı.
 1940-1948 seneleri Bekirova Moskvada ameliy ve manzaralı sanat institutında tasil aldı.
 Mında o, V. S. Kondratyev ve B. Yu. Lange kibi ocalarnıñ qolunda oqudı.
 İnstitutnı bitirgen soñ, 1948-1968 seneleri Bekirova Moskvada bediiy-sanayı tehnikumında ihtisaslı fenler boyunca oca olaraq çalıştı, ilmiy işnen (Turkmenistanda kilim toqumacılıqnıñ tedqiqatı) ve ressamlıq işlerinen meşğul oldı.
-1937 senesinden itibaren 3. Bekirova bütünittifaq ve halqara sergilerde iştirak etti.
-ІІІu cümleden: Nyü-Yorkta (1939 s.). Kiyevde (1939 s.). Onıñ işleri Qırım, Moskva, Sankt-Peterburg, Saransk, Aşhabadnıñ müzey kollektsiyalarında saqlanmaqtalar.
+1937 senesinden itibaren 3. Bekirova bütünittifaq ve halqara sergilerde iştirak etti, şu cümleden: Nyü-Yorkta (1939 s.). Kiyevde (1939 s.).
+ Onıñ işleri Qırım, Moskva, Sankt-Peterburg, Saransk, Aşhabadnıñ müzey kollektsiyalarında saqlanmaqtalar.
 Aqlı raatlıqqa çıqqan soñ, Bekirova öz ömürini gobelen sanatına bağışladı.
 Usta "Baar kele", "Emek", "Aydınlanuv", "Küz", "Gençlik", "Salüt", "Ay ile natürmort" adlı gobelen kompozitsiyalarını yarattı.
 1990 senesi 3. Bekirova Qırımtatar medeniyetini ğayrıdan tiklev boyunca Koordinatsion merkeziniñ daveti ile Moskvadan Aqmescitke keldi, mında o, kurslarğa yolbaşçılıq yapıp, qızlarğa qırımtatar kilim toqumacılıq ve nağış sanatını ögretti.
 Soñki yıllarda Bekirova ğayrıdan canlanayatqan qırımtatar tüylü kilim toqumacılıqnıñ örnek mevzuları ve kompozitsiyalarını işlep çıquv meselesi üzerinde çalıştı.
-1998 senesi Aqmescitte Qırımtatar sanat müzeyi Qırım etnografiya müzeyinen birlikte Z.Bekirovanıñ 85 yıllığına bağışlanğan şahsiy sergisini teşkil etti.
+1998 senesi Aqmescitte Qırımtatar sanat müzeyi Qırım etnografiya müzeyinen birlikte Z. Bekirovanıñ 85 yıllığına bağışlanğan şahsiy sergisini teşkil etti.
 Zuleyha Bekirova 1999 senesi Moskvada vefat etti.
 
 İsmi Mansurskaya aqqında tafsilâtlı malümatlar yoq.
