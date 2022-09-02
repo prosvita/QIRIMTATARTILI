@@ -22,7 +22,7 @@ BMŞ — baş mehanik şübesi.
 
 Keteyatqanda de yük maşinasınıñ, de develer kervanınıñ, de yüksek köpçekli arabanıñ, de traktornıñ keçip ketmeleri içün tosatta bir toqtalıp, yol bermek kerek ola.
 
-Soqaqlarda ve küçük aralıqlarda çeşit milletler tilinde laqırdı işitile.
+Soqaqlarda ve küçük aralıqlarda çeşit milletler tilinde laqırdı eşitile.
 Mavı renkli pamuqlı halat kiygen qart, pencerege baqıp, özbek tilinde laqırdı ete.
 Başlarında telpekleri eki kişi... biri yolnıñ bir çetinde, ekincisi diger çetinde toqtağan, bütün küçlerinen qıçırıp, qazah tilinde bir şeyler hususında iddalaşmaqtalar.
 Üstüne kök bıcaq, santraç ştan, eslicerek kişi yeñi evniñ sofası ögünde toqtağan, sarı plaşçlı yaş adamnı — yardımcısı olmalı — araretli italyan tınçıqtırmaqta.
@@ -33,12 +33,12 @@ O, kepkasını çıqarıp, bizge sallay.
 İrada yüzüni oña taba çevirip, deral toqtala.
 
 — Selâm aleyküm, İrada! — kişi özbekçe bir-şeyler daa ayta, soñ guruldep külerek, bizge doğru adımlay.
-İradanıñ hatirinden şarqnıñ nezaket qaideleri çıqtı.
+İradanıñ hatrinden şarqnıñ nezaket qaideleri çıqtı.
 Evelâ, al-hatır soraycağı yerde, birden hızmet hususında laqırdı başladı.
 
 — Mehanizmler shemasını divarğa tünevin asıp qoydıq, — dedi kişi — yataqhane çoqtan azır, tek... koyka yoq.
 
-Kişi sigarını bir-biri artından sıq-sıq içine çekti, tütünini burunından dumanlatıp çıqararaq, tüpçigini yerge bıraqtı, rezina çızmasınen üstüne basıp ezdi, elini evelâ İradağa, soñra maña uzattı.
+Kişi sigarını bir-biri artından sıq-sıq içine çekti, tütünini burnundan dumanlatıp çıqararaq, tüpçigini yerge bıraqtı, rezina çızmasınen üstüne basıp ezdi, elini evelâ İradağa, soñra maña uzattı.
 
 — Curayev! — dedi o ve eleslenip betime baqtı.
 
@@ -46,7 +46,7 @@ Kişi sigarını bir-biri artından sıq-sıq içine çekti, tütünini burunın
 Komsomol!
 Almazovda nijnik...
 
-— Guzel! — dedi Curayev, soza berip, — soñki vaqıtlarda komsomol az kele.
+— Güzel! — dedi Curayev, soza berip, — soñki vaqıtlarda komsomol az kele.
 Sen anda Merkeziy Komitette bu hususta bir-eki söz ayt.
 Menim adımdan...
 
@@ -71,7 +71,7 @@ Mücizesiz keçtimi?
 Ondan soñ, elektrikler de baştaqlaşqan kibi körüneler.
 
 — Baba evden çıqsa, oğlu tavannı teşe eken.
-Tursunov ketkenden beri, energiya kerçekten de, az. 
+Tursunov ketkenden berli, energiya kerçekten de, az.
 — Curayev, sezilir-sezilmez külümsirep, İradanıñ yüzüne baqtı.
 Qız azaçıq qızardı, lâkin özüni tez-tez elge aldı, — amma qabaat troslarda degil.
 Yük ağır.
