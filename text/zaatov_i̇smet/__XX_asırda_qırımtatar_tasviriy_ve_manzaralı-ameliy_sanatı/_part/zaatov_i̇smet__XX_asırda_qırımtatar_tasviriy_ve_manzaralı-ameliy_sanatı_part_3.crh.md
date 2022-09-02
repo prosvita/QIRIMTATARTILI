@@ -160,7 +160,7 @@ Soñki yıllarda Bekirova ğayrıdan canlanayatqan qırımtatar tüylü kilim to
 1998 senesi Aqmescitte Qırımtatar sanat müzeyi Qırım etnografiya müzeyinen birlikte Z. Bekirovanıñ 85 yıllığına bağışlanğan şahsiy sergisini teşkil etti.
 Zuleyha Bekirova 1999 senesi Moskvada vefat etti.
 
-İsmi Mansurskaya aqqında tafsilâtlı malümatlar yoq.
+Еsmа Mansurskaya aqqında tafsilâtlı malümatlar yoq.
 Bizim malümatlarğa köre, o, soyadına köre belli qırımtatar dvorân qabilesinden ola.
 Bağçasarayda "İlk adım" adlı 1-nci kooperativ artelinde instruktor olıp çalışqan, örnek ve tikiş tehnikasını yahşı bilgen.
 1930 senesi Qırımda sanayı kooperativleri tarafından yañı açılayatqan nağış-toqumacılıq artelleri içün Mansurskayanıñ yardımı ile instruktor-tehnikler azırlağan birinci kurslar teşkilâtlandırıldı.
