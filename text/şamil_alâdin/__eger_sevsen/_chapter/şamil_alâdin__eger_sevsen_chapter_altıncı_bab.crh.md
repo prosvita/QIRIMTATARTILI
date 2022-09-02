@@ -200,10 +200,10 @@ Böyle adamlar inqilâptan evelki injenerler arasında çoq edi.
 Bu, Mansurovnıñ aytqan injeneri — Sigizmund Genrihoviç olmalı, dep tüşündim.
 Men yañılmağanım.
 
-İrada Hazar Kendke barmaq içün çıqqan vaqıtta, ekskavatorcılar mektebindeki ilki derske kirerim dep tüşünmegen.
+İrada Hazar Kendge barmaq içün çıqqan vaqıtta, ekskavatorcılar mektebindeki ilki derske kirerim dep tüşünmegen.
 O, zanıma qalsa, yalıñız Komsomol Merkeziy Komitetiniñ tehnikanı menimsev hususındaki tebliğat kâğıtlarını taqdim etip çıqmaq istedi.
 Lâkin endi çıqıp ketmek qolaysız keldi.
-Qart injener yavaştan bıcağınıñ ögüni çezip, jiletiniñ cebinden saatini çıqardı.
+Qart injener yavaştan bıcağınıñ ögüni çezip, jiletiniñ cebinden saatını çıqardı.
 
 — Vaqıt!..— dedi o, — başlamağa vaqıt, dostlar!
 
@@ -216,19 +216,19 @@ Kiresiñizmi?
 
 Kirem! — dedim men. 
 — Bu faydalı şey...
-— Ekimiz olarnıñ artından yurdik.
+— Ekimiz olarnıñ artından yürdik.
 Bizim artımızdan Sigizmund Genrihoviç, Mansurov ve Curayev kelip, ögdeki kürsülerge oturdılar.
-Ders başlanmazdan evel ayaqqa turıp, şimdilik soba yaqmaq içün odun yoqluğı sebebinden, sınıfta fufaykanen oturmaq mümkün ekenligini, lâkin qalpaqlarını çıqaruv zarurlığını ders vaqıtında tütün içmek yasaq etilgenini bildirdi.
-Bundan soñ, Mansurov şu sözlerni ayttı: tezden parkqa yeñi ekskavatorlar kelecek.
+Ders başlanmazdan evel ayaqqa turıp, şimdilik soba yaqmaq içün odun yoqluğı sebebinden, sınıfta fufaykanen oturmaq mümkün ekenligini, lâkin qalpaqlarını çıqaruv zarurlığını ders vaqtında tütün içmek yasaq etilgenini bildirdi.
+Bundan soñ, Mansurov şu sözlerni ayttı: tezden parkqa yañı ekskavatorlar kelecek.
 Olarnıñ üstünde eski ekskavotorlarnıñ maşinistleri çalışacaqlar.
-Yardımcılar — üyken nijniklerden tain etilecek.
-Amma yeñi ekskasatorlarnıñ nijnikleri — bunı, mektepni bitirgen, bilgili adamlar olmaq kerekler.
+Yardımcılar — üyken nijniklerden tayin etilecek.
+Amma yañı ekskasatorlarnıñ nijnikleri — bunı, mektepni bitirgen, bilgili adamlar olmaq kerekler.
 
 Mansurov sözüni bitirgen soñ:
 
 Söz injener Sigizmund Genrihoviç Menjevetskiyge berile,— dedi.
 
-Qart injener, güya tışarıdan işitilgen davuşqa diñlenip turğanı alda, bir şeyden abdırağan kibi, başını silkitip aldı, evde eñ alışıq adamınen qonuşır kibi, sözge başladı:
+Qart injener, güya tışarıdan eşitilgen davuşqa diñlenip turğanı alda, bir şeyden abdırağan kibi, başını silkitip aldı, evde eñ alışıq adamınen qonuşır kibi, sözge başladı:
 
 — Menim dostlarım! — dedi o, — Tân-Şan dağlarınıñ töpesinden aşağı çoq suvlar aqıp tüşmekteler.
 Olardan bir qaç danesiniñ birleşüvi neticesinde Çar-Çaq asıl ola.
@@ -238,26 +238,26 @@ Taşkent vadisi bu suvlarnen ğıdalana.
 Suv çoq, amma tabiat suvnı doğru taqsim etmege bilmey.
 Yılnıñ bir mevsiminde suv çoq, diger mevsiminde az. 
 — Böyle degen soñ injener pensnesini çıqarıp, yavluğınen sürtti ve tekrar taqqan soñ, qollarını arqasına qoyıp, parmaqlarını bir-birine tirkedi.
-— Tabiatqa yardım etmelimiz, — dedi Menjevetskiy — yalıñız suvnı cıyuvda degil, onı turbinalarnı areketke ketirüvge de mecbur etmelimiz! — soñ sağ elini pencere betke siltedi,— yalıda, töpesi yanıq çinarnı, elbet de, körgendirsiñiz...
+— Tabiatqa yardım etmelimiz, — dedi Menjevetskiy — yalıñız suvnı cıyuvda degil, onı turbinalarnı areketke ketirüvge de mecbur etmelimiz! — soñ sağ elini pencere betke siltedi, — yalıda, töpesi yanıq çinarnı, elbet de, körgendirsiñiz...
 Biz Çar-Çaqnıñ dağlar arasında iñildep, quturıp aqayatqan bu yerinde, tar boğaz içinde, plotina quracaqmız.
 Plotina suvnıñ seviyesini yuqarı köterecek.
 Kötergen soñ suv özenden çıqıp, çöllerge ketecek.
 Plotinadan balaban suv tıynağı asıl olacaq.
-Suv eski yolunen degil, betonnen örtüli yeñi yolnen ketecek.
+Suv eski yolunen degil, betonnen örtüli yañı yolnen ketecek.
 Bu derivatsion kanal boyunda eki gidroelektrostantsiya qurulacaq.
 Olar azotlı kübreler çıqarıcı zavodlarğa elektrik küçü berecekler.
 Zavodlarnıñ mahsul çıqarmaları içün yalıñız ava ve suv kerek olacaq.
-Azotlı kübreler pamuq çöllerinde yollanılacaqlar.
+Azotlı kübreler pamuq çöllerine yollanılacaqlar.
 Tasavur etesiñizmi?
 Zavodlar ükümetten iç bir tonna ham mal almaycaq, lâkin biñlernen tonna azotlı kübre yasap çıqaracaqlar.
 
 Yanaşamda oturğan İrada gizliden qulağıma:
 
-— O Donbassta çalışa edi, — dedi, — anda, belki işitkendirsiñiz, şahtalar protsessi olğan.
+— O Donbassta çalışa edi, — dedi, — anda, belki eşitkendirsiñiz, şahtalar protsessi olğan.
 Sigizmund Genrihoviç ziyankâr injenerlerni qorçalağan.
 Soñra... şahtanı terk etmege mecbur olğan.
 Mında da işke almaq istemediler.
-Er alda, özüñiz bilesiñiz... şübeli şahs.
+Er alda, özüñiz bilesiñiz... şübeli şahıs.
 Kimni qorçalap çıqqan?
 Bir tüşünip baqıñız!
 Ziyankâr injenerlerni.
@@ -275,7 +275,7 @@ Altın qafası bar.
 Dünyada çeşit adamlar bar... ne deysiñiz?
 
 Men indemedim.
-Ağızımdan bir söz çıqqan olsa, kişiler bizge baqacaq ediler.
+Ağzımdan bir söz çıqqan olsa, kişiler bizge baqacaq ediler.
 Başımnı sallay berdim, fikirim ise başqa yerlerde edi.
 Soñ, lektsiya diñleyatqan adamlarğa baqtım: olar kimler?
 Lektsiyanı öyle diqqatnen diñlemekteler ki, nefes alğanda, keder etmeyimmi eken, dep saqınalar.
@@ -297,7 +297,7 @@ Amma bunda — birden altı kölmek...
 
 Kiriş sözünden soñ Sigizmund Genrihoviç proekt üstünde toqtaldı.
 Yuqarı ve aşağı byef, istiqamet, plotina, ökçe ne demek ekeni hususında izaat berdi.
-Müim shemalarnı añlatqanda bazan tahtağa kişi çağırdı.
+Müim shemalarnı añlatqanda bazen tahtağa kişi çağırdı.
 Men özümniñ kursant olmağanıma bazanıp, ğaflet oturdım.
 Fikirim uzaqlarda — Kazatin, Jmerinka, Fastov şeerleriniñ etraflarındaki çamlı dağlarda dolanmaqta edi.
 Lâkin bu qadar adam arasında injener meni begengen...
