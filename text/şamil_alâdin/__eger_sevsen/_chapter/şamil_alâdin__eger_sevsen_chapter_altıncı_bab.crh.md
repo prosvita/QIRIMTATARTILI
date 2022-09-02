@@ -120,12 +120,12 @@ Bu — doğrumı?
 
 — Bilmeyim, — Curayev omuzlarını qıstı, — belki öyledir.
 Lâkin siz — sovet injenerisiñiz.
-Tehnikanı egerlemek kereksiñiz! — o tez-tez yurdi, tuvar tezegi tütüni basqan kiçik aralıq içine kirip ketti. 
+Tehnikanı egerlemek kereksiñiz! — o tez-tez yürdi, tuvar tezegi tütüni basqan kiçik aralıq içine kirip ketti.
 
 Soñ biz Mansurovnen körüştik.
-O ayaqqap ustahanesi ögünde ümütsizden peyda oldı.
+% O ayaqqap ustahanesi ögünde apansızdan peyda oldı.
 
-— İradahan! — dedi o, qolunı köküsi üstüne qoyıp,— dershane azır.
+— İradahan! — dedi o, qolunı köksü üstüne qoyıp,— dershane azır.
 Sigizmund Genrihoviç de mında.
 Lâkin yataqhane içün koyka yoq ve yaqında olacaqqa beñzemey...— özü terenden köküs keçirdi.
 
@@ -149,22 +149,22 @@ Mansurov, yüksek tahta qapu ögünde toqtadı, ayağınen tepip, bir qanatını
 
 — Kirip köresiñizmi?
 
-Azbar içinde, töpesi tolnen örtüli evniñ ögünde yigirmi qadar yaş kişi turıp, mahorka içip, küneşke qızınmaqta edi.
+Azbar içinde, töpesi tolnen örtüli evniñ ögünde yigirmi qadar yaş kişi turıp, mahorka içip, küneşte qızınmaqta edi.
 Curayev, nasıl etken-nasıl etmegen, mında kelip yetken.
 Qara şlâpalı kişinen subet etmekte.
 
-Öyle adamlar barlar ki, tışqı körünişine baqıp, zenaatını tayn etmek mümkün.
-Lâkin Curayevniñ zenaatını tain etmek mümkün degil.
+Öyle adamlar barlar ki, tışqı körünişine baqıp, zenaatını tayin etmek mümkün.
+Lâkin Curayevniñ zenaatını tayin etmek mümkün degil.
 Otuz yaşında, baqır yüzlü, qıbırdavuq, quru kişi.
 Böyle adamlar işni sezdirmey, "ımpıs-tımpıs" yapa qoyalar.
 Kimer adamlar özleriniñ bılaşıq işlerini gizleyler.
 Curayev ise namuslı işlerini gizley.
-İşçilerniñ fikirlerini işitmek, söz kelimi, amam, aşhane, bala bağçası hususındaki fikirlerni toplap, tedqiq etip, dogru netice çıqarmaq... fena şeymi?
+İşçilerniñ fikirlerini eşitmek, söz kelimi, amam, aşhane, bala bağçası hususındaki fikirlerni toplap, tedqiq etip, dogru netice çıqarmaq... fena şeymi?
 
 Onıñ yerinde başqası olsa, yaqanı qurtarmaq içün deral bir şey işandırır, yalan patlatır, çıqar keter.
 Curayev... yoq!
 Onıñ özüne ait ameliy sözleri bar: "yahşı... körermiz!" — dep taşlay ve sen yanından ketkeniñ kibi, areket etip başlay, öz ibaresinen söylegende, adamlarnı, aqiqiy bolşeviklerni, amamğa... aşhanege, kommunhozğa qoya", eger zaruret olsa, kene şu yerlerge komsomollarnı "taşlay" ve daima bir şeyni talap ete: "yarın aqşamğa azır olsun!" 
-Em, kerçekten de, yarın aqşam amamda kotöllar yaqılğan, suvu qaynağan ola, ondan yüzlerce kişiler yuvunıp, temizlenip çıqayatqan vaqıtta, kommunhoznı, yahut komendant Petâ emceni dünyada eñ hoş, eñ acaip sözlernen maqtay, amma Curayevni añğan kişi olmay.
+Em, kerçekten de, yarın aqşam amamda kotöllar yaqılğan, suvu qaynağan ola, ondan yüzlerce kişiler yuvunıp, temizlenip çıqayatqan vaqıtta, kommunhoznı, yahut komendant Petâ emceni dünyada eñ hoş, eñ acayip sözlernen maqtay, amma Curayevni añğan kişi olmay.
 Yalıñız amam meselesinde degil, er şeyde öyle.
 
 O Mansurovnen laqırdını qısqadan kese.
