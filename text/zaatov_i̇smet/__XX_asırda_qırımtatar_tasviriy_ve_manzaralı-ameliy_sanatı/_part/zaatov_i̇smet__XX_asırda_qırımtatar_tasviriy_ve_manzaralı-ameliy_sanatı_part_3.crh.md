@@ -145,7 +145,7 @@ Mında 1930 senesinden 1932 senesine qadar A. Efendiyevadan ğayrı, çeber usta
 O, 1932-36 seneleri yollanma boyunca Moskvada bediiy-sanayı institutında tasil aldı.
 % 1936 senesi tehnikumnı bitirgen soñ 1940 senesine qadar Moskva bediy sanayi institutında çalıştı.
 Z. Bekirova Qazahistan, Turkmenistan, Şimaliy Ösetiya ve sabıq SSSR cumhuriyetleriniñ kilim toqumacılıq istisalı içün milliy örneklerniñ eskizlerini işlep çıqtı.
-Olarnıñ arasında — Nyü-Yorkta (1939 s.) ötkerilgen Bütüncian sergisine toqulğan "Develer" tüyli kilim; "Ösetiya" (1951 s.) tüylü kilim bellidir.
+Olarnıñ arasında — Nyu-Yorkta (1939 s.) ötkerilgen Bütüncian sergisine toqulğan "Develer" tüyli kilim; "Ösetiya" (1951 s.) tüylü kilim bellidir.
 İttifaq cumhuriyetleriniñ ustahane ve fabrikaları içün eskizler yapar eken, Bekirova olarnıñ milliy örneklerini tafsilâtlı ögrenir edi.
 Bu maqsat ile o, Orta Asiya ve Qazahistanda ekspeditsiyanen bulundı.
 1940-1948 seneleri Bekirova Moskvada ameliy ve manzaralı sanat institutında tasil aldı.
@@ -166,26 +166,26 @@ Bağçasarayda "İlk adım" adlı 1-nci kooperativ artelinde instruktor olıp ç
 1930 senesi Qırımda sanayı kooperativleri tarafından yañı açılayatqan nağış-toqumacılıq artelleri içün Mansurskayanıñ yardımı ile instruktor-tehnikler azırlağan birinci kurslar teşkilâtlandırıldı.
 Kurslar üç ay devam etip, ihtisaslı mütehassıslar azırlanğan.
 Qırımda milliy manzaralı-ameliy sanatnı sarıp alğan inqıraz (XX asırnıñ başında) neticede esnaf istisalınıñ zayıflaşuvına alıp keldi.
-İhtimal, bu inqıraz keçip de keter edi, amma soñra halqnıñ özüniñ taqdiri faciağa çevirildi.
+İhtimal, bu inqiraz keçip de keter edi, amma soñra halqnıñ özüniñ taqdiri faciağa çevirildi.
 1944 senesi qırımtatarlarnıñ birini qaldırmayıp Qırımdan sürgün etkenleri, halq icadiyatı ananelerini ve onıñ yutuqlarınıñ deyerlik ğayıp olunmasına sebep oldı.
 Sabıq SSSRniñ çeşit regionlarına sepilgen qırımtatarlar, ükümetniñ olarğa nisbeten er ceetten tazıyığına baqmadan, ameliy sanat eşyalarını hatırlatqan, degerliklerge çevirildiler.
 Qırımda doğğan qırımtatar halqınıñ üyken nesili halqnıñ asırlıq ananelerinde östi ve terbiye aldılar, olar öz ecdatlarınıñ turmuş medeniyeti, ömür tarzı ve ananeleri aqqında hatıranı özlerinen taşıdılar, üyken nesil qırımtatar halqı sanatınıñ bazı çeşitlerini, meselâ, kilim toqumacılıq (Özbekistanda Palvantaş qasabası), nağış ananelerini saqlap qaluvda büyük rol oynadı.
 Qırımda doğğan nesil sürgünlikte halqnıñ turmuş ve medeniyet ananelerini saqlap qalmağa tırıştı.
 Qırımğa, özlerine qaytmaq qısmet olmağan eski ustalarnıñ, olardan ananeviy esnaflarnı ögrengen balaları, şegirtleri qaytıp kelmekteler.
-Şu cumleden, quyumcılıq sanatını Ayder Asanov, baba-bala İzzet ve Enver Ablayevler tiklemekteler; Asan Galimov qaqlamanen oğraşa; kiramet ve ufaq plastika ile Fevzi Seit-Halilov, Abdül Seit-Ametov, Rustem Yaqubov, Rustem Skibin, Şamil İlyasov, Mamut Çurlu ve başqaları meşğuller, taşpıçuv sanatını — Ayder Aliyev, İlmi Ametov; tüylü kilim toqumacılıq işlerini — Zeynep Musayeva, Gülnara Asanova, Reyan ve Ediye Bekirovalar, kilim toqumacılıqnı — Arzı Patel, Mamut Çurlu, Sabriye Eyupova ve başqaları tiklemekteler; altın suvlı ve örnekli tikişnen Elmira Muratova, Elvira Osmanova, Elmira Çalbaşeva, Tamara Klüçkina ve Ayşe Osmanova meşğuller.
+Şu cumleden, quyumcılıq sanatını Ayder Asanov, baba-bala İzzet ve Enver Ablayevler tiklemekteler; Asan Galimov qaqlamanen oğraşa; kiramet ve ufaq plastika ile Fevzi Seit-Halilov, Abdül Seit-Ametov, Rustem Yaqubov, Rustem Skibin, Şamil İlyasov, Mamut Çurlu ve başqaları meşğuller, taşpıçuv sanatını — Ayder Aliyev, İlmi Ametov; tüylü kilim toqumacılıq işlerini — Zeynep Musayeva, Gülnara Asanova, Reyan ve Ediye Bekirovalar, kilim toqumacılıqnı — Arzı Patel, Mamut Çurlu, Sabriye Eyupova ve başqaları tiklemekteler; altın suvlu ve örnekli tikişnen Elmira Muratova, Elvira Osmanova, Elmira Çalbaşeva, Tamara Klüçkina ve Ayşe Osmanova meşğüller.
 Qırımtatar milliy manzaralı-ameliy sanatınıñ başqa çeşitleri maddiy sebeplerge köre em de Qırımda mütehassıslar olmağanından, bugünde-bugün daa tiklenmeyler.
 Türkiye, Almaniya, Romaniya, Gollandiya ve AQŞta yaşağan qırımtatar diasporası, em de Türkiye ve Ukrainanıñ devlet ve cemaat teşkilâtları manzaralı-ameliy sanatınıñ esas çeşitlerini ğayrıdan tiklev işinde büyük yardımda bulunmaqtalar.
 Bugünde-bugün Aqmescit, Qarasuvbazar, Bağçasaray, Kezlev şeerleri, Kokköz, Taraqtaş, Bağay köyleri — Qırımda milliy manzaralı-ameliy sanat merkezleridir.
 Yarımasırlıq sürgünlikten qaytayatqan qırımtatar halqı bugünde-bugün tuvğan topraqlarında öz tillerini, medeniyetlerini tiklev ceryanında misilsiz qıyınlıqlarnı yeñmekteler.
 Özgün sanatını saqlağan halq onı kelecek nesillerge miras etip qaldırmağa tırışa.
 Qırımtatar halqınıñ maddiy medeniyetine ait yadikârlıqlarnı toplav ve saqlavına, manzaralı-ameliy sanat eşyalarını toplav işine büyük emiyet berilmekte.
-Bu maqsadnen Qırım Cumhuriyet qırımtatar sanatı müzeyi meydanğa ketirildi.
+Bu maqsatnen Qırım Cumhuriyet qırımtatar sanatı müzeyi meydanğa ketirildi.
 Müzeyni teşkil etüv tarihı 1992 senesinden başlandı.
 Qırımtatar milliy sanatınıñ degerlikleri keniş kölemli ve acele sürette toplanmalı, olarnı saqlav meselelerinen oğraşılmasa, tez arada toplamağa da, saqlamağa da şey qalmaycaq.
 Vaqıt elden qaçırılacaq.
 Bundan itibaren çeşit vaqıtlarda yarımadadan alıp ketilgen milliy maddiy medeniyet ve sanat eserlerini ve eşyalarını kene de Qırımğa qaytaruv işine ayrıca diqqat ayırılmaqta.
 Orta Asiya memleketlerinde, Romaniya, Bulğaristan ve Türkiyede qırımtatarlar toplu yaşağan yerlerde qırımtatar diasporasınıñ vekillerinen birlikte ekspeditsiya işçleri alıp barıldı ve ileride de böyle işler alıp barmaq közde tutula.
-Qırımdan tışta yaşagan qırımtatarlar, Qırımda müzey teşkil olğanını bilgen soñ, olarnıñ ecdatları Qırımdan alıp ketken ve şimdi qorantalarında yadikârlıqqa çevirilgen şeylerni öz teşebbüsleri ile muracaat etip, müzeyge bermek istegini bildireler.
+Qırımdan tışta yaşağan qırımtatarlar, Qırımda müzey teşkil olğanını bilgen soñ, olarnıñ ecdatları Qırımdan alıp ketken ve şimdi qorantalarında yadikârlıqqa çevirilgen şeylerni öz teşebbüsleri ile muracaat etip, müzeyge bermek istegini bildireler.
 Meselâ, 1998 senesi Romaniyada yaşagan qırımtatarlarnıñ delegatsiyası Qırımda ziyaretnen bulunganda, qırımtatar manzaralı-ameliy sanat eşyalarınıñ kollektsiyasını müzeyge taqdim ettiler.
 1999 senesi dekabr ayında müzey Konstantsiyadan 1850-1950 seneleri içinde Qırımda ve Dobrucada yaşagan qırımtatar ustaları tarafından işlengen 56 nağış aldı, bu kollektsiyanı Kemal Müsret toplağan.
 1999 senesi Qırım iliminde ilk olaraq, Dobruca (Konstantsa, Rumıniya) qırımtatarlar toplu yaşagan yerlerge ekspeditsiya ötkerildi, onı Cumhuriyet qırımtatar sanatı müzeyinen birlikte Romaniyanıñ Demokratik Türk-tatar birligi teşkilâtlandırdı.
@@ -227,7 +227,7 @@ Gügümler ekseriyet quş, balıq (postvizantiya tesiri) selbi ve çeçekler tas
 Cumhuriyet qırımtatar sanat müzeyiniñ fondlarında abdest almaq içün acayip savutlar saqlanmaqta, qumanlar (qapaqlı, uzun sümekli ve bükülgen saplı) baqır ya da qalaydan yasalğan.
 Sarı altın tüsteki qalaylı eşyalar, temiz baqırnıñ hususiyetlerini saqlayaraq, pek qaviy ola turğanlar.
 Bu soy madenden çoqusı qave degirmenleri, cezveler, yıbrıqlar azırlay ediler.
-İıbrıq armut şekilindeki türk stakanını añdıra.
+İıbrıq armut şeklindeki türk stakanını añdıra.
 Böyle şekildeki savutnıñ içindeki şingenlik çoq vaqıtqace suvumay ve öz dadını saqlap qala.
 Sinilerniñ şekili ve dekorı da çeşit-türlü: oval, dörtköşe, qıyıştırılğan köşeli, dos-doğru çetli ya da tögereklengen.
 
