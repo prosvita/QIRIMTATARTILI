@@ -170,7 +170,7 @@ Yalıñız amam meselesinde degil, er şeyde öyle.
 O Mansurovnen laqırdını qısqadan kese.
 
 — Maña baq! — dey oña Curayev, — Sen bolşeviksiñmi?
-Bolşevik olsañ, Leninniñ saat ustasınen etken laqırdısını hatiriñe ketir: "siz" dey o... añladıñmı?
+Bolşevik olsañ, Leninniñ saat ustasınen etken laqırdısını hatriñe ketir: "siz" dey o... añladıñmı?
 Lenin!
 O istegen kişisine: "sen" diye de bilir edi, lâkin "siz" dey edi.
 Aydı, cöne!
@@ -196,7 +196,7 @@ Er kes kibi, o da mahorka içe, lâkin gazeta kâğıdından yasalğan sigarnı�
 Bu adam niçün mende böyle hucur... yoq, hucur degil, küçlü teessurat doğurdı?
 Bilmeyim.
 Özüni usta tutuvı içünmi eken?
-Böyle adamlar inqilâbdan evelki injenerler arasında çoq edi.
+Böyle adamlar inqilâptan evelki injenerler arasında çoq edi.
 Bu, Mansurovnıñ aytqan injeneri — Sigizmund Genrihoviç olmalı, dep tüşündim.
 Men yañılmağanım.
 
