@@ -229,7 +229,7 @@ Sarı altın tüsteki qalaylı eşyalar, temiz baqırnıñ hususiyetlerini saqla
 Bu soy madenden çoqusı qave degirmenleri, cezveler, yıbrıqlar azırlay ediler.
 İıbrıq armut şeklindeki türk stakanını añdıra.
 Böyle şekildeki savutnıñ içindeki şingenlik çoq vaqıtqace suvumay ve öz dadını saqlap qala.
-Sinilerniñ şekili ve dekorı da çeşit-türlü: oval, dörtköşe, qıyıştırılğan köşeli, dos-doğru çetli ya da tögereklengen.
+Sinilerniñ şekli ve dekorı da çeşit-türlü: oval, dörtköşe, qıyıştırılğan köşeli, dos-doğru çetli ya da tögereklengen.
 
 "Meryem-ana qazanı" savutınıñ kelip çıquvı Qırımnıñ yalıboyu ve dağlı qırımtatarlarnıñ hristian keçmişinen ve İsa peygamberniñ anası — Meryemniñ adınen baglıdır.
 Bu savut loqsalarğa aş-suv taşımaq içün qullanılğan.
@@ -240,8 +240,8 @@ Ondan aşhane savut-sabaları, sofra donatuv eşyaları, yarıqlatuv kedikleri, 
 Baqır sıcaqnı yahşı keçirgeni içün, ondan çeşit türlü qazanlar yapıp, içlerini, bazıda tışlarını da qalalay ediler.
 Savutnı yerge qaqılğan uzun qazıqlar üstünde qalaylağanlar.
 Qırımtatarlar turmuş ve merasim adetlerini kütüvde qullanğan baqır ya da qalaylı savutlar pek oñaytlı, temiz em de ealiniñ aşağı ve orta tabaqaları içün fiyatı ceetten pek kelişken edi.
-%Tatar aristokratiyası ve asılzadeler kümüş eşyalardan faydalana turğanlar. 
- %Qırımtatarlarnıñ medenden yasalğan savutları özleriniñ funktsionalligi ve dülber tışkı körünişinen ayırılıp tura ediler.
+% Tatar aristokratiyası ve asılzadeler kümüş eşyalardan faydalana turğanlar. 
+% Qırımtatarlarnıñ medenden yasalğan savutları özleriniñ funktsionalligi ve dülber tışqı körünişinen ayırılıp tura ediler.
 Örnekli qaqma, basma resim ve oymalı örnek ananeviy usullarnen yapıla edi.
 Zengin örnekli savutlar interyerni yaraştırmaq içün hızmet eterek, onıñ saibiniñ eyiallığını bildirir edi.
 Maden tabaq üstünde yapılğan çekanka — qaqma resim culâlavnıñ eñ mürekkep usulı sayıla, çünki bu usulnen çalışqan vaqıtta resim, onıñ relyefi ve fakturasını bivasta iş ceryanında yaratmalı.
