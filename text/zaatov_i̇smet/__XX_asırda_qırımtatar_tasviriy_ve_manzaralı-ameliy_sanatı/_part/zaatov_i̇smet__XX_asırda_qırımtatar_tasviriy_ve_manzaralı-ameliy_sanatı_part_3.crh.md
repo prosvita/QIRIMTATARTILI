@@ -261,22 +261,22 @@ Qarartılğan eşya tınıq parıldayaraq, oña ayrıca güzellik, tamlıq bağ�
 Cumhuriyet qırımtatar sanatı müzeyiniñ fondlarında bu tehnika ile süslendirilgen bir qaç eksponat mevcut.
 Olarnıñ arasında — zem-zem suvu içün savutlar toplamı bar.
 Toplam sini ve eki filcandan ibarettir.
-Eşyalarnıñ küçükligi ve olarnıñ şekilleri, üstleri basma resim, qarartuvlarnen süslengeni, savutlarnıñ tantanalı, merasimii vazifelerini qayd eteler.
+Eşyalarnıñ küçükligi ve olarnıñ şekilleri, üstleri basma resim, qarartuvlarnen süslengeni, savutlarnıñ tantanalı, merasimli vazifelerini qayd eteler.
 
 Kertme tehnikası ХVII-ХVIII asırlarda eşyalarnı manzaralı culâlavda keniş qullanılğan usul edi, ayrı bir nushalarda ise XX asırnıñ başına qadar işletilgen.
 Kertme sanatı o derecede kenişlegen edi ki, altın ve kümüş telçikler ile evde qullanılğan er şey (meselâ, ayaqqap kiymek içün qaşıqqa barğance) yaraştırılğan.
-Bağçasaray tarihiy-medeniy müzey-zapovedniginiñ fondlarında saplı büyük şamdanlar saqlanmaqta.
- Olar kertme tehnikası ile ay-nurlı ösümlik örneklerinen yaraştırılğan olıp, özleriniñ qocamanlığını yoq etip, acayip yengillik asıl eteler.
+Bağçasaray tarihiy-medeniy müzey-qoruğınıñ fondlarında saplı büyük şamdanlar saqlanmaqta.
+ Olar kertme tehnikası ile aynurlı ösümlik örneklerinen yaraştırılğan olıp, özleriniñ qocamanlığını yoq etip, acayip yengillik asıl eteler.
 Kertme tehnikası ile ğayet zengin ve inceliknen yaraştırılğan eşyalarnıñ arasında silâ eşyaları — pıçaqlar, qılıçlar, tüfek qundaqlarını qayd etmeli, olarnı büyük partiyalar ile Rusiye, Poloniya, Frantsiya, Kavkazğa alıp kete ediler.
 Tüfekçilik saasınıñ çeçeklenüvi ile renkli madenlerni altın ve kümüşnen qaplav sanatı bağlıdır, bu ise eşyanıñ bediiy qıymetini arttıra.
 Altın künesuv vastasınen qaplana, ya da madenniñ üstüne ince yaldızlı altın tabaçıqlar yapıştırıla turğan.
-Esnaflar bu tehnikanı öyle ustalıqnen menimsegen ediler ki, olar yapqan yaşyalarnı kerçek de altın ve kümüş şeylerden ayırmaq qıyın ola edi.
+Esnaflar bu tehnikanı öyle ustalıqnen menimsegen ediler ki, olar yapqan еşyalarnı kerçek de altın ve kümüş şeylerden ayırmaq qıyın ola edi.
 Qırımtatarlarnıñ silâ sanatı — halqnıñ tarihı ve medeniyetinde eñ parlaq ve ayrıca bir saifesidir.
 Sıq-sıq olğan cenkler, hanlıqnıñ sıñırlarında toqtamağan çarpışmalar silâcılıqnıñ inkişaf etmesine yardımcı oldılar.
 Silâ esnafı qırımtatarlarnıñ ömür tarzınen de sıqı bağlıdır.
 Atqa minmek, silâdan faydalanmaq kibi hususiyetler balalarğa yaşlıqtan ögretile edi.
 Yahşı at ve zengin silâ — erkek adamnıñ menliginden delâlet berip, onıñ ömür qazançlarını belgiley ediler.
-Saray resmiy merasimler — çetelli elçilerni qarşılav, ordularnıñ körügi, avğa çıquv — ötkergende olarnıñ silânen yaraştırıluvına büyük emiyet berilgen.
+Saray resmiy merasimler — çetelli elçilerni qarşılav, ordularnı körüv, avğa çıquv — ötkergende olarnıñ silânen yaraştırıluvına büyük emiyet berilgen.
 Silâ esnafçılığı hususan şeerlerde inkişaf etken.
 Ebet, bu saada Bagçasaray ve Qarasuvbazar meşur ediler, bu şeerler qadimiy zamanlardan berli hanlıqnıñ iqtisadiy ve esnaf merkezleri ediler.
 
