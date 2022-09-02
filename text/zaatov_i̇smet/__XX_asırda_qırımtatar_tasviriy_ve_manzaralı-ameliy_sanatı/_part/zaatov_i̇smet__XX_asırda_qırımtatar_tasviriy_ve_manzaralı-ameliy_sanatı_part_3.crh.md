@@ -286,15 +286,15 @@ Qırımtatarlarnıñ beyaz silâsına, eñ evelâ onıñ qaviyligi ve demirlerin
 Lâkin silâ mühlisleriniñ diqqatını onıñ yaraşıqlığı da celp etken.
 Sapları morj kemigi ve qazıqtişlerinden qaqlamalarle süslendirilgen, eşyanıñ demirleri ise — altın ve kümüş kertmeler ile yaraştırılğan.
 Böyle eşyalar Avropada, ekseriyet Frantsiyada satıla edi.
-İstanbulda ise olarğa oşatıp sahte eşyalarnıñ istisalı teşkil olunğan, bu eşyalarnıñ üstüne Qarasuvbazar ve Bagçasaray ustalarınıñ tamgalarını basqan soñ, olarnıñ fiyatı keskin köterile edi.
+İstanbulda ise olarğa oşatıp sahte eşyalarnıñ istisalı teşkil olunğan, bu eşyalarnıñ üstüne Qarasuvbazar ve Bağçasaray ustalarınıñ tamğalarını basqan soñ, olarnıñ fiyatı keskin köterile edi.
 Eşyalarnıñ demir qısmı meşur damassk bolatından yasala edi.
 Cumhuriyet qırımtatar sanatı müzeyiniñ fondlarında saqlanılğan pıçaq — özünde em vazife em estetik keyfiyetlerini birleştirgen qırımtatar silâsınıñ aydın misalidir.
-Pıçaqnıñ ince, nazik şekili bar, sapı da, demiri de basma resim ve qarartmalarnen süslendirilgen.
-Eşya deşetli silâ olaraq degil de, milliy kostümni yaraştıracaq bir qısımı, ya da milliy turmuşnıñ bir yaraşığı olaraq qabul etile.
-Teessüf ki, qırımtatarlarnıñ zemaneviy turmuşında, qırımtatar silâcıları yasağan zşyalarnı tapmaq deyerlik mümkün degil.
+Pıçaqnıñ ince, nazik şekli bar, sapı da, demiri de basma resim ve qarartmalarnen süslendirilgen.
+Eşya deşetli silâ olaraq degil de, milliy kostümni yaraştıracaq bir qısmı, ya da milliy turmuşnıñ bir yaraşığı olaraq qabul etile.
+Teessüf ki, qırımtatarlarnıñ zemaneviy turmuşında, qırımtatar silâcıları yasağan еşyalarnı tapmaq deerlik mümkün degil.
 Dissertatsiyanıñ müellifi avcı-çobanlar qullanğan pıçaqnı tapmağa nail oldı.
 Onı demirci Ayyar Cemaleddin oğlu (1926 senesi Küçük-Özen köyünde doğğan) yasağan.
-Pıçaq çüy şekilinde olıp, damassk bolatına oşağan bağçasaray bolatından yapılğan.
+Pıçaq çüy şeklinde olıp, damassk bolatına oşağan bağçasaray bolatından yapılğan.
 Demiri sapına kirsetilip, tunç "qaş" vastasınen pekitilgen.
 Onıñ üstü yıltırağance tegizlenip, örnekli kertiklernen yaraştırılğan.
 Sapnıñ yuqarı qısmı eki qulağı olğan üslüpleştirilgen baş şekilinde, bu soy pıçaqlar qulaqları qara olğanı içün "qaraqulaq" adını aldılar.
@@ -358,7 +358,7 @@ XX asırnıñ başında qadife fesler altınnen tikilip, çetleri pullarnen yara
 Fes şekili, türk, Kavkaz, İran halqlarında keniş darqağan fes — "töpelikni" añdıra.
 Qırımtatar fesi tögerek tübü ve qattı qasnaq quşaqtan ibaret olğan.
 Fesniñ quşağı pullarnen süslendirilgen, tübü ise kümüş ya da altın töpeliknen yekünlengen.
-Töpelik qırımtatar quyumcılıq sanatında populâr örnek mevzuları — çeçek ya da yıldız şekilinde örnekli tepsiçikke oşay.
+Töpelik qırımtatar quyumcılıq sanatında populâr örnek mevzuları — çeçek ya da yıldız şeklinde örnekli tepsiçikke oşay.
 Başnı çeçekler ile (gülçember) bezetüv adeti qadimiy zamanlardan kelgen, çeçek de yıldız kibi, em temsil, em de bediiy emiyetke maliktir.
 Qırımtatarlarnıñ mañlay taqınçağına "baş altını" denilgen.
 Bu taqınçaq festen aşağı pekitilip, relyefli örnek, çeçek ya da yıldız tepsiçik ve çoqsayılı iri küpeler kombinatsiyasını teşkil ete edi.
