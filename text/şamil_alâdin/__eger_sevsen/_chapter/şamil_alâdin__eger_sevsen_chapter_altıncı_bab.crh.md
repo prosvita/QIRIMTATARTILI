@@ -305,28 +305,28 @@ Begengenmi?
 Yoqsa, hayalsırağanımnı sezgenmi?
 Tahtağa davet etti.
 
-Men, şporlı çızmalarımnen polnı gürsüldete berip, ortağa çıqtım.
+Men, şporlu çızmalarımnen polnı gürsüldete berip, ortağa çıqtım.
 
 — Söyleñiz: aşağı byef ne demek?
 Yuqarı byef ne demek? 
 — Sigizmund Genrihoviç böyle degende, avuçınıñ birini yuqarı, digerini aşağı qoyıp körsetti.
 
 — Yuqarı ve aşağı ufqiy çizgiler arasında suvnıñ seviyesindeki farq, — dedim men.
-Onıñ bana aytıp keçkeni aqılımda edi.
+Onıñ maña aytıp keçkeni aqlımda edi.
 
 Menjevetskiy menim cevabımdan memnün qaldı.
 Men qaytıp, yerime oturayatqanda, "cesür kazak" dep taşladı.
 İrada şeñ davuşnen küldi.
-Vu arada Mansurov partorgnıñ yeñinden yavaşçıqtan silkitip, közlerinen meni körsetti.
+Vu arada Mansurov partorgnıñ yañından yavaşçıqtan silkitip, közlerinen meni körsetti.
 Soñ ekisi de külümsirediler.
 İrada olarnıñ bir-birlerine köz qıpqanlarını eslep, qaşlarını tüyümledi, hayli vaqıt indemey, açuvlı oturdı.
 Menim ise bu arada hatrime, niçündir, Elpide keldi.
 Tüşüncege daldım.
 
-Bir daa qulaqlarıma derenden Menjevetskiyniñ sesi keldi.
+Bir daa qulaqlarıma terenden Menjevetskiyniñ sesi keldi.
 
 — Sizden sorayım!
-İşitesiñizmi, kavaleriya? 
+ Eşitesiñizmi, kavaleriya?
 — Dep şaşmaladım.
 Közlerim sağğa-solğa aylandılar.
 Zornen esimni topladım.
@@ -341,19 +341,19 @@ Men fikrimni toplaycaq olıp tırışqan arada kursantlar külüştiler.
 Dersten soñ, İrada meni yer patlatıcılar idaresine alıp ketti.
 Onı tapmaq qolay degil eken.
 Qışlaqnıñ civarında bağçanıñ ortasında cayuvdan büyük çadır... içinde qızarıp turğan çöyün ocaq. 
-— Biz onı qışlaq soqaqlarında qıdırıp yurdik.
+— Biz onı qışlaq soqaqlarında qıdırıp yürdik.
 — Müdirniñ kabineti, buhgalteriya, teminat bölügi — episi bir yerde.
 Menim içeride oturacağım kelmedi.
 Çıqtım.
-İrada müdirnen davağa tutındı, eki saatten ziyade iddalaştı.
-Episini işittim.
+İrada müdirnen davağa tutundı, eki saattan ziyade iddalaştı.
+Episini eşittim.
 
-Bağça içinde, ağızımda sigarım — tütün içmege mında ögrenip başladım — dolanğanda, öz-özüme taaciplendim: İrada meni mında niçün ketirdi aceba?
+Bağça içinde, ağzımda sigarım — tütün içmege mında ögrenip başladım — dolanğanda, öz-özüme taaciplendim: İrada meni mında niçün ketirdi aceba?
 
 ...O vaqıtta İrada maña fıqırdavuq qız olıp körüngen... onda yürekni hoşlandırıcı şey tapmağan edim.
-Yanına kelgende zecanlanmay, atta onı sevmey edim.
+Yanına kelgende eyecanlanmay, atta onı sevmey edim.
 Soñundan... apansızdan sevdim.
-Sevgen soñ, qalbimde toplanıp qalğan keder, sevinç, öpke, eecan — episi birden areketke keldi.
+Sevgen soñ, qalbimde toplanıp qalğan keder, sevinç, öpke, eyecan — episi birden areketke keldi.
 
 Niçün sevgenimni añlatmaq qıyın.
 Maña öyle kele ki, o vaqıtlarda İrada, ğaliba, azaçıq oğlan balağa beñzey edi.
@@ -364,7 +364,7 @@ Qızlar saçlarını burdırıp, yüzlerini pudralap, dudaqlarını boyap... yah
 Şeerlerde komsomollar — erler ve qızlar — yung-şturm kostümleri kiyip, portupeyli quşaq bağlap keze turğanlar.
 
 İradanıñ tabiatında böyle cerânlarnıñ tesiri... oğlan adetleri bar edi.
-O, zevqlı adise körse — mıtlaqa külecek, kederli şeyge rast-kelse, közlerinden yaş kelgence azaplanacaq.
+O, zevqlı adise körse — mıtlaqa külecek, kederli şeyge rastkelse, közlerinden yaş kelgence azaplanacaq.
 Öyle alışqan.
 Kimerde esli-başlı olıp körünmege istey, ziy-çuv laqırdı eteyatqan yerinde birden susa, çırayını sıta ve yasama — ciddiy davuşnen laqırdı ete.
 "Sevimli oğlançıq" deyim men şimdi, o devirdeki İradanı hatırlap, özüm ise Seyyareniñ dülber çeresine köz etem...
@@ -373,7 +373,7 @@ Moda hususında laqırdı çıqsa, epimizni bastıra, lâkin onda, er alda, İra
 
 Oğlançıq... lâkin, duyğu degen şeyni saqlamaq mümkün degil oğlançıqmı?
 Qızçıqmı?
-İnsan isleri bunı tez tain ete.
+İnsan isleri bunı tez tayin ete.
 
 İradada, insannı kendine çekici hususiyetlerden biri daa — onıñ namuslı, vicdanlı oluvı ve memleketniñ alicenap ğayelerine sadıqlığı.
 Bu alâmetler onda daima birinci yerni işğal ete ediler.
@@ -387,7 +387,7 @@ Aşıqmaq kerek, sklad qapalır.
 
 Sklad bağçadan uzaqta, qışlaqnıñ diger çetinde edi.
 Çaptıq.
-Eski, uslupsız binağa kelip yetkende ekimizniñ de talağımız şişken edi.
+Eski, üslüpsiz binağa kelip yetkende ekimizniñ de talağımız şişken edi.
 İrada qart Kostâğa narâdnı uzattı.
 
 — Nafile zamet...— dedi o, kâğıtnı İradağa qaytarıp berdi. 
