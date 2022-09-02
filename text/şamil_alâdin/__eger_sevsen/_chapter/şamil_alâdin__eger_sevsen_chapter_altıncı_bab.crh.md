@@ -416,7 +416,7 @@ Ekspeditormı?
 
 — Nijnik?..
 Şadmanovanıñ malayı.
-Öylemi? — lampadnı eline alıp, skladnıñ töründeki taş basamaqlarğa doğurıldı.
+Öylemi? — lampadnı eline alıp, skladnıñ töründeki taş basamaqlarğa doğruldı.
 Men onıñ peşinden kettim.
 Podvalda qaranlıq.
 Köridorda oba-töpe üstünden atlap, keñ odağa kirdik.
@@ -448,13 +448,13 @@ Kladovkacı tsementni çekip, defterge yazdı, men töpege taşladım.
 Eppiy vaqıt keçti.
 Podvalnıñ içinde toz-duman köterildi.
 Nefes almanıñ çaresi olmadı.
-Skladçı tozğa boñayğan soñ, attı-tuttı, sögüne-sögüne çıqıp ketti.
+Skladcı tozğa boñayğan soñ, attı-tuttı, sögüne-sögüne çıqıp ketti.
 Taş merdivenlerden yuqarı köterileyatqanda:
 
-— Özüñ toldır, özüñ çek!
+— Özüñ toldur, özüñ çek!
 Jurnalğa da özüñ yaz! — dep cekirdi, soñ qapu tars etip örtüldi.
 
-Tışarıda maşina davuşı işitildi.
+Tışarıda maşina davuşı eşitildi.
 Azbarğa çıqtım.
 Şoför, elleri uzun kişi, üstümdeki arbiy urbanıñ toz ile örtüngenini eslep, elimdeki brezentni qaqıp aldı, podvalğa tüşip ketti.
 Maşina yanında dolanğan İrada, menim kölgemni kördi.
@@ -462,14 +462,14 @@ Maşina yanında dolanğan İrada, menim kölgemni kördi.
 — Halat kiydiñizmi? — dedi maña ciddiy sesnen ve cevabımnı beklemey, ilâve etti: 
 — Aqıllı iş yapqansıñız!
 
-Skladçı küldi, indemedi.
+Skladcı küldi, indemedi.
 
 — Halat?
 Nasıl halat? — taaciplenip qıçırdım, soñ dudağımnı tişledim: 
 — Ebet.
 Halat kiydim! — dedim.
 
-Geceniñ bey vaqıtında tsementni ve diger mallarnı maşinağa yüklep, Sotsialist şeerçikke keldik.
+Geceniñ bey vaqtında tsementni ve diger mallarnı maşinağa yüklep, Sotsialist şeerçikke keldik.
 Aşhane yanından keçeyatqanda İrada maşinanı toqtattı.
 Kabinadan yerge tüşti.
 
@@ -486,7 +486,7 @@ Men mallarnı teslim etip, barakqa qayttım.
 
 "Sizni çoq zametke qoydım, afu etiñiz...
 Geceñiz hayır, Cevdet!" 
-Bu sözler İradanıñ ağızından çıqtımı?
+Bu sözler İradanıñ ağzından çıqtımı?
 Tevbe!
 Men oña yalıñız familiyamnı aytqan edim, adımnı qaydan bildi?
 Sus, Cevdet!
