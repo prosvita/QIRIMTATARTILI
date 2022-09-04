@@ -337,20 +337,20 @@ Ekseriyet örnekniñ içine çeşit şekildeki medalyonlar ve geraldik belgiler 
 Qırımtatar quyumcılıq sanatı inkişafınıñ evrimini közetir ekenmiz, şunı qayd etmek mümkün ki, birinci ziynetler, başqa halqlarda olğanı kibi, utilitar vazife (urbağa iliştirilgen, saçlarnı toplap tutqan ve ilâhre) taşığanlar; soñra, devamlı tarihiy inkişaf yolunda ziynetlerni çeşit apotropeik añlamlar ile baglanğanlar, olar merasim vazifesini taşıp, qoruyıcı ve nazarlıqlar rolüni oynaganlar; niayet, XX asırğa barıp, ziynetlerniñ dekorativ hususiyetleri üstünlik etip başlaylar.
 Bizim künge qadar qırımtatar quyumcılıq ziynetleri pek az qaldı.
 Bu eşyalar başqalarına nisbeten hırsızlıqqa ziyade oğradılar, bundan itibaren müellif öz tedqiqatında ekseriyet vesiqalı, fotosüretli, ağzaviy materialğa ve saqlap qalınğan nushalarnıñ az bir miqdarına esaslanmaqta.
-Qırımtatar quyumcılıq eşyalarınıñ hususiyetlerine Mısır, Gretsiya, Rim, Vizantiyadan ketirilgen ananeler büyük tesir taşladılar, lâkin şekil, üslüp, süslendirüvde musulman Şarqı medeniyetiniñ tasiri açıq sezilmekte.
+Qırımtatar quyumcılıq eşyalarınıñ hususiyetlerine Mısır, Yunanistan, Roma, Bizanstan ketirilgen ananeler büyük tesir taşladılar, lâkin şekil, üslüp, süslendirüvde musulman Şarqı medeniyetiniñ tasiri açıq sezilmekte.
 Ananeviy esnaflar ustalarınıñ sırasında quyumcılar ayrıca yerde turmaqtalar.
 Olarnıñ tükân ve ustahaneleri er vaqıt şeerniñ merkezinde ya da büyük maalelerde yerleşken.
-Qırımda quyumcılıq sanatınıñ qadimiyligi aqqında HІІІ-HV asırlarğa ait hazineler delâlet bereler.
+Qırımda quyumcılıq sanatınıñ qadimiyligi aqqında XІІІ-XV asırlarğa ait hazineler delâlet bereler.
 Orta asırlarnıñ ve XX asırnıñ başlarına qadar Qırımnıñ eñ büyük quyumcılıq merkezi Bağçasaray edi.
 Qırım quyumcılarınıñ eñ sevgen madeni kümüş olıp, evel-ezelden onıñ Ay ile tılsımlı bağı olğanını qayd ete ediler.
 Altın ile çalışqan ustalarğa "altıncı" dey turğanlar.
-U.Bodaninskiyniñ fikirine köre, quyumcılar ve altıncılarnıñ tsehi Qırımğa İran, Kavkaz ve Orta Asiyanı keçip İndistandan kelgen.
-Altın eşyalar istisalınen qırımtatarlardan ğayrı, özlerini İndistandan çıqqan ariyler saygan, çingeneler ögraşa ediler.
+U. Bodaninskiyniñ fikrine köre, quyumcılar ve altıncılarnıñ tsehi Qırımğa İran, Kavkaz ve Orta Asiyanı keçip İndistandan kelgen.
+Altın eşyalar istisalınen qırımtatarlardan ğayrı, özlerini İndistandan çıqqan ariyler sayğan, çingeneler ögraşa ediler.
 Ebet, İndistan ile bağları olarnıñ tek hatıralarında saqlanıp qalğan, lâkin quyumcılıq esnafınıñ ustalığı, eşyalarnıñ üslübine baqqanda, İranda menimsenilgen.
 İran quyumcılıq mektebiniñ qırımtatar quyumcılıq sanatına bu qadar büyük tesiri — bu umumqırım quyumcılıq sanatınıñ devamlı inkişafınıñ neticesidir, o, ulu İran qabileleriniñ sanatına ait quyumcılıq eşyalarından başlana.
 Añılğan qabileler — kimeriy, skif, skolot, sarmat, iran tilli aslar, alan ve gotalanlar, olar çoq vaqıt Qırımda yaşağan, yarımadada ebediy yaşamaga qalğan bu qabilelerniñ bir qısımı soñra cenübiy yalıboyu ve dağlı qırımtatarlarnıñ etnogenezinde iştirak ettiler.
 Orta asır tseh teşkilâtlarınıñ qattı qaideleri quyumcılıq işleri ananeleriniñ saqlap qaluvına qoltuttılar.
-Quyumcılıq eşyaları milliy qadın-qızlar ve qısmen erkek kostümleriniñ ayrılmaz terkebiy qısmı olıp, öz saipleriniñ içtimaiy vaziyetinden delâlet bere ediler.
+Quyumcılıq eşyaları milliy qadın-qızlar ve qısmen erkek kostümleriniñ ayrılmaz terkibiy qısmı olıp, öz saipleriniñ içtimaiy vaziyetinden delâlet bere ediler.
 Ziynetlerniñ episini üç esas gruppağa ayırmaq mümkün: baş, boyun-köküs, qol ve bundan da ğayrı — bel ziynetleri, dualıqlar.
 
  Qırımtatar qadınları fes kiygenler.
@@ -367,7 +367,7 @@ Qocağa çıqqan qadınnı ayırdı etken alâmeti zulüfler edi.
 Olar baş kiyimge pekitilir, ve şekilleri de çeşit-türlü ola edi.
 Olar, ekseriyet, kümüşten işlengen olıp, basma resim ve taşlarnen süslendirilgen, ya da ufaq daneçiklernen süslendirilgen filigranlı bütün pilâkilerden ibaret edi.
 Qırımtatar qadın-qızlarnıñ baş kiyimleri qulaqlarını qapatmağan, bundan itibaren küpe ve başqa taqınçaqlarğa büyük emiyet berilgen.
-Küpeler konus şekilinde, dörtköşe, burulğan ola ediler, lâkin eñ keniş darqağan yarımay şekili edi.
+Küpeler konus şeklinde, dörtköşe, burulğan ola ediler, lâkin eñ keniş darqağan yarımay şekli edi.
 Qırımnıñ çöl tarafından biri-birine zıncırçıq ile pekitilgen, uzun sırğalar taqa ediler.
 
 Köküske taqılğan taqınçaq — gerdanlıq ya da köküslik anteriniñ oymasını qapata ve urbanıñ ziynetli qısmı olaraq hızmet ete.
@@ -375,35 +375,35 @@ Gerdanlıq filigranlı pilâkiler, pullar, yarıqıymetli taşlar ve zıncırç�
 Qırımtatarlarnıñ eñ populâr ziynetlerinden biri toqalı quşaqlar olğan.
 Olarnı erkekler de, qadınlar da, balalar da taqqanlar.
 Quşaqlar maden (biri-birine pekitilgen ayrı-ayrı pilâkilerden), meşin, parça, qadifeden yasala.
-Quşaqnıñ tığız negizine bazıda bant ya da çeçek şekilinde maden sülükler tizile.
+Quşaqnıñ tığız negizine bazıda bant ya da çeçek şeklinde maden sülükler tizile.
 Quşaqnıñ kümüşten yasalğan başı ayrıca süslendirile.
-Başları çift ola — tomalaq, badem şekilinde, kobelek qanatları şekilinde ola.
-Adeti üzre, toqa şekiliniñ esasında — biri-birine küzgü aksinde yerleştirilgen, çetleri kertikli eki yüzüm yaprağı, olarnıñ üstüne eki çeçek yaprağı qoyulğan ve, niayet, bularnıñ episi çeçek şekilinde tepsiçiknen pekitilgen,
+Başları çift ola — tomalaq, badem şeklinde, kobelek qanatları şeklinde ola.
+Adeti üzre, toqa şekliniñ esasında — biri-birine küzgü aksinde yerleştirilgen, çetleri kertikli eki yüzüm yaprağı, olarnıñ üstüne eki çeçek yaprağı qoyulğan ve, niayet, bularnıñ episi çeçek şeklinde tepsiçiknen pekitilgen.
  Neticede kölemli, üç qatlı (yipişli) kompozitsiya asıl ola, bazıda onıñ çekisi 400 grammğa yete edi.
 Bu soy yipişli quşaqlarnen bir sırada oyma resim ile süslendirilgen ve zıncırlı küçük hancer ile pekitilgen qaqmalı toqalar da rastkele.
 Cumhuriyet qırımtatar sanat müzeyinde 30-ğa yaqın qırımtatar quşaqlarından ibaret zengin kollektsiya mevcut.
 Qırımtatar milliy kiyimlerini yaraştırğan qısımlarından daa biri dualıqlardır.
-Şekil ceetten — dörtköşe, üçköşe, boru şekilinde olıp, quvuş içlerine dualar qoyülgan, dualar insannı yaman köz ve çeşit belâlardan qorçalağan.
-Cumhuriyet qırımtatar sanat müzeyiniñ eksponatları arasında filigran tehnikası ile işlengen boru şekilinde dualıq mevcut.
+Şekil ceetten — dörtköşe, üçköşe, boru şeklinde olıp, quvuş içlerine dualar qoyulğan, dualar insannı yaman köz ve çeşit belâlardan qorçalağan.
+Cumhuriyet qırımtatar sanat müzeyiniñ eksponatları arasında filigran tehnikası ile işlengen boru şeklinde dualıq mevcut.
 Başqa bir dualıqnıñ dörtköşe ösümlik örneginiñ tögerekli sızıqlarınen ve qadife aenkindeki qarartuv tökmeleri ile yımşatılğan, böyle süslendirüv kümüşniñ külrenk-kök üstünde pek dülber körüne.
-Madenden yasalgan dualıqlar qadın-qızlarnıñ saçlarına örüle turğan, olar zıncırçıqlar ya da ince maden yipçiklernen pekitilgenler, olarğa saç-qadise deyler.
+Madenden yasalğan dualıqlar qadın-qızlarnıñ saçlarına örüle turğan, olar zıncırçıqlar ya da ince maden yipçiklernen pekitilgenler, olarğa saç-qaside deyler.
 Qırımtatar quyumcıları bediiy maden dekorlarınıñ çeşit soylarını işlete ediler, lâkin filigran — çilter tehnikasına üstünlik berile edi.
-Esasen, filigrannıñ eki çeşiti qullanılğan: zeminli örnek azır pilâkiniñ üstüne yapıştırıla; ve çeltekli — çeşit qalınlıqtaki tegiz ve burulğan yipler çeltekli örnek asıl eteler. 
+Esasen, filigrannіñ eki çeşiti qullanılğan: zeminli örnek azır pilâkiniñ üstüne yapıştırıla; ve çeltekli — çeşit qalınlıqtaki tegiz ve burulğan yipler çeltekli örnek asıl eteler. 
 Filigranlı kompozitsiyalar bürtükli topuzçıqlarnen toldurıla, olar örnekniñ esas buğumlarını qayd eteler, ya da bütün taqınçaqnıñ üstüni qaplap, ışıq-kölge oyunını yarata ediler.
-Quyumcılıq taqınçaqlarnıñ ösümlik mevzuları tek yipişli, ya da oymalı örneklerniñ esasını teşkil etmekten ğayrı, eşyanıñ şekilini de belgiley ediler, meselâ, quşaqnıñ toqası çeçek şekilindemi, özüm yaprağımı ya da badem şekilinde yasalacağı belgilene edi.
+Quyumcılıq taqınçaqlarnıñ ösümlik mevzuları tek yipişli, ya da oymalı örneklerniñ esasını teşkil etmekten ğayrı, eşyanıñ şeklini de belgiley ediler, meselâ, quşaqnıñ toqası çeçek şeklindemi, özüm yaprağımı ya da badem şeklinde yasalacağı belgilene edi.
 Astral mevzular — yıldız, küneş, ay da qırımtatar quyumcılıq eşyalarında çeşit şekilde ğayet nazik ve dülber tasvirlengen, olarnıñ manzaralı-estetik hususiyetlerinden ğayrı, çeşit belâlardan qorçalayıcı vazifeleri de olğan.
 
 Quyumcılıq eşyalarınıñ çeşitligi, er biriniñ ayrı vazifesi, parlaq süslenüvi, eşyalarnıñ er tipiniñ individual variantlarınıñ çoqlugı, em de asırlar devamında asıl olğan qullanuv medeniyeti qırımtatar ameliy sanatınıñ bu çeşitiniñ qadimiy ananeleri olğanı aqqında aytalar.
-XIX asırnıñ soñu ve XX asırnıñ başına ait nushalar qırımtatar ustalarınıñ yüksek professional seviyesini ve bediiy didlerini numayış eteler.
+XIX asırnıñ soñu ve XX asırnıñ başına ait nushalar qırımtatar ustalarınıñ yüksek professional seviyesini ve bediiy damlarını numayış eteler.
 Buña baqmadan, 1920-nci senelerniñ soñunda ve 1930-ncı senelerniñ başında, eski ananeler ğayıp oluvı, ömür şaraitleri deñişkeni, turmuş sovetleştirilgeni sebebinden, quyumcılıq eşyaları ve bediiy madenniñ başqa çeşitlerine de ihtiyac keskin eksildi.
 Eger asırnıñ başında, misal olaraq, kelin ciyezlik qalaylı savut-saba, bir taqım qadın taqınçaqları ve ilâhre ziynetlerni azırlamaq kerek olğan ise, (bu adetler quyumcılarnı da, qalaycılarnı da işen teminlep tura edi), endi toy merasimleri bayağı sadeleşip, adiy ZAGSnen yekünlene.
 Yalıñız yüzük, küpelerge ihtiyac daa bar edi.
-Quşaq, zülüf, gerdanlıq, dualıqlar deyerlik yasalmay edi.
+Quşaq, zülüf, gerdanlıq, dualıqlar deerlik yasalmay edi.
 Qıymetli madenlernen çalışuv imkânı olmağan soñ, quyumcılıq zenaatı da ğayıp oldı.
 
 Asırnıñ ortalarına barıp, quyumcılıq ziynetleri çıqaruv istisalı bütünley toqtatıla, yalıñız XIX asırnıñ soñu ve XX asırnıñ başında icat etken quyumcılarnıñ acayip işleri qırımtatar quyumcılarınıñ evelki şan-şüreti aqqında hatıranı saqlamaqtalar.
-Az qalğan ustalarnıñ özleri de ömürniñ yañı şaraitlerine uyıp, "sovet emblemalarınıñ" istisalına keçmege mecbur oldılar (30, s. 28).
-Sürgünlik yılları devamında Qırımda quyumcı bir usta bile qalmadı, bediiy maden, sanat çeşiti olaraq, deyerlik gayıp oldı.
+Az qalğan ustalarnıñ özleri de ömürniñ yañı şaraitlerine uyıp, "sovet emblemalarınıñ" istisalına keçmege mecbur oldılar.
+Sürgünlik yılları devamında Qırımda quyumcı bir usta bile qalmadı, bediiy maden, sanat çeşiti olaraq, deerlik ğayıp oldı.
 Al-azırda onı tiklev yolunda birinci eminsiz adımlar atılmaqta.
 Bu esnafnıñ taqdiri öz sanatına sadıq ressamlarnıñ qolundadır.
 Yazıq ki, olar pek azlar.
@@ -415,19 +415,19 @@ Ayder 9 yaşından babasına yardım eterek, yavaş-yavaş quyumcılıq sanatın
  Amma 1944 senesi gençniñ taqdirini tamamile deñiştirdi.
 1956 senesi A. Asanov Moskva elektrotehnika tehnikumınıñ filialını bitirip, "madenni suvuq işlev" ihtisasını menimsedi.
 Baba-dedelerinden qalma ustanıñ bundan soñki bütün ömüri başta Taşkent elektrotehnika zavodı ile, soñra Gülistanda tamir-mehanika zavodınen bağlı oldı.
-Amma Asanov öz boyun-borcunı ve balalıqta algan derslerini bir vaqıt unutmadı.
-Özbekistanda yaşagan yıllar devamında o, quyumcılıq işlerinen meşğul olıp, yüzük, bilezlik, küpe, dualıqlar yasadı.
+Amma Asanov öz boyun-borcunı ve balalıqta alğan derslerini bir vaqıt unutmadı.
+Özbekistanda yaşagan yıllar devamında o, quyumcılıq işlerinen meşğül olıp, yüzük, bilezlik, küpe, dualıqlar yasadı.
 Bu sergi ya da bediiy nümüneleri degil, olar sımarış boyunca yapılğan taqınçaqlar edi.
 Lâkin bu iş ustaga tehnikiy bilgi ve ameliy pişkinlik berdi.
 1990 senesi A. Asanov Qırımğa qaytıp keldi.
 Bundan sonki on yıl da yerleşüv ve iş araştıruv areketlerinen keçti.
 Niayet, 2000 senesi onıñ tuvgan şeeri Bağçasarayda "Qırımnı ğayrıdan tiklev" fondu tarafından halq esnaflarını tiklev boyunca merkez teşkil olundı.
 Bugünde-bugün Asanovnıñ zvi, öz ustahanesi bar, quyumcılıq sanatınıñ inceliklerini öz şegirtlerine ögrete ve qırımtatar quyumcılıq sanatınıñ ananeleri ğayrıdan tiklenecegine ümüt beslep yaşamaqta.
-Asanov ve onıñ şegirtleri azırlağan quşaqlar, dualıqlar, töpelikler — bu qırımatar halqı turmuşınıñ ana¬neviy eşyalarıdır.
+Asanov ve onıñ şegirtleri azırlağan quşaqlar, dualıqlar, töpelikler — bu qırımatar halqı turmuşınıñ ananeviy eşyalarıdır.
 Asanovnıñ şegirtleri filigran tehnikasını işleteler, lâkin kümüş ve melhior yerine şimdilik baqır tel işleteler.
 Esnaflarnı tiklev boyunca merkezi daa yaş, onıñ talebeleri de daa yaşlar, olar sanatta öz sözlerini endi aytacaqlar.
 Asan Galimov 1951 senesi Gülistanda doğdı, al-azırda Aqmescitte yaşay, Qırım Ressamları birliginiñ azası ola.
-A. Galimov Taşkentte irrigatsiya institutını bitirdi, amma, buña baqmadan, quyumcılıq sanatına nisbeten merağı yavaş-yavaş ömüriniñ eñ esas işine çevirildi.
+A. Galimov Taşkentte irrigatsiya institutını bitirdi, amma, buña baqmadan, quyumcılıq sanatına nisbeten merağı yavaş-yavaş ömrüniñ eñ esas işine çevirildi.
 Belli qırımtatar ustası A. Qalafatovnıñ torunı, Özbekistanda cınıs ağaçlarınen çalışqan usta Enver Galimovnıñ oğlu, Asan sanat yoluna mıtlaqa ayaq basmaq kerek edi.
 70-nci yıllarda Galimov örnek sanatınen mükemmel oğraşıp başladı.
 Onıñ ilk örnek kompozitsiyaları drantahtası üstünde tuş ile işlengen edi.
@@ -437,10 +437,10 @@ A. Galimov öz eserlerinde, zemini büs-bütün qaplanğan ösümlik örnegini: 
 Soñra ressam, real çeçekler (lâle, qaranfil, papadiye) tasvirinden abstrakt resimlerge keçe.
 Renkli, iri çeçek mevzularınıñ yerine quyumcılıq eşyalarnıñ telli süslenüvini añdırğan, parçalanğan örneklerini işlete; örnekniñ strukturası salmaqlı ve nizamlıca ola.
 Ressamnıñ yetekçi eserlerindeki elementleri — çeçek-tepsiçik ve pıtaqnıñ sarmaşqan filisi.
-1991 senesi A. Galimov öz icadına yekünleyici seçim yapa — o, Taşkente "Fniks" firması yanında bediiy-culâlav qurslarını bitire, Özbekistan Ressamları birliginiñ ustahanesinde belli quyumcı ve eykeltıraş Amon Azimovnıñ yolbaşçılığında şegirtlik yapa, soñra oquv yurtunda tasil alıp, quyumcı ihtisasını elde ete.
+1991 senesi A. Galimov öz icadına yekünleyici seçim yapa — o, Taşkente "Feniks" firması yanında bediiy-culâlav kurslarını bitire, Özbekistan Ressamları birliginiñ ustahanesinde belli quyumcı ve eykeltıraş Amon Azimovnıñ yolbaşçılığında şegirtlik yapa, soñra oquv yurtunda tasil alıp, quyumcı ihtisasını elde ete.
 1995 senesi A. Galimov Qırımğa köçip keldi.
-Qalafatovlar sülâlesiniñ añanelerini tiklev maqsadınen öz qartbabasınıñ evinde mektep-studiyasını meydanğa ketirdi.
-A.Galimov qırımtatar ressamlarınıñ sergilerinde muntazam iştirak etip kelmekte.
+Qalafatovlar sülâlesiniñ ananelerini tiklev maqsadınen öz qartbabasınıñ evinde mektep-studiyasını meydanğa ketirdi.
+A. Galimov qırımtatar ressamlarınıñ sergilerinde muntazam iştirak etip kelmekte.
 Onıñ eserleri — örnekli baqır savutlar (cezve, çığırıq ve ilâhre), melhior quyumcılıq taqınçaqları — quşaq toqaları, bilezlikler, yüzükler, küpeler.
 Galimov bütün şekil ve acimlerge üstünlik bere.
 Filigran tehnikasına nisbeten qaqma usulından ziyade faydalana.
