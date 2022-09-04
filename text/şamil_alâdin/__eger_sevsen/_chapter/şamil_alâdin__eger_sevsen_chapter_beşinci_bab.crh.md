@@ -220,7 +220,7 @@ Vaziyetke qıymet keser kibi, evniñ içini kozden keçirdi, soñ menim yanıma 
 Arhipka menim aqqımda şikâyetlendi.
 
 — Bu adamda namus yoq,— dedi o, komendantqa meni kösterip.
-— O, belki abshaneden qaçqandır, teşkerip baqmaq kerek.
+— O, belki apshaneden qaçqandır, teşkerip baqmaq kerek.
 Böyle unsurnı bizim aramızğa yiberesiñiz de, soñ bizge — ahlâqiy ceetten bozuq adamlar deysiñiz!
 
 — Sen sus, Arhipka! — dep qıçırdı sarı saçlı qız. 
@@ -244,14 +244,14 @@ Epiñiz çankildeşmeñiz!
 Men saña inanam.
 Bekirov ne yaptı?
 
-Şay degende, baraknıñ töründen, qaranlıq köşeden diger ses işitildi.
+Şay degende, baraknıñ töründen, qaranlıq köşeden diger ses eşitildi.
 Soñ yaş, dülber qız peyda oldı.
-Qaşları tıraş etilip, olarnıñ yerine, tuşnen sulükke beñzer çizgiler yasalğan.
-Qız bılanıq közlerini evelâ maña, soñ komendantqa doğrulttı, sarğuş davuşnen dedi:
+Qaşları tıraş etilip, olarnıñ yerine, tuşnen sülükke beñzer çizgiler yasalğan.
+Qız bılanıq közlerini evelâ maña, soñ komendantqa doğrulttı, saruş davuşnen dedi:
 
 — Bek...
 Bek... fu!
-Bekirov acaip olân.
+Bekirov acayip oğlan.
 Men onı çoqtan bilem.
 Bekirov kimsege toqunmadı.
 Amma Arhipka onı soymaq istedi.
@@ -277,7 +277,7 @@ Bu cinaiy tip ise... — o Arhipkağa külümsiredi, — bu tip siziñ adamnıñ
 Lâkin şamata köterilecek qadar degil.
 Azaçıq...
 Raatsız olmañız.
-Bugün artıq kimseniñ taqleti bozılmaz.
+Bugün artıq kimseniñ taqleti bozulmaz.
 Özüm baqarım.
 Amma ketmek istemeseñiz, qalıñız, qadınlar cemiyetinde oturıñız, subet eteyik!
 
