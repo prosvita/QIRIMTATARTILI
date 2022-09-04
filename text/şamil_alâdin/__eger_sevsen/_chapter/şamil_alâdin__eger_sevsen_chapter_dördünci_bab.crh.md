@@ -116,7 +116,7 @@ Kepkasını çıqarıp, astarına yüzündeki ve boynundaki terini sildi.
 
 Yandım, piştim...— stolnıñ yanından keçeyatqanda, közlerine bülleten çalındı.
 Toqtaldı, oqup baqtı,— birincide, eki saat degil, bir saat...— dedi o, ökünçli davuşnen.
-Astındaki imzalarnı körgen soñ, esini ğaip ete yazdı, — Bekirov?
+Astındaki imzalarnı körgen soñ, esini ğayıp ete yazdı, — Bekirov?
 — Yalq etip betime baqtı: 
 — Sizsiñizmi?
 Zevqlı şey!
@@ -131,11 +131,11 @@ Menim şporlarımnı mısqıllapmı?
 Toqtabayevniñ sözlerini mantıqsız tanıpmı?
 
 — Barsın, öyle olsun! — dedi Toqtabayev.
-— Öz-özüni tenqid yahşı şey.
-Partiyanı temizlev komissiyasınıñ reisi olğan vaqıtımda özüm de tenqid etken edim.
+— Öz-özüni tenqit yahşı şey.
+Partiyanı temizlev komissiyasınıñ reisi olğan vaqtımda özüm de tenqit etken edim.
 
 Toqtabayev darıldı, lâkin sezdirmek istemedi.
-Bu arada aqılına nasıldır müim mesele keldi... paltosınıñ qoyun cebinden kâğıt çıqardı.
+Bu arada aqlına nasıldır müim mesele keldi... paltosınıñ qoyun cebinden kâğıt çıqardı.
 
 — Baq!
 Buña baq? — dedi, İrağa uzatıp,— bazar meselesinde kommunstroynen qavğamız asıl da bitmeycek.
@@ -158,7 +158,7 @@ Amma "komsomolğa yüklemek" meselesine kelgende, bilesiñmi...
 Bu yahşı.
 Siz bizim yerimizni tutacaq yaş nesilsiñiz!
 
-— Yuriñiz kettik! — dedi maña İra, yerinden qalqıp.
+— Yüriñiz kettik! — dedi maña İra, yerinden qalqıp.
 
 — Yoq, Bekirov mında qalsın. 
 — Toqtabayev maña kürsüni körsetti: 
@@ -178,16 +178,16 @@ Men başımnı qaqıttım.
 
 — Demek, şay! — qart mehanik hayli vaqıt susıp turdı.
 
-— Menim qardaşım da atlı askerde, — dedi soñ, — rastelişmediñizmi?
+— Menim qardaşım da atlı askerde, — dedi soñ, — rastkelişmediñizmi?
 Toqtabayev.
 Adı Madamin.
 
-— Menim hızmet etken polkımda böyle şahs yoq edi.
+— Menim hızmet etken polkumda böyle şahs yoq edi.
 
 — O Saratovda.
 
 Toqtabayev kene sustı.
-Men bekledim: "evelâ çalış, er şeyni bil. Başqasına aqılnı soñ ögretirsiñ!" — dep başlaycaqtır belledim.
+Men bekledim: "evelâ çalış, er şeyni bil, başqasına aqılnı soñ ögretirsiñ!" — dep başlaycaqtır belledim.
 Amma Toqtabayev başqa saadan baas etti.
 
 — Bu yerde ilki çadırnı men qurdım...— dedi o ve sıçrap ayaqqa turdı, qapunı aralıq etti.
@@ -196,7 +196,7 @@ Men de ayaqqa turdım:
 — bu yerde ise, — o selbi terek betke işaret etti, — geologlar yaşay ediler.
 Cigerlerim suvuqlanğan vaqıtta olarda yattım.
 Yıqıldım... bilesiñmi?
-Uçurumdan ayaqlarım kurtuldı, başlı-ayaqlı yuvarlanıp, özenge tüştim.
+Uçurumdan ayaqlarım qurtuldı, başlı-ayaqlı yuvarlanıp, özenge tüştim.
 Özü de dekabr ayı.
 Üstümde pamuq urba.
 Yahşı ki, suvnıñ quturğan vaqıtı degil edi, yoqsa çekip alıp keter edi.
