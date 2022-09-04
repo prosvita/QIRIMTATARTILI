@@ -432,7 +432,7 @@ Menim sözlerim o qadar külünçlimi? — dep soradı İra,— ketmege razı ek
 İranıñ yüzü qızardı.
 
 — Azır cevap ekensiñiz.
-Bilmedim,— dedi qız, özü de küldi,— men Hazar Kendke ketem.
+Bilmedim,— dedi qız, özü de küldi,— men Hazar Kendge ketem.
 Skladda yardım içün adam kerek.
 Siz buña kelişiklisiñiz.
 
@@ -458,7 +458,7 @@ O perişan bağlanılğan kibi, aman yaraşıqlı... ucları güya boynunı quç
 Qız şimdi ne tüşüne aceba?
 Yapışqaq balçıq içinde tobuğına qadar batıp, abına-sürüne keteyatqan bu dülber qıznıñ yüreginde ne bar?
 
-Qoltuğı tübünden, uzaq atıcı topnıñ ağızı kibi uzanıp turğan bir rulon kâğıtnı qayda alıp keteyata?
+Qoltuğı tübünden, uzaq atıcı topnıñ ağzı kibi uzanıp turğan bir rulon kâğıtnı qayda alıp keteyata?
 Çertejlar, proyektler...
 
 Niayet, esine men tüştim.
