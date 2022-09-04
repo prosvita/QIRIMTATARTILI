@@ -477,18 +477,18 @@ Yoq, o meni beklemekte edi.
 — Sizni atlı askerden keldi, dediler.
 Şimdi buña emin oldım, — dedi qız ve ilekârane külümsiredi, soñ yoluna devam etti.
 
-Onıñ artından beş daqiqa indemey yurdim.
+Onıñ artından beş daqiqa indemey yürdim.
 Cevap bermek içün sözler qıdırdım.
 Tapqan soñ teşkerip baqtım, begenmedim.
 
 Tar soqaq bitti.
-Keniş yel başladı.
+Keniş yel başlandı.
 Endi İra ile yan-yanaşa yürmek mümkün.
 O toqtaldı... közleri menim közlerime doğruldılar.
 
-— Sizni ğaip ettim dep qorqtım, — dedi o, ve bir azdan soñ ilâve etti: — külecegim kele... bizim yaqlarda, çölde kervan yürgende, eñ arqadaki deveniñ boynuna çañ taqalar.
-Ögde yetekçi deveniñ üstündeki kişi diñlene bere, arttan çañ sesi işitilemi, demek, kervannıñ işi sırasında.
-Çañnıñ sesi işitilmese... kervanda fena iş oldı.
+— Sizni ğayıp ettim dep qorqtım, — dedi o, ve birazdan soñ ilâve etti: — külecegim kele... bizim yaqlarda, çölde kervan yürgende, eñ arqadaki deveniñ boynuna çañ taqalar.
+Ögde yetekçi deveniñ üstündeki kişi diñlene bere, arttan çañ sesi eşitilemi, demek, kervannıñ işi sırasında.
+Çañnıñ sesi eşitilmese... kervanda fena iş oldı.
 Men de öyle... yürem-yürem, soñra toqtalıp, diñlenem.
 Şporlarıñıznıñ davuşı çıqamı?
 Demek, menim cansaqlarım keleyata. 
@@ -523,8 +523,8 @@ Qaydan keldiñiz?
 — Menim adım İrada! — dedi qız ve közlerime azaçıq darğın kibi baqtı. 
 — Sizde böyle ad barmı?
 
-— İrade, degen söz bar, amma ad işitmedim.
-Menim doğıp ösken köyimizde Edaye degen qız bar edi.
+— İrade, degen söz bar, amma ad eşitmedim.
+Menim doğıp ösken köyümizde Edaye degen qız bar edi.
 Hastalanğan soñ, adını İrade qoymaq istediler, babası razı olmadı.
 
 — Niçün "bar edi", deysiñiz?
@@ -559,7 +559,7 @@ Qaranlıqta beraber evge qaytqanda onıñ yanağından öptim.
 Tek bir kere...
 Ondan soñ qız menimnen laqırdı etmedi.
 Men oqumağa kettim, o ise hastalanğan.
-Yazda tatil vaqıtında bardım, köyde yoq edi.
+Yazda tatil vaqtında bardım, köyde yoq edi.
 
 — Ölgenmi? — dep soradı İrada ve yolnıñ ortasında toqtadı.
 
@@ -568,25 +568,25 @@ Yazda tatil vaqıtında bardım, köyde yoq edi.
 Çöl bette yaşağan doğmuşı kelip alıp ketken...
 Qımıznen tedaviy etmek istegenler.
 
-— Bu ilki sevgiñiz edimi? — İrada qalbimdeki eecannı sezdi. 
+— Bu ilki sevgiñiz edimi? — İrada qalbimdeki eyecannı sezdi.
 — Vaqinaı öyle ikâye ettiñiz ki, güya episi keçip ketken.
 
-Men kederli külümsiredim ve İradanıñ şübeli fikirini tasdıq ettim.
+Men kederli külümsiredim ve İradanıñ şübeli fikrini tasdıq ettim.
 
-— Ebet, episi keçip ketti?
+— Ebet, episi keçip ketti.
 
 Yel örge çıqa başladı.
 İrada toqtadı, tonınıñ dögmelerini çezdi, omuzları üzerine tüşken yavluğını açıp, başına ğayrıdan bağladı.
 
 — Biz hızmette qulaqlı qalpaq kiyemiz, — dedi o, menim baqa bergenimden utanıp, — qalpaq oñaytlı.
 Yavluq baş üstünde turmay, aşağı cılışa bere, — ögümizde peyda olğan evlerni eslep, dedi: 
-— işte, Hazar Kend!
+— İşte, Hazar Kend!
 
 Ve hoş çere ile külümsiredi.
 
 — Aşağı tüşeyik!..— dedim men oña, özen yalısını kösterip, — anda yol tegiz... ve yaqın.
 
-Teklifimni güya işitmegen kibi, indemedi.
+Teklifimni güya eşitmegen kibi, indemedi.
 
 — Eger insannıñ arzusı yerine kelse, o keçken bütün kederlerni unuta, öyle degilmi? — dep soradı İrada menden.
 
@@ -595,7 +595,7 @@ Belki öyledir...
 
 — Biz keldik! — dedi qız.
 Bu sözlerni o eki saat evelsi Petâ emcenen nasıl laqırdı etken olsa, öyle resmiy davuşnen söyledi. 
-— Siz komsomol-sıñızmı?
+— Siz komsomolsıñızmı?
 
 Men başımnı qaqıttım.
 
