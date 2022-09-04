@@ -500,7 +500,7 @@ Amma şimdi de, olarnıñ üstünden yasaq müüri alıp taşlanğan olsa da, ol
 
  ### 3.3. TOQUMACILIQ VE NAĞIŞ
 
-Örnekli basmalar ve nağış istisalı yarımadanıñ deyerlik bütün rayonlarında belli, qırımtatarlarnıñ eñ keniş darqağan ve esas esnafıdır.
+Örnekli basmalar ve nağış istisalı yarımadanıñ deerlik bütün rayonlarında belli, qırımtatarlarnıñ eñ keniş darqağan ve esas esnafıdır.
 Toqumacılar ("bezaci") ve nağışçılarnıñ ("kezaci") tseh birleşmeleri Qırımda qadimiy zamanlardan berli bellidir.
 Bu tsehler hanlar sarayını, asılzadelerni, ruhaniylerni teminlegenler; mahsulatnıñ bir qısmı Aqdeñizboyu memleketlerine, Anadolu, Rusiyege yollanılğan.
 Tseh teşkilâtları Qırımnıñ er bir iri şeerinde mevcut olğan — Kefe, Kezlev, Qarasuvbazar şu cümledendir.
@@ -509,26 +509,26 @@ Toqumacılıq ustahanelerinde pamuq, keten, yipek ve yünden basmalar işlep ç�
 XX asırnıñ başında Qırımnıñ çöl, dağlı, şarqiy rayonlarında bu istisal da mevcut edi.
 Er bir rayonnıñ basmalarınıñ öz hususiyetleri bar edi.
 Meselâ, asırnıñ başında "tegiz, yolaqlı ve sade örnekli basmalar Kırımnıñ çöl tarafında inkişaf ete.
-Bundan da ğayrı, olar basmanıñ mükemmelligi ile ayırılıp tura ediler, basmalar Kavkazartından, Türkiyeden ketirilgen, yipek kibi ince ösümlik yipinden ("rami" cınısınıñ "şire" yipi) işlep çıqarılğan.
+Bundan da ğayrı, olar basmanıñ mükemmelligi ile ayırılıp tura ediler, basmalar Kavkazartından, Türkiyeden ketirilgen, yipek kibi ince ösümlik yipinden ("rami" cınsınıñ "şire" yipi) işlep çıqarılğan.
 Mürekkep örnekler ve istisalnıñ mürekkep tehnikiy usulları Qırımnıñ dağ etekleri ve dağlı rayonlarına aittir, mında biz bediiy ve tarihiy qatlamlarnı çoq rastketiremiz.
 Yalıboyu basmalarında İstanbul toqumacılıq istisalınıñ tesiri ziyade sezilmekte.
 Bazı basma ve nağışlarda beyaz-qara tüslerge kümüş yip qoşuluv alları rastkele, böyle birikmeler qırımtatar manzaralı-ameliy sanatı içün tipik degil.
-%Bu basmalarnıñ örnekleri nazik ve inceliknen işlengen, got ve yunanlarğa barıp çıqqkın qırımtatarlar toquylar.
-Bu basmalarda Vizantiya medeniyetiniñ çizgileri sezilmetke.
-Toqumacılıq ve nağışçılıq ananeleri mükemmel saqlanıp qalğanınıñ sebebi şunda ki, örnekli toqumacılıq eşyaları ev turmuşınıñ, milliy urbalarnıñ, diniy merasimlerniñ (nişan, toy ve ilâhre) bir qısımı edi.
+% Bu basmalarnıñ örnekleri nazik ve inceliknen işlengen, got ve yunanlarğa barıp çıqqаn qırımtatarlar toquylar.
+Bu basmalarda Bizans medeniyetiniñ çizgileri sezilmetke.
+Toqumacılıq ve nağışçılıq ananeleri mükemmel saqlanıp qalğanınıñ sebebi şunda ki, örnekli toqumacılıq eşyaları ev turmuşınıñ, milliy urbalarnıñ, diniy merasimlerniñ (nişan, toy ve ilâhre) bir qısmı edi.
 Bundan da ğayrı, anane ve melekeler büyüklerden küçüklerge keçe — qartanalarından miras olıp qalğan şeylerniñ örneklerini ögrenip, torunları öz eşyalarında tekrarlay turğanlar.
 Böyleliknen, XX asırnıñ devamında toqumacılıq ve nağış işlerinde ananeviy çizgiler, tehnologiya, asırlarnen işlengen ve nesilden-nesilge keçken kompozitsiya çeşitleri, örnekler saqlanıp keldiler.
 
 Sanayı istisalı çıqarğan basmalar ketirilüvi toqumacılıq esnafını bayağı zayıflaştırdı, eşyalarnıñ bediiy qıymetini ve keyfiyetini tüşürdi.
 Nağışçılıq (manzaralı yüzbezler, urbanıñ qısımları ve saire) evelden evde toqulğan pamuq basmaları üstünde işlengen, soñra ketirilgen azır — qadife, atlas işletilip başlandı, olarnı yipek, yün, bazıda altın, kümüş yiplernen ya da fabrikada işlengen altın sicimnen nağışlağanlar.
-Qırımtatar nağışınıñ sanatında 10 türlü örnek tikişi mevcut, olardan altısı — esas, dörtü — yarımcı tikiş.
-Qırımtatar toqumacılıq sanatınıñ ğayretli tedqiqatçısı P. Ya. Çepurina olarnıñ episi aqqında tafsilâtlı malümat berdi:
+Qırımtatar nağışınıñ sanatında 10 türlü örnek tikişi mevcut, olardan altısı — esas, dördü — yardımcı tikiş.
+Qırımtatar toqumacılıq sanatınıñ ğayretli tedqiqatçısı P.Ya. Çepurina olarnıñ episi aqqında tafsilâtlı malümat berdi:
 — "tatar işlemesi" — ekitaraflı tegiz tikiş;
-— çelterli ekitaraflı tınıq nağış, ruslarnıñ "tikişli nağışı" kibi.
+— çilterli ekitaraflı tınıq nağış, ruslarnıñ "tikişli nağışı" kibi.
 Halq arasında oña "esap işleme", mütehassıslar ise — "osmanlı işleme" deyler;
-— "telli" örnek nağışı — kümüş, altın (ya da altın suvlı, kümüş suvlı) yipnen ince çanaçıqlar nağışlana.
+— "telli" örnek nağışı — kümüş, altın (ya da altın suvlu, kümüş suvlu) yipnen ince çanaçıqlar nağışlana.
 Olarnıñ çevre-çeti işlemeniñ yerine köre, çeşit ola;
-— "mıqlama" — tübünde töşemesi olğan, qatlı basma üstünde altın, kümüşnen işlengen nağış; qırımnıñ deyerlik er yerinde bu nağışnı "mıqlama" deyler (rus bediiy nağışçılıq nomenklaturasında oña "yüksek altın nağışı" deyler).
+— "mıqlama" — tübünde töşemesi olğan, qatlı basma üstünde altın, kümüşnen işlengen nağış; Qırımnıñ deerlik er yerinde bu nağışnı "mıqlama" deyler (rus bediiy nağışçılıq nomenklaturasında oña "yüksek altın nağışı" deyler).
 Tek Qarasuvbazar ve onıñ etraflarında oña "sımakeç" deyler;
 — "bükme" — qattı basma üstünde altın, kümüş sicimler ile, siyrek allarda renkli yipek yiplernen işlene;
 — "qasnaq" örnekli nağışı — bediiy nağış mütehassısları oña "tamburlı" deyler.
@@ -547,11 +547,11 @@ Onı basmağa keçirmezden evel, örnekniñ esas qısımları qattı kâğıttan
 Soñra, zger kompozitsiya eskizini sımarışçı begense, şablonlarnıñ çevresini sızıp, basmağa keçirilgen.
 Ufaq-tüfek yaraşıqlı çızıqlar doğrudan-doğru basmanıñ üstünde sızılğan.
 
-İşniñ böyle usulı hatalardan qaçınıp,basmağa nisbeten nağışnıñ kölemini doğru esaplamağa yardım etken.
-XIX asırnıñ soñu ve XX asırnıñ başına ait eşyalar, işlev tehnikası ve seviyesi boyunca çeşitler.Bu ise örnekli toqumacılıq ve nağış, hususan ekseriyet şeer yerlerinde keniş tarqağan altın telli ve qıymetli taşlarnen nağışlar yüksek inkişaf seviyesinde bulunğanlarından delâlet bere.
+İşniñ böyle usulı hatalardan qaçınıp, basmağa nisbeten nağışnıñ kölemini doğru esaplamağa yardım etken.
+XIX asırnıñ soñu ve XX asırnıñ başına ait eşyalar, işlev tehnikası ve seviyesi boyunca çeşitler. Bu ise örnekli toqumacılıq ve nağış, hususan ekseriyet şeer yerlerinde keniş tarqağan altın telli ve qıymetli taşlarnen nağışlar yüksek inkişaf seviyesinde bulunğanlarından delâlet bere.
 Altınnen nağışlanğan eşyalar şunı da bildireler ki, müşteriler asılzadeler, allıtaqatlı, eyiallı insanlar olğanlar.
 Qırımtatarlarnıñ merasimlerinde el işlerine ayrıca emiyet birilgen.
-Meselâ, kelin nişanğa öz elinen işlegen bir taqım eşya mıtlaqa azırlamalı: uçqur (nişanlanğan vaqıtta bağışlana) tiz bez (kiyev yemek vaqıtında tizlerini qapata), yemeni (poşusı), eki kise (tütün qoymaq içün, birisi kiyevge, birisi de onıñ yaqınlarına bağışlana), küçük kise, o kümüş sıcımnen yaraştırıla, tübüne ufaq altınlar tikile; köşeleri kümüş ya da renkli yipek yipnen nağışlanğan kiyev yavluğı; nağışlanğan çorap bavları...
+Meselâ, kelin nişanğa öz elinen işlegen bir taqım eşya mıtlaqa azırlamalı: uçqur (nişanlanğan vaqıtta bağışlana) tiz bez (kiyev yemek vaqtında tizlerini qapata), yemeni (poşusı), eki kise (tütün qoymaq içün, birisi kiyevge, birisi de onıñ yaqınlarına bağışlana), küçük kise, o kümüş sıcımnen yaraştırıla, tübüne ufaq altınlar tikile; köşeleri kümüş ya da renkli yipek yipnen nağışlanğan kiyev yavluğı; nağışlanğan çorap bavları...
 Bu şeylerge daa yipek kölmekler, çorap, saat qapı, nagışlanğan yastıqlarnı qoşmaq mümkün edi.
 Kelin azırlağan şeylerni kiyevniñ tuvğanlarına, itibarlı musafirlerge, toy qoşusı ve küreşniñ ğaliplerine bağışlay edi.
 Toydan evel kelinniñ evinde çalğı çalınıp, ciyez asuv merasimi ola edi: odanıñ merkezinde tavannıñ astında alqa pekitile, ondan er bir tarafqa yipler bağlana, olarnıñ üstüne ise kelinniñ öz elinen azırlağan ciyezi asıla edi.
@@ -567,15 +567,15 @@ Artellerniñ teşkilâtçıları qayd etkenleri kibi, olar "icadiy küçlerni se
 Teessüf ki, bu arteller çoq faaliyet kösterip olamadılar ve tezden darqatıldılar.
 
 Toqumacılıq eşyaları örneklev harakterine köre, eki esas gruppağa bölüneler: ösümlik örnegi (üslüpleştirilgen lâle, qaranfil, nilüferler — Qırımda eñ çoq rastkelgen çeçekler) ve geometrik örnekler.
-Eger toqumacılıq örnegi geometrik şekilllerine qattı riayet etken ise, nağış tehnikası qıyış sızıqlı örnekler yaratmağa imkân bere edi.
-Bundan itibarendesaduf degil ki, nağış elementleriniñ deyerlik gruppasını dalğalı çızıqlarnen işlengen ösümlik ve çeçek örnekleri teşkil eteler.
-Çeçek muvzuları manzaralı örtülerni, milliy urbalarnı da yaraştıralar.
-Bazıda çeçek resimlerinde qaranfil, gül, zambaq, ebengomeç ve ilâhre çeçeklerni tanımaq mümkün.
+Eger toqumacılıq örnegi geometrik şekillerine qattı riayet etken ise, nağış tehnikası qıyış sızıqlı örnekler yaratmağa imkân bere edi.
+Bundan itibaren tesaduf degil ki, nağış elementleriniñ deerlik gruppasını dalğalı çızıqlarnen işlengen ösümlik ve çeçek örnekleri teşkil eteler.
+Çeçek mevzuları manzaralı örtülerni, milliy urbalarnı da yaraştıralar.
+Bazıda çeçek resimlerinde qaranfil, gül, zambaq, ebenkömeç ve ilâhre çeçeklerni tanımaq mümkün.
 Lâkin, ekseri allarda, olar ğayet üslüpleştirilip, örnek belgisine çevirileler.
 Çeçekler bardaqnıñ içinde, bazıda tabaqnıñ üstünde, yalıda, nazarlıqlarğa sarılğan şekilde tasvirlengenler.
 Çeçeklerniñ, ince pıtaçıqlarnıñ, bükülgen yapraqlarnıñ çoqluğı qırımtatar nağışlarına iç bir şeynen teñeştirilmeycek naziklik ve güzellik bağışlaylar.
 
-Orta asırlarda Qırım nağışınıñ tedqiqatçıları qayd etkenine köre, deñiz boylap ketirilgen meyva ve sebzeleri: — armut, kestane, pomidor, kiraz, soğan, qabaq, ananas, soñra deñişken ananeviy ösümlik örneklerine tesir etemey qalmadılar, bu şekiller musulman örnek sanatında çoq rastkeleler.
+Orta asırlarda Qırım nağışınıñ tedqiqatçıları qayd etkenine köre, deñiz boylap ketirilgen meyva ve sebzeleri: armut, kestane, pomidor, kiraz, soğan, qabaq, ananas — soñra deñişken ananeviy ösümlik örneklerine tesir etemey qalmadılar, bu şekiller musulman örnek sanatında çoq rastkeleler.
 Halq ustaları ketirilgen basma ve kilimlerniñ abstrakt ösümlik mevzusınıñ resimini tasvirlemege tırışıp, vaqıt keçken sayın, körgen şekillerini endi olarğa yahşı tanış olğan şeylernen baglaylar.
 Meselâ, burulğan mevzular badiçlerge oşaylar, İran ve Türkiye kilimlirine ait iri çeçek, palmettaları, sadeleştirüv neticesinde kesilgen qabaq ya da pomidorğa beñzeyler...
 "Kelmeşek" mevzularnıñ deñişüvini közetmek meraqlıdır.
