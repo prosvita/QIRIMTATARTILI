@@ -339,7 +339,7 @@ Apaqaydan qorqtıñızmı? — dep qıçırdı Valâ birazdan soñ ve hahıldap 
 Yat, sesiñni çıqarma!
 
 — Ep bir söylerim... episini söylerim.
-Episini...— sarğuş Valâ tınmaq bilmedi.
+Episini...— saruş Valâ tınmaq bilmedi.
 
 Kandıba bir yaqqa ketmedi.
 Turıp, baktan bir meşrebe suv aldı, yuvundıq qopqasınıñ üstüne egilip, betindeki qannı yuva başladı.
@@ -361,7 +361,7 @@ Petâ emce bundan büyüklerniñ haberi olğanını istemey.
 Büyüklerniñ?
 İra büyüklerdenmi?
 Şübesiz...
-İnjenerler Curayev ve Şadmanova — istisal reberleri isaplanalar.
+İnjenerler Curayev ve Şadmanova — istisal reberleri esaplanalar.
 Men polkta adiy kazak rutbesinde hızmet etkende eñ ziyade qorqqan kişim — bölük komandiri Budâk edi.
 Polk ve eskadron komandirini seve — saya, olar bizim içün telükeli degil.
 Amma Budâk bizni cezalay edi.
@@ -388,7 +388,7 @@ Red etti.
 — İskanderge dört kün daa qatnaycaqmız.
 Öylemi? 
 — Furunnıñ açıluvını qaldıra bergeniñiz — bu üçünci defa.
-Sizge "Yengil kavaleriya" nı yollamaq kerek...
+Sizge "Yengil kavaleriya"nı yollamaq kerek...
 
 İranıñ "kavaleriyası" iç komendantnıñ keyfini bozar bellemegen edim.
 Amma o aqiqaten, qorqtı.
