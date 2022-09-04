@@ -282,7 +282,7 @@ Ebet, bu saada Bagçasaray ve Qarasuvbazar meşur ediler, bu şeerler qadimiy za
 
 Qırımtatarlarnıñ "beyaz silâ" dep adlandırılğan suvuq silâları büyük şan-şüret qazandı.
 Pıçaq, qama, hancerler bütün Şarqta şüret qazanğanlarından ğayrı, bu silânı Moskva da satın ala edi; bu malnıñ ticaret partiyaları bir yılda 400 biñ nushağa bara edi.
-Qırımtatarlarnıñ beyaz silâsına, eñ evelâ onıñ qaviyligi ve demirleriniñ dülber şekiline yüksek qıymet kesilgen.
+Qırımtatarlarnıñ beyaz silâsına, eñ evelâ onıñ qaviyligi ve demirleriniñ dülber şekline yüksek qıymet kesilgen.
 Lâkin silâ mühlisleriniñ diqqatını onıñ yaraşıqlığı da celp etken.
 Sapları morj kemigi ve qazıqtişlerinden qaqlamalarle süslendirilgen, eşyanıñ demirleri ise — altın ve kümüş kertmeler ile yaraştırılğan.
 Böyle eşyalar Avropada, ekseriyet Frantsiyada satıla edi.
@@ -298,20 +298,20 @@ Pıçaq çüy şeklinde olıp, damassk bolatına oşağan bağçasaray bolatınd
 Demiri sapına kirsetilip, tunç "qaş" vastasınen pekitilgen.
 Onıñ üstü yıltırağance tegizlenip, örnekli kertiklernen yaraştırılğan.
 Sapnıñ yuqarı qısmı eki qulağı olğan üslüpleştirilgen baş şekilinde, bu soy pıçaqlar qulaqları qara olğanı içün "qaraqulaq" adını aldılar.
-%Qaraqulaqlarnı esasen odaman çobanlar taşığanlar.
+% Qaraqulaqlarnı esasen odaman çobanlar taşığanlar.
 Qırımnıñ cenübiy yalıboyu tatarları arasında sapı çızma şekilinde yasalğan "çızma" adlı pıçaqlar da qullanılğan.
 Pıçaqlarnıñ sapları boynuz, kemik, bazıda bütün bir tunç parçasından, ya da Afrikadan ketirilgen fil kemiginden yasala edi.
 Demirlerniñ ucları qayırılğan qırımtatar qılıçları Qırımdan uzaqlarda da belli ediler.
 Qılıçnıñ yengilligi, em de parlav, kesüv, sançuv darbelerini birleştirgen cenkâver qılıçqa ağır hancerge nisbeten üstünlik berile edi.
 Qırımtatar askeri qoşma silâsı olaraq uzun ve keñ baltalar — "ay baltalar" qullana edi.
-Olar yarımay şekilinde olıp, örnek ve yazılar ile qaplana edi.
+Olar yarımay şeklinde olıp, örnek ve yazılar ile qaplana edi.
 Bazıda bu baltalar eki ağızlı ola edi.
 Qırımda ateş açıcı çeşit silâlar da azırlay ediler.
 Bağçasarayda onlarnen tüfek ustahaneleri olğan.
 Tüfek ve pıştavlar dülber, yahşı atqan, alıp yürmesi oñaytlı olğan.
 Qıymetli ağaç cınıslarından yasalğan qundaqları zengin qaqlamalarnen süslendirile edi.
 Çaqmaqlı tüfekler damassk bolatından köşeli ya da tomalaq şekilde, tegiz ya da oymalı olaraq, pek qaviy yasala ve şunıñ içün de pek çoq memleketlerde ihtiyacı büyük edi.
-Qısqa qundaqlı qırımtatar karabinlerine de kjsek qıymet kese ediler.
+Qısqa qundaqlı qırımtatar karabinlerine de yüksek qıymet kese ediler.
 XIX asırnıñ soñunda ve XX asırnıñ başında Bağçasarayda yasalğan bir karabinniñ fiyatı altı yahşı atnıñ fiyatınen bir kele edi.
 Qırımnıñ ateş açıcı silâları eksport eşyalarına kire, tek memleketten tışqa çıqarmaq içün yılda 2000 nusha işlep çıqarıla edi.
 İşi, siyaset ile, qırımtatarlarnıñ hocalığı ve ömür tarzınen sıq bağlı olaraq, ameliy sanatnıñ başqa çeşitleri kibi, yarımadada silâcılıq yüz bergen siyasiy, iqtisadiy deñişmelerniñ neticelerini öz üzerinde sınadı.
@@ -321,14 +321,14 @@ Kütleviy olğan silâ istisalı, şahsiy sımarışlar seviyesine tüşti.
 Eşyalar öz utilitar vazifesini coyaraq, müzey ve şahsiy kollektsiyalarda saqlanıp qaldılar.
 Bugünde-bugün qırımtatar silâ sanatınıñ eserleri Bağçasaray tarihiy-medeniy zapovednigi müzeyiniñ fondlarında, Rusiye etnografiya müzeyiniñ kölletsiyalarında, ayrı nushalar Moskva Kremliniñ Silâ müzeyinde, Şarqiy Avropa müzeylerinde, Türkiye müzey kollektsiyalarında saqlanmaqtalar.
 Silâcı ustalar yaratqan pek çoq eşyalar Qırımdan tışqa alıp ketildi ve ğayıp oldılar.
-%Saqlanıp qalğan nushalar, qırımtatar ustaları tarafından mükemmel menimsenilgen usullarnıñ keniş işletilgenini köstereler:yañı örnekli oyma, qaqma,altın ve kümüş kertme, sadet ve kemiknen mıqlama, savatlama, yıldızlama.
+% Saqlanıp qalğan nushalar, qırımtatar ustaları tarafından mükemmel menimsenilgen usullarnıñ keniş işletilgenini köstereler: yañı örnekli oyma, qaqma, altın ve kümüş kertme, sadet ve kemiknen mıqlama, savatlama, yıldızlama.
 Bu — basma resim, qarartuv, altınnen qaplav çeşitleri, madenden işlengen eşyalarnıñ örnek mevzularında qadimiy dinlerniñ parlaq obrazları, çeşit qabilelerniñ merasim obrazları (asırlar devamında olar biri-birini almaştırıp, qırımtatar etnosı medeniyetiniñ şekillenüvine tesir ettiler), öz aksini tapqanlar.
 Ustalar lâle, gül ğoncesi, qaranfil, gül çerepi, çeşit meyvalar, ösümlik mevzularını büyük mearet ile işlete ediler.
 Olarnıñ episiniñ temsil manası olıp, qolay añlaşıla edi.
 
 Qırımtatar halqınıñ etnogenezinde "substrat" rolüni oynağan Qırımda yaşagan türk qabileleriniñ totematik tasavurları halqnıñ hatırasında qaviy pekindiler.
 İslâm ideologiyası çoq vaqıtqace onı yeñip olamadı.
-Qırımtatar manzaralı-ameliy sanat eserlerinde qoyun başınıñ ya da burmalı boynuzlarınıñ üslübiy tasviri çoq vaqıtqace saqlanıp qaldı;türk halqlarnıñ añlamında qoyun muqaddes ayvan olğan ve onıñ tasviri qorçalaycı temsil taşığan.
+Qırımtatar manzaralı-ameliy sanat eserlerinde qoyun başınıñ ya da burmalı boynuzlarınıñ üslübiy tasviri çoq vaqıtqace saqlanıp qaldı; türk halqlarnıñ añlamında qoyun muqaddes ayvan olğan ve onıñ tasviri qorçalaycı temsil taşığan.
 Buğa da muqaddes mana taşığan, o, erkek küçüniñ temsili olğan.
 Sığın ve bars tabiatnıñ aydın ve qara küçleriniñ temsilleri edi.
 Maden eşyalarnıñ dekorında epigrafik örnek keniş işletilgen,o, bütün musulman sanatınıñ hususiy çizgisidir.
