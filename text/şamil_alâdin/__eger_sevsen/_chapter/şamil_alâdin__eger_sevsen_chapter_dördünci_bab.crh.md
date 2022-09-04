@@ -2,7 +2,7 @@
 
 Er kes barakqa qayttı.
 Men yalığa tüştim.
-Qapaqlanıp, buz içinde qatıp qalğan çapçaqnıñ üstünde oturmağa niyetlengende, yanaşamda ayaq davuşları işittim.
+Qapaqlanıp, buz içinde qatıp qalğan çapçaqnıñ üstünde oturmağa niyetlengende, yanaşamda ayaq davuşlarını eşittim.
 Kevdemni doğrulttım.
 Qarşımda İra turmaqta edi.
 
@@ -33,22 +33,22 @@ Qız sustı.
 Soñ egilip, yerden küçük, tögerek lâpek taşçıq aldı, erkek bala kibi, elini soza berip, bar küçünen özenniñ ortasına fırlattı.
 Taşnıñ suv üstünde sıranen qaldırğan alqalarına baqıp, seyir etip, zevqlanıp turdı.
 
-— Yuriñiz! — dedi o, soñ maña, — smena bitti.
+— Yüriñiz! — dedi o, soñ maña, — smena bitti.
 Men artıq smena injeneri degilim.
 Komsomol komitetiniñ sekretarım...
-Rica etem, yuriñiz! 
+Rica etem, yüriñiz!
 
 — Qayda?
 Niçün?
 
-— Turıñız!
+— Turuñız!
 Soñ aytırım.
 
 "Mavı qayağa" keldik.
 
 — Kimse yoq...
 Pek güzel, — dedi İra, — şimdi siz bir şey köreceksiñiz, lâkin taaciplenmek kerekmey.
-Qana, qapaqnı tutıp turıñız!
+Qana, qapaqnı tutıp turuñız!
 
 O kürsüni qaranlıq köşege çekti, tavannıñ çetinde mıhı qurtulıp, aralıq qalğan fanerniñ arasına qolunı tıqtı, içeriden yeşil çiçekli bir rulon divar kâğıtı çekip çıqardı.
 
@@ -60,15 +60,15 @@ Onı Merkeziy komitetniñ sekretarı komsomol reberlerine taqsim etken edi.
 
 Bu qızğa qaydan rastkeldim, aceba?
 Polkta ekende divar gazetasında çalışqan, maqalelerni temizge çekken edim.
-İnjener bunı qaydan işitken?
-İşitkenmi aceba?
+İnjener bunı qaydan eşitken?
+Eşitkenmi aceba?
 Belki meni sınamaq isteydir?
 
 Başlañız! 
 — O, qısqa teri paltosınıñ cebinden küçük fırçı ve üstünde bir şeyler yazılı kâğıt çıqarıp, maña berdi.
 
 — E!
-Yazıñız acaip eken de! — dedi İra, yazayatqanımnı körip, — siz bizim içün hazinesiñiz!
+Yazıñız acayip eken de! — dedi İra, yazayatqanımnı körip, — siz bizim içün hazinesiñiz!
 Haberiñiz barmı?
 
 Tezden "Yengil kavaleriya" bülleteni azır oldı.
