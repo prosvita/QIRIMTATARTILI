@@ -442,11 +442,11 @@ Ressamnıñ yetekçi eserlerindeki elementleri — çeçek-tepsiçik ve pıtaqn�
 Qalafatovlar sülâlesiniñ ananelerini tiklev maqsadınen öz qartbabasınıñ evinde mektep-studiyasını meydanğa ketirdi.
 A. Galimov qırımtatar ressamlarınıñ sergilerinde muntazam iştirak etip kelmekte.
 Onıñ eserleri — örnekli baqır savutlar (cezve, çığırıq ve ilâhre), melhior quyumcılıq taqınçaqları — quşaq toqaları, bilezlikler, yüzükler, küpeler.
-Galimov bütün şekil ve acimlerge üstünlik bere.
+Galimov bütün şekil ve kölemlerge üstünlik bere.
 Filigran tehnikasına nisbeten qaqma usulından ziyade faydalana.
 Eşyalarnıñ tegiz üstünde basma örnekler pek yahşı körüneler.
 Usta, ananeviy eşyalarnıñ şekillerinden faydalanaraq, olarnıñ üstünde yañı örnek kompozitsiyalarını işlep çıqara, bazıda sadef, smalta, cam işlete.
-Ustanıñ işleri klassik quyumcılıq nushalarından daa uzaqtalar, olar eski şekil ve tehnologiyalarnı menivsev devirine aitlerdir, er alda.
+Ustanıñ işleri klassik quyumcılıq nushalarından daa uzaqtalar, olar eski şekil ve tehnologiyalarnı menimsev devrine aitlerdir, er alda.
  Buña baqmadan, ustanıñ icadı Qırımda ananeviy quyumcılıq ğayrıdan tiklenüvi ve inkişafı içün istiqballer açmaqta.
 
 Zemaneviy belli quyumcı-ananeci İzzet Ablayev "İzzet usta" fahriy unvanını taşıy.
@@ -455,10 +455,10 @@ Zemaneviy belli quyumcı-ananeci İzzet Ablayev "İzzet usta" fahriy unvanını 
 1962 senesi Taşkentke köçti.
 İ.Ablayev Taşkent şeerinde Toqumacılar medeniyet sarayı yanındaki tasviriy sanat studiyasını bitirdi.
 1971 senesi Taşkentte ameliy sanat boyunca eksperimental-icadiy kombinatqa işke kirdi.
-İ. Ablayev qouyumcılıq sanatı ile 1972 senesinden berli oğraşa, Amma o yıllarda ustanıñ icadındaki yeteçki janr kiramet edi.
+İ. Ablayev qouyumcılıq sanatı ile 1972 senesinden berli oğraşa, аmma o yıllarda ustanıñ icadındaki yeteçki janr kiramet edi.
 90-ncı yıllarnıñ başından berli İ. Ablayev Qırımda yaşamaqta.
 Qırımğa qaytuv ressamnıñ tek tercimeiyalında degil, onıñ icadında da yañı bir basqıç oldı.
-İ. Ablayev — Qarasuvbazar ustalarınıñ nesilindendir.
+İ. Ablayev — Qarasuvbazar ustalarınıñ neslindendir.
 Onıñ qartbabası ve babası belli quyumcılar ediler.
 Ablayev nesiller arasındaki bağlarnı saqlayaraq, bütün ğayretini qırımtatar quyumcılıq sanatınıñ ğayrıdan tiklenüvine bere.
 İ. Ablayev qırımtatar ustalarınıñ ziyade sevgen ve ananeviy tehnikası.
@@ -467,32 +467,32 @@ Ablayevniñ eserleri — bediiy ve tehnikiy ceetten tam nushalardır.
 Kümüş ve melhior bilezlikler, küpeler, quşaq toqaları ve ilâhre eşyalardan usta acayip dülberlikte taqınçaqlar taqımını toplay.
 Olarnıñ şiiriy adları yalıñız olarnıñ taşığan manasını ve müellifniñ ilham vaziyetini bildireler ("İnce bel", "Bağça-eli", "Leylâ").
 Ablayev ananeviy olğan çeçek tepsiçikler, sarmaşqan filisler şekillerini ve örnek mevzularını şahsiy özüniñ şekillerinen yañılata.
-Meselâ, usta bazı taqınçaqlarğa "Bağçasaray çeşmesi" mevzusını kirsete — alqa şekilindeki küpeniñ ortası kök taşçıq — köznen süslendirilgen, ondan aşağı ise salqımçıqlar — tamçılar salınıp turalar.
-İ.Ablayevniñ icadında dualıqlar ayrıca yer almaqtalar.
+Meselâ, usta bazı taqınçaqlarğa "Bağçasaray çeşmesi" mevzusını kirsete — alqa şeklindeki küpeniñ ortası kök taşçıq — köznen süslendirilgen, ondan aşağı ise salqımçıqlar — tamçılar salınıp turalar.
+İ. Ablayevniñ icadında dualıqlar ayrıca yer almaqtalar.
 Bir zamanlarda qırımtatar milliy urbalarnıñ müim bir qısmı olğan dualıqlar, usta tarafından ğayrıdan tiklenip, kene de halqnıñ ananeviy turmuşına kirmekteler.
-İ.Ablayevniñ eserleri Cumhuriyet qırımtatar sanat müzeyinde, Qırım cumhuriyet ülkeşınaslıq müzeyinde, Berlinde Cian halqları medeniyeti müzeyinde saqlanmaqtalar.
+İ. Ablayevniñ eserleri Cumhuriyet qırımtatar sanat müzeyinde, Qırım cumhuriyet ülkeşınaslıq müzeyinde, Berlinde Cian halqları medeniyeti müzeyinde saqlanmaqtalar.
 2000 senesi Aqmescitte İ. Ablayevniñ ötkerilgen şahsiy sergisiniñ ekspozitsiyasında seyircilerniñ diqqatını "Altın beşik" filigranlı miniatürası özüne celp etti.
 Bu eserniñ peyda oluvı temsiliydir.
-Bu müellifniñ yalıñız dülber qırımtatar efsanesine taqlid degildir; bu, yañıdan canlanayatqan ve Vatanına qaytqan halqnıñ öz-özüni tasdiqlaması içün zarur olğan medeniyetniñ de obrazıdır.
+Bu müellifniñ yalıñız dülber qırımtatar efsanesine taqlit degildir; bu, yañıdan canlanayatqan ve Vatanına qaytqan halqnıñ öz-özüni tasdiqlaması içün zarur olğan medeniyetniñ de obrazıdır.
 Halq ustalarınıñ qadimiy qanunları boyunca, usta esnaf ğayıp olmaması içün, özünden soñ şegirt qaldırmaq borclu edi.
 İ. Ablayevniñ şegirtleri bar, olardan birisi onıñ oğludır.
 
 Enver Ablayev 1973 senesi doğdı, P. Benkov adına Cumhuriyet bediiy oquv yurtunıñ kiramet bölügini bitirdi, al-azırda Qırım etnografiya müzeyinde maden boyunca restavrator olıp çalışa.
 2000 senesi mayıs ayında kence Ablayevniñ olıp keçken şahsiy sergisi, Enver aileviy ananelerniñ devamcısı olmaqle bir sırada, em mustaqil, professinal quyumcı-ressam olğanını tasdiqladı.
 E. Ablayevniñ icadına em ananeviy, em avangard üslüpleri hastır.
-O, evelki ustalarnıñ eyi qazançlarından faydalanaraq, olarğa zemaneviy insannıñ dünya-baqışı ve didini kirsete.
+O, evelki ustalarnıñ eyi qazançlarından faydalanaraq, olarğa zemaneviy insannıñ dünya-baqışı ve damını kirsete.
 Ablayevniñ baqır ve melhiordan işlegen topuzları, küpeleri, kulonları özleriniñ özgünligi ve zemaneviy dizaynı ile diqqatnı celp eteler.
 Onıñ çelterli eşyaları — bu nazik filigran örnekleri olmaqnen bir sırada, ifadeli, tılsımlı örnek asıl etken, canlı sızıqlardır.
 E. Ablayev öz eserlerinde ümüt etilmegen çeşit materiallarnı birleştire, meselâ, madenniñ elegantlığını, kirametniñ sıcaqlığınen birleştire.
 Neticede özgün ve endi şekillengen ustanıñ yañı ve özgün taqınçaqları peyda olalar.
-Qırımdan tışta tasil alğan qırımtatar quyumcıları milliy ananelerden üzülgen alda şekillendiler
+Qırımdan tışta tasil alğan qırımtatar quyumcıları milliy ananelerden üzülgen alda şekillendiler.
 Bundan itibaren soñki yıllarda öz Vatanına qaytayatqan ameliy sanat ressamları qadimiy qırımtatar quyumcılıq sanatınıñ ananelerini ögrenmege ve ğayrıdan tiklemege areket eteler.
-Al-azırda eñ müimi üzülgen devirler bağını ğayrıdan tiklemektir, eski ustalar mükemmel menimsegen şekil ve tehnologiyalarnı ögrenmektir
+Al-azırda eñ müimi üzülgen devirler bağını ğayrıdan tiklemektir, eski ustalar mükemmel menimsegen şekil ve tehnologiyalarnı ögrenmektir.
 Madenden işlengen eşyalar qırımtatar halqı turmuşınıñ ayırılmaz bir qısmı edi.
 Sürgünlik devirinde halqta olğan bütün maden, şu cümleden altın ve kümüş taqınçaqlar da çekip alındı.
 Qırım müzeylerindeki quyumcılıq eşyaları kollektsiyalarınıñ taliyi bundan eyi degil edi.
 1944 senesinden soñ qırımtatar quyumcılıq sanatınıñ unikal kollektsiyaları Yalta tarihiy müzeyinden, Bağçasaray Hansaray müzeyinden gayıp oldılar.
-Halq sanatınıñ başqa bir çeşiti — toqulmacılıq episinden yahşı saqlanıp qaldı.
+Halq sanatınıñ başqa bir çeşiti — toqumacılıq episinden yahşı saqlanıp qaldı.
 Bediiy toqumacılıq keniş darqağan esnaf çeşiti olaraq, saqlamaq içün oñaytlı, ayrıca şaraitler talap etmegeni sayesinde, eyi alda saqlanıp qalmaq qısmet oldı.
 Qırımtatar toqumacılıq eşyaları sabıq SSSR müzeyleriniñ toplamlarında şimdi de mevcuttır, olar anda çeşit yollarnen tüşkenler — qırımtatar sanatı açıq-aydın ögrenilgen zamandaki ekspeditsiyalarnıñ neticesinde; ya da Qırımnıñ kollektsiyaları yuqarıdan berilgen emirlerge binaen, boşatılğan zamanda, o vaqıt bu eksponatlar çeşit başqa müzeylerge, ekseriyet Moskva ve Leningrad müzeylerine berile turğan.
 Qırımtatar medeniyetiniñ diger maddiy şaatları kibi, toqumacılıq eserleri de çoq yıllar devamında müzeylerniñ zapasniklerinde saqlanıp, yat közlerden gizli tutulğan.
