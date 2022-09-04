@@ -1,4 +1,4 @@
-## Beşinci bab — Deveniñ boynında çañ
+## Beşinci bab — Deveniñ boynunda çañ
 
 Barakqa keldim.
 Saat endi on.
@@ -6,7 +6,7 @@ Saat endi on.
 Amma yuqu kelmedi.
 Divardaki teneke saatke köz ettim.
 Zıncırına eki anahtar asılğan.
-Küçük divar saati bu qadar küçlü davuş çıqara bilir dep tüşünmegen edim.
+Küçük divar saatı bu qadar küçlü davuş çıqara bilir dep tüşünmegen edim.
 
 Paromğa eski tros berilgen.
 O sebepten üzüldi: taq-tuq...
@@ -25,7 +25,7 @@ Onı reberlik niçün nizamğa çekmey aceba?
 taq-tuq! taq-tuq!
 
 ...Gece kovşnıñ yipi üzülmegen olsa, belki bu qadar yorulmaz edim.
-Çuqurğa tüşte-çıq, tüşte-çıq... 
+% Çuqurğa tüş de çıq, tüş de çıq...
 babam mında olsa: "sen dağlısıñ", der edi.
 Dağlı olsam ne?
 Çuqurnıñ terenligi otuz metr, çetleri tim-tik, ayaqlarıñ tutmay, tayıp yıqılasıñ...
@@ -58,7 +58,7 @@ Sarğuş qartiy.
 — Çabik?
 Qayda? — dep soradım men.
 
-— Anda adam öldüreyatalar! — qartiy aqsırıp aldı, soñ qarıq sesinen qıçırdı. 
+— Anda adam öldüreyatalar! — qartiy aqsırıp aldı, soñ qırıq sesinen qıçırdı.
 — Siziñkilerni öldüreyatalar.
 
 — Kimni?
@@ -74,13 +74,13 @@ Eki adım...— o başını qomşu barak betke qaqıttı.
 Rezina çızmalarımnı kiymek istedim, pek bılaşıq köründiler.
 Ayaqlarımnı hrom çızmalarımnıñ içine tıqıp, çaptım.
 Qartiy meni azbarda bekley edi.
-Ekinci aralıqnı keçken soñ, töpe-sinde fener yanayatqan qapunıñ ögünde toqtadı.
+Ekinci aralıqnı keçken soñ, töpesinde fener yanayatqan qapunıñ ögünde toqtadı.
 
 — Kir!
 Lâkin pek qızışma! — dedi o maña yavaştan, — anda Muşuq bar!
 
 Qapunı açtım.
-İçeri kirgenimnen mücize başladı...
+İçeri kirgenimnen mücize başlandı...
 Evelâ bir tahta parçası üstüne bastım.
 Tartılı tel sesi çıqtı.
 Egildim... polda gitara yata.
@@ -88,7 +88,7 @@ Egildim... polda gitara yata.
 Barak tıpqı bizimki kibi.
 İçinde sekiz koyka.
 Toz ve mahorka dumanı bir-birine qarışqan.
-Raqı ve balıq sosığından nefes tutula.
+Raqı ve balıq sasığından nefes tutula.
 Ortadaki stolnıñ bir ucunda Nikolay Kandıba otura.
 Diger ucunda — baqır çereli kişi... bir top saçı közleri üzerine tüşken, saqalına çoqtan ustra tiymegen.
 Üstünde uzun ton.
@@ -97,7 +97,7 @@ Nikolaynıñ mañlayı qanlı.
 
 Uzun ayaqlı qız bir-birine tirkevli eki krovatnıñ üstünde köndelen tüşip yatqan.
 Sarı saçları polnıñ üstüne sarqqanlar.
-Essizmi, sarğuşmı?
+Essizmi, saruşmı?
 Alla bilsin!
 Yanaşasında bir qız daa bar.
 Onıñ ögünde Arhipka....teneke meşrebeni qızğa uzatmaqta.
