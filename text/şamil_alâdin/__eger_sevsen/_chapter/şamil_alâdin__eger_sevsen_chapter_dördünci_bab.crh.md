@@ -199,37 +199,37 @@ Yıqıldım... bilesiñmi?
 Uçurumdan ayaqlarım qurtuldı, başlı-ayaqlı yuvarlanıp, özenge tüştim.
 Özü de dekabr ayı.
 Üstümde pamuq urba.
-Yahşı ki, suvnıñ quturğan vaqıtı degil edi, yoqsa çekip alıp keter edi.
+Yahşı ki, suvnıñ quturğan vaqtı degil edi, yoqsa çekip alıp keter edi.
 Başımnı taşqa nasıl urıp parlamadım, bilmeyim.
 Ecelim yetmegen eken.
-Zar-zorına yaldap çıqtım.
+Zar-zoruna yaldap çıqtım.
 Lâkin suvuqlanğanım.
 Özümiz çadırnıñ içinde yaşay, aşnı ise tışarıda, küçük ocaqta pişire edik.
 Dnepirdeki kibi degil...
 Anda geologlar içün mahsus barak bar edi.
 Soñundan men özüm ayrı kötecde yaşadım.
-Bir qısımında ecnebiy memleket mütehassısları, diger qısımında — biz edik.
+Bir qısmında ecnebiy memleket mütehassısları, diger qısmında — biz edik.
 
 Toqtabayev qapunı qapattı, soñ çöyün ocaq yanına kelip, qatranlı ellerini qızdırmağa tutundı.
 
 — Sen otur.
 Men şimdi saña episini añlatırım, — dedi o, — mında ilki partkomnıñ sekretarı kim edi?
 Men edim.
-Dnepr qurucılığında Toqtabayevnıñ mına böyle... balaban sureti asılı tura edi.
+Dnepr qurucılığında Toqtabayevniñ mına böyle... balaban süreti asılı tura edi.
 Ekskavatorcı edim.
 Çar-Çaqtaki maşinistlerniñ çoqusı andan keldi.
 Tursunov, Krasnânskaya, Almazov, men özüm.
 Lâkin dünyada elektrik stantsiyalarınıñ episini Dnepr ve Volga üstünde qura bermek mümkün degil.
-Şarqqa... meni işitesiñmi?
+Şarqqa... meni eşitesiñmi?
 Şarqqa da ketmek kerek.
 Bizim şarq, alâ qışlaqqa beñzey.
 Sanayı meselesinde pek ğarip: araba, eşek, çigir, ketmen...
 Maşina qayda?
 Biñ sene evel, on biñ sene evel adamlar topraqnı tıpqı böyle qazğan, böyle saçqanlar.
 Afrikadaki kibi.
-Bizge qışlaq ealisini — episini işçi sınıfı etrafına birleştirmek kerek. 
+Bizge qışlaq ealisini — episini işçi sınfı etrafına birleştirmek kerek.
 Nasıl?
-Olarğa traktor ve elektrik küçü berüv yolınen.
+Olarğa traktor ve elektrik küçü berüv yolunen.
 — Toqtabayev bu yerde toqtaldı, nelerdir tüşüngen kibi oldı, soñ başını doğrulttı: 
 — seniñnen kimse musaabe yapmadımı?
 
@@ -241,19 +241,19 @@ Men başımnı köndelenden salladım.
 — Yoq.
 Şadmanova da yapmadı.
 
-— Tevbe!
+— Tövbe!
 Böyle komsomol olurmı?
 Vatandaşlar muarebesi devrinde... ana komsomol qayda edi!
 Aç, çıplaq, üstünde yırtıq şinel, özü ep ögge yuvura edi.
 Şimdi yaşlar çeşit şeyler uydurıp çıqaralar.
 "Yengil kavaleriya", "Reyd brigadası", bilmem daa neler.
 Bu saña, eliñde vintovka, duşmanğa ücümge yuvuruvğa beñzemey, qardaş! 
-— Toqtabaev elini cebine soqtı, kisesini çıqarıp, sigar yasay boşladı. 
+— Toqtabaev elini cebine soqtı, kisesini çıqarıp, sigar yasay başladı.
 — Şimdi, elbette, devir başqa.
 
 O vaqıtta Toqtabayevnen olğan subetni şimdi hatrime ketirsem, taaciplenem.
 
-Munasebet kelgende, men: bizim devirimizdeki komsomol tamamınen başqa edi, deyim.
+Munasebetke kelgende, men: bizim devirimizdeki komsomol tamamınen başqa edi, deyim.
 Albu ise iş onda degil...
 Biz özümiz deñişe bere ekenmiz.
 Biz yaşlıqqa, endi eppi qartayğan közlerimiznen baqamız.
@@ -280,12 +280,12 @@ Ondan da ğayrı… pamuq ösemi?
 Topraqtan.
 Ebet!
 Yerden yüz biñlernen tonna azotnı çekip ala.
-Onsız ösüv mümkün degil.
+Onsuz ösüv mümkün degil.
 Evel biz kübreni qaydan ala edik?
 Ecnebiy memleketlerden.
 Azotnıñ tonnası bizge dört yüz kümüş altın parağa otura edi.
-İsap etip baq!
-Bir taraftan, Orta Asiyada, şarqta, işçi sınıfı meydanğa ketirmek içün zavodlar qurmaq, ekinci taraftan, pamuqnıñ topraqtan alğan ğıdasını qaytarıp bermek kerek.
+Esap etip baq!
+Bir taraftan, Orta Asiyada, şarqta, işçi sınfı meydanğa ketirmek içün zavodlar qurmaq, ekinci taraftan, pamuqnıñ topraqtan alğan ğıdasını qaytarıp bermek kerek.
 Ecnebiy memleket teminatından qurtulmaq içün, kombinat quracaq, anda kübre yasap çıqaracaqmız.
 Bu — kapitalizmge darbe.
 Perokoptakinden küçlü.
@@ -295,7 +295,7 @@ Toqtabayev artqa-ögge yürer eken, birden toqtaldı, quşağı astından küç�
 — Men anda cenk ettim... — dedi o, — aysa!
 Qızıl bayraq ordenim de bar.
 Ordenim bar, lâkin taqmayım, çünki maqtanğan adetim yoq.
-Er alda ondoquzıncı seneden berli partiya azasım.
+Er alda on doquzıncı seneden berli partiya azasım.
 Ne yerde olsam-olayım, birinci nevbette özümni kommunistim dep bilem.
 Boş vaqıtım olsa, mürekkep adiselerni, siyasiy momentlerni aytıp añlatmağa sevem.
 Kimge olsa-olsun.
@@ -312,8 +312,8 @@ Men başımnı aşağı egilttim.
 Toqtabayev bunı başqa manada añladı.
 
 — Sen darılma,— dedi, meni piyazlap,— men müitni añlatam...
-Aqiqiy bolşevik partiyanıñ ğayelerini halqqa yetkizmege borclı.
-Özüñniñ aziz borcıñnı başqasınıñ boynuna yükleycek olsañ, nasıl kommunistsiñ?
+Aqiqiy bolşevik partiyanıñ ğayelerini halqqa yetkizmege borclu.
+Özüñniñ aziz borcuñnı başqasınıñ boynuna yükleycek olsañ, nasıl kommunistsiñ?
 Saña doğrusını aytayımmı?
 Er kommunist teşviqatçı ve küreşçi olmaq kerek.
 Leninden misal alayıq.
@@ -351,12 +351,12 @@ Amma mında pek deşetli.
 Tek bu yerde!
 Geologlar zevqlı kişiler.
 Plotina qırqayaqnıñ yanında olmaq kerek dediler.
-Lâkin bunı olardan evel tabiat özü tain etken.
+Lâkin bunı olardan evel tabiat özü tayin etken.
 Qadim vaqıtlarda bu yerde Hanım degen kişi arıq qazğan.
 Şimdi arıqnıñ izi qarnen örtüli.
 Baarge çıqsaq, saña körsetirim.
 
-Toqtabayev saatine baqtı, çeresi deral deñişip ketti.
+Toqtabayev saatına baqtı, çeresi deral deñişip ketti.
 
 — Ketmek kerek.
 Yoqsa, ortağa kene "bülleten" kelip kirer.
@@ -379,4 +379,4 @@ Cenk yañı qozğalayata.
 Faşizm büyük zeval.
 Bizim devletimiz iç bir vaqıt onıñ qurbanı olmaycaq.
 
-Biñ doquz yüz qırq ekinci senesiniñ küzünde Mozdok cebesinde okopta yatqan vaqıtımda bu sözler hatirime kelgen ediler.
+Biñ doquz yüz qırq ekinci senesiniñ küzünde Mozdok cebesinde okopta yatqan vaqıtımda bu sözler hatrime kelgen ediler.
