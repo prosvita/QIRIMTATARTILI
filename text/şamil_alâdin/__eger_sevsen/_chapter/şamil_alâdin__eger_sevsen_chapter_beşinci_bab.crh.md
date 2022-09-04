@@ -106,8 +106,8 @@ Pol östünde boş şişeler, balıq quyruqları, sigar tüpçikleri yatalar.
 
 Muşuq...
 Kandıbanıñ qarşısında oturğan kişi eken.
-Hucur lağab.
-O bir közüniñ qıy-ığından maña baqıp aldı, soñ, Arhinkağa işaret etip, gizliden meni körsetti; közümni açıp-qapatqan arada Arhipka ögümde peyda oldı.
+Hucur lağap.
+O bir közüniñ qıyığından maña baqıp aldı, soñ, Arhinkağa işaret etip, gizliden meni körsetti; közümni açıp-qapatqan arada Arhipka ögümde peyda oldı.
 
 — Keldiñizmi, gusar? — dedi o, maña, artını sağğa-solğa burğuçlap, — qadınlar cemiyetini sağındıñız, öylemi? — şay degen soñ, baraknıñ qaranlıq köşesine köz etti. 
 — Züza, muzıka!
@@ -115,10 +115,10 @@ O bir közüniñ qıy-ığından maña baqıp aldı, soñ, Arhinkağa işaret et
 Züza?
 Bu kim?
 Üstünde tek maykası, çıplaq boynunda qara yipek bantı, arıq kişi.
-O, köşede arqasını divarğa tayap, tizleri üzerine garmonnı qoyıp, yuqsıramaqta edi.
+O, köşede arqasını divarğa tayap, tizleri üzerine garmonnı qoyıp, yuqusıramaqta edi.
 Müçesini qıbırdatmay, eki elini azaçıq kerdi, garmon ökürdi... özü ince sesinen yırladı:
 
-Şeerniñ bir yerinde, civarnda,
+Şeerniñ bir yerinde, civarında,
 
 İşçi ailesinde doğdım men.
 
@@ -129,13 +129,13 @@ Kandıba indemey yerinden qıbırdamay oturmaqta edi.
 
 — Sağ omuzıñnı doqsan derece aylandır da, qapuğa doğru adımla...
 Tez!
-Burunı boqlı kazak!
+Burnu boqlu kazak!
 Qanım tap miyime urdı.
 
 — Nasıl kazak dediñ? — ellerim öz başına sıqılıp, yumruq şekilini alğanlar.
 Duymadım.
 
-— Burunı bo...
+— Burnu bo...
 
 — Sen?
 Özüñ?
@@ -152,14 +152,14 @@ O añlatır!
 Böyle şaqa olmay...
 
 — Şaqa?
-Yeq... mende er şey ciddiy!
+Yoq... mende er şey ciddiy!
 
 — Öyle olsa... başından başlaymız! 
 — Nikolay onıñ elini boşadı, fufaykasınıñ ögüni çezip başlağan edi, Muşuq qaytıp yerine oturdı.
 
 — Yahşı...
 Biz daa körüşirmiz, — dedi Muşuq ve maña yumruğını körsetti.
-— Aqılıñda tut!
+— Aqlıñda tut!
 
 — Gusar bizde... barakta, — dedi Arhipka, — qaçmağa yeri yoq.
 
@@ -167,7 +167,7 @@ Ve eçki davuşınen küldi.
 
 — Ştanıñnıñ avını dögmele, — dedim men Arhipkağa, — insannıñ qusacağı kele...
 
-Böyle kergin müitta men, özümni qorqaq köstermemek içün, bir şeyler aytmaq kerek edim.
+Böyle kergin müitte men, özümni qorqaq köstermemek içün, bir şeyler aytmaq kerek edim.
 Ayta bilgenimni — ayttım.
 Doğrusı, Arhipkanen qavğa etmek degil de, tez-tez Nikolaynıñ mañlayındaki qannı silmek, onı qoltıqlap, özümizniñ barakqa alıp ketmek istedim.
 Bunı maña yaptırmadılar.
@@ -179,16 +179,16 @@ Bunı maña yaptırmadılar.
 — İlişe berme, Arhipka!
 Bıraq kişiniñ yaqasını! 
 — Bu, sarı saçlı qıznıñ sesi edi.
-O kevdesini azaçıq yuqarı köterdi, eki eliniñ tirseklerine tayandı, sarğuş közlerinen maña baqtı.
+O kevdesini azaçıq yuqarı köterdi, eki eliniñ tirseklerine tayandı, saruş közlerinen maña baqtı.
 Men, bana cansız alda yatqan bu qıznıñ şimdi dülber mavı közlerini körip, ayretke kelgen arada, caqıma qattı yumruq endi.
 Tentirep, eki-üç adım arqağa kettim, divarğa urunaraq, tayanıp qaldım.
 Başım aylandı, ayaqlarım zayıfladı, mına-mına yerge yıqılacaq edim.
 Amma, yıqılmadım.
 
-Mürekkep şaraitta özüñni tez elge almağa bilmek kerek.
+Mürekkep şaraitte özüñni tez elge almağa bilmek kerek.
 Onıñ içün beş saniye kâfi.
 Deral esimni başıma topladım.
-Kevdemni doğrultqan soñ, sağ elimnen Arhipkanıñ köküsinden üytedim, sol elimnen ise peçka ögündeki demir kürekni ilindirip aldım...
+Kevdemni doğrultqan soñ, sağ elimnen Arhipkanıñ köksünden üytedim, sol elimnen ise peçka ögündeki demir kürekni ilindirip aldım...
 Arhipka süründi, demir koykanıñ arqalığına urunıp, yerge yıqıldı.
 Lâkin tez-tez ayaqqa qalqtı.
 
@@ -200,7 +200,7 @@ Er şey bitip ketecekke beñzedi.
 Amma, yoq...
 Yanımda tekrar Arhipka peyda oldı.
 Qolunda finka...
-Muşuq bana maña yapqanı kibi, oña da külümsirep, başını salladı.
+Muşuq maña yapqanı kibi, oña da külümsirep, başını salladı.
 
 Tirsegimnen Nikolaynı artqa üytedim, stolnı qapqaç etip alıp, töpege köterdim — insan bu qadar quvetni qaydan ala, bilmeyim,— stolnı töpege... başımnıñ üstüne köterdim, Arhipkanıñ üstüne yiberecekte,
 onıñ ayaqları qıyıştı, vucudı yiberildi, yerge otura qoydı.
