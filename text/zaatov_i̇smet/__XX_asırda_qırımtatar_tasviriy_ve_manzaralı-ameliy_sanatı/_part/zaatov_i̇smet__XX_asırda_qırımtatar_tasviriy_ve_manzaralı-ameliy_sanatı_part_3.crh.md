@@ -611,7 +611,7 @@ Rombğa bazıda gül dey ediler, bazıda filis ve boynuzğa beñzegen elementler
 
 Kölemlice baqqanda, romb — yer bereketi ğayesiniñ temsiliy ifadesidir.
 O, sadelik, tertip, aqiqatnı aks ettirgen temelli strukturanı tasvirlegen.
-L.V.Petrenko qayd etkeni kibi turkmen ve kavkaz kilimlerindeki romblar qırımtatar evciyarlarında rastkelgen romblarğa oşaylar.
+L.V. Petrenko qayd etkeni kibi, turkmen ve kavkaz kilimlerindeki romblar qırımtatar evciyarlarında rastkelgen romblarğa oşaylar.
 Kerçekten de, Avrasiya türk tilli qabileleriniñ umumiy bediiy mirasınen bağlı olaraq, elementlerniñ tamırı birdir, lâkin, adı añılğan müellif qayd etkeni kibi, elementniñ "tarantulnen" alıp berecegi yoq.
 "Filisli" rombnıñ negizinde — ayvanlarnı (quş ve qoylarnı) qorçalayıcı mevzular ile qadimiy qabile temsilleridir.
 Bu elementler ayvanasrayıcı türk tilli qabilelerniñ sanatına hastır.
@@ -619,7 +619,7 @@ Qırımtatar toqumacılığında olarnıñ saqlanıp qalınuvı qırımtatar san
 Örnekler eski tiplerini saqlap qalaraq, dekorativ deñişmelerge oğradılar, ve bunıñnen bütün qırımtatar sanatınıñ hususiyetlerini aks ettirdiler.
 
 Daa bir keniş darqağan mevzu — "üçköşelik" (halq arasında — "üçköşe"), yerniñ meyva bergen küçleri erkek ve qadın cınıslarnıñ temsili olğan rombdan peyda ölgan şekildir.
-Meselâ, kelinniñ ciyezi sarılğan boğçalarnıñ köşelerinde de üçköşelikler nağışlanğanı tesaduf degildir.
+Meselâ, kelinniñ ciyezi sarılğan boğçalarnıñ köşelerinde de üçköşelikler nağışlanğanı tesadüf degildir.
 
 Örnekli toqumacılıqta ekseriyet doğru, yatıq, dalğalı sızıqlar işlete turğanlar.
 Antik devirlerden belli "meandra" mevzusı da sıq rastkele.
@@ -647,19 +647,19 @@ Neticede yazı öz manasını ve emiyetini yoq etip, adiy örnekke çevirilgen.
 Şunı da qayd etmeli ki, böyle allar tek caillikniñ neticesinde olmayıp, sanatnıñ başqa çeşitlerinde de em yalıñız qırımtatarlarda degil, başqa musulman halqlarnıñ sanatında da yüz bergen.
 Mimarcılıq dekorında, kilim ve kirametlerde yapılğan arap yazıları vaqıt keçken sayın üslüpleştirilgen ve oqulmağan harakter taşıp başlaylar.
 Olarnıñ oqulması mecbur degil edi.
-Bu alnı "yazı belgi olaraq, yañğırağan nutqqa nisbeten, ziyade emiyetke malik edi..., arap yazısınıñ belgiler vazifesine konkret malümatnı bermekten gayrı, onıñdaa büyük vazifesi bar — Qurannıñ sözlerinden mücessemleşken, samimiylik tili olğan arap yazılarnıñ muqaddes vazifelerini eda etmekteler.
+Bu alnı "yazı belgi olaraq, yañğırağan nutqqa nisbeten, ziyade emiyetke malik edi... arap yazısınıñ belgiler vazifesine konkret malümatnı bermekten ğayrı, onıñ daa büyük vazifesi bar — Qurannıñ sözlerinden mücessemleşken, samimiylik tili olğan arap yazılarnıñ muqaddes vazifelerini eda etmekteler.
 İlle arap elifbesi, onıñ formal hususiyetleri oquycını ya da adiy seyircini başqa seviyedeki degerliklerge yollaylar...".
 Qırımtatar milliy nağışlarındaki yazılar, mimarcılıq dekorındaki yazılar kibi, olarnıñ mündericesine baqmadan, em süslendirici rol oynağanlar, em "bu yadikârlıqlar ille musulman diniy cemiyetlerge ait olğanını tasdiqlağanlar".
 
 Bazıda yazılar terbiyeviy harakter de taşığanlar.
-meselâ, YE. Spasskaya yüzbezlerdeki yazılarnıñ tercimelerini bere: "Ekiyüzlü, fikirsiz, ahmaq insan şeyniñ tek tışqı qıyafeti ve şekilini begene", "Biz, bütün degerliklerniñ negizi olğan qadınlar, onıñ içün bir şey degilmiz", "Bar da, böyle ahmaq ve cailge özüñni begendir, muqaddeslikniñ dadını bilmegen kimsege bütün muqaddes varlığıñnı ber".
+Meselâ, Ye. Spasskaya yüzbezlerdeki yazılarnıñ tercimelerini bere: "Ekiyüzlü, fikirsiz, ahmaq insan şeyniñ tek tışqı qıyafeti ve şeklini begene", "Biz, bütün degerliklerniñ negizi olğan qadınlar, onıñ içün bir şey degilmiz", "Bar da, böyle ahmaq ve cailge özüñni begendir, muqaddeslikniñ dadını bilmegen kimsege bütün muqaddes varlığıñnı ber".
 Böyle yazılar olarnıñ tek musulman sanatına ait olğanını tasdiqlamaqtan ğayrı, qadınnıñ cemiyetteki vaziyetini harakterizley.
-Şuña emin olmaq mümkün ki, bu yazılarnı bilgili.şeerli qadınlar yapqanlar, böyle al köyde olabilecegine inanmaq küç.
+Şuña emin olmaq mümkün ki, bu yazılarnı bilgili, şeerli qadınlar yapqanlar, böyle al köyde olabilecegine inanmaq küç.
 
-Kolorit — qırımtatar nağış istisalı deviriniñ işançlı şaatıdır: resimniñ boyası qattı reglamentirlengen edi.
+Kolorit — qırımtatar nağış istisalı devriniñ işançlı şaatıdır: resimniñ boyası qattı reglamentirlengen edi.
 Mavı, sarı, beyaz tüsler XVIII asırnıñ eşyalarına ait; mavı, sarı, qırmızı — HVІІІ-HІH asırlarğa; qırmızı, sarı, qara — XIX asırnıñ ekinci yarısına ait edi.
 
-Bunıñnen birlikte, YE. Spasskaya qayd etkenine köre, "tatar qadınlarınıñ sevgen tüsleri — nazik renklerniñ açıq aenkleri: gülgüli-yeşilli, mavımtılı-sarılı, dep saymaq mümkün; qaramtıraq renkler de rastkeleler, lâkin olarnı da açıqça, altın ve kümüş yiplernen yımşatalar...
+Bunıñnen birlikte, Yе. Spasskaya qayd etkenine köre, "tatar qadınlarınıñ sevgen tüsleri — nazik renklerniñ açıq aenkleri: gülgüli-yeşilli, mavımtılı-sarılı, dep saymaq mümkün; qaramtıraq renkler de rastkeleler, lâkin olarnı da açıqça, altın ve kümüş yiplernen yımşatalar...
 Örnekniñ ayrı elementi bir ya da birqaç tüsnen nağışlanması mümkün edi.
 Meselâ, çeçekniñ bir yaprağı bir tüs, qalğanları — başqa tüsnen işlene bile".
 Bu qaydlar, qırımtatar nağışınıñ koloristik harakteristikaları sıñırsız olıp, nağışçı usta qadınlar temelleşken qaidelerge riayet etmeknen bir sırada, öz isteklerine köre, çeşit renklerni işletip mustaqil icat etkenlerini tasdiqlamaqta.
@@ -670,10 +670,10 @@ Ayvan ve ösümliklerden asıl olğan tabiiy boyalar azırlav sırları qırımt
 Boyalarnı ösümliklerniñ tamır, pıtaq, qabuğı, yapraq, çeçek ve meyvalarından azırlay ediler.
 Boyanıñ keyfiyeti, tüsniñ qoyulıgı ösümlikniñ cıyılğan vaqtına (yıl mevsimi, sutkanıñ qaysı saatinde), saqlav şaraitlerine, işletilgen tehnologiyağa bağlı edi.
 Taze ösümliklernen boyalansa, ötkür, intensiv renkler ola; qurutılğan otlarnen ise — renkler tınıq ola edi.
-Boyanı tuttırmaq içün köktaş, saçqıdrız, şap ya da ekşiliklerden faydalanğanlar.
-Aynı bir boya çeşit tuttırıcılar ile iştelgen alda başqa-başqa tüsler asıl etken, tuttırıcı az miqdarda işletilse açıq tüs, ziyade işletilse — qoyu tüsler olğan.
+Boyanı tutturmaq içün köktaş, saçqıbrız, şap ya da ekşiliklerden faydalanğanlar.
+Aynı bir boya çeşit tutturıcılar ile iştelgen alda başqa-başqa tüsler asıl etken, tutturıcı az miqdarda işletilse açıq tüs, ziyade işletilse — qoyu tüsler olğan.
 Boyalanmağan yiplerniñ tüsü — bej ya da açıq-qaverenkli olğan.
-Boyacı ustalar yerli ösümliklerden pijma, çobanotu, qılıçotu, ebengomeç ve saire otlardan faydalanğanlar.
+Boyacı ustalar yerli ösümliklerden pijma, çobanotu, qılıçotu, ebengömeç ve saire otlardan faydalanğanlar.
 Toqumacılıqta sıq rastkelgen sarı tüs — şafran boyasınıñ neticesidir, amma onıñ paalılığından sebep, ekseriyet barbaristen işlengen boyadan faydalanğanlar, bazıda adiy soğan qabuqlarını işletkenler.
 Qara boya nar qabuqları ya da cevizniñ yeşil qabuqlarından asıl olğan.
 Qırmızı boyanı sandal teregi ya da çeşit aşeratlardan yapqanlar.
@@ -713,7 +713,7 @@ Amma dağlı ve yalıboyu tarafında da (qaverenkli-qaralı tüsler) rastketiril
 "Atma qıbrız" tehnikası Qıbrızdan kelmelidir.
 Qıbrız çeşiti Qırımnıñ yalıboyunda keniş işletilgen, onıñ vastasınen çoq tüslü mürekkep kompozitsiyalar yaratılğan.
 Örnek yipleri basmanıñ üstüne tegiz yatıp, onıñ üstüni tolusınen qapata ediler — "maqat" toqumacılığı adı da bundan kelip çıqqandır.
-Buña beñzegen toqumacılıq tehnikası Şarqiy Aqdeñiz boyunda yaşagan deyerlik ep halqlarda rastkele.
+Buña beñzegen toqumacılıq tehnikası Şarqiy Aqdeñiz boyunda yaşağan deerlik ep halqlarda rastkele.
 
 Qırımnıñ dağlı-yalıboyu qısımında "tahtalı" tehnikası keniş darqalğan edi.
 Bu tehnika çeşitinde, de yüz, de ters tarafından almaşıp renkli yipler töşemesinden örnek teşkil etken, tahtaçıqtan faydalanıla.
@@ -723,7 +723,7 @@ Bu tehnikanı sofra örtüleri, peştmallar toquğanda işletkenler.
 "Çilter" tehnikası ösümlik ve mimarcılıq kompozitsiyalarnı toqumağa pek oñaytlı edi.
 
 "Töpeli" tehnikası çeşiti yuqarıda qayd etilgen çeşitler sırasında eñ az ögrenilgendir.
-Saqlanıp qalğan vesiqalı menbalar ve fotomateriallarğa köre malüm ki, bu tehnikada biri-birine yaqın yatqan yiplerden eki taraflı örnek yaratılgan.
+Saqlanıp qalğan vesiqalı menbalar ve fotomateriallarğa köre malüm ki, bu tehnikada biri-birine yaqın yatqan yiplerden eki taraflı örnek yaratılğan.
 "Töpeli" tehnikasınıñ "atma qıbrız" tehnikasından farqı şunda ki, mında örnek qoşulğan alda degil de, negizniñ sade yiplerinen ayırılğan alda toqulğan.
 Şunıñ içün de o, "tahtalı" tehnikasına yaqındır.
 "Töpeli" tehnikası urbalar ve dekorativ basmalarnı yaraştırmaq içün işletilgen.
@@ -736,7 +736,7 @@ Arap tilinde — faydalı olmaq, qırımtatar tilinde — evni yaraştırmaq (c�
 Bezlerniñ bu çeşiti hususan qırımtatar turmuşında keniş darqağan edi.
 Evciyarlarnen savut rafları, odalarnıñ divarları ve ilâhre yaraştırılğan.
 Evciyarlar kelin ciyeziniñ bir qısımını teşkil etip, kelinniñ ustalığı ve eyiallığı aqqında malümat bergen.
-Zengin kelinniñ boğçasında 400-500, fuqareniñ — 200-300 nağışlı bezi olğan (68, s. 230).
+Zengin kelinniñ boğçasında 400-500, fuqareniñ — 200-300 nağışlı bezi olğan.
 Qorantada qız bala doğğanınen, ciyezi azırlanıp başlana edi, söz kesim ve toy arasında ise bu ceryan avcına yete edi: bu devir tahminen yarım yıl devam ete, qorantanıñ bütün qadınları işke kirişip, zarur sayıda nağışlar azırlanğan.
 
 Yüksek keyfiyetli işlev tehnikası, resimniñ ifadeligi ile ayırılıp turğan, eñ keyfiyetli toqulğan evciyarlar Qırımnıñ daglı Şarq tarafında yapıla ediler.
