@@ -787,7 +787,7 @@ XIX asırnıñ soñuna ve XX asırnıñ başına ait qırımtatar qadın-qızlar
 Çıqarılğan yeñqapaqlar trapetsiya şekilinde olıp, paalı basmalardan, ekseriyet, qoyu-vişne tüsteki qadifeden tikile edi.
 Astarı atlastan tikile, bilekni qattı sarıp tutması içün, yeñ qapaqnıñ içine kâğıt qoyulğan.
 Yeñqapaqlar ösümlik örneklerinen (beş, yedi, sekiz yapraqlı üsüpleştirilgen lâleler) mıqlama ve qasnaq tehnikasında işlengen.
-Yeñqapaqlarnıñ çetleri altın yipli sicim ile çevrelengen.
+Yeñqapaqlarnıñ çetleri altın yipli sıcım ile çevrelengen.
 
 Altınnen işlengen urbalar onıñ saibiniñ içtimaiy ve maddiy vaziyetiniñ köstergiçi edi.
 Erkekler, qadınlar, balalar kiygen qısqa tonçıqlar pek zengin süslendirilgenler.
