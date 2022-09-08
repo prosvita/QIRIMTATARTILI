@@ -792,34 +792,34 @@ Yeñqapaqlarnıñ çetleri altın yipli sıcım ile çevrelengen.
 Altınnen işlengen urbalar onıñ saibiniñ içtimaiy ve maddiy vaziyetiniñ köstergiçi edi.
 Erkekler, qadınlar, balalar kiygen qısqa tonçıqlar pek zengin süslendirilgenler.
 Tonçıqlar qadifeden tikilgenler.
-Altın nağış yeñlerinde, arqasında, omuzlarında, köküsinde işlengen örnegi ananeviy ösümlik tasvirleri edi.
+Altın nağış yeñlerinde, arqasında, omuzlarında, köksünde işlengen örnegi ananeviy ösümlik tasvirleri edi.
 Burğuçlanğan filisler bütün zeminni qaplap, bazıda ayrı badem ve çeçeklerge ayırıla edi.
 
-Tedqiqatçılar burğuçlı örnekte Vizantiyanıñ tesirini köreler.
-İran ve Türkiye sanatınıñ tesirini ise, olarda keniş darqağan "badem" örnegi mında de mevcutlığınen añlatalar.
+Tedqiqatçılar burğuçlı örnekte Bizansnıñ tesirini köreler.
+İran ve Türkiye sanatınıñ tesirini ise, olarda keniş darqağan "badem" örnegi mında dа mevcutlığınen añlatalar.
 
 Ananeviy baş kiyimi — fesler de altınnen işlengenler.
 Cumhuriyet qırımtatar sanat müzeyinde mevcut altın fes bütünley altınnen işlengen, töpeliginde sekiz yapraqlı çeçek, çetlerinde de aynı bu çeçek, amma ufaqça, yanında da iri kertikli yapraqlar işlengen.
 
 Cumhuriyet qırımtatar sanat müzeyiniñ qıymetli eksponatlarından biri — XX asırğa ait bayramlıq anteridir.
-J, qoyu-mor yipek atlastan tikilgen, "qasnaq" tehnikasında altın sicimnen işlengen.
-Sicim elde pukülgen ve anterniñ üstüne ösümlik örnegi şekilinde tikilgen.
-İşleme yolaqnen anterniñ bütün ögünden yaqasına köterile, oymasını aylana; aşağasında anterniñ eki kenarındaki yırıqları da altın sicimnen yaraştırılğan.
+О, qoyu-mor yipek atlastan tikilgen, "qasnaq" tehnikasında altın sıcımnen işlengen.
+Sıcım elde bükülgen ve anterniñ üstüne ösümlik örnegi şeklinde tikilgen.
+İşleme yolaqnen anterniñ bütün ögünden yaqasına köterile, oymasını aylana; aşağısında anterniñ eki kenarındaki yırtıqları da altın sıcımnen yaraştırılğan.
 
-Erkek urbaları da altın sicimnen yaraştırılğan.
-Cumhuriyet qırımtatar sanat müzeyiniñ kollektsiyasında XX asırnıñ başına ait milliy erkek kostümi mevcut — yüksek yaqalı qısqa tonçıq, dogru balaqlı ştan.
-Tonçıqnıñ bütün ögü ve yeñqapaqları altın sicim ile gırjıva kibi işlengen.
+Erkek urbaları da altın sıcımnen yaraştırılğan.
+Cumhuriyet qırımtatar sanat müzeyiniñ kollektsiyasında XX asırnıñ başına ait milliy erkek kostümi mevcut — yüksek yaqalı qısqa tonçıq, doğru balaqlı ştan.
+Tonçıqnıñ bütün ögü ve yeñqapaqları altın sıcım ile ğırсıva kibi işlengen.
 Örnekniñ esas elementleri — boyunda işlengen dalğalı sızıqlar, olarğa qoşma olaraq adiy çeçekler işlengen.
 
 Altınnen işlengen ğayet populâr eşyalardan biri — kiseler edi.
-Kiselerni, adeti üzre, qadınlar, yaş qızlar öz aqayları ve nişanlılarına tikkenler, şunıñ içün de kiseler ekseriyet qadın şekilinde olğanı tesaduf degildir.
-Sanatta qadın şekiliniñ tasvirlenüvi tarihiy tamırlarnen bağlıdır.
+Kiselerni, adeti üzre, qadınlar, yaş qızlar öz aqayları ve nişanlılarına tikkenler, şunıñ içün de kiseler ekseriyet qadın şeklinde olğanı tesadüf degildir.
+Sanatta qadın şekliniñ tasvirlenüvi tarihiy tamırlarnen bağlıdır.
 Buña oşağan mevzular keniş Avrasiya regionınıñ terrakot plastikasında közetileler, olar Allanıñ qadın qıyafeti ğayesinen bağlıdır.
 Qırımtatar sanatında bu şekilniñ saqlanıp qaluvı islâmdan evelki sanat ananeleriniñ qaviyliginiñ delilidir.
 İhtimal, bu ananeler, antik devirde Qırımnıñ qadimiy ealisi tabınğan Qıznıñ obrazına barıp yetedir.
 
 Kise, adeti üzre, dört qısımdan ibaret ola.
-Ög ve art qısımı ve eki yan tarafı, olar içine tikilgeni içün körülmeyler, amma kisege acimli şekil bereler.
+Ög ve art qısımı ve eki yan tarafı, olar içine tikilgeni içün körülmeyler, amma kisege kölemli şekil bereler.
 Kiseniñ yuqarı qısımına, onı quşaqqa bağlamaq içün, yip tikile.
 Şunı mıtlaqa qayd etmeli ki, kiseniñ ğayet mürekkep zemini burğuçlı ve ösümlik örnegi büyük ustalıqnen işlengen.
 
@@ -828,7 +828,7 @@ Böyle eşyalarnı Kezlevde işlegenler.
 Kiseniñ zemini çiftlengen boyuncaqlarnen nağışlanğan.
 Tikici usta boş yer qaldırmamağa tırışqan, çünki islâm tasviriy ananeleri boyunca, boşluq yasaq etilgen.
 Mezkür kiseniñ örnegi, qırımtatar manzaralı sanatı ananeleriniñ üzülmegenini ve çeçek ya da bardaq içinde çeçek tasviri orta asırda eñ keniş darqağan mevzu olğanını tasdiqlay.
-Bunıñle birlikte, örnekniñ belli bir derecede sadeligi sanat saviyesiniñ yavaş-yavaş tüşkeni aqaqında da delâlet bere.
+Bunıñle birlikte, örnekniñ belli bir derecede sadeligi sanat saviyesiniñ yavaş-yavaş tüşkeni aqqında da delâlet bere.
 
  1991 senesi Aqmescit şeerinde "Qırımtatar nağışı — qadife üstünde altın işlemeni ğayrıdan tiklev" leyhasınıñ çerçivesinde "Örnek" küçük işhanesiniñ bazasında onıñ teşkilâtçısı S. Memetovnıñ ve Qırımtatar medeniyetini ğayrıdan tiklev boyunca koordinatsion merkeziniñ teşebbüsi ile milliy nağış kursları açıldı.
 Moskvadan davet etilgen 3. Bekirova Aqmescitten, Bağçasaraydan, Canköyden, Sudaqtan istek bildirip kelgen yaş ustalarğa ders berdi.
@@ -844,36 +844,36 @@ Altın işlemeler boyunca istidatlı usta Dilâra Galaktionova (Hasanova), (1929
 Onıñ eserleri tek Otra Asiya müzeylerinde degil de, Baltıqboyu, Almaniya, Amerikada da özüne lâyıq yer almaqtalar.
 D. Galaktionova kilim ve gobelenler kibi pek çoq altın nağışlı eserlerniñ müellifidir.
 Usta, qırımtatar toqumacılıq ananelerini devam eterek, öz eserlerine zemaneviy professional ressamnıñ dünyabaqışı ve ğayelerini kirsete.
-"Baht quşı", "Cennet quşları" kibi renkli kompozitsiyalar — bu örnekli, temsilli mevzularnıñ quş, ayvan, çeçeklerniñ real tasviri ile birleştirilgen eserlerdir.
+"Baht quşu", "Cennet quşları" kibi renkli kompozitsiyalar — bu örnekli, temsilli mevzularnıñ quş, ayvan, çeçeklerniñ real tasviri ile birleştirilgen eserlerdir.
 
 Tedqiqat etilgen materiallarnıñ talili qırımtatar nağışı üslübiniñ esas çizgilerini belgilemege imkân bere.
 Bu — örnek mevzularını seçüvde, çeçek, ösümlik elementlerine — yapraq yollağan ince pıtaçıqlarğa, üslüpleştirilgen çeçek tepsiçiklerine — üstünlik berile.
 Musulman sanatınıñ hususiyetleri, işte, bunda ifadeleneler.
 Alla yaratqan dülberlikniñ temsili olğan çeçek mevzuları, cennet bağçası yeteçki rol oynağanlar.
 Qırımtatar çeçek örneginde yengil abstraktsiya olmaqnen bir sırada, özüniñ hususiyetleri de bar.
-Meselâ, mevzudan gayet tış İran örneginden farq eterek, onıñ resimlerinde Qırım tabiatınıñ prototipleri tanılıp turmaqta.
+Meselâ, mevzudan ğayet tış İran örneginden farq eterek, onıñ resimlerinde Qırım tabiatınıñ prototipleri tanılıp turmaqta.
 Nağışnıñ kompozitsiyası simmetriya qanunlarına qattı riayet ete, simmetriyanıñ merkezi çeçek, umumiy kompozitsiyada neytral zeminge müim rol ayırıla, bu ise nağış resimine hafiflik ve yengillik bağışlay.
 
 ### 3.4. KİLİM TOQUMACILIĞI
 
 Ayvanasravcılıq hocalığı, zengin hammal bazası (yüksek keyfiyetli yün mevcutlığı) Qırımda kilim toqumacılıq saasınıñ inkişafını belgilediler.
 Al-azırda biz tek çeşit kilimler aqqında tasavurğa malikmiz.
-Bu tüysiz, palasqa oşağan kilim.
-Yazma menbalar ve körgen-bilgenlerniñ malümatlarına köre, Qırımda tüylü kilimler de toqulğan, lâkin asırnıñ başında bu esnaf yalıñız tüylü asma torbalar yasav derecesine tüşti.
-Qırım müzeylerindeki tüylü kilimlerniñ tedqiqatı neticesinde, olar qırımtatar degil de, Kavkazda toqulğan, kilimler olğanı belli oldı.
-Cumhuriyet qrımtatar sanat müzeyiniñ hadimleri kilim toqumacılıq nümünelerini qıdıruv boyunca iş alıp barmaqtalar.
+Bu tüksüz, palasqa oşağan kilim.
+Yazma menbalar ve körgen-bilgenlerniñ malümatlarına köre, Qırımda tüklü kilimler de toqulğan, lâkin asırnıñ başında bu esnaf yalıñız tüklü asma torbalar yasav derecesine tüşti.
+Qırım müzeylerindeki tüklü kilimlerniñ tedqiqatı neticesinde, olar qırımtatar degil de, Kavkazda toqulğan, kilimler olğanı belli oldı.
+Cumhuriyet qırımtatar sanat müzeyiniñ hadimleri kilim toqumacılıq nümünelerini qıdıruv boyunca iş alıp barmaqtalar.
 Bu mevzu açıq ve ciddiy ögrenüv seviyesinde bulunmaqta.
-1996-1997 seneleri TİKA Türkiye investitsiya agentligi ve Qırımtatar halqı Meclisi tarafından tüylü kilim toqumacılığı kursları teşkil etilip, işbu bir yıllıq oquvnı tahminen 20 adam bitirdi.
+1996-1997 seneleri TİKA Türkiye investitsiya agentligi ve Qırımtatar halqı Meclisi tarafından tüklü kilim toqumacılığı kursları teşkil etilip, işbu bir yıllıq oquvnı tahminen 20 adam bitirdi.
 
-2000 senesi Cumhuriyet qırımtatar sanat müzeyiniñ hadimleri L. Tevfiqova ve L. Ğafarova ananeviy qırımtatar örnekleri esasında zemaneviy qırımtatar tüylü kilimi içün bir sıra örnek eskizleri işledi.
-Kurslarnı bitirgen ve yüksek dağlar arasında yerleşken Kokköz köyüniñ "Kokköz" adlı Qırımtatar esnaflar müzeyinde kilim toqumacı olıp çalışqan Zeynep Musayeva Cumhuriyet qırımtatar sanat müzeyiniñ hadimleri işlegen eskizleri boyunca, ihtimal soñki 100-150 yıl içinde ilki qırımtatar tüylü kilimini toqudı.
-Onıñ kölemi 160 sm h 220 sm.
-Ebet, tüylü kilim toqumacılığı esnafını tiklev boyunca işler endi başlanmaqta.
+2000 senesi Cumhuriyet qırımtatar sanat müzeyiniñ hadimleri L. Tevfiqova ve L. Ğafarova ananeviy qırımtatar örnekleri esasında zemaneviy qırımtatar tüklü kilimi içün bir sıra örnek eskizleri işledi.
+Kurslarnı bitirgen ve yüksek dağlar arasında yerleşken Kokköz köyüniñ "Kokköz" adlı Qırımtatar esnaflar müzeyinde kilim toqumacı olıp çalışqan Zeynep Musayeva Cumhuriyet qırımtatar sanat müzeyiniñ hadimleri işlegen eskizleri boyunca, ihtimal soñki 100-150 yıl içinde ilki qırımtatar tüklü kilimini toqudı.
+Onıñ kölemi 160 sm x 220 sm.
+Ebet, tüklü kilim toqumacılığı esnafını tiklev boyunca işler endi başlanmaqta.
 Bu işte Cumhuriyet qırımtatar sanat müzeyi ve "Kokköz" qırımatatar medeniy-etnografik merkezi esas rol oynamaqtalar.
 
 Kilim toqumacılığı yalıñız qırımtatar esnafı degil.
-Bugünde-bugün kilim istisalı Orta Asiyada, Kavkazartında, Ukrainada, Türkiyede, Mısırda, Bulğaristanda, Romaniyada, Moldaviyada bellidir.
-Olarnıñ mevcutlığını ta XI asırda Mahmud Qaşğari qayd etken, o, kilim — bu örnekli çarşaf, kilimnen pol ve divarlarnı qapatalar, dep yazğan.
+Bugünde-bugün kilim istisalı Orta Asiyada, Kavkazartında, Ukrainada, Türkiyede, Mısırda, Bulğaristanda, Romaniyada, Moldоvada bellidir.
+Olarnıñ mevcutlığını ta XI asırda Mahmud Qaşğarlı qayd etken, o, kilim — bu örnekli çarşaf, kilimnen pol ve divarlarnı qapatalar, dep yazğan.
 
 Kilim atqı yipleri negiz yipleriniñ arasından kirsetilip, mürekkep çatışuvlar vastasınen toqula.
 Ekseriyet yün, bazıda ise pamuqtan toqula.
