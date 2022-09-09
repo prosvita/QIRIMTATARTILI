@@ -1373,7 +1373,7 @@ Seithalilovnıñ eserleri manalı ve müncericeli, olarnı sabırnen seyir etmek
 Ekseriyet, bu lakonik, umumiyleştirilgen şekiller degil de, "tertipli" plastik kompozitsiyalardır.
 Olar qaramanlar, mimarcılıq parçaları, peyzaj elementleri ve turmuş detallerinden ibaret olıp, parlaq bediiy obrazlar yaratalar.
 
-F.Seithalilov — umumiy ve şahsiy sergilerniñ daimiy iştirakçisi, 1995 senesinden berli Ukraina Ressamları birliginiñ azası.
+F.Seithalilov — umumiy ve şahsiy sergilerniñ daimiy iştirakçısı, 1995 senesinden berli Ukraina Ressamları birliginiñ azası.
 
 Şamil İlyasov (1960 s.), professional kirametçi-ressam.
 1984 senesi Duşanbe ressamlıq oquv yurtunıñ kiramet bölügini bitirdi.
@@ -1384,10 +1384,10 @@ III Bütünittifaq bediiy icadiyatınıñ mukâfatını qazandı (1989 s.).
 Esasen şamot ile çalışa.
 Bir sıra kamer plastik kompozitsiyalar yarattı — "Dostlar" (1986 s.), "Deve üstünde oğlan" (1993 s.), "Navrez" (1994 s.), "Tuvğan viranelerniñ sadası" (1998 s.).
 Ş. İlyasovnıñ çamurdan yasalğan oyuncaqları — ömürden alınğan qaramanlardır — qartiy, çoban-bala.
-Alışqan eşyalarımıznıñ arasında tasvirlenip, olar, balalarğa has yumor ve şohlıq ile ikâye etilgen manzaralı janr levhalarına çevirileler.
+Alışqan eşyalarımıznıñ arasında tasvirlenip, olar, balalarğa has yumor ve şohluq ile ikâye etilgen manzaralı janr levhalarına çevirileler.
 
-Rustem Yaqubov (1966 s.) 1985 senesi P.Benkov adına Cumhuriyet bediiy oquv yurtunı bitirdi, bir qaç yıllar bediiy kombinatta icracı-eykeltıraş olaraq çalıştı.
-1988 senesi A.Ostrovskiy adına teatr-bediiy institutına kirdi.
+Rustem Yaqubov (1966 s.) 1985 senesi P. Benkov adına Cumhuriyet bediiy oquv yurtunı bitirdi, bir qaç yıllar bediiy kombinatta icracı-eykeltıraş olaraq çalıştı.
+1988 senesi A. Ostrovskiy adına teatr-bediiy institutına kirdi.
 Onı bitirgen soñ, 1993 senesi Taşkentte "Gelios" küçük işhanesiniñ baş ressamı oldı.
 1994 senesi R. Yaqubov Qırımğa köçti.
 Kirametçiniñ eñ eyi işleri sırasına şerbet toplamı (eki eşya, 1989 s.), "Kaktuslar" dekorativ plastikası (1989 s.), "Nar" şıralar içün içimlik toplamı (1990 s.) kireler.
@@ -1401,7 +1401,7 @@ Seit-Ametov kirametke ayırıca sevgi besley.
 Bir qaç yıl evelsi, çölmekçi ustanıñ çalışqanını ilk kere körip, o, bu zenaatqa sevda ola.
 Abdülniñ arzusı yıllar keçken soñ amelge keçti.
 Seit-Ametovnıñ kiramet eşyaları yahşı tanıla.
-Onıñ kaşpo, vaza, bardaqları turmuş savutları çerçevesinden çıqalar.
+Onıñ kaşpo, vaza, bardaqları turmuş savutları çerçivesinden çıqalar.
 Olarnıñ degerligi — şekillerniñ alelhusus plastikliginde, siluetlerniñ nefasetligindedir.
 Usta renkli sırnı işletmey, pişken çamurnıñ sıcaq aenkini saqlamağa tırışa, ya da tütetüv usulınen nazik kultyus-qara aenk asıl olmasına irişe.
 Kiramet eşyalarınıñ süslenüvi minimum ola — bardaq ve çereplerniñ üstünde ya da tabaqlarnıñ kenarında yengil oymalar.
@@ -1412,7 +1412,7 @@ Abdül Seit-Ametov ve Rustem Yaqubov özgün ressam ve kirametçiler olmaqnen bi
 
 1999 senesi aprel ayında Halqara "Vozrojdeniye" fondu Qırımtatar sanatı müzeyi esasında "Çamur örnekleri" balalar kiramet mektep-studiyasını tesis etti.
 Studiya çalışqan eki yıl içinde onıñ ustahanesinden çeşit millet vekillerine ait 200-ge yaqın bala keçti.
- studiya oquv ceryanı basqıç-basqıç alıp barılgan nazariy ve ameliy meşğuliyetler esasında qurulğan, balalar başta jivopis, resim, yasamalarnıñ esaslarını ögreneler, soñra kiramet istisalınıñ usullarını — qalıplav, tezya başında iş, pişirüv, süslev işlerini menimseyler.
+Studiya oquv ceryanı basqıç-basqıç alıp barılğan nazariy ve ameliy meşğüliyetler esasında qurulğan, balalar başta jivopis, resim, yasamalarnıñ esaslarını ögreneler, soñra kiramet istisalınıñ usullarını — qalıplav, tezya başında iş, pişirüv, süslev işlerini menimseyler.
 Tehnikiy bilgiler qırımtatar manzaralı-ameliy sanatınıñ ananelerini ögrenüvnen pekitileler.
 A. Seit-Ametov, R. Yaqubov ve studiyanıñ yolbaşçısı F. Asanova işlep çıqqan programma standart oquv ceryanını teklif etmey, o, bundan da müim — ögretmek ve terbiyelemek kibi vazifeler qoya.
 
@@ -1421,24 +1421,24 @@ Olarğa olarnıñ yaş zenaatdaşları ve şegirt lerine keçmişteki ustalarnı
 
 ### 3.6. ESNAFLARNIÑ DİGER ÇEŞİTLERİ
 
-X öncilik istisalı — Qırımda keniş inkişaf etken saa edi.
-Saqlanıp qalgan gön eşyaları ve olarnıñ parçaları şunı tasdiqlaylar ki, mında teri işlev (tabanacılıq) qadimiy zamanlardan tanış edi.
-Göncilik istisalı, ameliy sanatnıñ diger çeşitleri kibi, qullanılğan tehnikiy usullar ve materiallarnen sıqı bağlı edi.
+Göncülik istisalı — Qırımda keniş inkişaf etken saa edi.
+Saqlanıp qalğan gön eşyaları ve olarnıñ parçaları şunı tasdiqlaylar ki, mında teri işlev (tabanacılıq) qadimiy zamanlardan tanış edi.
+Göncülik istisalı, ameliy sanatnıñ diger çeşitleri kibi, qullanılğan tehnikiy usullar ve materiallarnen sıqı bağlı edi.
 Qırımtatarlarnıñ ayvanasravcılıq hocalıqları, hususan Qırımnıñ çöl tarafında, bu soy esnafnıñ inkişafına qoltutqan.
-XX asırnıñ başında Qırımda pek çoq göncilik zavodları ve ustahaneleri ölgan.
+XX asırnıñ başında Qırımda pek çoq göncülik zavodları ve ustahaneleri ölgan.
 Olarda teriden işlengen savutlar, qutular, torbalar, ayaqqaplar, quşaqlar ve daa bir sıra turmuş eşyaları çıqarıla edi.
 Tericilik tsehleri büyük, keñ binalardan ibaret olıp, sepi, boya, qurutmaq içün ayrı odaları olğan.
 Azbarda qazılğan çuqurlar, çetleri çamurnen sılangan, ya da taş fıçılar yerleştirile, mında kireçli suvda eçki ya da qoyun terileri sılatıla edi.
-Cibigen terilerni yününden temizlep, kireçi yuvula, sepi maddelerinde tutılıp, soñ boyalana ve, niayet, culâlana edi.
+Cibigen terilerni yününden temizlep, kireçi yuvula, sepi maddelerinde tutulıp, soñ boyalana ve, niayet, culâlana edi.
 
 Teriler eskicesine işlene edi.
-Tek bazı işhanelerde istisalnı mehanizleştirip başladılar (yuvmaq ve culâlamaq).
+Tek bazı işhanelerde istisalnı mehanizmleştirip başladılar (yuvmaq ve culâlamaq).
 Eger evel teriler qolnen, adiy qızılçıq çubuğınen culâlansa, asırnıñ başında ise culâlav işleri içün, üç adam hızmet etken, mahsus maşina işlete ediler.
-O yıllarda qayd etkenlerine köre, "mehanizleştirüv ve kooperirlenüv Bağçasaraynıñ esnafçılıq sanayısındaki inqılâptır".
+O yıllarda qayd etkenlerine köre, "mehanizmleştirüv ve kooperirlenüv Bağçasaraynıñ esnafçılıq sanayısındaki inqılâptır".
 
 Elyazma kitapları halq idrakiniñ hazinesidir, olar asırlar terenliginden sadalar köterip, zemaneviy oquyıcığa halqnıñ tarihı aqqında malümat bereler.
 Pergament, teri ve kâğıt negizinde yapılğan pek çoq elyazma kitaplar da sanat eserleri, insan icadınıñ mahsulıdır.
-Ayrıca er bir qolâzma kitap oquyıcınıñ diqqatını özüne celp ete, ögrenüv ve tedqiqat inşaatına çevirile.
+Ayrıca er bir qolyazma kitap oquyıcınıñ diqqatını özüne celp ete, ögrenüv ve tedqiqat inşaatına çevirile.
 
 Cıltçılıq — sepicilik istisalınıñ ayrı bir saası edi.
 Bu saa XVII ve XIX asırlarda gürdeli inkişaf ete.
@@ -1496,7 +1496,7 @@ Teesüf ki, bizim turmuşımızdan böyle eşyalar ğayıp olıp keteler.
 
 Böyleliknen, qırımtatar esnaflarınıñ ananeviy çeşitleri inkişafınıñ közden keçirüvi aşağıdaki hulâsalarnı çıqarmağa esas bere:
 
-Asırnıñ başında ananeviy esnaflar deyerlik yüksek bediiy-tehnikiy seviyede saqlanğanlar.
+Asırnıñ başında ananeviy esnaflar deerlik yüksek bediiy-tehnikiy seviyede saqlanğanlar.
 Halq ustalarınıñ eşyaları olar yüksek professional seviyede olğanı aqqında delâlet bereler.
 Amma buña baqmadan, endi ekinci onyıllıqta ciddiy inqıraz başlana.
 Onıñ sebebi — 1921-22 seneleri Qırımdaki büyük açlıq ve içtimaiy-siyasiy vaziyettir.
@@ -1570,7 +1570,7 @@ Al-azırda qırımtatar icadiy ziyalıları, Qırımda tarihiy ve bediiy degerli
 Qullanmanıñ müellifi, özüne has hususiyetleri çeşit basqıçlarda çeşit-türlü açılğan qırımtatar medeniyeti inkişafınıñ umumiy yönelişi ve mantığını taqdim etmege tırışa.
 
 Qırımtatar sanatınıñ başından yükselüv ve tüşkünlik devirleri keçti.
-İnkişaf böyle tüzemsiz olğanı tesaduf degil.
+İnkişaf böyle tüzemsiz olğanı tesadüf degil.
 Qırımtatar medeniyeti Qırım, Türkiye, Rusiye, Avropada yüz bergen içtimaiy-iqtisadiy, tarihiy vaqialarnen sıq bağlı edi.
 Bu beyan etilgen materialnıñ strukturasını da belgiledi.
 Material çeşit noqtaiy-nazardan baqıldı — tarihiy közden keçirüv, sanatşınaslıq talili, monografik tedqiqat.
