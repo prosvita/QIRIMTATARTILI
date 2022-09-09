@@ -1174,11 +1174,11 @@ Ta qadimiy devirlerde kiramet Qırım yarımadasında yaşağan adamlarnıñ aya
 Kiramet, utilitar saa sıfatında peyda olıp, yavaş-yavaş estetik emiyetke de malik oldı.
 Savut-saba bay evlerniñ interyeriniñ yaraşığı olıp başladı; dekorativ kiramet, şu cümleden, oymalar — mimarcılıqnıñ adiy ifadeli vastasından monumental sanat seviyesine köterildi.
 
-1926 senesi Kefe ve Aluştanıñ yalıboyundaki qadimiy qırımtatar köylerinde N.S.Barsamov yolbaşçılıq yapqan keniş arheologik razvedka ötkerilgen edi.
-Çeşit yerlerde (Qapsihorda) VІIІ-ІH asırğa ait kiramet sobaları tapıldı.
-A. Yakobson Çoban-Qulle etraflarında VIIІ-ІH asırlarğa ait yigirmiden ziyade kiramet sobası taptı.
+1926 senesi Kefe ve Aluştanıñ yalıboyundaki qadimiy qırımtatar köylerinde N.S. Barsamov yolbaşçılıq yapqan keniş arheologik razvedka ötkerilgen edi.
+Çeşit yerlerde (Qapsihorda) VІIІ-ІХ asırğa ait kiramet sobaları tapıldı.
+A. Yakobson Çoban-Qulle etraflarında VIIІ-ІХ asırlarğa ait yigirmiden ziyade kiramet sobası taptı.
 1957 senesi ise Qanaq deresinde (Üsküt köyü) çölmek pişirgen eki soba taptı.
-Kene de Qanaq deresinde 1961-1962 seneleri SSSR İlimler Akademiyası Arheologiya institutınıñ M. A. Fronjulo yolbaşçılığındaki Qırım ekspeditsiyasında üç çölmek (urk) sobasını tapqan edi.
+Kene de Qanaq deresinde 1961-1962 seneleri SSSR İlimler Akademiyası Arheologiya institutınıñ M. A. Fronjulo yolbaşçılığındaki Qırım ekspeditsiyasında üç çölmek (ürk) sobasını tapqan edi.
 Sobalar bayırlarda, özen yalılarında, yahşı keyfiyetli çamur qatlamları esapqa alınıp, qurula edi.
 
 Çoban-Qullede tapılğan sobanıñ misalinde Qırım çölmek sobalarınıñ tışqı körünüşini ve konstruktsiyasını tiklemek mümkün.
@@ -1194,13 +1194,13 @@ Ocaq temizlengende kül obası içinden VІІІ-ІH asırğa ait tübleri töger
 Aynı o çuqurda tapılğan başqa kirametniñ arasında erte orta asırğa ait bir qaç parçanı qayd etmek mümkün.
 Bu — tegiz ve yolaqlı kiramet parçaları, büyük ve küçük pifoslarnıñ tac, ayaq parçalarıdır.
 Qol matarasınıñ boğazı ve sapları ile bir parçası tapıldı, matarınıñ tapılğan kenar qısmınıñ çeti qırmızı boyalı girlândalarnen süslendirilgen.
-Büyük gügümniñ tacı ve parmaq basılğan tegiz sapınıñ parçaları qızıl çamurdan yasalğan tüz tübli savutlarnıñ aşağı qısımları bulundı.
+Büyük gügümniñ tacı ve parmaq basılğan tegiz sapınıñ parçaları qızıl çamurdan yasalğan tüztübli savutlarnıñ aşağı qısımları bulundı.
 Yakobson yazğanı kibi, Çoban-Qulle kibi esnaf merkezlerinden amforalarnı tek yalıboyu köylerine degil de, Qırımdan tışqa da alıp kete ediler.
-Olar qırımtatarlarğa qardaş, türkiy qabilelerniñ arasında darqay edi.(A.Yakobson.Srednevekovıye gonçarnıye peçi v rayone Sudaka.).
+Olar qırımtatarlarğa qardaş, türkiy qabilelerniñ arasında darqay edi.(A. Yakobson. Srednevekovıye gonçarnıye peçi v rayone Sudaka).
 
 Qanaq deresindeki çölmek sobasınıñ qazılmalarında bulunğan süslengen çeşit kiramet, Qırım çölmekçileriniñ mahsulatı Cenübiy-Şarq Avropanıñ çeşit rayonlarına (Don ve Şimaliy Kavkaz) alıp ketilgeni aqqında meseleni kötermege imkân bere, çünki andaki qazılmalarda da böyle kiramet tapılğan.
 
-ХІІІ-ІХ asırlarda bardaqlarnıñ kütleviy istisalı Cenübiy-Şarq Qırımda yüzümcilik ve şarapçılıq saalarınıñ gürdeli inkişafınen bağlıdır.
+ХІІІ-ІХ asırlarda bardaqlarnıñ kütleviy istisalı Cenübiy-Şarq Qırımda yuzumcilik ve şarapçılıq saalarınıñ gürdeli inkişafınen bağlıdır.
 Zan etsek, bu zamanda amforalar, antik devirde olğanı kibi, ekseriyet, şarap savutı olaraq qullanılğan ve bu sıfatta da mahsulatınen beraber deñiz ve özenler boylap darqağan.
 
 ХІV-ХV asırlarda yarımadada yerli savutlar istisalı inkişaf ete.
@@ -1208,8 +1208,8 @@ O, Vizantiya ananelerine meil berse de onıñ Şarq dekorativ sanatına yaqınl�
 
 O devirde Qırımnıñ kiramet istisalı merkezlerinden biri Aluston (şimdiki Aluşta) edi.
 Mında 1992 senesi Orta-Qulleniñ qazılmalarında nomay kiramet parçalarınıñ arasında eki saan bulundı.
-Saanler — kіsek bediiy eserlerdir, olarnıñ çoq detalli mürekkep ve nazik örneklerini qayd etmeli.
-Umumen alğanda, bu eşyalar numayış harakterniy taşıylar ki, sini de qızıl çamurdan yasalğan.
+Saanler — yüksek bediiy eserlerdir, olarnıñ çoq detalli mürekkep ve nazik örneklerini qayd etmeli.
+Umumen alğanda, bu eşyalar numayış harakterni taşıylar ki, sini de qızıl çamurdan yasalğan.
 Tübleri alqalı, beyaz angob üstüne polihrom tökülgen.
 Tapılğan parçalarnıñ koloritinde sarı, qaverenkli tüsler üstünlik eteler.
 Soñra bu tüsler qırımtatar kirameti içün hususiy renklerge çevirilecek.
@@ -1217,10 +1217,10 @@ Soñra bu tüsler qırımtatar kirameti içün hususiy renklerge çevirilecek.
 Aluston qazılmalarında tapılğan kirametniñ arasında, quş ve ayvanlar tasvirlengen eşyalar sıq rastkeleler.
 Quş resimleri olğan böyle örneklerni İznik şeeri (evelki Nikeya, Türkiye) kirametinde de rastketirmek mümkün.
 Bu erte osmanlı kirameti "Millet eşyaları" adınen bellidir.
-(F. Zare. Keramika islamskih vremön iz Mileta.).
-Bu eşyalardaki quşlar uçqan alda, yuvada oturğan, yüzüm yapraqları arasında, bir-birine qarşı oturğan alda tasvirlengenler.
+(F. Zare. Keramika islamskih vremön iz Mileta).
+Bu eşyalardaki quşlar uçqan alda, yuvada oturğan, yuzum yapraqları arasında, bir-birine qarşı oturğan alda tasvirlengenler.
 İşbu üslüp XIII ve XIV asırlarğa ait Vizantiya kirametinde tasvirlengen quş şekillerinden büs-bütün ayırıla.
-Qırım kirameti Vizantiya kirametinden renk ceetinden de farq ete (D.Talbot Rays.Vizantiyskaya keramika.).
+Qırım kirameti Vizantiya kirametinden renk ceetinden de farq ete (D. Talbot Rays. Vizantiyskaya keramika).
 Söz sırası, Cumhuriyet qırımtatar sanat müzeyiniñ ekspeditsiyası Dobrucadan ketirgen qırımtatar ustalarınıñ ХVІІІ-ХІХ asırğa ait nağışlarında da quşlar tasviri çoq rastkele.
 Quş tasvirleri qırımtatar torevtikasında da rastkele (Qırımtatar sanat müzeyiniñ fondlarında üstlerinde quş ve balıqlarnıñ siluetleri oyulğan gügümler saqlanmaqta).
 
@@ -1231,7 +1231,7 @@ Sinilerniñ episinde tüstavuqlar solğa çevirilgenler, olarnıñ bedenleri inc
 Qursaqları qabarğan, perçemli başları qısıq boyunları üstünde, aşağıdaki qanatları ğayet şekillengen (ekseriyet yolaq ya da örmelernen süslengen); yuqarıdaki qanatları, borsuq quyruğı kibi, ucları quvurılğan şekilinde şeritlernen süslengen.
 Quşnıñ er yeri de qaverenkli, de yeşil renklernen süslengen.
 
-Şunı da qayd etmek kerek ki, 1984-1994 seneleri Aluston qalesi territoriyasında tapılğan kiramet istasalı qalımtılarnıñ tedqiqat neticeleri, aşağıdakilerni faraz etmege esas bere.
+Şunı da qayd etmek kerek ki, 1984-1994 seneleri Aluston qalesi territoriyasında tapılğan kiramet istasalı qalımtılarnıñ tedqiqat neticeleri, aşağıdakilerni farz etmege esas bere.
 Şeerniñ şimaliy qısmında XIV asırnıñ ekinci yarısında, ekseriyet, açıq şekilde savutlar çıqarılğan, "sgraffito" örnekli suvarılğan kiramet istisalı boyunca ustahane çalışqan.
 Anda bir usta çılışqan, ihtimal, bir qaç şegirti ya da yardımcısı olğan.
 Bu adam, zan etsek, evel bu şeerde kimse meşğul olmağan suvarılğan kiramet istisalını yoluna qoymaq maqsadınen başqa yerden kelgen ustadır.
@@ -1249,12 +1249,12 @@ Mahsulatnı ucuzlatmaq maqsadınen, ekseriyet, eşyalarnı süslemey — monohro
 Bunıñnen birlikte, oyuq zemin keniş işletilip başlandı.
 O, çanaq ya da sininiñ içindeki tegizlikte qoşma, sıcaq qaverenkli aenk yaratmaqnen bir sırada (sini sırı, zemin terenletkende angob alıp taşlanğan soñ, bivasta kiramet üstüne töküle), ekseriyet, örneklengen resimlerde de relyeflik yarata edi.
 XIV-XV asırlarğa ait Solhat ve Kefe kirameti, işte, böyledir.
-Söz sırası, o, Rumıniya ve Bulğaristanda — qırımlılırğa qardaş türkiy qabileler yaşağan Ğarbiy Qaratopraq boylarınıñ bediiy kirametine pek yaqındır (Ştern E.R. Feodosiya i yeyo keramika.).
+Söz sırası, o, Rumıniya ve Bulğaristanda — qırımlılаrğa qardaş türkiy qabileler yaşağan Ğarbiy Qaratopraq boylarınıñ bediiy kirametine pek yaqındır (Ştern E.R. Feodosiya i yeyo keramika).
 
 1980 senesi Kefeniñ şimaliy-ğarp civarlarında Baybuga özeni yalılarında Altın Orda devirine ait şeerniñ bir qısmı qazılğan edi.
 Tedqiqat etilgen yadikârlıqnıñ kiramet materialı bir qaç çeşitke bölüne: yemek pişirilgen ve aşalğan suvarılmağan kiramet, qızıl çamur kirameti, tınıq sırlı kiramet, şamdan ve qandiller.
 Tedqiqat uçastkasında cemi 8 bütün savut ve qızıl çamurlı, suvarılğan savutlarnıñ 72 parçası tapıldı.
-Bundan da ğayrı, A malikanesiniñ ğarbiy binasındaki kiramet materialında yeşil sırlı, açıq renkli çamur savutınıñ parçası; şeerçikniñ köterilgen matarialında ise qızıl çamur savutınıñ qandil örnekli küçük parçası tapıldı.
+Bundan da ğayrı, A malikanesiniñ ğarbiy binasındaki kiramet materialında yeşil sırlı, açıq renkli çamur savutınıñ parçası; şeerçikniñ köterilgen matеrialında ise qızıl çamur savutınıñ qandil örnekli küçük parçası tapıldı.
 
  Qızıl çamurlı suvarılğan savutlar bir qaç şekilden ibarettir:
  angob üstünden tınıq sırnen qaplanğan, qalın ve ince sızıqlarnen sgraffito örnekli sini ve çanaqlar, pialalar;
@@ -1262,55 +1262,50 @@ Bundan da ğayrı, A malikanesiniñ ğarbiy binasındaki kiramet materialında y
 Olarnıñ saplarınıñ yuqarı qısmı yüksek boğazlarınıñ ortasına pekitilgen.
 Olar angob üstünden suvarılıp, boğazları oyma sızıqlarnen yaraştırılğan.
 Bu savutlar, Azaq (Azav) şeerinde yasalğan bir saplı gügümler tipine yaqın.
- (Perevozçikov, Klassifikatsiya arheologiçeskogo materiala zolotoordınskogo vremeni (po materialam raskopok i sborov 1960-1990-h godov)).
-
+ 
 Quvurçıqlı burumlar ve doğru sızıqlarnen süslengen, yeşil sırlı monohrom çanaqnıñ tapılğan tübü büyük meraq doğura (Tek bir parçası saqlanğan).
-Bu mevzu Azavnıñ monohrom çanaqlarınıñ süslenüvinde işletile (Romançuk, Perevozçikov, ris.8-30, 9-28, 10-29.Glazurovannaya keramika iz Azova).
-Böyle şekildeki çanaqlar qızıl çamurlı suvarılğan savutlarnıñ keniş darqağan tipidir, olar Azavnıñ Altın Orda devirine ait qatlamlarında rastkeleler.
+Bu mevzu Azavnıñ monohrom çanaqlarınıñ süslenüvinde işletile.
+Böyle şekildeki çanaqlar qızıl çamurlı suvarılğan savutlarnıñ keniş darqağan tipidir, olar Azavnıñ Altın Orda devrine ait qatlamlarında rastkeleler.
 Böyle çanaqlar yerli istisalınıñ kirametinden, şu cümleden, Kefede keniş taqdim etilgen.
 Sır astında sgraffito örnegi ile, ekseriyet, polihrom olalar.
 
 Sırı astında örnegi ölgan çanaqnıñ parçası da ğayet meraqlıdır, suvu tınıq, yeşil.
-Saqlanğan kenarınıñ örnegi beyaz angob ile yapılğan bir tarafqa doğrultılğan, azaçıq burulgan "tamçı"larnıñ eki sırasından ibarettir.
+Saqlanğan kenarınıñ örnegi beyaz angob ile yapılğan bir tarafqa doğrultılğan, azaçıq burulğan "tamçı"larnıñ eki sırasından ibarettir.
 Qoyu qarışmanen işlengen angob örnegi tek örnekni qabarıq degil de, savutnıñ üstüni de qabarıq köstere.
 
-Burulğan tamçılar şekilindeki örnekler kaşin çanaq ve sinilerniñ süslenüvinde de keniş qullanılğan.
+Burulğan tamçılar şeklindeki örnekler kaşin çanaq ve sinilerniñ süslenüvinde de keniş qullanılğan.
 Olarnıñ üstündeki resimlerniñ bu elementleri de azaçıq qabarğandır.
-Qırımğa kaşin savutları XIII asırnıñ soñunda XIV asırnıñ soñuna qadar, Volgaboyu şeerleri ve Orta Asiya merkezleri ile, sıqı alâqalar devirinde, şu cümleden, Saray ve Horezmden kelmesi mümkün edi
- (Babina YE. Kaşinnaya keramika iz Kafı).
-Qasabada tapılğan açıq şekildeki savutlarnıñ arasında, sgraffito örnekli ve monohrom sini ve çanaqlardan ğayrı, tübastı yüksek ya da alçaq, çetleri açıq, ince, dogru ya da azaçıq qayırılğan taclı, piala şekilindeki çanaqlar ayırılıp turalar.
-Olar angob üstünde sarı, yeşil sırnen qaplangan; angobsız tegizlik sarı sırnen boyalanğan, angob tegizligi sırlanğan.
+Qırımğa kaşin savutları XIII asırnıñ soñunda XIV asırnıñ soñuna qadar, Volgaboyu şeerleri ve Orta Asiya merkezleri ile, sıqı alâqalar devrinde, şu cümleden, Saray ve Horezmden kelmesi mümkün edi.
+
+ Qasabada tapılğan açıq şekildeki savutlarnıñ arasında, sgraffito örnekli ve monohrom sini ve çanaqlardan ğayrı, tübastı yüksek ya da alçaq, çetleri açıq, ince, dogru ya da azaçıq qayırılğan taclı, piala şeklindeki çanaqlar ayırılıp turalar.
+Olar angob üstünde sarı, yeşil sırnen qaplanğan; angobsız tegizlik sarı sırnen boyalanğan, angob tegizligi sırlanğan.
 Bu soy örnekli ve şekilli savutlar Qırımnıñ bir sıra yadikârlıqlarında, Altın Orda Azav materiallarında, Volgaboyu şeerlerinde XIV ve XV asırnıñ birinci yarısına ait qatlamlarında tapıldı.
 
 Baybuğa yalılarındaki (Kefe) qasabanıñ kiramet materiallarınıñ talili Qırımnıñ ögrenilgen ve neşir etilgen abideleri arasında unikal, dep saymağa esas bere.
 Bütün kiramet kompleksi Altın Orda deviriniñ Azav istisalında öz analogiyalarını tapa, bu ise umumen kompleksniñ XIV asırnıñ ekinci yarısı ve soñuna ait, dep qayd etilmesine esas bere.
 Süslerniñ bazı farqları, esasen suvarılğan kirametniñ sgraffitosınıñ Azav ve Volgaboyu analoglarından farqı ve, aksine, örneklerniñ Qırım merkezleri, hususan Kefe örneklerinen yaqınlığı, olar yerli, qırımlı olğanını tasdiqlay.
-Aybabinanıñ fikirine köre, qasabağa pek yaqın yerleşken Solhat (Eski Qırım) bu merkezdir
- (Aybabina YE.A. Keramika iz raskopok zolotoordınskogo poseleniya bliz Feodosii.)
-\\ "İstoriçeskiye svâzi Priçernomorya i Sredizemnomorya Х-ХVІІІ vv, s. 12, po materialam polivnoy keramiki").
-
+Aybabinanıñ fikirine köre, qasabağa pek yaqın yerleşken Solhat (Eski Qırım) bu merkezdir.
+ 
 Qırımda çıqarılğan kiramet eşyalarını Azaq qazılmalarınıñ materiallarında rastketirmek mümkün.
 Suvarılğan kirametniñ importında Azaqnıñ issesi ortaca 50-60 fayıznı teşkil ete.
 Qırım eşyaları Qırımnıñ cenübiy-şarq şeerleriniñ (Sudaq, Solhat, Kafa) mahsulatınen taqdim etilgen.
-Şekillenecek qarışmalar ğayet yımşaq, qumlı qarışmalar deyerlik yoq, irikireç qarışmaları tabiiydir.
+Şekillenecek qarışmalar ğayet yımşaq, qumlu qarışmalar deyerlik yoq, irikireç qarışmaları tabiiydir.
 Pişirmesi tegiz, kultyus-qaverenkli.
-Assortimenti ğayet çeşit: çanaq, sini, tarelka, çanaq, gügüm, basma örnekli gügümler, ilmekli saplı badiye şekilinde savutlar ve saire
- (İ.V.Belinskiy, A.N.Maslovskiy, İmportnaya polivnaya keramika Azaka XIV v).
-
-1664 senesi Balıqlavanı ziyaret etken orta asır türk entsiklopedisti E.Çelebiniñ aytqanlarına köre, XVII asırnıñ ortalarında Qadıköyniñ (Balıqlava) bütün ealisi tatarlıq (türkiy tilli) eken.
+Assortimenti ğayet çeşit: çanaq, sini, tarelka, çanaq, gügüm, basma örnekli gügümler, ilmekli saplı badiye şeklinde savutlar ve saire.
+ 
+1664 senesi Balıqlavanı ziyaret etken orta asır türk entsiklopedisti E. Çelebiniñ aytqanlarına köre, XVII asırnıñ ortalarında Qadıköyniñ (Balıqlava) bütün ealisi tatarlıq (türkiy tilli) eken.
 1992-97 seneleri Qadıköyniñ territoriyasında ötkerilgen arheologik tedqiqatlarnıñ neticesinde suvarılğan kiramet parçaları tapıldı.
 Bu — suvarılğan çanaq, sini, gügüm ve qumanlar.
 Eşyalar monohromlı, sarı, qaverenkli, yeşil renklerniñ çeşit aenklerinen suvarılğan, marganets ekşiligi qoşulğanı neticesinde eşyalar ekseriyet çubarlanğan.
 Mezkür territoriyanıñ orta asırlarğa ait inşaatlarnıñ hocalıq çuqurlarınıñ kompleksleri XIV ve XVIII asırnıñ birinci çerigine ait materiallar ile taqdim etilgen.
 Tapılğan brak kiramet parçaları, ocaq ayaqları — üç ayaqlı tiremeler — olardan suvarılğan savutlarnı pişirgende faydalana ediler, cam kibi qoyu-yeşil tüste şlak parçaları kiramet yerli istisalğa ait olğanını tasdiqlaylar.
 XIX asırnıñ soñunda ve XX asırnıñ başında Balıqlavanıñ kiramet istisalı Balıqlava buhtasınıñ yuqarısında mücesemleşken edi.
-(A.V.İvanov, O.Ya.Savelâ, A.A.Filippenko, Kompleks polivnoy keramiki srednevekovogo Kadıkoya).
 
 Qırımtatar kiramet sanatı, qomşu memleketler çölmekçilik istisalınıñ qazançlarını qabul eterek, yat medeniyetler tesirini sezerek, yerli kolorit, anane ve şahsiy dünyabaqışlarınen zenginleşerek, manzaralı-ameliy sanatınıñ başqa çeşitleri kibi, o da yükselüv ve tüşkünlik basqıçlarını başından keçirdi.
 XX asırnıñ başında kiramet saasını arteller, esnaf tsehleri sıfatında, ğayrıdan tiklemek areketleri yapıldı, lâkin qırımtatarlarnıñ ayatında yüz bergen siyasiy, iqtisadiy deñişmeler kirametniñ bediiy-utilitar degerlikleriniñ ğayıp oluvına alıp keldi.
 
 Cumhuriyet qırımtatar sanat müzeyi ve Aqmescit bediiy müzeyiniñ fondlarında saqlanğan kiramet eşyaları belki bediiy degil de, tarihiy maddiy nümüneler olaraq nisbeten ziyade meraq doğuralar.
-Bu, 20-30-ncı yıllarda sovet ükümetiniñ sanatına has üslüp ve yönelişlerini aks ettirgen artellerniñ kütleviy mahsulatıdır.
+Bu, 20-30-ncı senelerde sovet ükümetiniñ sanatına has üslüp ve yönelişlerini aks ettirgen artellerniñ kütleviy mahsulatıdır.
 O yıllarda eşyalarnıñ süslenüvi, ekseriyet, etrafımızdaki aqiqat manzaralarını, kommunistik temsillerni aks ettirüvnen sıñırlana edi.
 
 "Bağçasaray" vazası, — "İleri" arteliniñ mahsulatı — yalıñız tasviriy sanatta degil, manzaralı-ameliy harakterli eşyalarda da öz aksini tapqan "konstruktivizm"niñ aydın nümünesidir.
@@ -1324,27 +1319,27 @@ Bugünde-bugün Qırımğa qaytqan ressamlarnıñ ögünde unutılğan esnafnı�
 
 Belli ressam Mamut Çurlunıñ icadı özüniñ çeşitligi ve çoq taraflı olğanınen ayrette qaldıra.
 Kirametçilik — ressam icadınıñ daa bir meraqlı saası.
-M.Çurlu öz işlerinde halq sanatınıñ kütleviy mevzularından faydalana — gügüm, selbi, yüzüm pıtağı ya da salqımı.
+M. Çurlu öz işlerinde halq sanatınıñ kütleviy mevzularından faydalana — gügüm, selbi, yüzüm pıtağı ya da salqımı.
 Bu tasvirler qırımtatarlarnıñ maden, taştan yasalğan eşyalarında ve ananeviy toqumacılıqta sıq rastkeleler.
 Mamut Çurlunıñ manzaralı tabaqları şekil ve örneklerniñ uyğunlığı ile, sızıqlarnıñ de ösümlik örnegi, de mimarcılıq peyzajı, de arap yazılarını asıl etken tegiz ritmi ile diqqatnı özlerine celp eteler.
-Olar öz gamması ile kilimleriniñ sabırlı koloriti ile ve qırımtatar nağışınıñ gayet üygun renk birleşüvleri ile sesleneler.
+Olar öz gamması ile kilimleriniñ sabırlı koloriti ile ve qırımtatar nağışınıñ ğayet uyğun renk birleşüvleri ile sesleneler.
 Çurlu ananeviy Orta Asiya çamur oyuncağına muracaat ete.
-Usta yaratqan ufaq mahlüqlar, eski zamanlarda kibi hucur boyalangan olıp, insanlarnı qaza-belâlar.
+Usta yaratqan ufaq mahlüqlar, eski zamanlarda kibi hucur boyalanğan olıp, insanlarnı qaza-belâlar.
 
 Seitmemet Yaqubov professional kirametçiler sırasına kire.
 O, 1938 senesi Qırımnıñ dağlıq tarafında doğdı.
 1944 senesi olarnıñ qorantası Kostroma vilâyetine sürgün olundı.
 Soñra 1956 senesi Özbekistanğa köçti.
-Yaqubov P.Benkov adına Cumhuriyet bediiy oquv yurtunı bitirdi.
-1978 senesi A.Ostrovskiy adına teatr-bediiy institutınıñ bediiy kiramet bölügini bitirdi.
+Yaqubov P. Benkov adına Cumhuriyet bediiy oquv yurtunı bitirdi.
+1978 senesi A. Ostrovskiy adına teatr-bediiy institutınıñ bediiy kiramet bölügini bitirdi.
 1990-ncı yıldan berli Qırımda yaşay ve icat ete.
 
-S.Yaqubov turmuş ve manzaralı kiramet saasında çalışa.
+S. Yaqubov turmuş ve manzaralı kiramet saasında çalışa.
 Onıñ çay ve şerbet içün servizleri (çini, sır, altın) Orta Asiya kirameti tesiriniñ izlerini taşımaqtalar.
-Bunı añlamaq da mümkün, Yaqubov çoq yıllar devamında Taşkent Eksperimental-icadiy kombinatında küçük tiraj ve öriginal kiramet ressamı olaraq çalıştı.
+Bunı añlamaq da mümkün, Yaqubov çoq yıllar devamında Taşkent еksperimental-icadiy kombinatında küçük tiraj ve öriginal kiramet ressamı olaraq çalıştı.
 90-ncı yıllarda Yaqubovnıñ icadında, material ananeviy olğanına baqmadan, taşığan manası ceetten eykel kompozitsiyalarnı añdırğan eserler peyda oldılar.
 "Protsess" adlı işinde, büyük şar ve ondan ayırılğan bir kesekni ressam dünya, yer ve ondan qoparılğan, quvulğan halqnı — onıñ semetdeşlerine nisbeten vahşiylikni, işte, böyle tasvirley.
-S.Yaqubovnıñ kiramet kompozitsiyaları Özbekistan ve Qırımda cemaat binalarınıñ interyerlerini yaraştıralar ("Yır", "Yer seyyaresi" dekorativ vazaları, 1980-1990 ss.), raatlıq komplekslerine pek kelişeler ("Sahra gemileri", "Gece gülü", 1990 ss.), bazılarını Cumhuriyet qırımtatar sanat müzeyi satın aldı ("Protsess", 1990 s.).
+S. Yaqubovnıñ kiramet kompozitsiyaları Özbekistan ve Qırımda cemaat binalarınıñ interyerlerini yaraştıralar ("Yır", "Yer seyyaresi" dekorativ vazaları, 1980-1990 ss.), raatlıq komplekslerine pek kelişeler ("Sahra gemileri", "Gece gülü", 1990 ss.), bazılarını Cumhuriyet qırımtatar sanat müzeyi satın aldı ("Protsess", 1990 s.).
 
 İzzet Ablayevniñ (1940 s. d.) icadını talil eterek, ressamnıñ ampluasını belgilev meselesi pek qıyın olğanını köremiz.
 Onıñ icadı o derecede çeşit-türlü.
@@ -1354,26 +1349,26 @@ Bu, ekseriyet, abstrakt, nefasetli plastik şekiller, olarnıñ o ya da bu mille
 Bu daireniñ eñ eiy işleri — Örenburgda Pobeda caddesindeki dekorativ çeşme (1987 s.), Taşkentte yerleştirilgen raatlıq bağçaları plastikaları, dep saymaq mümkün.
 Ablayev, kürreli, geometrik şekillerni çevresi qıyş sızıqlı şekillernen birleştirip, büyük ustalıq ile hucur, serguzeşt kompozitsiyalar yarata.
 Bazıda olar tılsımlı ösümliklerni añdıraraq, bağça ve raatlıq yerlerine masal aenkini bağışlaylar.
-Bu işlerniñ tek körünüşleri degil de, olarnıñ alelhusus renkleri de diqqatnı özlerine celp eteler.
-Renkli (yeşil, mavı) asırlarnıñ koloristik effektleri etraftaki ösümlüklerniñ tabiiy tüslerinen birleşip, tabiatnıñ taze ve gürligini qayd eteler.
+Bu işlerniñ tek körünіşleri degil de, olarnıñ alelhusus renkleri de diqqatnı özlerine celp eteler.
+Renkli (yeşil, mavı) asırlarnıñ koloristik effektleri etraftaki ösümlüklerniñ tabiiy tüslerinen birleşip, tabiatnıñ taze ve gürlügini qayd eteler.
 Şamot, çamurdan yasalğan monumental-manzaralı kompozitsiyalar endi o vaqıt ressam temiz halq materialları ve şekillerine meil bergenini belgilediler.
-70-80-nci yıllar — Ablayevniñ icadında kiramet saasındaki semereli iş yıllarıdır.
+70-80-nci seneler — Ablayevniñ icadında kiramet saasındaki semereli iş yıllarıdır.
 O, kiramet zavodını Özbekistan bediiy fondu yanındaki ameliy sanatnıñ eksperimental-icadiy kombinatına çevire.
 Onıñ direktorı ola, icat ete ve cumhuriyet, bütünittifaq sergilerinde iştirak ete.
-İ. Ablayev çamurnı is ete, onıñ bütün imkânlarından faydalana, culâlamaq, oymaq.sırlamaq kibi tehnikalarnı qullanuvda, ressamnıñ professionallığı sayesinde zemaneviy ve ananeviy işler yaratıla.
+İ. Ablayev çamurnı is ete, onıñ bütün imkânlarından faydalana, culâlamaq, oymaq, sırlamaq kibi tehnikalarnı qullanuvda, ressamnıñ professionallığı sayesinde zemaneviy ve ananeviy işler yaratıla.
 
 Fevzi Seythalilovnıñ icadı öriginal ve özgündir.
 O, 1959 senesi Samarqandda doğdı.
-1986 senesi P.Benkov adına Cumhuriyet bediiy oquv yurtunı bitirdi, bundan son, çoq yıllar devamında Taşkentte ameliy sanat eksperimental-icadiy kombinatta çalıştı.
+1986 senesi P. Benkov adına Cumhuriyet bediiy oquv yurtunı bitirdi, bundan son, çoq yıllar devamında Taşkentte ameliy sanat eksperimental-icadiy kombinatta çalıştı.
 Seithalilovnıñ ilk eserlerinde belgilengen hususiy çizgiler onıñ ilerideki icadında esas olıp qaldılar.
 Onıñ, kaşpo, savutlar, qandiller kibi turmuş eşyaları bile mana ve temsiliy yük taşımaqtalar ("Baar natürmortı", 1987 s.; "Horaz", 1987s.; "Alev", 1998 s).
-Soñki yıllardaki eserleri — "Keçmiş ve tüşünceler" (1995 s.), "Eski degirmen" (1995 s.), "Tüşünceler №44" (1995 s.) yalıñız özleriniñ adlarınen bile olarnı ciddiy ve tüşünip qabul etilmesine azırlaylar.
+Soñki yıllardaki eserleri — "Keçmiş ve tüşünceler" (1995 s.), "Eski degirmen" (1995 s.), "Tüşünceler № 44" (1995 s.) yalıñız özleriniñ adlarınen bile olarnı ciddiy ve tüşünip qabul etilmesine azırlaylar.
 Taacip etilecek şey, nasıl ola da, usta kiramet kibi ananeviy sanat çeşitinde keskin sotsial ve teren ahlâqlı problemalarnı kötere bile.
 Seithalilovnıñ eserleri manalı ve müncericeli, olarnı sabırnen seyir etmek ve ögrenmek kerek.
 Ekseriyet, bu lakonik, umumiyleştirilgen şekiller degil de, "tertipli" plastik kompozitsiyalardır.
 Olar qaramanlar, mimarcılıq parçaları, peyzaj elementleri ve turmuş detallerinden ibaret olıp, parlaq bediiy obrazlar yaratalar.
 
-F.Seithalilov — umumiy ve şahsiy sergilerniñ daimiy iştirakçısı, 1995 senesinden berli Ukraina Ressamları birliginiñ azası.
+F. Seithalilov — umumiy ve şahsiy sergilerniñ daimiy iştirakçısı, 1995 senesinden berli Ukraina Ressamları birliginiñ azası.
 
 Şamil İlyasov (1960 s.), professional kirametçi-ressam.
 1984 senesi Duşanbe ressamlıq oquv yurtunıñ kiramet bölügini bitirdi.
