@@ -879,7 +879,7 @@ Kilim atqı yipleri negiz yipleriniñ arasından kirsetilip, mürekkep çatışu
 Ekseriyet yün, bazıda ise pamuqtan toqula.
 Kilim içün geometrik örneklerniñ etrafında araçıqlar harakterlidir.
 Bu teşiçikler negiz yipleri atqı yiplernen sarılıp, atqı yipleri öz yönelişini deñiştirgen yerlerde asıl olalar.
-Başqaca aytqanda, örnek yaratmaq içün, atqı yipleri örnekniñ şekiline köre bir-birine yaqınlaşalar ve biri-birinen bağlanmayıp, kenedeayrı keteler.
+Başqaca aytqanda, örnek yaratmaq içün, atqı yipleri örnekniñ şekline köre bir-birine yaqınlaşalar ve biri-birinen bağlanmayıp, kene de ayrı keteler.
 Neticede, er bir sırada, atqı yipleri bir-birine yaqınlaşqan yerlerde — çilter peyda ola.
 Atqınıñ bir-birinen çatışmağan yipleri bir qaç aylanmadan son boyuna ve diagonal yönelişlerde öz yerlerini avuştıralar, bunıñ neticesinde örneknin çevresinde basamaq şekilinde yüksekligi 5-7 ya da 7-10 mm olğan teşiçikler peyda olalar.
 Örnek çevresindeki çilter büyük ve küçük örnek mevzuları ifadeli ve grafik çerçivesiniñ rolüni oynamaqnen bir sırada, toqulğan eşyağa örme effektini bereler.
@@ -895,13 +895,13 @@ Olar eski eşyalardan tek renk aenkleri ile (tabiiy boyalar fabrika istisalını
 XX asırnıñ başında Qırımda tek töşeme kilimler, namazlıqlar, örnekli ve sade kiyizler, eybeler, torbalar toqulğan.
 Olarnıñ azırlanuvı em hocalıq-turmuş em de merasim ihtiyaclarınen bağlı edi.
 Meselâ, bay kelinniñ ciyezinde 2-3 odanı töşemek içün kilimler ola edi.
-Ekseriyet olarnıñ kölemi — 1,5 h 3,5m; 2 h 4 m, namazlıqlar 0,9 h 1,5 m köleminje ola turğan.
+Ekseriyet olarnıñ kölemi — 1,5 h 3,5m; 2 h 4 m, namazlıqlar 0,9 h 1,5 m kölemince ola turğan.
 Kilimler pek tığız olmay edi, çünki olarnı gorizontal tezyalarda toquğanlar.
 
-Müellif öz tedqiqat ve hulâsalarını 1945-1990 seneleri devirine ait kilimlerniñ talili esasına bazanıp yapmaqtadır.
+Müellif öz tedqiqat ve hulâsalarını 1945-1990 seneleri devrine ait kilimlerniñ talili esasına bazanıp yapmaqtadır.
 Ameliy sanatnıñ diger çeşitlerinde olğanı kibi, kilim toqumacılıqnıñ özüne has tehnik ve bediiy usulları bar.
 Olar qadimiy zamanlarda peyda olıp, ondan soñki asırlarnıñ sınavından keçkenler, şunıñ içün de olar ğayet qattıdır.
-Bu esnafnıñ maddiy delilleri ğayp oldı, bazı elementleriniñ adları, kilim örnekleriniñ resimleri unutıldı.
+Bu esnafnıñ maddiy delilleri ğayıp oldı, bazı elementleriniñ adları, kilim örnekleriniñ resimleri unutıldı.
 Ya asırnıñ başında elde toqulğan eşyalarğa ihtiyac eksildi de, halqnıñ facialı taqdiri neticesinde de onıñ bütün medeniy degerlikleri bütün dünya boylap sepildi de.
 Buña baqmadan, sürgünlik yerlerinde de kilim toqumacılığınen oğraşqan usta qadınlarımız bu icadiyatnıñ nümünelerini bizim küngece alıp keldiler.
 Özbekistanda Andijan vilâyetiniñ Palvantaş köyünde özüne has kilim istisalı boyunca merkez meydanğa ketirildi.
@@ -961,7 +961,7 @@ Altıköşeliklerniñ qara zemininde — ufaq altıköşelikler, olarnıñ da qu
 Altıköşelikniñ ortasında — 5 belgisi yerleştirilgen.
 Romblarnıñ içinde — boynuzlı geometrik şekil.
 Kilimniñ tar çetlerinde — bördür yolağı, onıñ zemininde sıranen 5 belgileri yerleştirilgen.
-Bu belgi toqumacılarnıñ arasında "arslan ağızı" adınen bellidir.
+Bu belgi toqumacılarnıñ arasında "arslan ağzı" adınen bellidir.
 
 Mezkür resim keniş malümat taşımaqta.
 Onıñ kompozitsiyası, şu cümleden onıñ elementleri de, turkmenlerniñ yomud kilimleriniñ ğayet sadeleştirilgen resimidir.
