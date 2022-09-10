@@ -84,7 +84,7 @@ Obyektiv sebepler — ananeviy esnaflarnıñ XX asırnıñ başında qayd olunğ
 Sanayı ve fabrika istisalınıñ ucuzca ve çeşit mahsulatı esnaf eşyalarını bazardan sıqıp çıqalar.
 Yüksek qıymetli olğan ananeviy örnek de öz körümini deñiiştire, oña başqa yerlerden kelgen pamuq basmalarınıñ, resimli tabaqlarnıñ örnekleri tesir eteler.
 Örneklerge etraf müitten süjetli levhalar kirsetilip başlana.
-Soñra, tabiiy ki, eşyanıñ şekil ve dekorativ süslenüvi arasındaki uyğunlıqnı bozğan Sovet deviri ömüriniñ levhaları işletile.
+Soñra, tabiiy ki, eşyanıñ şekil ve dekorativ süslenüvi arasındaki uyğunlıqnı bozğan Sovet devri ömrüniñ levhaları işletile.
 Böyleliknen, asırnıñ başında suvuq silâ istisalı, taş ve ağaç üstünde oyuv kibi esnaflar deyerlik bütünley ğayıp olalar.
 Qırımtatar milliy esnaflarınıñ merkezi olğan Bağçasarayda, başqa şeerlerde de "evelleri şeerde ğayet inkişaf etken esnaf istisalları pek tez sönip başlaylar, baqır savutları culâlav, atlar içün torba, quyumcılıq eşyaları çıqaruv toqtatıldı, sufyan ayaqqaplar istisalı umumen toqtatıldı".
 Kirametçilik umumen ğayıp ola, bu sanat boyalanmağan, örneklenmegen adiy bardaqlar çıqaruv istasalına çevirile.
