@@ -65,7 +65,7 @@ Amma qısqa vaqıttan soñ, (1932 s.) oqutqan hadimlerniñ sayısı yeterlik olm
 1930 senesi Kezlevde P. Çepurinanıñ yolbaşçılığında "Eski örnek" adlı meşur bediiy artel teşkil olundı.
 1935 senesi mayıs 25-te Moskvada Şarq medeniyetleri devlet müzeyinde Çepurina toplağan materiallar ve artelde azırlanğan nümüneleri boyunca Qırım basmaları ve nağışlarınıñ sergisi açıldı.
 Bağçasarayda "İleri" bediiy arteli meydanğa ketirildi, mında çölmekçilik sanatı ögretile edi.
-Artelniñ ustaları şekili ve vazifesi boyunca çeşit suv savutları azırlaylar.
+Artelniñ ustaları şekli ve vazifesi boyunca çeşit suv savutları azırlaylar.
 Olarnı qırımtatar nağışlarından alınğan ananeviy ösümlik örnekleri ile yaraştıralar.
 Örnekniñ ifadeliligi onıñ qabarıq olğanından irişile edi (mında Ömer usta qullanğan orta asır qırımtatar relyefli mimarcılıq dekorı işletilgen).
 Koloritte yeşil, sarı, qaverenkli tüsler üstünlik etkenler.
