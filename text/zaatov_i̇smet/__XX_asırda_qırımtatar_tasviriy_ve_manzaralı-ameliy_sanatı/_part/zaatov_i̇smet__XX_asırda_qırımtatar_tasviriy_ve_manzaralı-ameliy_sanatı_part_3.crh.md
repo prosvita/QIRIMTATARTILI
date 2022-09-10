@@ -21,7 +21,7 @@ Bodaninskiy teşviqat ve ilmiy işlernen faal ögraşa — o, qırımtatar milli
 Onıñ areketleri sayesinde qırımtatar halqı sanatınıñ eksponatları (erkek ve qadın-qızlarnıñ urbaları, qaqmalı resimler, nağışlar) 1925 senesi Parijde ötkerilgen manzaralı sanat ve sanayı Halqara sergisine yollandı, mında olar kümüş medalnen taqdirlendiler (U. Bodaninskiyniñ malümatlarına köre, qırımtatar milliy nağışlarına tunç medal berilgen), soñra, 1927 senesi — Moskvağa Bütünittifaq sergisine yollanıldı.
 Qırımtatar ustalarınıñ ustalığı cian miqyasında tanıldı".
 Qırımtatar halq sanatını ögrenüv boyunca diger büyük merkez, Yaltada Buhara emiriniñ musadere olunğan sarayında yerleşken Şarq müzeyi oldı.
-Müzeyniñ başı, İstanbulda, Beyruta, Moskvada Şarqiy tiller institutında (1913-1914) keniş tasil alğan, yüksek bilgili mütehassıs, 1917 senesi Zıncırlı medreseniñ esasında teşkil olunğan (1917-1925 ss.) Meñli Geray han adına institutnıñ birinci rektorı, Şarq medeniyetini ve tarihını yahşı bilgen mütehassıs, Yaqub Kemal edi.
+Müzeyniñ başı, İstanbulda, Beyrutta, Moskvada Şarqiy tiller institutında (1913-1914) keniş tasil alğan, yüksek bilgili mütehassıs, 1917 senesi Zıncırlı medreseniñ esasında teşkil olunğan (1917-1925 ss.) Meñli Geray han adına institutnıñ birinci rektorı, Şarq medeniyetini ve tarihını yahşı bilgen mütehassıs, Yaqub Kemal edi.
 Soñra o, yaqalanıp (1934 s.), atıp öldürmek ükümi çıqarıldı.
 Ya. Kemal qırımtatar ananeviy esnafları boyunca "Qırım hanlığında tsehlerniñ vesiqalı tarihı" adlı kitap yazdı.
 Müzey cenübiy yalıboyu qırımtatar em de "öz vaqtında qırımtatarlarnıñ sanatına nasıldır tesir köstergen Şarq halqları" esnaflarınıñ eşyalarını ögrenüv, cıyuv, numayış etüv meselelerinen meşğül oldı.
@@ -57,7 +57,7 @@ Tehnikumda dört oquv ustahanesi bar edi, bu — beş yıllıq oquv müddeti ile
 Tehnikumda aman-aman 140 talebe oquy ve 20-ge yaqın oca ve instruktor ders bere edi.
 Mektepniñ maqsadı — "Şarqnıñ esnaf ve bediiy sanayısı boyunca evelki esnafçılarnıñ yerine ihtisaslı işçiler azırlamaq, (Qılavuzdan, 1929 s. Aqmescit, Qırım devlet neşriyatı s. 92), esnaf istisalını ratsionalleştirmek ve mehanizmleştirmektir.
 1929-30-ncı oquv yıllarınıñ başında teh nikum, Bağçasarayda yeterlik oda olmaganı mana etilip, Kefege avuştırıldı, bu ise ahır-soñu onıñ qapaluvına alıp keldi.
-30-ncı yıllarda Qırımda (Kezlev, Bağçasaray, Qarasuvbazar ve ilâhre) çeşit bediiy arteller meydanğa ketirile, olar, ekseriyet ananeviy mahsulat işlep çıqaruvnen meşgul olalar (nağış ve tikiş).
+30-ncı yıllarda Qırımda (Kezlev, Bağçasaray, Qarasuvbazar ve ilâhre) çeşit bediiy arteller meydanğa ketirile, olar, ekseriyet ananeviy mahsulat işlep çıqaruvnen meşgül olalar (nağış ve tikiş).
 Bu artellerniñ episi eksportqa çalışqanlar.
 1930 senesi Bağçasarayda qırımtatar milliy nağışınıñ "İlk adım" adlı birinci kooperativ arteli açıla.
 Mında instruktor olaraq halq ustası İsmi Mansurskaya çalışa.
