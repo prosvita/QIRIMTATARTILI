@@ -101,8 +101,8 @@ Qaqlamalarnen süslengen, altın qaqlamalarnen işlengen bu eşyalar bediiy tekm
 Eñ taacipli yeri şu ki, usta endi 70 yaşını toldurıp bu işlerden çetleşken zamanda, onıñ örnekçi-ressam istidatı gayrıdan canlandı.
 Qoluna tüşken bir tabaq kâgıtnıñ üstüne evelleri ştihel ile madenniñ üstünde sızğan soñra padişa raqısınen temizlep, şablonlarnen qaqıp çıqqan örneklerini qalem ile sızmağa tırıştı.
 Böyleliknen, qart usta kene de örnek sanatına muracaat etti.
-Qalafatov eki yıl içinde qalem, tuş, renksiz ve renkli qalemlernen sızılğan, üç yüzden ziyade örnekli kompozitsiya yarattı.
-Avropa sanatından alınğan bazı bir yañı usullarnı kirsetti, meselâ, rakurstan (qıska körünüş) faydalanuv, çeçekniñ dörtten üç qısmını tasvirlev (adeti-üzre musulman sanatında çeçekniñ yuqarıdan körünüşi ya da köndelen kesilgen şekilde tasvirlene).
+Qalafatov eki yıl içinde qalem, tuş, renksiz ve renkli qalemlernen sızılğan, üç yuzden ziyade örnekli kompozitsiya yarattı.
+Avropa sanatından alınğan bazı bir yañı usullarnı kirsetti, meselâ, rakurstan (qısqa körünіş) faydalanuv, çeçekniñ dörtten üç qısmını tasvirlev (adeti-üzre musulman sanatında çeçekniñ yuqarıdan körünişi ya da köndelen kesilgen şekilde tasvirlene).
 Qalafatovnıñ örnekleri, Anadolu ve İran sanatınıñ elementlerini işleterek, eski qırımtatar örnekleri esasında yaratılğanlar.
 Amet Qalafatov Parijde (1925 s.) Bütüncian manzaralı-ameliy halq sanatı sergisinde, Moskvada (1939 s.) Bütünittifaq sergisinde ve, şu cümleden, Qırım bediiy sergilerinde (1937-1938) iştirak etti.
 1930-ncı yıllar onıñ icadında ğayet semereli oldılar.
@@ -113,7 +113,7 @@ Qırımtatar örneklerini pek yahşı bilgen nağışçı-usta Adaviye Efendiyev
 O, Kezlevde doğdı.
 Örnek yaratuv ustalığınıñ sırlarını öz qartanası, istidatlı ve çeber ustadan ögrendi.
 Adaviyeniñ babası yaşağan evniñ bütün donatması onıñ çeber qollarınen yaratılğan edi.
-Adaviye 4 yaşında ekende qartanasından onıñ zenaatınıñ bütün sırlarını ögrenip başladı, yavaş-yavaş toqumacılıq ve nagış sırlarını da menimsedi.
+Adaviye 4 yaşında ekende qartanasından onıñ zenaatınıñ bütün sırlarını ögrenip başladı, yavaş-yavaş toqumacılıq ve nağış sırlarını da menimsedi.
 Qız 12 yaşında ekende kergef başına oturdı.
 Qızı 16 yaşını toldurğanda babası oña toqumacılıq tezyasını alıp berdi ve oña bu zenaatnı ögretecek ustanı davet etti.
 Babası halq sanatına yüksek qıymet keserek, qızını oqutmaq içün aqça qızğanmadı.
@@ -128,16 +128,16 @@ Efendiyevanıñ örnekleri işletilgen tikicilik eşyaları ve nağışlar Avrop
 Efendiyevanıñ icadına has çizgiler, bu — resimniñ açıqlığı, kompozitsiyanıñ özüne haslığı — bunı "Dil-Puş" (1930) yelpaze içün nağış eskiziniñ misalinde közetmek mümkün.
 Resim grafikanıñ açıqlığı, nazik şekillerniñ vecizligi ve simmetriyası ile ayırılıp tura.
 Eskiz bardaqtaki çeçek klassik kompozitsiyasına üslüpleştirilgen.
-Bardaq gügümni añdıra, çekek ise — ince saplı iri, dülber ğonce.
-Ğonceniñ etrafında, suv üstündeki tögerekler kibi, dekorativ elementler — alqalar, ğonce ve kertikli yapraqlarnı eki tarafından sarıp alğan yarımay şekilleri yerleşkenler.
-% Resim seyircini şekilnıñ temizliği ve sadeliginen meftün ete.
-"Menim örneklerim — menim fikirlerimdir" — dep ayta turğan A.Efendiyeva özüniñ kompozitsiyaları aqqında.
+Bardaq gügümni añdıra, çekek ise — ince saplı iri, dülber ğönce.
+Ğönceniñ etrafında, suv üstündeki tögerekler kibi, dekorativ elementler — alqalar, ğonce ve kertikli yapraqlarnı eki tarafından sarıp alğan yarımay şekilleri yerleşkenler.
+% Resim seyircini şekilnіñ temizliği ve sadeliginen meftün ete.
+"Menim örneklerim — menim fikirlerimdir" — dep ayta turğan A. Efendiyeva özüniñ kompozitsiyaları aqqında.
 Efendiyeva 1944 senesi uzaq sürgünlik yoluna dayanalmay, Samarqand civarında vefat etti.
-Belli qırımtatar dramaturgı vecemaat erbabı Seid-Abdulla Özenbaşlı (1867-1924), zamandaşlarınıñ aytqanına köre, çeber, eski nağış ustalarından biri olğan.
+Belli qırımtatar dramaturgı ve cemaat erbabı Seid-Abdulla Özenbaşlı (1867-1924), zamandaşlarınıñ aytqanına köre, çeber, eski nağış ustalarından biri olğan.
 Bundan da ğayrı, S. Özenbaşlı acayip çalğıcı ve şair edi.
 Teessüf ki, ustanıñ örnekli tikiş istidatı aqqında bizge başqa bir şey belli degil.
 O, 1924 senesi vefat etti.
-Mezkür işte adı añılğan, qırımtatar kitap naşirciliginiñ "atası" İlyas-mırza Boraganskiy de acayip örnekçi edi.
+Mezkür işte adı añılğan, qırımtatar kitap naşirciliginiñ "atası" İlyas-mırza Borağanskiy de acayip örnekçi edi.
 Toqumacılıq ve qırımtatar ananeviy nağışı boyunca belli mütehassıs Zuleyha Bekirova ananeviy qırımtatar esnaflarını tiklev işinde büyük rol oynadı.
 Z. Bekirova 1913 senesi Tavriya guberniyasınıñ Perekop uyezdindeki Mollalar köyünde doğdı.
 Tatar mektebini bitirgen soñ, soyları Adaviye Efendiyevanıñ yanına Kezlevge keldi ve "Eski örnek" arteline işke kirdi.
@@ -145,18 +145,18 @@ Mında 1930 senesinden 1932 senesine qadar A. Efendiyevadan ğayrı, çeber usta
 O, 1932-36 seneleri yollanma boyunca Moskvada bediiy-sanayı institutında tasil aldı.
 % 1936 senesi tehnikumnı bitirgen soñ 1940 senesine qadar Moskva bediy sanayi institutında çalıştı.
 Z. Bekirova Qazahistan, Turkmenistan, Şimaliy Ösetiya ve sabıq SSSR cumhuriyetleriniñ kilim toqumacılıq istisalı içün milliy örneklerniñ eskizlerini işlep çıqtı.
-Olarnıñ arasında — Nyu-Yorkta (1939 s.) ötkerilgen Bütüncian sergisine toqulğan "Develer" tüyli kilim; "Ösetiya" (1951 s.) tüylü kilim bellidir.
+Olarnıñ arasında — Nyu-Yorkta (1939 s.) ötkerilgen Bütüncian sergisine toqulğan "Develer" tüklü kilim; "Ösetiya" (1951 s.) tüylü kilim bellidir.
 İttifaq cumhuriyetleriniñ ustahane ve fabrikaları içün eskizler yapar eken, Bekirova olarnıñ milliy örneklerini tafsilâtlı ögrenir edi.
 Bu maqsat ile o, Orta Asiya ve Qazahistanda ekspeditsiyanen bulundı.
 1940-1948 seneleri Bekirova Moskvada ameliy ve manzaralı sanat institutında tasil aldı.
-Mında o, V. S. Kondratyev ve B. Yu. Lange kibi ocalarnıñ qolunda oqudı.
-İnstitutnı bitirgen soñ, 1948-1968 seneleri Bekirova Moskvada bediiy-sanayı tehnikumında ihtisaslı fenler boyunca oca olaraq çalıştı, ilmiy işnen (Turkmenistanda kilim toqumacılıqnıñ tedqiqatı) ve ressamlıq işlerinen meşğul oldı.
-1937 senesinden itibaren 3. Bekirova bütünittifaq ve halqara sergilerde iştirak etti, şu cümleden: Nyü-Yorkta (1939 s.). Kiyevde (1939 s.).
+Mında o, V.S. Kondratyev ve B.Yu. Lange kibi ocalarnıñ qolunda oqudı.
+İnstitutnı bitirgen soñ, 1948-1968 seneleri Bekirova Moskvada bediiy-sanayı tehnikumında ihtisaslı fenler boyunca oca olaraq çalıştı, ilmiy işnen (Turkmenistanda kilim toqumacılıqnıñ tedqiqatı) ve ressamlıq işlerinen meşğül oldı.
+1937 senesinden itibaren 3. Bekirova bütünittifaq ve halqara sergilerde iştirak etti, şu cümleden: Nyü-Yorkta (1939 s.), Kyivde (1939 s.).
  Onıñ işleri Qırım, Moskva, Sankt-Peterburg, Saransk, Aşhabadnıñ müzey kollektsiyalarında saqlanmaqtalar.
-Aqlı raatlıqqa çıqqan soñ, Bekirova öz ömürini gobelen sanatına bağışladı.
+Aqlı raatlıqqa çıqqan soñ, Bekirova öz ömrüni gobelen sanatına bağışladı.
 Usta "Baar kele", "Emek", "Aydınlanuv", "Küz", "Gençlik", "Salüt", "Ay ile natürmort" adlı gobelen kompozitsiyalarını yarattı.
 1990 senesi 3. Bekirova Qırımtatar medeniyetini ğayrıdan tiklev boyunca Koordinatsion merkeziniñ daveti ile Moskvadan Aqmescitke keldi, mında o, kurslarğa yolbaşçılıq yapıp, qızlarğa qırımtatar kilim toqumacılıq ve nağış sanatını ögretti.
-Soñki yıllarda Bekirova ğayrıdan canlanayatqan qırımtatar tüylü kilim toqumacılıqnıñ örnek mevzuları ve kompozitsiyalarını işlep çıquv meselesi üzerinde çalıştı.
+Soñki yıllarda Bekirova ğayrıdan canlanayatqan qırımtatar tüklü kilim toqumacılıqnıñ örnek mevzuları ve kompozitsiyalarını işlep çıquv meselesi üzerinde çalıştı.
 1998 senesi Aqmescitte Qırımtatar sanat müzeyi Qırım etnografiya müzeyinen birlikte Z. Bekirovanıñ 85 yıllığına bağışlanğan şahsiy sergisini teşkil etti.
 Zuleyha Bekirova 1999 senesi Moskvada vefat etti.
 
@@ -172,7 +172,7 @@ Sabıq SSSRniñ çeşit regionlarına sepilgen qırımtatarlar, ükümetniñ ola
 Qırımda doğğan qırımtatar halqınıñ üyken nesili halqnıñ asırlıq ananelerinde östi ve terbiye aldılar, olar öz ecdatlarınıñ turmuş medeniyeti, ömür tarzı ve ananeleri aqqında hatıranı özlerinen taşıdılar, üyken nesil qırımtatar halqı sanatınıñ bazı çeşitlerini, meselâ, kilim toqumacılıq (Özbekistanda Palvantaş qasabası), nağış ananelerini saqlap qaluvda büyük rol oynadı.
 Qırımda doğğan nesil sürgünlikte halqnıñ turmuş ve medeniyet ananelerini saqlap qalmağa tırıştı.
 Qırımğa, özlerine qaytmaq qısmet olmağan eski ustalarnıñ, olardan ananeviy esnaflarnı ögrengen balaları, şegirtleri qaytıp kelmekteler.
-Şu cumleden, quyumcılıq sanatını Ayder Asanov, baba-bala İzzet ve Enver Ablayevler tiklemekteler; Asan Galimov qaqlamanen oğraşa; kiramet ve ufaq plastika ile Fevzi Seit-Halilov, Abdül Seit-Ametov, Rustem Yaqubov, Rustem Skibin, Şamil İlyasov, Mamut Çurlu ve başqaları meşğuller, taşpıçuv sanatını — Ayder Aliyev, İlmi Ametov; tüylü kilim toqumacılıq işlerini — Zeynep Musayeva, Gülnara Asanova, Reyan ve Ediye Bekirovalar, kilim toqumacılıqnı — Arzı Patel, Mamut Çurlu, Sabriye Eyupova ve başqaları tiklemekteler; altın suvlu ve örnekli tikişnen Elmira Muratova, Elvira Osmanova, Elmira Çalbaşeva, Tamara Klüçkina ve Ayşe Osmanova meşğüller.
+Şu cumleden, quyumcılıq sanatını Ayder Asanov, baba-bala İzzet ve Enver Ablayevler tiklemekteler; Asan Galimov qaqlamanen oğraşa; kiramet ve ufaq plastika ile Fevzi Seit-Halilov, Abdül Seit-Ametov, Rustem Yaqubov, Rustem Skibin, Şamil İlyasov, Mamut Çurlu ve başqaları meşğüller, taşpıçuv sanatını — Ayder Aliyev, İlmi Ametov; tüklü kilim toqumacılıq işlerini — Zeynep Musayeva, Gülnara Asanova, Reyan ve Ediye Bekirovalar, kilim toqumacılıqnı — Arzı Patel, Mamut Çurlu, Sabriye Eyupova ve başqaları tiklemekteler; altın suvlu ve örnekli tikişnen Elmira Muratova, Elvira Osmanova, Elmira Çalbaşeva, Tamara Klüçkina ve Ayşe Osmanova meşğüller.
 Qırımtatar milliy manzaralı-ameliy sanatınıñ başqa çeşitleri maddiy sebeplerge köre em de Qırımda mütehassıslar olmağanından, bugünde-bugün daa tiklenmeyler.
 Türkiye, Almaniya, Romaniya, Gollandiya ve AQŞta yaşağan qırımtatar diasporası, em de Türkiye ve Ukrainanıñ devlet ve cemaat teşkilâtları manzaralı-ameliy sanatınıñ esas çeşitlerini ğayrıdan tiklev işinde büyük yardımda bulunmaqtalar.
 Bugünde-bugün Aqmescit, Qarasuvbazar, Bağçasaray, Kezlev şeerleri, Kokköz, Taraqtaş, Bağay köyleri — Qırımda milliy manzaralı-ameliy sanat merkezleridir.
