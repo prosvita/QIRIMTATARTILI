@@ -189,7 +189,7 @@ Qırımdan tışta yaşağan qırımtatarlar, Qırımda müzey teşkil olğanın
 Meselâ, 1998 senesi Romaniyada yaşagan qırımtatarlarnıñ delegatsiyası Qırımda ziyaretnen bulunganda, qırımtatar manzaralı-ameliy sanat eşyalarınıñ kollektsiyasını müzeyge taqdim ettiler.
 1999 senesi dekabr ayında müzey Konstantsiyadan 1850-1950 seneleri içinde Qırımda ve Dobrucada yaşagan qırımtatar ustaları tarafından işlengen 56 nağış aldı, bu kollektsiyanı Kemal Müsret toplağan.
 1999 senesi Qırım iliminde ilk olaraq, Dobruca (Konstantsa, Rumıniya) qırımtatarlar toplu yaşagan yerlerge ekspeditsiya ötkerildi, onı Cumhuriyet qırımtatar sanatı müzeyinen birlikte Romaniyanıñ Demokratik Türk-tatar birligi teşkilâtlandırdı.
-Çoq sayılı qırımtatar diasporası yaşagan Konstantsa (Romaniya) şeerinde Halq sanatı müzeyiniñ fondlarında qırımtatar ameliy sanat eşyalarınıñ (küpeler, gerdanlıqlar, quşaqlar, baş ziynetleri, urbalar, altın tikiş, nagışlar) unikal kollektsiyası saqlanğan.
+Çoq sayılı qırımtatar diasporası yaşagan Konstantsa (Romaniya) şeerinde Halq sanatı müzeyiniñ fondlarında qırımtatar ameliy sanat eşyalarınıñ (küpeler, gerdanlıqlar, quşaqlar, baş ziynetleri, urbalar, altın tikiş, nağışlar) unikal kollektsiyası saqlanğan.
 Müzeyniñ fondlarında XVIII asırnıñ soñlarına ve XX asırnıñ başlarına ait qırımtatar manzaralı-ameliy sanatnıñ 2500-den ziyade nushası saqlanmaqta.
 Müzeyniñ yanında restavratsiya işlerinen oğraşqan ustahane çalışmaqta.
 Müzeyniñ hazinehanesi eñ zemaneviy donatmalarnen teminlengen.
