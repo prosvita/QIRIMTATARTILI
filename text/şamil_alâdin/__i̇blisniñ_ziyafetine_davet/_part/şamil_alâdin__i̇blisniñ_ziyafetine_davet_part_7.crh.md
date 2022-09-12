@@ -5,20 +5,20 @@ Yoqsullıqtan qurtulmaq istegen köylü olardan kirağa topraq alıp, aşlı
 Öylece, köylü esini toplap ala.
 Öyle kişi – ne bay esap etile, ne de – fuqare.
 Kirağa topraq almağa çaresi yoq köylüler balası-çalasınen baynıñ çöllerinde işley, küzde yer süre, aşlıq saça, yazda çalıp, arman basa...
-bu meşaqqatlı hızmetleri içün degersiz miqdarda zahire alıp, onıñnen keçineler.
+Bu meşaqqatlı hızmetleri içün degersiz miqdarda zahire alıp, onıñnen keçineler.
 Kimerde köylüge qatanen tiygen ufaq-tüfek yer meydanları – taqatsız topraq olıp çıqa.
 Anda aşlıq saçmaq, bostan asramaq mümkün olmay.
 
 Kündüz kişi, köyni boylap yürer eken, başını tekaran köterip, cenüpke közetse, Qara deñizni köre.
 Deñiz köyge yaqın, lâkin deñizge Harcibiyeden de yaqın köyler bar.
-Taş Qaçıq, Qaz Avul, Taqıl, Çöngelek, Eltigen... bular deñizniñ sailindeler.
+Taş Qaçıq, Qaz Avul, Taqıl, Çöngelek, Eltiуgen... bular deñizniñ sailindeler.
 Şu köylerniñ ealisi kündüz-gece, yaz-qış deñiz avası ile nefes alıp, yaşay.
 Ama insanlar pek zevqlılar.
 Simeizde doğğan adamğa yalıboylu, deyler.
 Qaranğıtta dünyağa kelgen kişige – yalıboylu demeyler.
 Albuki, Simeiz de, Qaranğıt da bir deñizniñ yalısında.
 Bu ayatnıñ hatasımı, yoqsa, adamlarnıñ perişanlığımı?
-Bilmeyim !
+Bilmeyim!
 
 Üsein oca... özü?
 O da yalıboylu, lâkin Kökköz qayda?
