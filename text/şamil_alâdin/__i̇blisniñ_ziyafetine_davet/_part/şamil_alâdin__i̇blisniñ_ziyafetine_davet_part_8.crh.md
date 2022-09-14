@@ -34,7 +34,7 @@ Körüşüvde Emir Ali, Üseinniñ edebiy faaliyetinen meraqlandı.
 – Bittimi?”
 
 “Bitti... – dedi Üsein.
- – Qoyun cebimde!”
+ – Qoyun cebimde !”
 
 Qonuşmada bulunğan muallimler müellifke pyesanı oqumasını rica ettiler.
 Üsein Şamil özüne has artistlik qabiliyetinen “Mollalar proyekti”ni nefis davuş ve ifade ile oqudı.
