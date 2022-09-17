@@ -33,7 +33,7 @@ Mektep binasında divarlarnıñ sıvavı tüşken, tavanı aqqan, ders kedikl
 Mında Üsein oca içün er şey çıqılmaz çıtırman dağ olıp köründi.
 O sebepten kimsege indemedi.
 Vaqıtı kelir, yapılacaq işni yapar.
-Qaç künler keçken soñ, üyken sınıfta, derslerniñ birinde Osman Aqçoqraqlınıñ “Nenkecan hanım” eserinden balalarğa ayrı kesekler oqup, izaat berip turğan vaqıtında tavan-qış köşesinde qararıp turğan örümçek yuvası közlerine çalındı.
+Qaç künler keçken soñ, üyken sınıfta, derslerniñ birinde Osman Aqçoqraqlınıñ “Nenkecan hanım” eserinden balalarğa ayrı kesekler oqup, izaat berip turğan vaqtında tavan-qış köşesinde qararıp turğan örümçek yuvası közlerine çalındı.
 Pek göñülsizlendi.
 Ama ocanı göñülsizlendirgen amil tek örümçek avı degil edi.
 Onıñ çoq yıllıq ocalığı neticesinde ana tili oqutuv saasında elde etken qıymetli usulları ameliyattan bütünley köterilgen, olarnıñ yerine Seit-Mambet ocanıñ usulları temelleştirilgen...
@@ -67,7 +67,7 @@ Ziyade oqutsañ, alğan keliriñe ortaq olacaqmız”.
 Çeresi sılanğan ve qızarğan.
 
 Evniñ qapusını açıp, sofa içine ayaq basqan edi, aşhaneden Acire hanım çıqa qaldı...
- elindeki iri baqır tavanıñ üstü qapaqnen örtüli olıp, özü ateşte pek qızğan, eki yaqlap tutması qolaysız olsa kerek, qocasına bir nazar taşlap, alel-acele közden ğayıp oldı.
+elindeki iri baqır tavanıñ üstü qapaqnen örtüli olıp, özü ateşte pek qızğan, eki yaqlap tutması qolaysız olsa kerek, qocasına bir nazar taşlap, alel-acele közden ğayıp oldı.
 Oca çontuq tonunı ve qalpağını çıqarıp, üstlerindeki qarnı açıq qapudan tışqa egilip, qaqtı, divardaki ucu yuqarı qaytıq qalın demir çüyge ilmege oñaytlanğanda, Acire tekrar sofada peyda oldı.
 
 – Müjde menim, – dedi o qocasına, şeñ ve hoşnut sesnen: – Müjde!
@@ -89,8 +89,8 @@ Oca yersiz hahıldılardan asabiylengen kibi oldı.
 Qızardı, ağardı, lâkin qadınnı ıncıtmağa istemey, sabır etti.
 Sabır ettimi?
 Yoq!
-Tamağına yarçıq sançılğan kibi, boyunını ögge sozıp, taaciplendi, yutqundı:
- “Acerge ne oldı, aceba?”
+Tamağına yarçıq sançılğan kibi, boynunı ögge sozıp, taaciplendi, yutqundı:
+ “Acirege ne oldı, aceba?”
 
 – Ma! – dedi o qarısına.
 – Tut!
@@ -109,7 +109,7 @@ Zarfnıñ üstünde çoqtan-çoq müürler, imzalar, raqamlar bulunmaqta 
 
 Oca zarfnıñ bir çetini yırttı.
 İçindeki kök cıltlı, nefis örnekli, kitapçıqnıñ kenarından tutıp, ihtiyatle çekip çıqarmaqta edi, qolları qaltıradı, parmaqları cansızlanğan kibi, kerilip kettiler.
-Zarf yerge tüşeyatqanda, Acire onı aman çelip aldı... açtı.
+Zarf yerge tüşeyatqanda, Acire onı aman çekip aldı... açtı.
 İçinden “Nalei Qırım” çıqtı.
 Şiirler kitabı.
 
@@ -144,11 +144,11 @@ Seniñ daima şad ayat sürgeniñni isteyim, ama elimden kelmey.
 
 Üsein küçük kitapçıqnı örnekli, kök cıltına çoq baqıp turdı.
 “Muallim Üsein Toqtarğazı eseri, – dep yazılı edi onıñ cıltı üstünde.
- – Qarasuvbazar.Z.U. Rogan matbuasında tab olunmıştır.1910 s.”
+ – Qarasuvbazar. Z.U. Rogan matbuasında tab olunmıştır. 1910 s.”
  Oca hoşnut ve minnetdar çere ile külümsiredi.
 Kitapnı açtı.
 Közleri, bir vaqıtlarda kendi qolunen yazılıp, çoqtan unutılğan muqaddemege iliştiler.
-“Efendiler !
+“Efendiler!
 “Nalei Qırım”nıñ nazmi bir alim, bir edip degildir.
 Belki bir qaç seneler mektep görmiş, medresede bulunmış, mamafiye, onon beş senelerden beri millete hızmet arzusı ile tatar çocuqlarınıñ başında durmuş bir genç muallimdir...”
 
@@ -163,7 +163,7 @@ Olarnıñ taqdiri nasıl, aceba?
 Kitapnı zarftap çıqarğan vaqıtta kendini yer yüzünde birden bir bahtlı adam is etken Üsein Şamilniñ çeresi artıq deñişti, qasevetke daldı.
 
 Bir elinde kitap, digerinde – yırtıq zarf ile minder üzerine oturdı.
-Çoq vaqıt ağızından söz çıqmadı.
+Çoq vaqıt ağzından söz çıqmadı.
 Acire hanım de aşhanege çıqmaqta, de yemek savutları ile içeri kirmekte... çıqıp-kirgen sayın ocanıñ yorğun areketlerine ve sönük yüzüne közetmekte.
 Acire qocasınıñ tabiatını bile.
 Onı asabiylendirmek içün çoq şey kerekmey.
