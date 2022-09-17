@@ -188,12 +188,12 @@ Sizin ve... benim – ebet, benim de, birinci evlâdımız.
 Teessüf ki, tab içün vermiş oldığıñız menzumeler, çeltene-hırpalana, pek az miqdarda neşir etildi.
 Niçün böyle oldı?
 Sebebini kendiñiz eyi biliyorsıñız.
-İş burasındadırki, birinci kitabıñız neşir olundı.
+İş burasındadır ki, birinci kitabıñız neşir olundı.
 Qalan eserleriñizi, inşalla, ekinci kitabıñızda oqurız.
 Buña eminiz.
 
 Selâm ve itiram ile – Abdureşid.
-1911 s.fevral 9. Qarasuvbazar şeeri”.
+1911 s. fevral 9. Qarasuvbazar şeeri”.
 
 Mektüp böyle muqayt ve qısqa edi.
 Üsein oca onda öz şübelerine izaat tapıp olamadı.
@@ -232,7 +232,7 @@ Üsein oca cevap berip olamadı, boyunını burdı, omuzlarını qıstı.
 
 – İdarehaneniñ tintilgeni üç afta... – dedi Şeyh-zade.
 – Qapu-pencere gece-kündüz açıq.
-İçerisi aşır- neşir.
+İçerisi aşır-neşir.
 Er kün bu yerge kelem, aylanıp-üyrülip, qaytıp ketem.
 
 – Belki Abdureşid efendi bir çareler körer, – dedi Üsein oca, – qaydan bileyim... belki ükümetke muracaat eter, gazetanı ğayrıdan açtırır?!
@@ -243,16 +243,16 @@ Lâkin iş, zan etsem, endi tek ruhsette degil.
 
 – Daa nede?
 
-– Gazeta çoq borclandı .
+– Gazeta çoq borclandı.
 Abuneden tüşken aqçağa Otuzlı Molla Çelebiniñ bir özünen esap kesip olamaycaqmız.
-Başqalardan alınğan ödünç paralarnı aytmayım . 
+Başqalardan alınğan ödünç paralarnı aytmayım. 
 Şimdi eñ müim iş – Abdureşid efendini borclardan qurtarıp almaq.
 
 – Baş muarrir qayda? – dep soradı Üsein oca.
  – Aqmescitke köçip kettimi?
 
 – Asan Sabri efendimi?
-Yoq! – dedi Şeyh-zade.
+- Yoq! – dedi Şeyh-zade.
 – Bazirgân Mamutnıñ qavehanesinde.
 Bu yerde... eki adım.
 Çağırıp ketireyimmi?
@@ -284,7 +284,7 @@ Lâkin bu adam... bu tanış çere kim?
 Trandafilidi degilmi aceba?
 
 Kişi koridornıñ tirseginde toqtaldı, elindeki karton cıltlı, iri defterni qarıştırıp, içinde nedir qıdıra başladı.
-Qarıştırğanda, qalın yelkesi üzerinde ocanıñ nazarını is etse de, emiyet bermedi, çünki bu musulmanlıq ülkesinde, pıştavlı adamnı körip de, ağızını açıp, seyir etmegen adam olmay.
+Qarıştırğanda, qalın yelkesi üzerinde ocanıñ nazarını is etse de, emiyet bermedi, çünki bu musulmanlıq ülkesinde, pıştavlı adamnı körip de, ağzını açıp, seyir etmegen adam olmay.
 Oca gizliden kene baqtı.
 Pıştavlınıñ sabırı tükenip, oña başını köterdi.
 
@@ -293,11 +293,11 @@ Pıştavlınıñ sabırı tükenip, oña başını köterdi.
 – Abdureşid efendi Mediyev ile körüşmek isteyim, – dedi oca.
 
 – Bugün ziyaretçilerni qabul künü degil.
-Çarşenbede kelirsiñ !
+Çarşenbede kelirsiñ!
 
 Men Yalta uyezdinden keldim.
 
-– Farqı yoq, – dedi pıştavlı, endi tatarca, – isteseñ. Erzurumdan kel!
+– Farqı yoq, – dedi pıştavlı, endi tatarca, – isteseñ, Erzurumdan kel!
 
 Karton cıltlı defterni qoltuğına qıstı, qapu betke yürüş etkende, birden toqtaldı.
 
@@ -317,7 +317,7 @@ Men endi yaş degilim.
 
 – Nasıl tüştim? – bir közüni yuma berip, azaçıq külümsiregen soñ, koridornıñ törüne, emen qapuğa işaret etti.
 
-– Kefede işlemeysiñizmi ?
+– Kefede işlemeysiñizmi?
 
 Oca böyle degende, Samson deşetli sarsıntıdan abdırar kibi, küçlü irkildi, soñra yanaşadaki skemle üstüne oturıp, yavlığınen mañlayındaki terni sile başladı.
 
