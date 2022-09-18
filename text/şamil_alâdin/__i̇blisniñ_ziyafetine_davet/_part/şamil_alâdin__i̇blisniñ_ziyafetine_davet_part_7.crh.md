@@ -369,14 +369,14 @@ Bizim taht-ı idaremizge... bizim qalamızğa nasıl kire bildiñiz? – dedi 
 Abdureşid efendi Üsein Şamilni ümütsizden peyda oluvından pek eyecanlandı ve sevindi, – şeerge müteber adamlarnıñ kelüvinden menim, ğalavanıñ, haberi yoq.
 Ayıp degilmi maña?
 
-Toqtarğazı eki adım ileri atqance, Mediyev onıñ yanına yetip keldi, eki dost kişi bir-biriniñ kuçağına atıldılar.
+Toqtarğazı eki adım ileri atqance, Mediyev onıñ yanına yetip keldi, eki dost kişi bir-biriniñ quçağına atıldılar.
 
 Al-hatir soraşqan soñ, Mediyev musafirni kişilerge taqdim etti, onı özüniñ yanaşasında yımşaq qırmızı kresloğa oturttı.
 Adamlarnıñ ekserisi şeer belediye başlığına ayret ve tebessümle baqtı.
 “Toqtarğazını taqdim etüvge ne acet? – dediler olar bir-birlerine.
 – Eserleri epimizge belli”.
 Abdureşid efendi ayretlenüvniñ manasını añladı, nitekim iftiharle külümsiredi.
-Meclis iştirakçileri arasında aqırın-aqırın sağır velvele köterildi, kimseniñ sözü, kimsege añlaşılmadı çünki laqırdı musafirniñ peyda oluvı munasebetile başlasa da, birazdan soñra kenişlep başladı.
+Meclis iştirakçileri arasında aqırın-aqırın sağır velvele köterildi, kimseniñ sözü, kimsege añlaşılmadı, çünki laqırdı musafirniñ peyda oluvı munasebetile başlasa da, birazdan soñra kenişlep başladı.
 Mecliste yorulğan adamlarda biri-biri ile qonuşuv içün zaruret sezildi.
 Bu, belediye reisine, Toqtarğazı ile azaçıq olsa da, qonuşıp almağa imkân oldı.
 Sesler yatışqan soñ, Mediyev musafirge, meclis hususında izaat berüvni lâyıq kördi.
