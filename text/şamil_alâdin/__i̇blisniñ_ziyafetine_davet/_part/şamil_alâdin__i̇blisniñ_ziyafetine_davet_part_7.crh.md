@@ -416,7 +416,7 @@ Mediyev quru müçeli, saçları sarı adam.
 Közleri yeşil.
 Özü yüksek, subetdeşnen ğayet nezaketli.
 Laqırdısı yavaş.
-Muamelesi, areketleri digerler içün-ibretli.
+Muamelesi, areketleri digerler içün - ibretli.
 Başında yufqa teri qalpaq, boyunında çırışlı yaqa, galstuk.
 Ellerinde manjetler.
 Üstünde kök kostüm.
@@ -440,7 +440,7 @@ Müşterilernen til taptı... gizli bolşevik partiyası teşkilâtı ile m
 Menseitniñ ğayret dairesi keniş edi.
 Öz tükânına ecnebiy memleketlerden ketirilgen türlü mallar... limon, portaqal, hurma, incir, qave yaşçikleri içinden müim vesiqalar çıqa.
 Bular – emigratsiyadaki inqilâpçılarnıñ talimatları, maqaleleri, mektüpleri.
-Tükân saibi olar aqqında erteyarıq tenbi etilgen.
+Tükân saibi olar aqqında erte-yarıq tenbi etilgen.
 Türlü casuslar qaynaşqan bu büyük şeer içinde Menseit vesiqalarnı alıp ketip, adamına taqdim ete, bu müim ve mesül iş oña işanılğan.
 
 Tükândan yat illerge meyva yiberilgende, yaşçikler içine Rusiyedeki gizli bolşevik teşkilâtı kişilerinden emigratsiyadaki adamğa kâğıtlar qoyula.
@@ -469,7 +469,7 @@ Ama tek sevgi, sadaqat ile belediyege aza olunmay.
 Ondan da başqa, Mediyev etrafındaki gençlik, belediyege bir degil, eñ azdan, üç adam kirmek kerek dep israr etmekte.
 Kimler o, üç adam?
 
-Gençlikniñ fikirince, belediye azalığına Osman Seyfullayev, İbraim Smulskiy, Abdureşid Mediyev lâyıqlar.
+Gençlikniñ fikrince, belediye azalığına Osman Seyfullayev, İbraim Smulskiy, Abdureşid Mediyev lâyıqlar.
 Paqıl kibi, bu adamlarnıñ üçünde de ne mal, ne de mülk yoq.
 
 “Yoqmı? – dediler dostlar, iddetlenip.
@@ -512,7 +512,7 @@ Suleyman Ali eleslenip, oña çevirildi.
 – İş yalıñız belediye reisinde degil, – dedi Mediyev ve közleri aşağı enik alında sözüni devam etti, – iş sizlerde... dostlarnıñ samimiy yardımında!
 
 – Yardımındamı? – Suleyman Aliniñ qaşları eki yerden sınıp kettiler.
-O küyevniñ fikirine raza olmadı.
+O kіyevniñ fikrine raza olmadı.
  Biz yardımnı evelki belediyege de yapqan edik.
 Elekçiler maallesinde sınğan altı arşınlıq ağaç köpürni tüzettirip olamadı, – dedi evniñ saibi, – maña baqıñız, Üsein oca!
 Qarasuvbazarda geceleyin soqaqqa çıqmaq... ayat içün kerçekten de, havflı edi.
@@ -527,8 +527,8 @@ Adamlar endi aqşamları biri-birlerine musafirlikke barıp-keleler.
 Bugün belediyede elektrik stantsiyası quruv üstünde üç buçuq saat laqırdı oldı.
 Bu mesele qalın ceplilerni de meraqlandırdı.
 Demek ki, Abdureşid efendi stantsiya qurucılığında para zorluğı çekmeycek.
-Küyevniñ yapqan işleriniñ episini aytıp çıqmaq küç.
-Lâkin, qıymetli Üsein efendi, bizim küyev bir iş daa yaptı... öyle iş ki, diger hızmetlerinen qıyas etmek mümkün degil.
+Kіyevniñ yapqan işleriniñ episini aytıp çıqmaq küç.
+Lâkin, qıymetli Üsein efendi, bizim kіyev bir iş daa yaptı... öyle iş ki, diger hızmetlerinen qıyas etmek mümkün degil.
 Abdureşid efendi “Vetan Hadimi”ni dünyağa ketirdi.
 
 Suleyman Ali efendi bu sözlerni iftiharle söyler eken, musafir, yüregine oq saplanğan kibi, kevdesini küçlü surette silkitti.
@@ -548,7 +548,7 @@ Münever kişilerimiz adden-aşıq asabiy oldılar.
 Er maneviy şeyden iddetlenip keteler.
 Halqımız ise ziyade sabırlı.
 Sabırlı degil... ğarip.
-Özüniñ qaydını çeküv qabiliyetinden marum... oqyanusta qasırğa içinde qalğan gemi.
+Özüniñ qaydını çeküv qabiliyetinden marum... okyanusta qasırğa içinde qalğan gemi.
 Onı idare etken, aydın ufuqqa doğurtqan dümenci yoq.
 “Vetan Hadimi” çıqarılğan devirde tatar onıñ saifelerinde özü içün talimatlı fikirler tapa edi.
 “Topraq... onı öz küçünen sürip-saçıcı köylüniñ olmalı”.
@@ -560,7 +560,7 @@ Halq aqiqatnı Mediyevden eşitti.
 – “Vetan Hadimi” Peterburgnıñ emirine binaen qapatıldı... – dedi Abdureşid efendi, aqırından... – onıñ laqırdısı asıl da yavaş edi.
  – Teessüf ki, yüksek akimiyet kişileri menim itirazıma tabi olmadılar.
 
-– Yüksek akimiyet kişileri?!.. – ocanıñ sesi deñişti, titredi... sanki añlaşılmaz oldı.
+– Yüksek akimiyet kişileri?!. – ocanıñ sesi deñişti, titredi... sanki añlaşılmaz oldı.
 – Böylelikle, bizim gençligimiz gazetasız qaldımı?
 
 – Ebet! – Abdureşid efendiniñ başı tekrar aşağı endi, hayli vaqıt yuqarı köterilmedi.
