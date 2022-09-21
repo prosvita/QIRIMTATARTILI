@@ -571,7 +571,7 @@ Uyezd idaresi ile añlaşmaq mümkün oldı.
 Bu sefer... – Mediyev sustı, tizi üzerindeki sol qolunıñ uzun, arıq parmaqlarını birer-birer büklep, nelernidir esaplap baqtı.
 Tüşündi... bir şeylerge razı oldı, bir şeylerge itiraz etti.
 Öyle eken, çeresindeki ifadeler deñişe berdi, dudaqları de tartıldı, de yiberildi.
-– “Vetan Hadimi”ni bir daa açmaq endi qolumızdan kelirmi... aqılım kesmey.
+– “Vetan Hadimi”ni bir daa açmaq endi qolumızdan kelirmi... aqlım kesmey.
 Zaman mürekkep oldı.
  – Abdureşid efendi nazarını kilimden qurtarıp, belini doğrulttı.
  – Mürekkep olsa da, qol qavuşıp oturmağa aqqımız yoq.
@@ -580,7 +580,7 @@ Zan etsem, bizge bir qaç adam olıp, muallim ile köz-közge kelip, qonuşm
 – Ne hususta? – dep soradı Üsein oca.
 – Başqa gazeta teşkili aqqındamı?
 
-–Hayır!
+– Hayır!
 Başqa gazeta hususında şimdi laqırdı ola bilmez, – dedi Mediyev, – laf “Terciman”nıñ ğayeviy usulı üzerinde olmaq lâzim.
 
 – Onıñle bir defa qonuşqan edik, – dedi Üsein oca ve... elindeki sigarnıñ külüni masa üzerindeki qaburçaq küllük içine qaqıp tüşürdi.
@@ -606,14 +606,14 @@ Dümen başında kene burjua.
 Demokratik fikirlerge, gazetamda olğanından ziyade qulaç berip olamayım.
 Ziyade bersem, “Terciman”, şübesiz, qapalacaq.
 Bizge gazeta kerek.
-Men de “Vetan Hadimi” kibi: “Topraq, onı öz küçüle sürgen – saçqan adamlarga berilmek kerek” diye yaza bilem.
+Men de “Vetan Hadimi” kibi: “Topraq, onı öz küçüle sürgen–saçqan adamlarga berilmek kerek” diye yaza bilem.
 Netice ne olıp çıqar, özüñiz bilesiñiz!
 Fikirimce, beklemek... güzel künler kelgence beklemek kerek!”
 
 Mezkür vaqialar yüz bergen vaqıtta İsmail Gasprinskiy elli yedi yaşında, Abdureşid Mediyev iygirmi sekizde edi.
 Abdureşid efendi anadan doğğanda İsmail Gasprinskiy Simferopol gimnaziyasını ve Voronej askeriy mektebini bitirgen, Moskva Edadiyesinde1 oquğan, rus professorlarında tasil körgen, Parijde, Madridde, Stambulda yaşağan...
 Elgamra sarayındа 23 cazibeli, yarı mağrib , yarı ispan qızları cemiyetlerinde bulunğan, Kairde arap tilinde “Elnahza” gazetasını neşir etken, “Kontinental” zalasında üç yüz altmış adamnıñ ögünde maarif ve medeniyet hususında araretli nutq söylegen, niayet, İdil boylarındaki tuccar İsfendiyar Aqçurinniñ qızı Zöre hanımğa evlenip, artıq üç oğul, üç qıznıñ babası olğan...
-ebet, bu işler olıp keçken ediler.
+еbet, bu işler olıp keçken ediler.
 
 Bir defa, Üsein Şamil aqqında yeñi malümat tapmaq ümüdinen, hansaray kütüphanesinde eski mecmualarnı qarıştırğan vaqıtımda, İsmail Lömanovnıñ1 eli ile yazılğan vesiqa közüme çalındı.
 Bu vesiqa matbaada basılğanı yoq... daa elyazmada edi.
