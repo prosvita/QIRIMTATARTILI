@@ -639,7 +639,7 @@ Darılmaarif ve Darıltalim mekteplerini bitire, Cemiyet Aliyede, Osmaniyede tas
 Hariciye nazaretinde çalışa.
  1876 senesi türk inqilâpçılarınen beraber Sultan Azizniñ tahttan endirilüvi işinde faal iştirak ete.
 Sultan Abdul-Amitke azırlanılğan suihastqa qoşula.
-Abdul-Amitniñ emirine binaen, polis idaresi hadimleri Asan Nurini ve arqadaşlarını apshanege qapamaq içün qıdırğanlarını añlap, fransız vapurına2 minip, Avropağa qaça, yarım dünyanı döne-dolana.
+Abdul-Amitniñ emirine binaen, polis idaresi hadimleri Asan Nurini ve arqadaşlarını apshanege qapamaq içün qıdırğanlarını añlap, fransız vapurına minip, Avropağa qaça, yarım dünyanı döne-dolana.
  1879 senesi baba toprağına kelip çıqa.
 Köre ki, ayat bunda da parlaq degil.
 Halq padişa zulumı altında iñlemekte.
@@ -661,14 +661,14 @@ Rus tilinde qonuşuvda eyi natıq, İsmail Gaspralı ükümet adamlarına me
 
 Muallimde bu qabiliyetlerniñ episi tapıldı.
 
-1883 senesi onuncı aprelde “Terciman”nıñ birinci sanı çıqqan soñ Asan Nuri Yalı Boyuna avdet ete, muallimlik işinen meşğul ola.
+1883 senesi onuncı aprelde “Terciman”nıñ birinci sanı çıqqan soñ Asan Nuri Yalı Boyuna avdet ete, muallimlik işinen meşğül ola.
 Asan Nuri esaretniñ, zulumnıñ duşmanı, Yalı Boyu şeerlerinde ve köylerinde çarizm akimiyetine qarşı gizli siyasiy dernekler teşkil ete.
-1892 senesi Gasprinskiy ile añlaşıp, “Terciman” matbaasında “Necat” (qurtulış) adında on bin nusha beyanname bastıra, olarnı eali arasında darqatuv işine reberlik etken vaqıtında polis idaresi tarafından yaqalana, gizli teşkilât azaları makeme etilip, Sibirge aydala.
+1892 senesi Gasprinskiy ile añlaşıp, “Terciman” matbaasında “Necat” (qurtulış) adında on biñ nusha beyanname bastıra, olarnı eali arasında darqatuv işine reberlik etken vaqtında polis idaresi tarafından yaqalana, gizli teşkilât azaları makeme etilip, Sibirge aydala.
 Saraymenli bay, oqumış kişi, Gasprinskiyniñ dostu Suleyman Acı büyük paralar berip.
 Asan Nurini, ömründe iç körmegen ve bilmegeni alda, Sibirge sürgünden qurtarıp qaldıra.
 Bu işni İsmail efendiniñ ricasına binaen yapa.
 Asan Nuri kürek cezasından qurtula... lâkin sevimli köyünden ve ocalıq hızmetinden marum qala, уyezd idareleriniñ emirleri mücibi Ay Vasıldan quvula, oña ocalıq hızmeti yasaq etile.
-Asan Nuri “Gessen Georgiy” taqılma ad altında türlü vileyatlerde ömür keçirerek, qaç yıllardan soñ Yaltada peyda ola, sabıq şeer idaresi binasınıñ birinci qatında qavehane aça.
+Asan Nuri “Gessen Georgiy” taqılma ad altında türlü vilâyetlerde ömür keçirerek, qaç yıllardan soñ Yaltada peyda ola, sabıq şeer idaresi binasınıñ birinci qatında qavehane aça.
 Onıñ küçük kelirinen yavaş-yavaş keçine.
 Qavehane kettikçe pekine, kenişley, beynelmilel “Edebiyat salonı”na çevirile...
 Çehov, Andreyev, Artsebaşov, Balmont, Nemiroviç-Dançenko, Küprin, Korolenko, Kötsübinskiy, Skitalets kibi büyük edipler bu qavehane saibiniñ, arap, acem, fransız, alman, rus tillerini mükemmel bilgen yüksek medeniyetli adamnıñ, daimiy ziyaretçileri ve dostları olalar.
@@ -695,7 +695,7 @@ Oqup baqıñız, – dedi Osman Nuri.
 – Menim yüregim böyle şeylerge çıdap olamay”.
 
 Eki parmağınen defterniñ eki saifesini közlerimniñ ögünde tutıp turdı.
-Qoluma bermedi .
+Qoluma bermedi.
 Sözler hattat elinen yazılğan.
  
 Men diqqatle oqudım... oqudım, soñra çoq kederlendim.
@@ -735,14 +735,14 @@ Gasprinskiy gazeta teşkil etkende Qırımda kimseden maddiy yardım körgeni 
 Ne çöllük yaqtan, ne de dağlıqtan.
 Orta Asiyadaki ve Kavkazdaki tanışları yardımğa keldiler.
 İlki senelerde bütün Qırımda “Terciman”nıñ yalıñız altı abunecisi oldı.
-Albuki İsmail efendi halq arasında daimiy surette beş yüz nusha gazetanı bedava darqattı.
+Albuki İsmail efendi halq arasında daimiy surette beş yuz nusha gazetanı bedava darqattı.
 
 Osman Nuri defterniñ diger saifelerini açtı, men yanğın aqibetiniñ tafsilâtını oqudım.
 Ebet, matbaanı tüzetmek kerek, lâkin para kene yoq.
 İsmail efendi, başqa çare tapıp olamadı... anasınıñ sandığında saqlı ölümlik qaftanlarını ve tikili bir qaç parça qumaşını alıp, çöllükteki pomeşçik mırzalarğa satmaq, yahut özüniñ bu alğa kelgenini bildirmek içün ketti.
 Canköy uyezdinde zenginlernen körüşip, gazetanıñ, bu halq variyetiniñ, maddiy yardımğa muhtac ekenini tafsilâtlı surette añlattı.
 Tatarnıñ kelecegi içün müim bu işke, göñül berir, yardım eterler belledi.
-Albuki Safedin Abdul Çonğarskiy, altı parmaqlı mırza, qumaşlarnı saatlarca qarıştıra berip, örseledi, kirletti, “mal eskice eken”, dep bazar fiyatından ucuzca almaq içün davalaştı-davalaştı, aqibette, qumaşlarnı almay, saibiniñ tizleri üzerine bıraqıp ketti.
+Albuki Safedin Abdul Çonğarskiy, altı parmaqlı mırza, qumaşlarnı saatlerce qarıştıra berip, örseledi, kirletti, “mal eskice eken”, dep bazar fiyatından ucuzca almaq içün davalaştı-davalaştı, aqibette, qumaşlarnı almay, saibiniñ tizleri üzerine bıraqıp ketti.
 “Terciman”nıñ muarriri evge parasız qaytıp keldi.
 
 “Men o vaqıtta basmahanede mürettip edim, – dedi Osman Nuri, defterini ögümden alıp.
@@ -757,7 +757,7 @@ Basma maşinası sınıq, urufatı zeki ve az... naşir özü daima borclu.
 Otuz üç yıl matbaacılıq etti alda, öz matbaasını ne kârlı istisal ve ne de nefis eserler çıqarıcı sanathane yapa bilmedi.
 Bu hususta fikir etmek içün onıñ vaqıtı da olmadı.
 Zöre hanımnıñ vefatından soñ miras qalğan parağa ekinci elektrik basma maşinası aldı.
-Ömüriniñ soñki yıllarında Bağçasaray civarında petrol (neft) tapılğan vaqıtta, muallim neft issadarları şirketi açuv teşebbüsi köstergen oldı ki, bu işni de özünde para qazanmaq içün degil, tatar halqını istisalğa çekmek maqsadınen yaptı.
+Ömrüniñ soñki yıllarında Bağçasaray civarında petrol (neft) tapılğan vaqıtta, muallim neft issadarları şirketi açuv teşebbüsi köstergen oldı ki, bu işni de özünde para qazanmaq içün degil, tatar halqını istisalğa çekmek maqsadınen yaptı.
 Gasprinskiyge ürmeti ve inamı qaviy bir çoq samimiy dostları para berip, aselet şirketke aza oldılar.
 Şirketten fayda olmaycağını bile ediler.
 Paranı Gasprinskiyge yardım dep berdiler.
@@ -883,7 +883,7 @@ Cıltı üzerindeki türlü itaflarnı, muracaatlarnı, hıtapnı, nidalı ib
 – Efendim! – dedi o baynıñ ögüne yüz tüşip.
  – Sizge “Nalei Qırım”nı ketirdim.
 Masharalıqnı körüñiz !
-Sizniñ, qariyemizniñ atasınıñ, isimi tek vergi ve yasaq müfettişleriniñ kâğıtları üzerinde qol ile yazılı ola.
+Siziñ, qariyemizniñ atasınıñ, isimi tek vergi ve yasaq müfettişleriniñ kâğıtları üzerinde qol ile yazılı ola.
 Ştanı yamavlı, süme ocanıñ adı kitaplarnıñ birinci betinde basıla.
 Bu ne demek?
 Polis idaresi ne ile meşğul?
@@ -1136,7 +1136,7 @@ Vallai, insan çarpınacaq.
 – Başı temizce.
 Oqumaq mümkün, – dedi Üsein oca.
  – “Sen sus!
-Vaqıf topraklarnı satsatma...” Bu yerleri açıq.
+Vaqıf topraqlarnı sat-satma...” Bu yerleri açıq.
 “Men sizlerge bu meclisten...” dep başla.
 İşte, bu yerden, – parmağını saifeniñ aşağı qısımında satırnıñ ortasına bastı.
  – Aqırın oqu.
