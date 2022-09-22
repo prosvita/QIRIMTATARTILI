@@ -214,7 +214,7 @@ Partiyalı ekenligiñiz içün afu isteysiñizmi?
 
 — Men partiyalı adamım, Sigizmund Genrihoviç, ve işiñizge partiya közünen baqmaq isteyim.
 Yüregiñiz temiz, men bilem.
-Künü kelir, partiya sizge beñzer eski, tecribeli mütehassıslar hususında öz fikirini söyler.
+Künü kelir, partiya sizge beñzer eski, tecribeli mütehassıslar hususında öz fikrini söyler.
 
 — Söylermi?
 
@@ -347,7 +347,7 @@ Yüksek topraq yığını üstünde turğan ekskavatornıñ yelquvanı kök yüz
 
 — Ey!
 Kazak!
-Saña ne oldı?— degen davuş işittim.
+Saña ne oldı? — degen davuş işittim.
 Başımnı köterdim, Arhipka,— biz seni bekleymiz...— o çirkin davuşnen küldi.
 
 Ekskavator çalışmay, tura.
@@ -355,7 +355,7 @@ Maşinistniñ kabinası boş.
 Yaqın keldim.
 Topraq yığını artından Kandıba ve Almazov çıqtılar.
 
-— Niçün keçiktiñ?— dep soradı menden Almazov,— işlerniñ sıqlet ekenini bilmeysiñmi?
+— Niçün keçiktiñ? — dep soradı menden Almazov,— işlerniñ sıqlet ekenini bilmeysiñmi?
 
 Men indemedim.
 Kovşqa köz ettim.
@@ -365,7 +365,7 @@ Tros avada sallanıp tura.
 — Çekil... men çıqayım,— dedi Kandıba,— bugün çalışmasaq, grafik harap olacaq.
 Agapovdan ayıp.
 
-— Bana aytmadımmı?— Almazov ziyade eecanlı edi,— suvuq yel sılaq yelquvannıñ üstüni buzlatqan.
+— Bana aytmadımmı? — Almazov ziyade eecanlı edi,— suvuq yel sılaq yelquvannıñ üstüni buzlatqan.
 Töpege çıqmaq kerek... çünki tros valikten tayıp, boltnıñ ucuna asılıp qalğan.
 Tünevin yahşı maylanmağanğa beñzey, lâkin...
 
@@ -380,7 +380,7 @@ Tek ayğa degil, eñ uzaq seyyarege bile... köpek-mışıq, sıçavul qıdırı
 Yelquvannıñ ortasına yetken edim, qulağıma aşağıdan Almazovnıñ sesi keldi.
 
 — Tüş?
-Tez tüş!— dep qıçırdı o.
+Tez tüş! — dep qıçırdı o.
 Men elimni salladım: "selâm!" Soñ yoluma devam ettim.
 Kelgenimniñ ilk künü Hristofor töpede valikni maylayyatqanını körgende —"bir şey degil..." dep tüşüngen edim.
 Elbet de... aşağıdan baqsañ, öyle.
@@ -398,11 +398,11 @@ Söz sırası aytıp keçeyim.
 Men bir defa, çelüskin epopeyasınıñ iştirakçisi İbraim Fakidovdan: "Nasıl!
 Buz deryasında geminiñ batuvı deşetli edimi?" — dep soradım.
 O hucur etip, küldi: "Deşetli?
-Öyle degeni ne?— dep taaciplendi,— eger qorqunç manasında olsa, böyle deşet gemige mingen ilki künümizde başlağan ve biz onı ilki künümizde aqıldan çıqarıp atqan edik.
+Öyle degeni ne? — dep taaciplendi,— eger qorqunç manasında olsa, böyle deşet gemige mingen ilki künümizde başlağan ve biz onı ilki künümizde aqıldan çıqarıp atqan edik.
 Lâkin biz Neapolge degil, Şimaliy qutupqa keteyatqanımıznı bile edik...
 İşittiñizmi?"
 
-Töpege köterilir ekenim, aşağı baqmamağa tırıştım çünki ...kim bile?
+Töpege köterilir ekenim, aşağı baqmamağa tırıştım çünki... kim bile?
 Şu vaqıtqa qadar öyle oldı-böyle oldı, maña Çar-Çaqnıñ buzları arasında, ister-istemez, bir qaç kereler yuvunmaq kerek oldı.
 Bu sefer belki uçmaq sırası kelir!
 Yuvunmalardan soñ sağ qala bildim, lâkin bunıñ töpesinden uçsam...— çünki yelquvan pek yüksek,— ne olacağını alla bilsin.
@@ -442,8 +442,8 @@ Bilegimni demir arasına keçirip, ellerime sıcaq nefesnen üfüre başladım.
 Daa üfürdim... avuçımnı açıp-yapıp baqtım.
 
 Öz-özüme vazifeler berdim.
-Biraz vaqıt keçken soñ olarnıñ icrasını teşkerdim.—"Güzel tur, sen yelquvan üstündesiñ.
-Ayaqlarıñ tüpsiz dünyağa asılıp turalar.
+Biraz vaqıt keçken soñ olarnıñ icrasını teşkerdim.— "Güzel tur, sen yelquvan üstündesiñ.
+Ayaqlarıñ tüpsüz dünyağa asılıp turalar.
 Qollarıña küçlüce üfür, küçlüce!
 Baq, işaret parmağıñ işten çıqayata!
 Aydı, qıbırdatıp baq!
@@ -531,7 +531,7 @@ Maşina bugünki kibi, ritmnen iç bir vaqıt çalışmağan edi.
 Dört saatten soñ onı artqa cılıştırdıq.
 Almazov meni töpege, özüniñ yanına çağırdı.
 
-— Kel, otur!— dedi o maña, rıçagnı kösterip,— ögren!
+— Kel, otur! — dedi o maña, rıçagnı kösterip,— ögren!
 Tezden mektepni bitireceksiñ!
 
 Onıñ yengil, sabırlı çalışayatqanını körip, suqlandım.
@@ -641,7 +641,7 @@ Sağındım sizni.
 Eppi vaqıt susıp oturdım.
 O, bir-birinen bağı yoq, dadsız sözlernen, nasıldır, hucur bir tarihnı ikâye etti, qaç defa haqıldap küldi.
 Sabira hala çette turıp, bizni seyir etti.
-%
+
 
 — Öşek darqatıp yüresiñiz, öylemi?— dep soradım men Yekaterina Vasilyevnadan.
 — Bunı ne maqsadnen yapasıñız?
