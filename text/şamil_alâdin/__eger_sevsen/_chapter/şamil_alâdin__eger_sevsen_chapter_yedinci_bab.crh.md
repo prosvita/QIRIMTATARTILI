@@ -1,7 +1,7 @@
 ## Yedinci bab — Ekinci sevginiñ elâk oluvı
 
 Men baraknıñ ömürine alıştım.
-Divarları tozlı, polı bılaşıq bu qolaysız oda — közlerimizge acaip saray olıp körüne.
+Divarları tozlu, polı bılaşıq bu qolaysız oda — közlerimizge acayip saray olıp körüne.
 Nuqsanlarnı endi men de sezmeyim... ne evimizniñkini ve ne de özümizniñ.
 Raşid Mahkamov, Hristofor Duranidi, Arhipka, Nikolay Kandıba... özümni de qoşsam — beş kişi.
 Epimiz bir ekskavatorda işleymiz.
@@ -41,7 +41,7 @@ Bundan İradanıñ da haberi bar...
 Bizde... de tros üzüle, de elektrik küçüniñ bir fazası olmay.
 Öyle olsa da, biz kimerde aylıq plannı artqaç toldıramız.
 Almazovnıñ maşşallası bar.
-Birincide, o — acaip maşinist.
+Birincide, o — acayip maşinist.
 Onı epimiz seve, saya, sözüni tuta ve taqdiri içün qayğıramız.
 Ekincide, bizde işni taşlap ketken kişi olmay.
 Üçüncide, Almazov daimiy surette tehnikiy kadrlar azırlay, zira şimdi er şeyni kadrlar al eteler.
@@ -78,14 +78,14 @@ Men yigitlerni, "kögerteden tışqa tükürmek yasaq!" dep tenbiledim.
 Bir-eki kün keçken edi, olar da, bizim kibi, bılaşıq okoplar içinde ayaqlarını kenarğa ziyade kere berip ve sağğa-solğa yantaya berip yüre başladılar... güya gemideki matroslar edi.
 
 Alicenap qılıqlar tez elde etile.
-Men de onıñ kibi... şimdi mına qurucılıqta bu kişiler ortasına tüşken soñ...— olarnı, elbette, dünyada eñ nümüneviy adamlar dep olamayım, er alda, barakta menim arqadaşlarımnıñ adetlerine çar-çabik alıştım.
+Men de onıñ kibi... şimdi mına qurucılıqta bu kişiler ortasına tüşken soñ... — olarnı, elbette, dünyada eñ nümüneviy adamlar dep olamayım, er alda, barakta menim arqadaşlarımnıñ adetlerine çar-çabik alıştım.
 
 Hazar-Kendten qaytıp kelgen gecem barakta Karim Yoldaşev ve Basit Ataqulovnı körip, ayrette qaldım.
 Olar Nikolay ve Hristofornen beraber stol başında karta oynamaqta ediler.
 
 Kandıba meni eslep, Hristoforğa gizliden pısırdadı, soñ oyunına devam etti.
 Hristofor maña külümsirep aldı.
-Pek ilekâr külümsiregen kibi keldi.
+Pek iylekâr külümsiregen kibi keldi.
 Soñ kartalarnı yerge taşlap, parmağını salladı.
 Arhipka köşede krovatı üstünde serilip yatqan, nasıldır mektüpni qıçırıp, ecelep oquy.
 Yüzünde mas-mavı yara ve qan tamğaları bar.
@@ -93,7 +93,7 @@ Onıñ yanında toqtaldım.
 
 — Yüzüñde bu örneklerni kim yasadı?
 
-— Muşuq...— istemey-istemey cevap berdi Arhipka, soñ ilâve etti. — Elindeki pıçağını çekip alayatqanda oldı... episi seniñ sebebiñden!
+— Muşuq... — istemey-istemey cevap berdi Arhipka, soñ ilâve etti. — Elindeki pıçağını çekip alayatqanda oldı... episi seniñ sebebiñden!
 
 — Menim? — ayrette qaldım,— niçün özüñni qorçalamadıñ?
 
@@ -103,7 +103,7 @@ Muşuqtanmı? — Arhipka maña közlerini tikledi,— nasıl etip?
 
 — Onı bilgeniñ çoqtanmı?
 
-— Çoqtan,-Arhipka tuyüldi.
+— Çoqtan,- Arhipka tüyüldi.
 Sesi üzülip-üzülip çıqtı.
 — Sen allanı bilgeniñ çoqtanmı?
 Qayda o? — dep soradı menden ve özü cevap berdi.
@@ -133,7 +133,7 @@ Maña kelgen mektüp!
 
 — Yoq.
 Saña kelgen mektüp degil.
-Maña keldi...— dedi Hristofor, oyununı toqtatıp.
+Maña keldi... — dedi Hristofor, oyununı toqtatıp.
 — Saña mektüp yoq...— Hristofor bu sözlerni, yazıqsınıp ve öpkelenip ayttı.
 
 — Öyle olsa, mektüpni Arhipkağa niçün berdiñ? — dep cekirdim men.
@@ -568,7 +568,7 @@ Maşina bölüginde Almazov peyda oldı, bizge kompressornı teşkermege emir et
 Aşağıda Raşidniñ ve Kandıbanıñ sesleri işitildiler.
 Er kesten soñ Arhipka keldi.
 
-Agapov topraqnıñ qattı ekenligi hususında şikâyetlendi; soñra Almazovnen beraber topraq yığınından aşağı, yalığa tüşip, tizgece balçıqqa batıp, Hazar-Kend betke yurdiler.
+Agapov topraqnıñ qattı ekenligi hususında şikâyetlendi; soñra Almazovnen beraber topraq yığınından aşağı, yalığa tüşip, tizgece balçıqqa batıp, Hazar-Kend betke yürdiler.
 Bir talaydan soñ tekrar çuqur içinde peyda olıp, bir şeyler aqqında laqırdı etip turğan soñ töpege çıqtılar.
 
 — Topraq qattı degil,— dedi Andrey Zaharoviç, endi evge qaytmağa niyetlengen Agapovğa.
@@ -582,7 +582,7 @@ Bu gece ögrendim.
 Ekskavatornıñ astında, relsler ve şpallar içün, erte-yarıq yer azırlap qoydıq.
 Bizimkinden soñ eki-üç smenağa daa yetişecek.
 
-Deycegim, yer şey sırasında.
+Deycegim, er şey sırasında.
 Bir daa baqsaq... güzel-güzel çalışayatqan maşinağa ne oldı?
 
 Keñligi yetmiş beş, terenligi otuz metr çuqur...
