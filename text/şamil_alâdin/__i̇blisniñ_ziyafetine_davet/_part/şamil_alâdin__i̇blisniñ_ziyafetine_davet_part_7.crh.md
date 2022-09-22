@@ -617,7 +617,7 @@ Elgamra sarayındа 23 cazibeli, yarı mağrib , yarı ispan qızları cemiyetl
 
 Bir defa, Üsein Şamil aqqında yeñi malümat tapmaq ümüdinen, hansaray kütüphanesinde eski mecmualarnı qarıştırğan vaqıtımda, İsmail Lömanovnıñ1 eli ile yazılğan vesiqa közüme çalındı.
 Bu vesiqa matbaada basılğanı yoq... daa elyazmada edi.
-İsmail Gasprinskiyniñ mufassal “Tercimeialı”.
+İsmail Gasprinskiyniñ mufassal “Tercimeiуalı”.
 Elyazmanıñ astında 1894 senesi tarihı qoyulğan.
 Lömanov o vaqıtta rus tilinde muallimlik ve “Terciman” idarehanesinde muarrirlik ete eken.
 1893 senesi “Terciman”nıñ dünyağa kelüvine on yıl oluvı munasebetile, oquyıcılarnıñ ricalarına binaen, muarrirniñ tercimei alını yazıp, Odessa tsenzurasına köstere.
@@ -826,7 +826,7 @@ Özüñizge malüm, soñki yıllar içinde eppi eserler yazdım.
 Olar qol-qoldan, ağız-ağızdan kezip, artıq bozuldılar.
 Bazı cıyınlarda ve toylarda özüm eşitip, ayrette qalam.
 Öz emegimniñ mahsulı ekenligine şübelenem.
-Olarnıñ kitap şekilinde çıqarılmasına yardım etersiñiz ümüdi ile uzurıñızğa keldim... lâkin böyle kederli adise.
+Olarnıñ kitap şeklinde çıqarılmasına yardım etersiñiz ümüdi ile uzurıñızğa keldim... lâkin böyle kederli adise.
 “Vetan Hadimi”... yoq!
 
 Mediyevniñ yüzünde ökünç kölgesi qıbırdandı.
@@ -1159,7 +1159,7 @@ Halqımıznıñ içinde fitneciler çoqlaştı.
 Bir taqım ilekârlar, halqı aldayıp, dinlerini unuttırdılar.
 Şeriatı hatirlerinden çıqardılar.
 (Düşünir).
-O ilekârlar türlü yerlerde, türlü meclisler yapıp, şeriatqa uymaz arizalar yazdılar.
+O iуlekârlar türlü yerlerde, türlü meclisler yapıp, şeriatqa uymaz arizalar yazdılar.
 Bir qaç ay evelsi Peterburgğa mahsus adamlar yollayıp, Allanıñ emiri olmayan şeyleri padişadan istediler.
 
 Eger padişa olarnıñ isteklerini qanaatlendirse, epimiz günakâr olacaqmız.
