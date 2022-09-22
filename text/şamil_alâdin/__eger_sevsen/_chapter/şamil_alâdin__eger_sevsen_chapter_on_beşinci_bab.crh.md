@@ -374,7 +374,7 @@ Rezina çızmalarnen buz üstüne basmaqnıñ çaresi yoq.
 Er kes areketsiz, indemey baqıp turmaqta.
 Kabinağa kirip, çızmalarımnı çıqardım, çılğavlarnı ayaqlarıma sarıp, tobuqlarımdan yuqarısını telnen bağladım, fufaykamnı dögmelep, çilengir anahtarını, kiçik çöküçni ceblerime tıqıştırdım, may qutusını qoltuğıma qısıp, yelquvanğa tırmaşa başladım.
 Men bugün er türlü hızmetke azırım.
-Ayğa uç deseler, bir sözsiz uçacağım.
+Ayğa uç deseler, bir sözsüz uçacağım.
 Tek ayğa degil, eñ uzaq seyyarege bile... köpek-mışıq, sıçavul qıdırıp oturmaq kerekmey.
 
 Yelquvannıñ ortasına yetken edim, qulağıma aşağıdan Almazovnıñ sesi keldi.
@@ -469,7 +469,7 @@ Men mında gimnastika içün çıqtımmı?
 Bunıñ içün aşağıda yer azlıq ettimi?
 Ellerim qızdılar."
 
-Öz-özümnen laqırdı ete berdim, Aşağı baqmadım.
+Öz-özümnen laqırdı ete berdim, аşağı baqmadım.
 Balçıqlı may parçalarını urıp tüşürmek içün köçerniñ etrafını qırıp temizledim.
 Valik qıbırdağan kibi oldı.
 Çöküçnen eki-üç defa urdım.
@@ -536,7 +536,7 @@ Tezden mektepni bitireceksiñ!
 
 Onıñ yengil, sabırlı çalışayatqanını körip, suqlandım.
 Kovş de topraq yığını üstüne qapaqlana, de aşağı tüşe, de töpege çıqa.
-Kovşqa, yığın üstünde toqtalmağa imkân bermey, aman yelquvannı sağ tarafqa aylandıra, kovş kene çuqur içinde ğaip olıp kete.
+Kovşqa, yığın üstünde toqtalmağa imkân bermey, aman yelquvannı sağ tarafqa aylandıra, kovş kene çuqur içinde ğayıp olıp kete.
 Sılaq topraqnı kovş içinden boşatmaq qıyın, lâkin hızmet ustadan qorqa, deyler.
 Kovş yuqarı keteyatqanda içindeki topraq avadaki sarsıntı neticesinde divarlarından ayrıla, kovş yığın üstüne qapaqlanğan vaqıtta tökülmesi qolaylaşa.
 Bu protsesske tsikl... bir tsikl deyler.
