@@ -21,7 +21,7 @@ Men, elbette, dülber nutq söylemege bilmeyim, "mına", "añlaşılamı", "deme
 
 — Toplaşuvnı yañlış alıp barasıñ,— dedi maña Nikolay.
 — Madamki sen komsomolsıñ, bizni, bitaraflarnı, terbiyelemege borclusıñ.
-Toplaşuvda reys ve sekretar olmaq şart.
+Toplaşuvda reis ve sekretar olmaq şart.
 Reis mecliske reberlik yapsın, sekretar protokol yazsın.
 Bu seniñki ne?
 Oturırmız, laqırdı etermiz, darqar ketermiz.
@@ -38,10 +38,10 @@ Nikolay dülgerler baragındaki kötek hususında laqırdını tazertmege isteme
 Muşuq olmağan olsa, Arhipkanen çatışuvı ne ile biter edi, bilmeyim.
 
 Deycegim, er kes öz işine tutundı.
-Bu arada Arhipkanıñ nutq söyleycegi keldi.
+Bu arada Arhipkanıñ nutuq söyleycegi keldi.
 
 — Kötekleşüvni niçün bıraqmaq kerek? — dep soradı o,— bir adam diger adamnıñ taqletini azaçıq siypap alğanınıñ ne zararı bar?
-Bunı da yapmasaq, cak sıqısından ölüp ketermiz.
+Bunı da yapmasaq, can sıqısından ölip ketermiz.
 Mında körgenimiz ne?
 Tek aşhane.
 Anda ne bar?
@@ -81,7 +81,7 @@ Ertesi künü altı kolhoznıñ balaları sıcaq aş yediler.
 
 Bunıñ içün, Arhipkanıñ nutqı kiyik davuş olıp işitildi.
 
-— Men öz fikirimni ayttım,— dedi Arhipka,— keyfiñizge uymasa, qabul etmeñiz, lâkin sözüni keri aldı bellemeñiz!
+— Men öz fikrimni ayttım,— dedi Arhipka,— keyfiñizge uymasa, qabul etmeñiz, lâkin sözüni keri aldı bellemeñiz!
 
 Arhipka qısmen aqlı edi.
 Zevq, eglence ceetinden bizde, kerçekten de, maqtanmağa şey yoq edi.
@@ -112,7 +112,7 @@ Kimerde Nikolay ispanol türkülerinden beze, yunan yahud portegiz tavernaları 
 — Singapurda bulundıñmı? — dep soray menden,— anda bütün cadde ötellerden ve restoranlardan ibaret.
 Kerçek aytam — yalıñız ötel ve restoranlardan.
 Muzıka ve oyun gece-kündüz tınmay.
-Yemekler... o! Tekaran daa yürseñ — maallelerde adamlarnıñ soqaqlarda ayaq astında yatqalağanlarını ve açıq avada aç-çıplaq ömür keçirgenlerini köresiñ.
+Yemekler... o! Tekaran daa yürseñ — maalelerde adamlarnıñ soqaqlarda ayaq astında yatqalağanlarını ve açıq avada aç-çıplaq ömür keçirgenlerini köresiñ.
 Skelede adamlar yanımızdan keçkende "bolşevik", "Lenin", "koroşo" dep pısıldaylar.
 Olar bileler... episini bileler.
 — Nikolaynıñ parmaqları gitara telleri üzerinde oynağanları alda, sözüni devam etti: — Daa ne?
@@ -192,7 +192,7 @@ Qaqırıp polğa tükürdi, soñ ketip koykası üstüne yıqıldı.
 Peçkanıñ qapağı açıq qalğan soñ, dam üstünde uvulday bergen yel trubağa kirdi, baraknıñ içi tütünge toldı.
 
 Arhipka, dünyada ne qadar pesnut söz olsa, episini cıyıştırıp, bizni sögerek, peçkanıñ ögüne yuvurıp bardı, saksaul parçasınen türtip qapaqnı yaptı, soñ ayağınen tepip qapunı artınace açtı.
-Kandıba, Karim ve Raşid oña şübeli-şübeli baqtılar.
+Kandıba, Karim ve Raşid oña şubeli-şubeli baqtılar.
  — Delirdimi, ne? — dep tüşündiler olar, soñ mesele añlaşıldı.
 Hristofor asıl da sesini çıqarmadı.
 Gece işten qaçıp ketkeninden berli Arhipkanen laqırdı etmey edi.
@@ -204,13 +204,13 @@ Asıl da siyrek laqırdı ete.
 — Saña mektepniñ ne kerekligi bar? — dedi Kandıba,— şay da ülemasıñ!
 
 — Men şpal taşımaqtan bezdim,— dedi Arhipka.
-— Şaadetname olmasa, rıçag başına qoymaylar.
+— Şeadetname olmasa, rıçag başına qoymaylar.
 
 Raşid gizliden Arhipkanıñ artına keçti.
 
 — Arhipka niçün mektepke kirmek istey?
 Bilesiñizmi? — dep soradı,— men bilem.
-Naçalnik olıp, yuqarı maallege köçmek... sığır almaq, Rahilge evlenip, tınç yaşamaq istey...
+Naçalnik olıp, yuqarı maalege köçmek... sığır almaq, Rahilge evlenip, tınç yaşamaq istey...
 Öylemi, Arhipka?
 
 Arhipka ırcaydı.
@@ -241,7 +241,7 @@ Soñ başını töpege tikledi.
 — Kilsege? — taaciplenip soradı.
 — Niçün?
 
-Qız, koftasınıñ tışqa asılıp qalğan ucunı yubkasınıñ içine tıqtı, kölmeginiñ astında coyılıp ketken küçük köküslerine kederli baqtı elini pervasız alda sallap, krovat üstüne oturdı.
+Qız, koftasınıñ tışqa asılıp qalğan ucunı yubkasınıñ içine tıqtı, kölmeginiñ astında coyulıp ketken küçük köküslerine kederli baqtı, elini pervasız alda sallap, krovat üstüne oturdı.
 
 — Aqayğa çıqa bermekten yoruldım,— dedi o.
 — Bekârlıq yahşı.
@@ -252,7 +252,7 @@ Men onı acıdım, çünki soñki sözleri — yürekteki ağrınen çıqqan sö
 Arhipka elini onıñ omuzı üzerine qoydı.
 Rahil sekirip ayaqqa turdı.
 
-— Bu baraknıñ içinde ekşip-pükşüp oturğanıñız ne?— dedi o,— aşhanede eki bayan, bir gitara... ur patlasın, çalalar.
+— Bu baraknıñ içinde ekşip-pükşüp oturğanıñız ne? — dedi o,— aşhanede eki bayan, bir gitara... ur patlasın, çalalar.
 Barıp, bir-birimnzniñ boyunlarımızğa asılsaq, beton polnı biraz taptasaq, ne ola?
 
 Qız çıqtı.
