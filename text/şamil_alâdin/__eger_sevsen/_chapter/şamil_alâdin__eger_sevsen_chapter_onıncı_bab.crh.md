@@ -127,7 +127,7 @@ Ortalıq çım-çırt.
 Biraz keçken soñ, tarsıldı-tursıldı işitildi.
 Menim qurğan qalam yıqıldı.
 Tizlerime suv taşqını urdı.
-Biraz yuqarı köterildim, suv yolunıñ ağızına kene taş toldıra başladım.
+Biraz yuqarı köterildim, suv yolunıñ ağzına kene taş toldura başladım.
 Delik endi ziyade keñleşken, suv yolu divarnıñ içinde keñ truba şeklini alğan.
 Suv ketken sayın çoqlaşa bermekte.
 Böyle ketse, aylanma kanal içinde muvaqqat qurulğan benzin ve ammonal skladlarını tezden suv basa bile.
@@ -279,7 +279,7 @@ Ağırıp başladılar.
 Başım ağırlaşıp ketiy.
 Sıcaqlandım.
 Zayıflıqnıñ alâmeti olmalı.
-Suv yolunıñ ağızına brezent qoyıp, üstünden taş ve topraq toldırdılar.
+Suv yolunıñ ağzına brezent qoyıp, üstünden taş ve topraq toldurdılar.
 Anna Yakovlevna yüksek topraq obasından aşağı yaş qız kibi, tayıp tüşti, suv teşigini taşnen bekitip, betonnen sılamaqnı emir etti.
 
 — Amma, iş bunıñnen bitmey!— dedi o, Curayevke,— bu injenerniñ kibirine sığacaq iş degil.
@@ -287,7 +287,7 @@ Sizge başqa çare körmek kerek.
 Saba dalğıcılarnı çağırıñız!
 Özenge tüşip, bu qaçaq suvnıñ yolunı tapsınlar.
 Bu işni tez yapmaq kerek, yoqsa skladlar elâk ola bileler.
-Aylanma kanal bitmegence, skladlarnı başqa yerge avuştırmağa çaremiz yoq, — Anna Yakovlevna, elindeki fenerni köterip, suv çıqayatqan oyuqnı baqtı,— taş... evelâ taş toldırıñız!— dedi o,— soñra beton tökersiñiz!
+Aylanma kanal bitmegence, skladlarnı başqa yerge avuştırmağa çaremiz yoq, — Anna Yakovlevna, elindeki fenerni köterip, suv çıqayatqan oyuqnı baqtı,— taş... evelâ taş toldurıñız!— dedi o,— soñra beton tökersiñiz!
 — Bu ne?— teşik içinden yorğanğa beñzer şeyler çıqarayatqanlarını körip, ayrette qaldı,— sizden sorayım!
 — Bekirovnıñ urbaları!— dedi Tursunov.
 — Bekirovnıñ?
