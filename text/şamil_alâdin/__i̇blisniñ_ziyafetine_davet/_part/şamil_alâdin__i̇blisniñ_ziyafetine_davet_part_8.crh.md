@@ -405,15 +405,18 @@ Şu-uv!
 Şu-uv!
 Tükânnıñ içi qamçı şuvultısından iñledi.
 “Üsein oca, vazgeçiñiz! – dep qıçırdı tükâncı.
- – Bunıñ soñu yahşılıqnen bitmez!” Oca toqtamadı.
+ – Bunıñ soñu yahşılıqnen bitmez!”
+ Oca toqtamadı.
 Onıñ içinde dağlarda kezici kiyik mahlüq uyandı.
 Qamçısını oñlu-sollu siltedi.
 Talip kötekni toqtatıp olamağan soñ, yuvurıp tışqa çıqtı.
+
 “Cemaat!
 Üsein oca Acı Erbain efendini öldüreyata! – dep qıçırdı.
  – Tez!
 Tez!
-Yardım etiñiz!” Adamlar bir-birlerine baqıştı, yerlerinden qıbırdamadılar.
+Yardım etiñiz!”
+ Adamlar bir-birlerine baqıştı, yerlerinden qıbırdamadılar.
 “Acı Erbain baynımı? – dep soradı köylülerden birisi.
  – Kim öldüre yata?” “Üsein oca...”
 
