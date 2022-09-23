@@ -3,7 +3,7 @@
 Saat yedide Çatal çinarnıñ yanına keldim.
 Çatal çinar çürüp, borsayıp qalğan qadim terek.
 Onıñ yanında İrada körünmey.
-Aylanma kanalnıñ çetinde topraq yığını üstüne çıqtım, sağımasolıma köz ettim, kimse yoq.
+Aylanma kanalnıñ çetinde topraq yığını üstüne çıqtım, sağıma-solıma köz ettim, kimse yoq.
 Aqşamları, ekskavatorcılardan başqa, çalışqan kişi olmay.
 Olar ise uzaqtalar.
 Andan tek yelquvanlarnıñ töpeleri qıbırdağanı körüne, adam davuşları işitilmey.
@@ -20,10 +20,10 @@ Başımnı çevirdim, topraq obasınıñ diger tarafından teri paltolı kişi k
 Qulaqlı qalpağı elinde... saçları gür, töpege tiklengenler.
 
 — Ey!
-Kim bar anda?— dep qıçırdım men.
+Kim bar anda? — dep qıçırdım men.
 Adam ekenini kördim, lâkin kim?
 Bilmek meraqlı.
- — Men...Tursunov.
+ — Men... Tursunov.
 
 Bu, özüniñ barlığından ziyade memnün adamnıñ davuşı edi.
 Tursunov?
@@ -40,12 +40,12 @@ Men ondan soraycağıma, o menden soradı.
 Ziyade açuvlandım.
 
 — Qıznen körüşmege keldim,— dep cevap berdim.
-— Öylemi?— şaqıldap küldi.
+— Öylemi? — şaqıldap küldi.
 
 Aramızda yetmiş beş metr qadarlıq mesafe bar.
 Kanalnıñ keñligi bu qadar.
 
-— Öyle olsa, bekle!— dedi Tursunov.
+— Öyle olsa, bekle! — dedi Tursunov.
 — Bekle, tezden kelir.
 
 Bu zeerli sözler meni quturttılar.
@@ -115,7 +115,7 @@ Tekrar qıçırdım.
 
 Tursunov elini salladı ve topraq obasınıñ artında yoq olıp ketti.
 
-— Su-u-uv!— dep qıçırdım artından tekrar.
+— Su-u-uv! — dep qıçırdım artından tekrar.
 — Suv!
 Ayvan!
 Suv!
@@ -128,7 +128,7 @@ Biraz keçken soñ, tarsıldı-tursıldı işitildi.
 Menim qurğan qalam yıqıldı.
 Tizlerime suv taşqını urdı.
 Biraz yuqarı köterildim, suv yolunıñ ağızına kene taş toldıra başladım.
-Delik endi ziyade keñleşken, suv yolu divarnıñ içinde keñ truba şekilini alğan.
+Delik endi ziyade keñleşken, suv yolu divarnıñ içinde keñ truba şeklini alğan.
 Suv ketken sayın çoqlaşa bermekte.
 Böyle ketse, aylanma kanal içinde muvaqqat qurulğan benzin ve ammonal skladlarını tezden suv basa bile.
 Daa ne yapmalı?
@@ -152,7 +152,7 @@ Sevinecek.
 Ümütsizden?
 Belki ümütsizden degil?
 Tursunov bu yerde niçün peyda oldı?
-Şimdi körüşseler, İradadan: "o, ğarip yigitni" bu qadar aşalağanıñ ne?— dep soraycaq, İrada ise cevap bermeycek, şaqıldap külecek.
+Şimdi körüşseler, İradadan: "o, ğarip yigitni" bu qadar aşalağanıñ ne? — dep soraycaq, İrada ise cevap bermeycek, şaqıldap külecek.
 Tursunov da külüp-sıqılıp qalacaq, soñra yaş ve dülber qıznı teri paltosınıñ etegi astına alıp ketecek.
 Sağ taraftan suv aqa bermekte.
 Menim ellerim taldı.
@@ -161,7 +161,7 @@ Biraz vaqıttan soñ, arqamda kölmegim şır-suv oldı.
 Ayaqlarımnı avuştırmaq istedim, deral eñseme suv tolqunı urdı.
 
 — E-ey!
-Kim bar anda?— dep qıçırdım kene.
+Kim bar anda? — dep qıçırdım kene.
 
 Ses çıqmadı.
 Bundan soñ, başqa neticege keldim: arqamnı pamuq ştanğa tayağanda, eki ayaq üstünde degil, bir ayaq üstünde turmaq, diger ayaqqa ise raatlıq bermek kerek.
@@ -174,7 +174,7 @@ Doğdımı, doğmadımı — onı körermiz.
 Qıbırdamay turmaq kerek.
 Endi ne qadar turdım, bilmeyim.
 Belki on daqiqa turğandırım, belki yarım saat...
-Omuzlarımnıñ ve boyunımnıñ ağrısı tutı.
+Omuzlarımnıñ ve boyunımnıñ ağrısı tuttı.
 Közlerimni topraq yığınınıñ töpesine tiklep, qıçıra berdim:
 
 — E-ey!
@@ -244,7 +244,7 @@ Meni çetke üytep, üstüme özüniñ paltosını yaptı, soñra arqasını suv
 Topraq yığını töpesine çıq!— dep cekirdi maña.
 
 Cekirmedi, akim davuşnen ayttı.
-Soñ çoq vaqıt ceblerini qarıştırıp turdı, niayet, papiros çıqarıp, birisini menim ağızıma qaptırdı, digerini özüniñkine tıqtı.— Yaq!— dedi.
+Soñ çoq vaqıt ceblerini qarıştırıp turdı, niayet, papiros çıqarıp, birisini menim ağzıma qaptırdı, digerini özüniñkine tıqtı.— Yaq!— dedi.
 
 Papiroslarnı tutaştırdıq.
 Tursunov meseleniñ nasıl olğanını añlattı.
@@ -253,7 +253,7 @@ Tursunov meseleniñ nasıl olğanını añlattı.
 Evine bardım.
 Beraber idarege keldik, adamlarnı topladıq.
 O yaq-bu yaq, bu qadar vaqıt keçti.
-— Saat qaç?— dep soradım ondan.
+— Saat qaç? — dep soradım ondan.
 Tursunov sol elini közlerine yaqın ketirdi, papirosını çekip, yarıqlattı:
 
 — On birge çerik bar.
@@ -267,7 +267,7 @@ Ne aqılnen, bilmeyim.
 Oyuq divar içindeki pamuq ştannı qavi tutaraq, ayaq üstünde, kevdesini doğrulttı.
 Arqam yorulğanda men de öyle yapa edim.
 
-— Bu iş pek qolay degil eken!— dep taşladı Tursunov.
+— Bu iş pek qolay degil eken! — dep taşladı Tursunov.
 
 O öyle degende, közlerime yarıq urdı.
 Başımnı köterip, töpege baqacaq oldım, aşağı çaqıl ve topraq parçaları töküldi.
@@ -302,7 +302,7 @@ Yoqsa, İradanıñ ögünde özüni alicenap körsetmek istedimi?
 İrada ne aytır eken, dep bekledim, ağızından söz çıqmadı. 
 Meni komendantnıñ kontorasına alıp keldiler.
 
-— Petâ emce!—dedim men oña... öyle ki, güya bir işte qabaatlı edim,— menim pamuqlı urbam aylanma kanalda... beton içinde qaldı!
+— Petâ emce! — dedim men oña... öyle ki, güya bir işte qabaatlı edim,— menim pamuqlı urbam aylanma kanalda... beton içinde qaldı!
 
 Komendnantnıñ qaşları mañlayınıñ töpesine çıqtılar.
 Yüzü ap-aq oldı.
@@ -313,7 +313,7 @@ Menimnen şaqa etme!
 Urbalarıñnıñ aqqını maaşıñdan beş qat ziyade basıp alır.
 — İhtiyar sizde, — dedim men, — gece... başqa çare tapalmadım.
 — Toqta!
-— Maña baq, Bekirov!— Petâ emceniñ qaşları aşağı endiler,— gece kanalda... sen ediñmi?
+— Maña baq, Bekirov! — Petâ emceniñ qaşları aşağı endiler,— gece kanalda... sen ediñmi?
 — E!
 Teşik başta keñ degil edi.
 Soñundan... 
@@ -328,13 +328,13 @@ Adamlar kelgen soñ oyuq içinden çıqarıp yerge taşladılar.
 
 Petâ emce meni diqqatnen diñledi, amma közleri ep polğa mıhlı edi.
 
-— Yetti... mesele belli,— dedi o, soñundan atılıp turdı, elimden qapqaç etti,— yur, kettik!
+— Yetti... mesele belli,— dedi o, soñundan atılıp turdı, elimden qapqaç etti,— yür, kettik!
 — Qayda?
 — Menim evime!
 Sıcaq çay içmege!
 — Çay— oşıma ketti,— maña çay ne kerek?
 — Çay!
-Añladıñmı?— çekip alıp ketti. 
+Añladıñmı? — çekip alıp ketti.
 Yol boyunda bir şeyler daa ayttı, er yerim qaltıramaqta edi.
 Diñlep olamadım.
 Küçük odaçıqqa kirdik: "Tez soyun da, töşekke yat",— dedi maña.
@@ -351,7 +351,7 @@ Men yuqlap qalğanım.
 Betime sıcaq urdı.
 Uyandım.
 
-— Qorqma!— dedi komendant.
+— Qorqma! — dedi komendant.
 — Bu birinci tedbir.
 
 O, qalın ödeyallarnıñ üstünden, meni sıcaq ütünen ütülemekte edi.
@@ -377,7 +377,7 @@ O, çaqısını çıqarıp, qalay içindeki suvnı qarıştırdı.
 Çaynıñ özü yoq edi.
 Üç qalay sıcaq suv içtim, soñ özümni güzel is ete başlağan kibi oldım.
 
-— Sağ oluñız, Petâ emce!— dedim men,— evge keteyim!
+— Sağ oluñız, Petâ emce! — dedim men,— evge keteyim!
 — Yoq, qardaş...
 iç bir yaqqa ketmeycek siñ!
 Yeriñde yatacaq ve susacaqsıñ!
