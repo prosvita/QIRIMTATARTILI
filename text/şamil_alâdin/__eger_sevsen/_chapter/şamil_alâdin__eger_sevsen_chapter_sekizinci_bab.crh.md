@@ -7,7 +7,7 @@ O gece hızmetteki adamlar içün, aşhaneden yemek ketirip qoya, çay qaynata, 
 Kerçek, polımız temiz olması içün onı sipirmek degil, demir qırğıçnen qırıp, sıcaq suvnen yuvmaq kerek, lâkin... bizde pol ayda eki kere yuvula, yuvulğan soñ bir qaç saat temiz ola, kişiler smenadan qaytıp kelgen soñ kene evelki renkni ala.
 
 Biz buña alıştıq.
-Tumboçkalarımız qapatılmay, içlerindeki şeylerimiz coyılmaylar... bunıñ özü kâfi.
+Tumboçkalarımız qapatılmay, içlerindeki şeylerimiz coyulmaylar... bunıñ özü kâfi.
 Yataqhanemizde, yazılmağan-çızılmağan kodeks yaşay.
 Kerçek, onda maddelerniñ mıqdarı soñ derece az.
 Söz kelimi, adamnı kötekleşkeni içün qabaatlav hususında madde yoq.
@@ -20,7 +20,7 @@ Bu — soñ derece ayıp şey, çünki epimizge aydutlar dep baqacaqlar, dedim.
 Men, elbette, dülber nutq söylemege bilmeyim, "mına", "añlaşılamı", "demek" sözlerini tekrarlay berip, eki-üç cümle quraştırıp ayttım, soñ koykamnıñ üstüne otura qoydım.
 
 — Toplaşuvnı yañlış alıp barasıñ,— dedi maña Nikolay.
-— Madamki sen komsomolsıñ, bizni, bitaraflarnı, terbiyelemege borclısıñ.
+— Madamki sen komsomolsıñ, bizni, bitaraflarnı, terbiyelemege borclusıñ.
 Toplaşuvda reys ve sekretar olmaq şart.
 Reis mecliske reberlik yapsın, sekretar protokol yazsın.
 Bu seniñki ne?
