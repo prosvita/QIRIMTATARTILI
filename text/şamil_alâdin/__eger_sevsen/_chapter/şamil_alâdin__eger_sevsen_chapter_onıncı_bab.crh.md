@@ -1,4 +1,4 @@
-## Onıncı bab — Çatal çinar yanında körüşüv
+## Onuncı bab — Çatal çinar yanında körüşüv
 
 Saat yedide Çatal çinarnıñ yanına keldim.
 Çatal çinar çürüp, borsayıp qalğan qadim terek.
@@ -100,7 +100,7 @@ Em tırmaştım, em qıçırdım.
 Tursunov!
  % Yığınnıñ töpesine çıqqan soñ Tursunovnıñ başını kördim.
 
-— Ne oldı?— dep soradı o menden.
+— Ne oldı? — dep soradı o menden.
 — Anda suv... suv teşip çıqqan.
 
 Tursunov añlamadı.
@@ -136,7 +136,7 @@ Daa ne yapmalı?
 Taş üstünde turıp, ayağımnı balağım içinden çıqarayatqanda, taydım, şuv etip yerge yıqıldım.
 Turğan soñ, ayaqlarımnı çapalaqlap aqqan suvğa yuvdım, alel-acele çılğavğa sarıp, çızmağa tıqtım.
 Üstümde tek garoz iç ştan qaldı.
-Pamuq ştanımnıñ içine tomalaq taşlar toldırıp, suv teşiginiñ içine qoydım ve eki elimnen tutıp turdım.
+Pamuq ştanımnıñ içine tomalaq taşlar toldurıp, suv teşiginiñ içine qoydım ve eki elimnen tutıp turdım.
 Suv endi sağ taraftan aqmaqta.
 Şuvuldap aqmay, çıbıra.
 Bu meni sevindirdi.
@@ -153,7 +153,7 @@ Sevinecek.
 Belki ümütsizden degil?
 Tursunov bu yerde niçün peyda oldı?
 Şimdi körüşseler, İradadan: "o, ğarip yigitni" bu qadar aşalağanıñ ne? — dep soraycaq, İrada ise cevap bermeycek, şaqıldap külecek.
-Tursunov da külüp-sıqılıp qalacaq, soñra yaş ve dülber qıznı teri paltosınıñ etegi astına alıp ketecek.
+Tursunov da külip-sıqılıp qalacaq, soñra yaş ve dülber qıznı teri paltosınıñ etegi astına alıp ketecek.
 Sağ taraftan suv aqa bermekte.
 Menim ellerim taldı.
 Pamuq ştanıma ve fufaykama arqamı tayap, ayaqlarımnı yerge tirep turam.
@@ -260,10 +260,10 @@ Tursunov sol elini közlerine yaqın ketirdi, papirosını çekip, yarıqlattı:
 
 Demek, men bu yerde uç buçuq saat turğanım.
 
-— İradanı körmediñizmi?— dep soradım men.
+— İradanı körmediñizmi? — dep soradım men.
 Ne aqılnen, bilmeyim.
 
-— İradanı..? —T ursunov titrep ketti.
+— İradanı..? — Tursunov titrep ketti.
 Oyuq divar içindeki pamuq ştannı qavi tutaraq, ayaq üstünde, kevdesini doğrulttı.
 Arqam yorulğanda men de öyle yapa edim.
 
@@ -293,13 +293,13 @@ Aylanma kanal bitmegence, skladlarnı başqa yerge avuştırmağa çaremiz yoq, 
 — Bekirovnıñ?
 Kene Bekirovmı? — Anna Yakovlevna kederli ve taacipli közlerini oynatıp aldı.
 — Paromda Bekirov, kanalda Bekirov, Zevqlı!
-— Biçare...— dedi Tursunov,— men kelgende çır-çıplaq edi.
+— Biçare... — dedi Tursunov,— men kelgende çır-çıplaq edi.
 Bu ayazda...
 
 Tursunov kişilerniñ ögünde niçün böyle dedi, bilmeyim?
 Adalet eşqınamı, aceba?
 Yoqsa, İradanıñ ögünde özüni alicenap körsetmek istedimi?
-İrada ne aytır eken, dep bekledim, ağızından söz çıqmadı. 
+İrada ne aytır eken, dep bekledim, ağzından söz çıqmadı.
 Meni komendantnıñ kontorasına alıp keldiler.
 
 — Petâ emce! — dedim men oña... öyle ki, güya bir işte qabaatlı edim,— menim pamuqlı urbam aylanma kanalda... beton içinde qaldı!
