@@ -13,7 +13,7 @@ Aqşam emcesiniñ kelgenini beklegen.
 Emcesi qoyuncılıq sovhozında veterinariya ekimi hızmetinde olıp, insanlardaki bütün hastalıqlarnıñ da şifasını bulucı adam eken...
 — emcesi kelgen soñ, qız ondan bir meşrebe şarap istegen... ve üç kişi olıp, muabetlik eşqına içkenler.
 İçken soñ, emcesi tüşünceli alda başını sallap alğan, soñ qarısına "Selimeniñ çırayı meni raatsızlandıra..." degen.
-Geceniñ bir vaqıtında yengesi qıznıñ hucur davuşnen qıçırğanını işitken.
+Geceniñ bir vaqtında yengesi qıznıñ hucur davuşnen qıçırğanını işitken.
 
 Bu, Selimeniñ gül kibi saf, qabaatsız ömüriniñ niayeti eken.
 Köyimizde anası bu haberni işitken soñ, bizim evge kelgen, anama episini söylegen.
