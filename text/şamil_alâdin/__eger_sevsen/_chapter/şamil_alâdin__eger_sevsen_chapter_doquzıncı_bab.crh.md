@@ -20,7 +20,7 @@ Köyimizde anası bu haberni işitken soñ, bizim evge kelgen, anama episini sö
 Amma qıznıñ babasına bir şey aytalmağan.
 
 Ağamnıñ mektübi meni pek kederlendirdi.
-Köyimizni hatırladım .
+Köyümizni hatırladım.
 Onıñ soqaqları boyu dolanayatqanımnı kördim.
 Evimizniñ qapusı ögündeki aylançıq soqaq ile derege tüşeyatqanda, aylanıp artıma baqtım: sofada anam otura.
 O, artımdan baqıp, öglüginen közleriniñ yaşlarını sile.
@@ -33,7 +33,7 @@ Bu haber Taşkentte, bizim institutnıñ yataqhanesinde de yanıqlı isler doğu
 
 Aqılımda... studentniñ biri, sevgili qıznıñ vefat etkeni hususında mektüp alğanda, ziyade qasevetlengen edi.
 Lektsiğa barmadı .
-Köridorlar boyunda sesiz-soluqsız dolandı yurdi.
+Köridorlar boyunda sesiz-soluqsız dolandı yürdi.
 Yorulğan soñ krovatına yatıp, tüşündi.
 Qomşu korpusta yaşağan qızlar kelip, yanıqtan ölüp qalğan bu yigitni seyir etti, atta ağladılar.
 
@@ -41,7 +41,7 @@ Qomşu korpusta yaşağan qızlar kelip, yanıqtan ölüp qalğan bu yigitni sey
 lâkin kimge?
 Stol başında Elpidege mektüp yazmağa qurundım.
 Ağamdan mektüp alğanımnı, qıznıñ vefat etkenini yazdım.
-Yandım- yaqıldım, amma közlerimden yaş çıqmadı.
+Yandım-yaqıldım, amma közlerimden yaş çıqmadı.
 Tek, göñlümniñ üzerinde bir bürüşik daa asıl olğanını sezdim.
 Elpidege bularnıñ episini yazdım.
 Bu mektübimde onıñnen, ilki defa olaraq, bir dost sıfatında laqırdı ettim.
@@ -120,10 +120,10 @@ Nijnikmi?
 Bunıñ ne emiyeti bar?
 Tek sevgi olsun..."
 
-Aqılıma kene Selime keldi.
+Aqlıma kene Selime keldi.
 Boğazıma bir şey tıqıldı, nefes alması qıyınlaştı.
 Soyunmay, koyka üzerine yattım.
-Sukünet içinde yüregimniñ duküldisini işittim... hucur şey.
+Sükünet içinde yüregimniñ duküldisini işittim... hucur şey.
 Soñra Hristofor ve Nikolaynıñ yavaştan bir şeyler hususında pısırdaşqanlarını sezdim.
 Diger yaqıma aylandım, ögümde Nikolay turmaqta edi.
 Olar yüregimdeki keder ve asretni añlağanlar.
@@ -169,7 +169,7 @@ Nasıl şey?
 Ekskavatornıñ maşina bölüginden Almazov çıqtı.
 O endi smenanı qabıl etken.
 
-— Mesuliyetsizlik... ziyankârlıq.
+— Mesüliyetsizlik... ziyankârlıq.
 Başqa şey degil...— dep ayqırdı o,— dört saat çalışmay tur da, yer patlatıcılârnı çağırma...
 Aqılğa sığacaq şeymi?
 İra kelgen, qavğa etip ketken.
@@ -183,7 +183,7 @@ Almazov nasıl cevap berdi, bilmeyim.
 Bir talaydan soñ yerge tüşti, Raşidniñ qolçaqlarını alıp kiydi, trosqa asılıp, özen yalısına endi.
 Biz onıñ peşinden kettik.
 Astta qalın taş tabaqası sezilmekte edi...
-Biz özen boyu yuqarı yurdik.
+Biz özen boyu yuqarı yürdik.
 
 Bayağı yürgen soñ, qaranlıqta Almazovnı ğaip ettik.
 Büyük taşlarnıñ ucunı tapmaq istep, qırğa tırmaştıq, qaytıp derege tüştik, balçıqqa battıq.
@@ -405,7 +405,7 @@ Büyük mütehassıs deyler,— ağızımnı tez-tez qapatmağa aşıqtım.
 Laqırdını çolpa başladım, nasıl bitirecegimni bilmedim.
 Tursunovqa ne vaqıt qocağa çıqacaqsıñız dep de sorayımmı?
 
-Sustım .
+Sustım.
 Sukünet İradağa tesir ettimi — yoqmı, lâkin ümütsizden maña yaqın keldi, elini omuzım üstüne qoydı... qoydı degende, qoltuğı astındaki papkalar ve tığırıqlı kâğıtlar yerge tüştiler.
 
 — Cevdet!
@@ -414,7 +414,7 @@ Sizge, Tursunov keldi, dep kim ayttı?
 Men taaciplendim.
 
 — Ne?
-Tursunov keldimi?— qaytarıp ondan soradım,— menim haberim yoq.
+Tursunov keldimi? — qaytarıp ondan soradım,— menim haberim yoq.
 
 Egildim, kâğıtlarnı toplap almağa yardım ettim.
 İrada kevdesini doğrultqan soñ, közlerini uzaqqa tikledi.
@@ -427,8 +427,8 @@ Bilem... lâkin, o aqlı.
 — Ebet... o daima aqlı.
 Özü Dneprden keldi.
 Aqayı anda baş energetik eken.
-Bir defa, baarde, Neerde suv tolıp-taşqan vaqıtta, küçlü ruzgâr...— maña bu tarifnı, Anna Yakovlevna ile çalışqan injenerleden biri... a — siz aytqan Tursunovnıñ özü ikâye etken edi.
- — Krasnânskayanıñ uçastkasındaki biñlernen adamlar taşnı-topraqnı, qumnı çuvallarğa toldırıp, arqalarında taşıyyatqan vaqıtta oña: aqayıñ elâk oldı deyler.
+Bir defa, baarde, Neerde suv tolıp-taşqan vaqıtta, küçlü ruzgâr...— maña bu tarifni, Anna Yakovlevna ile çalışqan injenerleden biri... a — siz aytqan Tursunovnıñ özü ikâye etken edi.
+ — Krasnânskayanıñ uçastkasındaki biñlernen adamlar taşnı-topraqnı, qumnı çuvallarğa toldurıp, arqalarında taşıyyatqan vaqıtta oña: aqayıñ elâk oldı deyler.
 Aqayı elektrik yolundaki büyük qazanıñ ögüni almaq içün tırışqanda yüksek voltlı elektrik teli qopıp, üstüne tüşe.
 Anna Yakovlevna: "sağ qaluvı mümkünmi?" — dep soray.
 Oña: "Yoq, sağ qaluvı mümkün degil" dep cevap bereler.
@@ -455,7 +455,7 @@ Men başımnı salladım.
 
 İrada şah-şah etip küldi.
 
-— Bugün aqşam, vaqıtıñız olsa, saat yedide Çatal Çinarnıñ yanına keliñiz!
+— Bugün aqşam, vaqtıñız olsa, saat yedide Çatal Çinarnıñ yanına keliñiz!
 Men sizni beklerim.
 
 O arıqtan atladı, demir yol çetinden yuvurıp ketti. 
