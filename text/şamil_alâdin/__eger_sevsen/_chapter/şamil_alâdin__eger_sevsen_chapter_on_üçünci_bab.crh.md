@@ -6,7 +6,7 @@
 Sevinçimden, esimni yoq ete yazdım.
 
 — Ebet!
-Eger vaqıtıñız olsa!?— dedi İrada,— bugün yeñi yıl.
+Eger vaqtıñız olsa!? — dedi İrada,— bugün yeñi yıl.
 Unuttıñızmı?
 
 — Yeñi yıl?..— qapuğa çaptım, soñ özümni qolaysız is etip, keri çekildim,— afu etiñiz, İrada!
@@ -26,7 +26,7 @@ Meni aqırından qapu tarafqa üytep taşladı,— oğurlar olsun!
 İrada endi uzaqta edi.
 Yuvurıp peşine yettim.
 
-— Tezce yürmege bilesiñizmi?— dedi maña İrada,— Bizni bekleyler.
+— Tezce yürmege bilesiñizmi? — dedi maña İrada,— Bizni bekleyler.
 
 — Bizni?— taaciplendim men.
 
@@ -40,11 +40,11 @@ Men de, şübesiz, ağızımdan böyle hucur söz çıqıp keter bellemegen edim
 İrada pek ıncındı.
 Öyle ki, çoq vaqıt laqırdı etalmadı.
 
-— Kene eski laqırdımı, Cevdet?— dedi o, közlerindeki yaşlarnı silerek,— men sizge episini aytmağanmı edim?
+— Kene eski laqırdımı, Cevdet? — dedi o, közlerindeki yaşlarnı silerek,— men sizge episini aytmağanmı edim?
  Qız meni bıraqıp keter dep qorqtım.
 Bunı yapmadı — sustı, çünki qırq daqiqadan soñ biñ doquz yüz otuz dörtünci sene bitecek edi.
 Qavğa etmek, darılışmaq ne kerek?
-— Yeñi yıl qarşılamağa Tursunovnen ketmek istegen olsam, bu aralıqta, bu suvuqta sizni qıdırıp kelirmi edim?— dedi İrada.
+— Yeñi yıl qarşılamağa Tursunovnen ketmek istegen olsam, bu aralıqta, bu suvuqta sizni qıdırıp kelirmi edim? — dedi İrada.
 
 — Çatal-Çinardaki gece?..— baq sen, ağızımdan üç söz daa çıqıp ketkenini duymay qaldım.
 — Menim eñ muqaddes duyğularımnıñ aqaretlengenleri?..
@@ -80,10 +80,10 @@ Azat ediler?!
 Yoq.
 Qoltuğında şimdi de kâğıtqa sarılı nedir bar.
 Ayaqlarında küçük rezina çızmalar... yerge basqanı sezilmey, tez-tez yüre.
-Yüre degil, qaranlıq içinde, güya yaldağan kibi, közümniñ ögünde bir peyda ola, bir ğaip ola.
+Yüre degil, qaranlıq içinde, güya yaldağan kibi, közümniñ ögünde bir peyda ola, bir ğayıp ola.
 Qoltuğına kirecek olıp, sol tirseginden tuttım, kiyiksiregen tay kibi, silkindi, deral yolnıñ çetine çıqtı.
 
-Hristofornı barıp kördiñizmi?— dep soradı o menden,— nasıl?
+Hristofornı barıp kördiñizmi? — dep soradı o menden,— nasıl?
 
 — Kördik,— dedim men,— Troitskide...
 
@@ -138,7 +138,7 @@ Hatiriñizdemi, men sizge...
 
 — Zamet etme!— dedi Anna Yakovlevna, İranıñ sözüni bölip,— biz tanışmız.
 Çatal-Çinar gecesi... parom vaqiası — episi hatirimde.
-Evime kelgeniñiz içün ğayet memnunım.
+Evime kelgeniñiz içün ğayet memnünim.
 Rica etem, içeri buyurıñız!
 
 Polı daa boyasız, adiy ciyezli büyükçe oda, içi taze ağaç ve kireç qoquy.
@@ -262,17 +262,17 @@ O hayırsız haberni işitken vaqıttaki ahvalını tasavur ettim.
 Endi bayağı vaqıt keçken.
 Balalar ösken — büyügenler.
 Ananıñ raatsız ayatı ise alâ devam etmekte.
-Şimdi onıñ ömürinde o adam... hocası yetişmey.
+Şimdi onıñ ömründe o adam... hocası yetişmey.
 
 — Ebet!— dep taşladı Vadim Semönoviç, qısqadan.
 
-— Ebe-et!— dedi Anna Yakovlevna, davuşını azaçıq soza berip, soñra ilâve etti:—Bilesiñmi ne, Vadim?
+— Ebe-et! — dedi Anna Yakovlevna, davuşını azaçıq soza berip, soñra ilâve etti:—Bilesiñmi ne, Vadim?
 Qadınlarğa, hususan menim kibi... tul, yañğız soylarına, iç inanma!
 Olar özlerini pek raat ömür keçireyatqan kişiler etip köstermege seveler.
 Lâkin baş küteler.
 Ev, aile belâsından azat ekenliklerini baht-saadet isap etip maqtanalar.
 Episi üfürtme şeyler.
-Barsın, qadın evde yigirmi dört saat qartop kotleti pişirmek, bala eskilerini yuvmaq — qurutmaqnen meşğul olsun.
+Barsın, qadın evde yigirmi dört saat qartop kotleti pişirmek, bala eskilerini yuvmaq — qurutmaqnen meşğül olsun.
 Barsın, öyle olsun!
 Gece keç maalde qapu qattı qaqılsın, içeri aqayı sıtıq çıraynen kirsin ve, niayet, kimerde qavğa etsin.
 Bu şeyler yañğızlıqtan biñ kere yahşı.
@@ -288,7 +288,7 @@ Abdulla Sadıkoviç olmasa, ne yapar ediñ?
 
 — İşler edim, onıñ qadar büyük mütehassıs olmasam da...
 
-— Yeter, Katâ!— Mansurov onı tirseginen türtti,— Dağ çıtırman.
+— Yeter, Katâ! — Mansurov onı tirseginen türtti,— Dağ çıtırman.
 Terenlikke dalsañ...
 
 — Adaşırsıñız,— dedi İrada tez-tez,— lâkin bir şeyge taaciplenem... qadınlar bir-birlerine öz aqaylarını daima alim, edepli kişi dep taqdim eteler.
@@ -297,7 +297,7 @@ Yer yüzünde eñ büyük adamlar — olarnıñ aqayları.
 Eñ sevgen adamları da özleriniñ aqayları.
 Mansurov ne, büyük adammı?
 
-— Aysa... ufaq injenermi?— Yekaterina Vasilyevnanıñ ğururına balta uruldı.
+— Aysa... ufaq injenermi? — Yekaterina Vasilyevnanıñ ğururına balta uruldı.
 Endi İradağa raatlıq bermez,— sözüñizni nasıl añlamaq kerek?
 Seniñ şahsiy fikiriñ depmi?
 Yoqsa, resmiy?..
@@ -323,10 +323,10 @@ Men ondan ögrenem...
 Tezden partiyağa kirecegim.
 
 — Partiyağa?
-Yekaterina Vasilyevnamı?— İrada içindeki eecannı bekitalmay, yüksek davuşnen küldi.
+Yekaterina Vasilyevnamı? — İrada içindeki eecannı bekitalmay, yüksek davuşnen küldi.
 
 — Ne?
-Kelişmeyimmi?— Yekaterina Vasilyevna alevlenip, yerinden turdı, ayağınen kürsüni tepti.
+Kelişmeyimmi? — Yekaterina Vasilyevna alevlenip, yerinden turdı, ayağınen kürsüni tepti.
 Kürsü tentiredi, divarğa yantayıp qaldı.
 Eki elinen stolnı yumruqlay berip, dedi: — özüñ kimsiñ?
 Tursunovnıñ başını aylandırğan sen degilsiñmi?
@@ -354,7 +354,7 @@ Bir akveduk, eki köpür qurıp, dünya para sarf etmek ne kerek?
 
 Anna Yakovlevna, kenarda oturğanı alda, boyunını uzata berip, laqırdını diñledi.
 
-— Sigizmund Genrihoviç aqlı!— dedi o,— ne deysiñ, Vadim?
+— Sigizmund Genrihoviç aqlı! — dedi o,— ne deysiñ, Vadim?
 
 Er kes akveduk meselesinen meraqlandı.
 Men işni birden añlap olamadım, añlağan soñ deral Menjevetskiyniñ tarafdarı oldım.
@@ -395,9 +395,9 @@ Bu siziñ içün bir şey demek degilmi?
 Ne qadar az çalışılsa, o qadar elverişli,— dedi İrada, açuvlanıp,— Menjevetskiyniñ fikiri yahşı.
 Siz, Abdulla Sadıkoviç, tüşünip baqıñız!
 
-— İra, şübesiz, Anna Yakovlevnanıñ degenini yapacaq,— dedi Yekaterina Vasilyevna.— Başqa şey beklemek mümkün degil.
+— İra, şubesiz, Anna Yakovlevnanıñ degenini yapacaq,— dedi Yekaterina Vasilyevna.— Başqa şey beklemek mümkün degil.
 
-— Bilesiñizmi ne?— İrada stol üstündeki şeker maqasını qaqıp aldı.
+— Bilesiñizmi ne? — İrada stol üstündeki şeker maqasını qaqıp aldı.
 Yekaterina Vasilyevnanıñ burunı astında qaqıta yatqanda, Anna Yakovlevna işaret parmağını sallağanını körip, toqtaldı.
 
 — Sizge bugün ne oldı?— dedi Anna Yakovlevna,— ne seni tanıyım, ne de Katânı!
@@ -405,7 +405,7 @@ Yekaterina Vasilyevnanıñ burunı astında qaqıta yatqanda, Anna Yakovlevna i�
 — Bu avantüristkağa aytıñız, er şeyge burunını tıqa bermesin.
 
 — Ya sen, Andrey?
-Ne indemeysiñ?— Rozaliya Nikolayevna Almazovnı türtküçledi.
+Ne indemeysiñ? — Rozaliya Nikolayevna Almazovnı türtküçledi.
 — Köpür meselesine nasıl baqasıñ?
 
 Maşinist külümsiredi.
@@ -429,18 +429,18 @@ Proyekt endi bütün instantsiyalarda tasdiqlandı.
 Deñiştirmek kerek olsa...
 
 — Qayda edim?
-Qurucılıqta edim. — Menjevetskiy küldi.
+Qurucılıqta edim! — Menjevetskiy küldi.
 — Eger proyektni deñiştirmek kerek olsa...
 
 — Sizden onı soramayım.
-Çoq raatsızlanmañız!— dedi Vadim Semönoviç.
+Çoq raatsızlanmañız! — dedi Vadim Semönoviç.
 — Baş idarede dünyaca meşur injenerler çalışalar.
 Ne yapmaq kerekligini olar bileler.
 
 — Bileler?!
 Akveduk meselesindeki qalabalıq neden çıqtı?
 Bilgenleri içünmi!
-Men namuslı injenerlerimiz şerefine içmekni teklif etem!— dedi Curayev, ayaqqa turıp, komanda etti:— bir-eki-uç!
+Men namuslı injenerlerimiz şerefine içmekni teklif etem! — dedi Curayev, ayaqqa turıp, komanda etti: — bir-eki-uç!
 Siziñ sağlığıñız içün, Sigizmund Genrihoviç!
 
 Curayev raqını bir yutumdan içip, yerine oturdı.
@@ -449,7 +449,7 @@ Ne edi?
 İşitmedim.
 Menjevetskiy ayaqqa turıp, şöyle dedi:
 
-— Men özüme şübeli muamele, işançsızlıq körsetile kelgenine alışıp qaldım...
+— Men özüme şubeli muamele, işançsızlıq körsetile kelgenine alışıp qaldım...
 Siziñ tostıñız, Curayev arqadaş, menim günalarımnı afu etüvge beñzedi.
 
 — Men ne dedim?
@@ -459,7 +459,7 @@ Ne beñzedi?
 Men deyim, maña daima...
 
 — Namuslı injenerler şerefine... dedim.
-Nasıl işançsızlıq ola bile?— Curayev kerçekten taaciplendi.
+Nasıl işançsızlıq ola bile? — Curayev kerçekten taaciplendi.
 
 — Men de öyle deyim...— Menjevetskiy öz fikirini añlatalmağanına kederlendi,— men özümni qabaatlı isap etmeyim.
 
@@ -476,7 +476,7 @@ Taacipli şey, İrada bunı atta abaylamadı.
 
 İrada meni Menjevetskiyge körsetip:
 
-— Bu da student!— dep qıçırdı.
+— Bu da student! — dep qıçırdı.
 
 — Bu da, degeniñizniñ sebebi ne?— dep soradı injener.
 
@@ -484,7 +484,7 @@ Musafirler şaqıldap külüştiler.
 İrada niçün ekenini añlamadı.
 Sustı, başını qıbırdata berdi.
 
-— Siz... ameliyatqa keldiñizmi?— Sigizmund Genrihoviç menimnen meraqlandı.
+— Siz... ameliyatqa keldiñizmi? — Sigizmund Genrihoviç menimnen meraqlandı.
 
 — Yoq.
 Men ekinci kursta edim.
@@ -544,7 +544,7 @@ Laqırdı sakinlegen soñ Anna Yakovlevna, bir vaqıtlarda, institutta, Vadim Se
 Yibermediler.
 Studentlik dostluğı kibi dostluq yoq.
 
-— Sibirge?— Yekaterina Vasilyevna başını köterdi, yuqunçlı közlerini Vadim Semönoviçke tikledi,— nafile ketmegensiñiz!
+— Sibirge? — Yekaterina Vasilyevna başını köterdi, yuqunçlı közlerini Vadim Semönoviçke tikledi,— nafile ketmegensiñiz!
 Bu tüpsiz çuqurda ne yahşılıq taptıñız?
 
 — Niçün çuqur olsun?
@@ -558,7 +558,7 @@ Aşhanede — zapekanka ve ekşi qapısta.
 
 İrada çıdayalmadı.
 
-— Daa ne kerek edi?— dep soradı.
+— Daa ne kerek edi? — dep soradı.
 — Bu qayalar arasında Petergofnı körmek istediñizmi?
 
 — Eñ güzel aş ekskavatorcılarğa berile,— dedi Almazov, mısqılnen.
@@ -610,20 +610,20 @@ Men yüzümni pencere betke çevirdim.
 Saar vaqtında sağlıqlaşa başladıq.
 
 — ...Kerçek, Tursunov qayda?
-Onı davet etmediñizmi?— dep soradı Vadim Semönoviç, ayaqqa turğan soñ.
+Onı davet etmediñizmi? — dep soradı Vadim Semönoviç, ayaqqa turğan soñ.
 
-— Tursunov İskanderde... dostlarında!— dedi evniñ saibi.
+— Tursunov İskanderde... dostlarında! — dedi evniñ saibi.
 
 — A!
 Öbirsi kün Taşkentke çağırtuvlımız.
 Akveduk meselesi... baqayıq, ne deycekler?
 
-— Qabul eterler,— dedi İrada,— bir sözsiz.
+— Qabul eterler,— dedi İrada,— bir sözsüz.
 
 — Şay belleysiñizmi?
 
-İrada ile ekimiz soqaqqa çıqqanda iri, yumşaq qar yağmaqta edi.
-Laqırdı etmey, eppii yurdik.
+İrada ile ekimiz soqaqqa çıqqanda iri, yımşaq qar yağmaqta edi.
+Laqırdı etmey, eppii yürdik.
 
 — Soñ, Cevdet!— dedi İrada, niayet,— nasıl?
 Cemiyetni begendiñizmi?
@@ -631,7 +631,7 @@ Cemiyetni begendiñizmi?
 — Ğayet memnünım...— dedim men.
 — Hususan, Anna Yakovlevnanıñ özünden.
 İlki daqiqalarda özümni qolaysızca is ettim, kişilerniñ sadeligini sezgen soñ alıştım.
-Reberler de..injenerler de adamlar ekenler.
+Reberler de... injenerler de adamlar ekenler.
 
 İrada yüksek davuş ile şahıldap küldi.
 
