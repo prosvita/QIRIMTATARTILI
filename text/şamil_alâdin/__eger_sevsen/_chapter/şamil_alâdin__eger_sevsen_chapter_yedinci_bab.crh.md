@@ -35,12 +35,12 @@ Ebet, kubometr ceetinden yerni ondan tekarançıq az qazamız.
 Lâkin aqiqatta, biz Bassarabadan eki qat ziyade kubatura beremiz.
 Çünki draglâyn eski, Bassarabanıñki yeñi marka.
 Onıñ norması bizden eki defa ziyade olmaq kerek.
-Bunı bizge Almazov añlatı.
+Bunı bizge Almazov añlattı.
 Bundan İradanıñ da haberi bar...
 
 Bizde... de tros üzüle, de elektrik küçüniñ bir fazası olmay.
-Öyle olsa da, biz kimerde aylıq plannı artqaç toldıramız.
-Almazovnıñ maşşallası bar.
+Öyle olsa da, biz kimerde aylıq plannı artqaç tolduramız.
+Almazovnıñ maşallası bar.
 Birincide, o — acayip maşinist.
 Onı epimiz seve, saya, sözüni tuta ve taqdiri içün qayğıramız.
 Ekincide, bizde işni taşlap ketken kişi olmay.
@@ -53,7 +53,7 @@ Buña cevap bermek küç degil.
 Lâkin ondan evel başqa şey söylemek isteyim.
 
 Kim olsa-olsun menim yaşımdaki kişi cenk künlerini unutıp olamay.
-Biñ doquz yüz qırq eki senesi, suvuq qışta biz Staraya Russada qar kürtügi ve zığat topraq içinde tura edik.
+Biñ doquz yuz qırq eki senesi, suvuq qışta biz Staraya Russada qar kürtügi ve zığat topraq içinde tura edik.
 Men bu deñiz brigadasına göspitalden soñ tüştim.
 Tasavvur etesiñizmi?
 Men — Cenübiy cebede atlı askerde hızmet etken kişi, göspitalden soñ, deñiz brigadasına tüştim.
@@ -63,7 +63,7 @@ Lâkin bu hususta soñ...
 Nemseler topraqta cenk etken deñizcilerge "qara ecel" dey ediler.
 Kerçekten de, men bizim deñizcilerniñ atakağa ketip de, ğalip kelmegenlerini bilmeyim.
 Qarnen örtüli alçaq çam terekleri arasında yerleşken bizim qıtanıñ bulançıq suv tolu okoplarında, tıpqı gemi kögertesindeki kibi, bozulmaz, qatıy nizam saqlanılmaqta edi.
-Bir kün-bir geceden soñ vahta deñişkende küçük çöküçnen rels parçasını sekiz defa çala ediler.
+Bir kün - bir geceden soñ vahta deñişkende küçük çöküçnen rels parçasını sekiz defa çala ediler.
 Çam pıtaqlarından yasalğan çalaşlarğa — kübrik denile edi.
 Keper hastalığından qurtulmaq içün sabadan aqşamğa qadar çam yaprağı çaynay, kübrikte bulunğan vaqtımızda tışarıdaki qar üstüne tükürmege ruhset etilmey, çünki: "kögerteden tışqa tükürmek yasaq!" degen gemi qanunı bar.
 Komandirniñ blindajına kayut-kompaniya denile edi.
@@ -115,7 +115,7 @@ Seniñ yanıñda.
 
 — Muşuq mında qaydan keldi?
 
-—Çoq bilseñ, tez qartayırsıñ! — dedi Arhipka.
+— Çoq bilseñ, tez qartayırsıñ! — dedi Arhipka.
 Krovatından qalqtı, menim yanıma kelip, burunımnıñ astında nasıldır bir kâğıtnı sağğa-solğa çevirdi,— demek şay!
 Bir qıznı bıraqtıñ, digerine yapıştıñ, öylemi?
 Dızman frayyer ekensiñ!
@@ -207,7 +207,7 @@ Bu onıñ eñ aqıllı şaqası edi.
 Men indemedim.
 İndegende de, Arhipka ep bir aytqanımnı añlamaycaq edi.
 Ondan da ğayrı, yüregim öyle küçlü duküldemekte edi ki, mektüpniñ satırları közlerimniñ ögünde sıçraqlay başladılar.
-Yeñimnen yüzümdeki terni sürttim, çibin bacaqları kibi ince arflernen yazılı mektüpte özüme ait yerni tapqance çoq çekiştim.
+Yeñimnen yüzümdeki terni sürttim, çibin bacaqları kibi ince ariflernen yazılı mektüpte özüme ait yerni tapqance çoq çekiştim.
 Oqup bitirgen soñ, telâşqa keldim.
 
 — Demek, er şey bitti!
