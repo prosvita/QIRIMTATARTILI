@@ -125,18 +125,18 @@ Anna Yakovlevna kirdi.
 Hoş, lâkin yorğun çereli.
 Üstünde qara anter, boynunda beyaz şarf.
 
-— İra!— onıñ davuşında ve çırayında azaçıq darğınlıq sezildi.
+— İra! — onıñ davuşında ve çırayında azaçıq darğınlıq sezildi.
 — Sizni beklep yoruldım.
-Qayda qaldıñız?— içeri kirsetti.
+Qayda qaldıñız? — içeri kirsetti.
 
 Yılbaş gecesi Krasnânskayanıñ evinde olurım dep bellemegen edim.
 Omuzımdaki portupeyni çektirdim, kölmegimniñ etegini tüzettim, soñ, İradanıñ peşinden köçtim.
 Amma İrada toqtaldı.
 
-— Anna Yakovlevna!— dedi o, qıp-qırmızı kesilip,— bu, Cevdet Bekirov!
+— Anna Yakovlevna! — dedi o, qıp-qırmızı kesilip,— bu, Cevdet Bekirov!
 Hatiriñizdemi, men sizge...
 
-— Zamet etme!— dedi Anna Yakovlevna, İranıñ sözüni bölip,— biz tanışmız.
+— Zamet etme! — dedi Anna Yakovlevna, İranıñ sözüni bölip,— biz tanışmız.
 Çatal-Çinar gecesi... parom vaqiası — episi hatirimde.
 Evime kelgeniñiz içün ğayet memnünim.
 Rica etem, içeri buyurıñız!
@@ -194,7 +194,7 @@ Tez-tez eski yılnı ozğarayıq.
 Musafirler ayaqqa qalqtı, qadelerni toquştırıp, içtiler.
 Soñ vilka ve pıçaqlar areketke keldiler.
 
-— Qadelerni toldırıñız!— Curayev vilkasınen çanaqnıñ kenarını çaldı.
+— Qadelerni toldırıñız! — Curayev vilkasınen çanaqnıñ kenarını çaldı.
 Kimniñdir, aqılına radio tüşti, turıp, reproduktornı keçirdi.
 Özbekstannıñ ilki prezidenti Yoldaş Ahunbabayevniñ sesi eşitildi.
 O, yeñi yıl munasebetinen, emekdarlarnı hayırlamaqta edi.
@@ -226,7 +226,7 @@ Ağızı tolu edi.
 
 Menjevetskiy ayaqqa turdı, galstugını tüzetti, qadesine şarap qoydı.
 
-— Qıymetli dostlarım!— dedi injener.
+— Qıymetli dostlarım! — dedi injener.
 — Epimizniñ birligimiz, hızmetimiz, dostluğımız içün içilmesini teklif etem.
 
 El çırptılar.
