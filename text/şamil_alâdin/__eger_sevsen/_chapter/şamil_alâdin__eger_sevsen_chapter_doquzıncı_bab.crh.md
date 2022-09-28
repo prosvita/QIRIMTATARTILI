@@ -174,10 +174,10 @@ Başqa şey degil...— dep ayqırdı o,— dört saat çalışmay tur da, yer p
 Aqılğa sığacaq şeymi?
 İra kelgen, qavğa etip ketken.
 
-Qavğadan ne fayda?— Almazov böyle kergin şaraitta bile qızışmamağa tırıştı.
+Qavğadan ne fayda? — Almazov böyle kergin şaraitta bile qızışmamağa tırıştı.
 Tekrar kompressor bölügine kirip ketti, ondan soñ davuş açıq işitilmedi.
 
-— Ne yapacaqmız?—dep soradı Raşid, Andrey Zaharoviçke kirip,— kene ateş yaqacaqmızmı?
+— Ne yapacaqmız? — dep soradı Raşid, Andrey Zaharoviçke kirip,— kene ateş yaqacaqmızmı?
 
 Almazov nasıl cevap berdi, bilmeyim.
 Bir talaydan soñ yerge tüşti, Raşidniñ qolçaqlarını alıp kiydi, trosqa asılıp, özen yalısına endi.
