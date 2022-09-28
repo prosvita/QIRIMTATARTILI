@@ -42,7 +42,7 @@ Men de, şübesiz, ağızımdan böyle hucur söz çıqıp keter bellemegen edim
 
 — Kene eski laqırdımı, Cevdet? — dedi o, közlerindeki yaşlarnı silerek,— men sizge episini aytmağanmı edim?
  Qız meni bıraqıp keter dep qorqtım.
-Bunı yapmadı — sustı, çünki qırq daqiqadan soñ biñ doquz yüz otuz dörtünci sene bitecek edi.
+Bunı yapmadı — sustı, çünki qırq daqiqadan soñ biñ doquz yuz otuz dörtünci sene bitecek edi.
 Qavğa etmek, darılışmaq ne kerek?
 — Yeñi yıl qarşılamağa Tursunovnen ketmek istegen olsam, bu aralıqta, bu suvuqta sizni qıdırıp kelirmi edim? — dedi İrada.
 
