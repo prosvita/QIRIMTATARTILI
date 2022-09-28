@@ -10,13 +10,13 @@ Eger vaqtıñız olsa!? — dedi İrada,— bugün yeñi yıl.
 Unuttıñızmı?
 
 — Yeñi yıl?..— qapuğa çaptım, soñ özümni qolaysız is etip, keri çekildim,— afu etiñiz, İrada!
-Bir daqiqaçıq!— qızğa içeri kiriñiz demege utandım, çünki evimiz pek cıynaqlı degil edi.
+Bir daqiqaçıq! — qızğa içeri kiriñiz demege utandım, çünki evimiz pek cıynaqlı degil edi.
 
 Çar-çabik kiyindim.
 Tışarı çıqacaqta, Nikolayğa köz ettim.
 O maña keder ve sevinç tolu közlerini çevirdi.
 
-— Dostum!— dedi maña Nikolay.
+— Dostum! — dedi maña Nikolay.
 — Sen ömürni doğru añlağan kişisiñ.
 Bu — ğayet müim hasiyet.
 Sen, inşalla, uzaq ketersiñ.
@@ -28,7 +28,7 @@ Yuvurıp peşine yettim.
 
 — Tezce yürmege bilesiñizmi? — dedi maña İrada,— Bizni bekleyler.
 
-— Bizni?— taaciplendim men.
+— Bizni? — taaciplendim men.
 
 — Bizni...— dep tekrarladı İrada,— meni ve sizni!
 
