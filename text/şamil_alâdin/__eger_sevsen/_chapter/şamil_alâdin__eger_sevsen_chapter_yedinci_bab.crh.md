@@ -48,7 +48,7 @@ Ekincide, bizde işni taşlap ketken kişi olmay.
 
 ...Men böyle degende oquyıcınıñ çeresinde gizli tebessüm peyda olayatqanını sezem.
 Kelgenim daa eki ay olmay, tecribeli ekskavatorcı kibi laqırdı etem.
-Kimer adamlar maña: nafile yerde maqtanasıñ, eñ olmağanda, üç-dört ay çalış qaysı ekipaj yahşı, qaysı fena ekenini soñ tain etersiñ, diye bilirler.
+Kimer adamlar maña: nafile yerde maqtanasıñ, eñ olmağanda, üç-dört ay çalış qaysı ekipaj yahşı, qaysı fena ekenini soñ tayin etersiñ, diye bilirler.
 Buña cevap bermek küç degil.
 Lâkin ondan evel başqa şey söylemek isteyim.
 
@@ -62,7 +62,7 @@ Lâkin bu hususta soñ...
 
 Nemseler topraqta cenk etken deñizcilerge "qara ecel" dey ediler.
 Kerçekten de, men bizim deñizcilerniñ atakağa ketip de, ğalip kelmegenlerini bilmeyim.
-Qarnen örtüli alçaq çam terekleri arasında yerleşken bizim qıtanıñ bulançıq suv tolu okoplarında, tıpqı gemi kögertesindeki kibi, bozulmaz, qatıy nizam saqlanılmaqta edi.
+Qarnen örtüli alçaq çam terekleri arasında yerleşken bizim qıtanıñ bulançıq suv tolu okoplarında, tıpqı gemi kögertesindeki kibi, bozulmaz, qatiy nizam saqlanılmaqta edi.
 Bir kün - bir geceden soñ vahta deñişkende küçük çöküçnen rels parçasını sekiz defa çala ediler.
 Çam pıtaqlarından yasalğan çalaşlarğa — kübrik denile edi.
 Keper hastalığından qurtulmaq içün sabadan aqşamğa qadar çam yaprağı çaynay, kübrikte bulunğan vaqtımızda tışarıdaki qar üstüne tükürmege ruhset etilmey, çünki: "kögerteden tışqa tükürmek yasaq!" degen gemi qanunı bar.
