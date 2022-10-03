@@ -12,7 +12,7 @@ Zembil içinden sıcaq piteler, elva, tar boğazlı uzun bardaqta qoyun qatıg
 Üsein oca olarğa, taarifke kelmez qanaat ve sabırsızlıq ile közeterek, bala kibi sevindi.
 Oca qoyun qatığını pek seve.
 Alel-acele azbarğa çıqtı, çeşmede yıqanıp kelgence... sofra azır edi.
-Qadın ve qoca oturıp, şeerde zevq ve içtaa ile köylü sabalığı yediler.
+Qadın ve qoca oturıp, şeerde zevq ve içtaa ile köylü sabalığı aşadılar.
 
 Oca üyle maalinde, küneş qızdırğanına itibar bermey, Çatal Dut aralığına çıqtı.
 Sağ qollap qaldırım boyu bir talay yürgen soñ, özüni adamlarle qaynağan Çarşıda kördi.
@@ -21,7 +21,7 @@ Malmiyitke yaqınlağanda qaqınıp-türtünip yürüvden qaçınıp, “A
 Sırlı Çeşme aralığı başında, oñ qolda, taş basamaqlar üstünde Üsein Baliç ve Darbi-Ali turıp, araretli laqırdı etmekte ediler.
 Baliç evel Yaltada maarif hızmetinde edi, Asan Nuri areketinde iştiraki içün, polis idaresi onı bu şeerge sürgünge yolladı.
 Şimdi qazanğan parasınıñ bir ucunı diger ucuna ketirip olamay ayat keçirdigi alda, eali arasında kitap darqatuv hızmetinen meşğul.
-Oca uzaqtan olarğa başını salladı, sağ qolunı köküsi üzerine qoyıp, azaçıq egilerek, yoluna devam etti.
+Oca uzaqtan olarğa başını salladı, sağ qolunı köksü üzerine qoyıp, azaçıq egilerek, yoluna devam etti.
 Vaqıtlar keçecek, bu kişi, yani Üsein Baliç, maarif halq komissarı, ükümet azası olacaq.
 
 Ögge – artqa yürüci yüklü develer, boyunlarına çañlar taqılı üç atlı faytonlar, qırmızı quşaqlı, şertli töpe qalpaqlı aydavcılar teneke davullarınıñ ağırlığından omuzları bir yaqqa çekken qıyıq, bulğaça satıcılar, evlerniñ saçağı kölgesine çekilip, kemane ve dare çalıp, eski türkülerimizni söyleyici qart çingeneler.
