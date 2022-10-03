@@ -165,7 +165,7 @@ Koykamnıñ çetine oturıp, çoq tüşündim.
 — Oynamasañ... özüñ bilirsiñ,— dedi Arhipka, mektüpni qatlap Hristoforğa berdi.
 
 Bağırıma qızğın demir basılğan kibi oldı.
-Atılıp turdım, dostımnıñ yanına keldim.
+Atılıp turdım, dostumnıñ yanına keldim.
 
 — Hristofor, ber mektüpni!
 
@@ -218,7 +218,7 @@ Elpide, Hristofornıñ menimnen körüşkeninden pek memnün ekenini, yaqında m
 "Kendi kozlerime, kendi yüregime açuvlanayımmı?
 Bu mümkün degil!" — dep yaza edi.
 Mektüpte şöyle satırlar da bar edi:
-"Cevdetke seyle, men onıñ bahtlı oluvını isteyim..."
+"Cevdetke söyle, men onıñ bahtlı oluvını isteyim..."
 "Qıymetli Hristofor şimdilik söylemege daa erte, lâkin, er alda, kendimi bahtlı is..."
 
 Mektüp elimden tüşip ketti.
@@ -303,7 +303,7 @@ Donatma taşıylar.
 Tursunov kelgenmi? — dep soradı Raşid.
 
 Özü kelmegen, donatması kelgen.
-Bütün yalı elektrik stantsiya qısımlarınen örtülü.
+Bütün yalı elektrik stantsiya qısımlarınen örtüli.
 
 Arhipka paromnıñ işinden daima haberdar.
 Qarşı yalığa künde eki defa barıp kele.
@@ -323,7 +323,7 @@ Bir kesegini özüm aldım.
 — Dülgerler baragında olıp keçken şeyden İradanıñ haberi barmı?— dep soradı Arhipka.
 — Oña bir şey aytmadıñmı?
 
-— Ufaq-tüfek meselelernen oğraşmayım,— dedim men,— qavğanıñ sebepçisi kim ekenini Özüm de bilmeyim,
+— Ufaq-tüfek meselelernen oğraşmayım,— dedim men,— qavğanıñ sebepçisi kim ekenini Özüm de bilmeyim.
 
 — Mına, kim sebepçi! — Kandıba közlerinen Arhipkağa işaret etti.
 Arhipka bu arada egilip, tumboçka içinde nedir qıdırmaqta edi.
@@ -466,7 +466,7 @@ Barja körüngeni kibi men yalıdan uzaqlaştım, bayırnıñ üstüne çıqıp,
 Er şey körüne, İra vagonetka içinde.
 Küçlü yel onı sallay bere.
 Lâkin soñundan güzel olıp çıqtı.
-Kandıba vagonetkanı birden toqtattı, barja onıñ tübünden keçeyatqanda, İra sırıqqa bağlı ilmekli trosnı uzatıp, barjanıñ kögertesindeki demir ırgaqqa iliştirdi.
+Kandıba vagonetkanı birden toqtattı, barja onıñ tübünden keçeyatqanda, İra sırıqqa bağlı ilmekli trosnı uzatıp, barjanıñ kögertesindeki demir ırğaqqa iliştirdi.
 Bu pek oñaytlı oldı...
 Barja sağğa-solğa aylandı, soñ toqtadı.
 
@@ -527,7 +527,7 @@ Hatiriñdemi?
 Delirir bellegen edim.
 Seni men de sevem, vallai-billâi!
 Lâkin sen, Cevdet... sen cümert degilsiñ.
-Sevgige kelgende, sey cümertlik körsetalmadıñ.
+Sevgige kelgende, sen cümertlik körsetalmadıñ.
 Sen Elpideni belki sevgendirsiñ, lâkin fursatnı qaçırdıñ.
 Cümertlik, elbette, Arhipkanıñ...— şay degende o küldi,— Arhipkanıñ sandığından çıqqan kolbasa degil.
 Onıñ kenarını kesip, köterip atalmazsıñ... öyle muşkul vaqıt ola, bir şey hususında bitik qararğa kelalmaysıñ.
@@ -598,7 +598,7 @@ Er qırq-elli saniyede yelquvan çuqurnıñ içine kovşnı daldırıp topraqnen
 Saba yaqınlağanda... ağır kovş çuqurdan töpege köterileyatqanda, kök yüzüne uzanıp turğan yelquvannıñ salanğanını ve kenarğa yantaya başlağanını esledim.
 Bu arada maşina içinden gurulti işitildi.
 Kovş avada, başımnıñ üstüne sarqıp, toqtadı.
-Sağğa-solğa sallandı, içindeki toprağı üstüme töküleyatqanda çetke qaçtızm.
+Sağğa-solğa sallandı, içindeki toprağı üstüme töküleyatqanda çetke qaçtım.
 Ekskavatornıñ kögertesinde turğan Hristofor ve Nikolay, başlarınen divarğa urunıp, yerge yuvarlanıp tüştiler.
 Sınğan ve teşilgen yerleri olmadı.
 Olar, içeriden Almazovnıñ davuşını işitip, Ekskavatornıñ ög tarafına çapıştılar.
