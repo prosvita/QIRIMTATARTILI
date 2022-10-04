@@ -607,7 +607,7 @@ Bu vaqia bir an içinde olıp keçti.
 — Nikolay!
 Raşid! — dep hucur qıçırdı maşinist,— yelquvan silkine bere... ne oldı?
 Köpçek relsten çıqtımı? — Andrey Zaharoviç, felâketke oğrağan geminiñ kapitanı kibi, maşinanı terk etecegi kelmey, kabina içinden komanda bermekte edi,— Nikolay, ekskavatornıñ astına tüş!
-Barabannıñ baq...
+Barabannı baq...
 Tros üzülmegenmi?
 
 Kandıbanıñ qıdırğanı da böyle hızmet edi.
@@ -662,7 +662,7 @@ Ekskavatornıñ arqasında obanen şpallar yatmaqta edi.
 Nikolay olarğa ketti.
 Arqasına üç şpal sıqınğan, endi köçeyim dep turğanda usttekisini çekip aldım.
 Şay etkenim içün Nikolay darıldı: "Seniñ mında eşegiñ barmı?
-Niçün egilip yerden almaysıñ da, azırına apışasıñ?" demek istedi.
+Niçün egilip yerden almaysıñ da, azırına yapışasıñ?" demek istedi.
 "Yoq, qardaş! — dedim men, içimden,— iş egilip, yerden aluvda degil.
 Böyle üçer-dörder dane sıqınıp keteberseñ, köbegiñ tüşecek..."
 
@@ -676,7 +676,7 @@ Bu iş bizde daqiqalar içinde olıp keçti.
 Uçurım betke cılışa bergen ekskavatornıñ ög köpçekleri yerniñ üstünden yuqarı köterilmekteler.
 Draglâyn tezden terenlik, qaranlıq içine tüşip, elâk olacaq.
 
-Böyle, qasevetlenip turğanda, ekskavatornıñ kevdesini ortken tahta divarlarnıñ çatırdısı birden toqtadı.
+Böyle, qasevetlenip turğanda, ekskavatornıñ kevdesini örtken tahta divarlarnıñ çatırdısı birden toqtadı.
 Maşina cansızlanıp, susıp qaldı.
 
 — Cevdet! — dep qıçırdı Nikolay.
@@ -709,7 +709,7 @@ Böyle çıqımsızlıq ziyankârlıq demek ola.
 Toqtabayev bir şey aytmadı.
 
 — "Mavı qayada" sekiz saat yuqlap, soñ turıp evge ketmege alışıp qaldıñız! — dedi İrada.
-%— Lâkin bundan soñ böyle olmaycaq.
+% — Lâkin bundan soñ böyle olmaycaq.
 
 Toqtabayev oña arqasını çevirdi, qulağını köterip, negedir diñlendi.
 Men demir köpür betke baqtım: bizim tarafqa üç traktor daa keleyata edi.
@@ -803,7 +803,7 @@ O öz hızmetindeki küçlükler hususında menimnen fikirleşti.
 Aqiqatta, partorgnıñ işinde küçlükler çoq edi.
 Curayev — smena injeneri.
 Onıñ uçastkasında çoq adam çalışa.
-Ondan ğayrı, partiya işlerinen de meşğul olmaq kerek.
+Ondan ğayrı, partiya işlerinen de meşğül olmaq kerek.
 Kommunistler azca.
 Söz kelimi, İradanıñ smenasında eki kommunist bar: Toqtabayev ve Almazov.
 Kerçek, komsomollar az degil.
@@ -834,7 +834,7 @@ Belki meni laqırdı ettirmek içündir?!
 — Arhipka olsa ne? — İrada taaciplendi,— bu yahşı fikir.
 Meseleni komitette muzakere etmek kerek.
 
-— Ya Arhipka?— dep soradı Curayev tüşünceli alda, soñ ilâve etti: — onı işten boşamaq mümkün, lâkin...
+— Ya Arhipka? — dep soradı Curayev tüşünceli alda, soñ ilâve etti: — onı işten boşamaq mümkün, lâkin...
 Muşuq bizde çalışmay...
 Onı nasıl boşaycaqsıñ?
 Çalışmay, amma Arhipkağa ve qadınlar barağındaki qızlarğa tesiri büyük.
