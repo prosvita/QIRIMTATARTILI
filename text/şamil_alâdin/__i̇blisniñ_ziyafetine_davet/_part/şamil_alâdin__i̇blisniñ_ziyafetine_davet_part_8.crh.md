@@ -418,9 +418,11 @@ Tez!
 Yardım etiñiz!”
  Adamlar bir-birlerine baqıştı, yerlerinden qıbırdamadılar.
 “Acı Erbain baynımı? – dep soradı köylülerden birisi.
- – Kim öldüre yata?” “Üsein oca...”
+ – Kim öldüre yata?”
+“Üsein oca...”
 
-Üsein oca degen soñ, adamlar şübelendiler... tükânnıñ içine sürüşip kirdiler, çünki iri kevdeli Emirzaqov ocanı urıp, saqatlaya bileceginden qorqtılar.
+Üsein oca degen soñ, adamlar şübelendiler...
+Tükânnıñ içine sürüşip kirdiler, çünki iri kevdeli Emirzaqov ocanı urıp, saqatlaya bileceginden qorqtılar.
 Dört mazallı kişi, kötekleşicilerniñ ortasına kirdi.
 Acı Erbainniñ qollarından qapqaç etip, arqasından üytep, tışqa alıp çıqtılar.
 Onı belâdan qurtarğan, kendisine itibar, ürmet köstergen olıp, evinece ozğarıp kettiler.
@@ -444,7 +446,8 @@ Eviñizge yibereyimmi?”
 – Makaronıñ da kerekmey, özüñ de!
 Tükânıñ içine bir daa ayağım basmaycaq”.
 “Efendim, mende qabaat yoq.
-Bu iş oca ile...” Lâkin Bekir bay onı diñlemedi, yolnıñ ortasına tüşti, aqırın-aqırın ketti.
+Bu iş oca ile...”
+ Lâkin Bekir bay onı diñlemedi, yolnıñ ortasına tüşti, aqırın-aqırın ketti.
 O kimnidir beklemekte edi, Talip oña keder etti.
 
 Bu esnada tükân içinden Üsein oca çıqtı, beş – altı adam ile beraber evge doğru cönedi.
