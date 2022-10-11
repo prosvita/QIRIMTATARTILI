@@ -1023,7 +1023,7 @@ Öyle olıp çıqa.
 Diger yaqtan... bilesiñizmi, Acı Erbain efendi de qabaatlı degil.
 Tükânda mal baqıp turğan vaqıtta şu-uv etip betine qamçı tüşe!
 Kimniñ betine?
-Yigirmi altı para köyniñ ürmetli kişisi Acı Erbain efendi Emirzaqovnıñ betine tüşe.
+%
 Tasavur etesiñizmi?
 
 Üsein oca oturğan yerinde qaqınıp aldı.
