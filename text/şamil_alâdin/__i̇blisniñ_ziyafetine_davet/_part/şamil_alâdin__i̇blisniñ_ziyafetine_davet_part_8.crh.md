@@ -577,7 +577,7 @@ Niyetim oğurlı eken.
 – Sizni, sevimli ocamıznı, eski dostumıznı yarın evimizde olacaq ziyafetke davet etem.
 
 Hamut ustasınıñ ağızından sözler öyle töküldiler ki, güya olarğa şübe, yahut itiraz oluvı mümkün degil.
-Öyle emiyet ile laqırdı etti.
+%
 
 – Ziyafet... ne munasebetnen? – dep soradı oca.
 – Oğluñıznı sünnet ettiresiñizmi?
