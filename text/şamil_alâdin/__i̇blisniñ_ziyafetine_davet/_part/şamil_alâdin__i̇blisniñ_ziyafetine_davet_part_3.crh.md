@@ -97,7 +97,7 @@ Sınıflar bir oda içinde, nevbet-nevbet oquylar.
 Zemstvo mektepleriniñ muallimleri ayrı.
 Men bu ocalarnıñ ekserisini sevem-sayam, o sebepten olarnı sizler de bilgeniñizni isteyim.
 Ahmed Nuredin, Yağya Bayburtlı, Ahmed Nağayev, İbraim Meinov, Abduraman Üsein, Suleyman Badraqlı, Yaqub Şakir-Ali, Osman Zaatov... 
-bu genç ocalar tatar balalarına ilim, fen ve zeka ögretmekteler.
+bu genç ocalar tatar balalarına ilim, fen ve zekâ ögretmekteler.
 
 Şeerde sade, aqıllı, meraqlı, zevqlı adamlar da barlar.
 Olardan, eñ olmağanda, ekisi aqqında bir qaç söz aytmamaq iç mümkün degil.
@@ -171,7 +171,7 @@ Esli kişiniñ yarı beti köründi.
 Qapu qapaldı.
 Ayaq davuşları uzaqlaştılar, musafir taşyoldaki qum üstünde ögge-artqa yürdi.
 Yürgen sayın eski potüklerinden yerde biçimsiz izler qaldılar.
-Yol çetindeki beyaz, yumşaq taş üstüne ayaqlarını nevbet-nevbet qoyıp, balaqlarınıñ tozunı qaqtı, soñra cebinden gülgüli poşusını çıqarıp, betiniñ ve yelkesiniñ terini sildi.
+Yol çetindeki beyaz, yımşaq taş üstüne ayaqlarını nevbet-nevbet qoyıp, balaqlarınıñ tozunı qaqtı, soñra cebinden gülgüli poşusını çıqarıp, betiniñ ve yelkesiniñ terini sildi.
 Bu esnada qapu açıldı.
 Bosağa arqasında beyaz elbeseli, esmeri, yaş kişi turmaqta edi.
 Ösük saçları qırmızı fesiniñ astından çıqıp, yelkesini örtkenler.
