@@ -730,7 +730,7 @@ Soñ qaranlıq bastı... adaştıq.
 Adaşmadıq.
 Qıpçaq meni aselet şaşmalattı.
 Başqa yolnen ketken.
-Eslemey qaldım.
+%
 
 Tışarıda qapu qaqıldı.
 Ocanıñ lafı bölündi.
