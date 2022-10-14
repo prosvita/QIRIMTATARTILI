@@ -334,7 +334,6 @@ Lâkin qız toqtadı... niçündir, deñiz yalısına ketecegi keldi.
 Sailge kettik.
 Dalğalarnıñ kelip uruna ve keri çekile bergen yerinde, çaqıllar üstünde oturdıq.
 Deñizniñ dülberligi, dalğalarnıñ tılsımlı iñiltisi hususında, sevgi hususında laqırdı ettik.
-
 Laqırdığa kelgende, men, şübesiz, başqasınıñ yardımına muhtac degilim.
 Geceniñ bir maalinde onı ozğarıp kettim.
 Margarita şimdilik kişiniñ evinde oda tutıp yaşağanını, küzde ise ayrı kvartira saibi olacağını söyledi.
