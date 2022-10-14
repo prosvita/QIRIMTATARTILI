@@ -389,16 +389,14 @@ Maña öyle kele edi ki, Margarita maña bir şeyler söylemek istey, lâkin qor
 Neden?
 
 Hatrime Margaritanen, onıñ anası ve babası hususında laqırdı etip baqmaq fikiri kelmegen olsa, belki er şey sırasında olur edi.
-
 "Soñ nasıl?
-Siziñkiler keleceklermi, yoqsa kelmeyceklermi?— dep soradım ondan bir defa,— menim içün bu añlaşılmağan bir tarih.
+Siziñkiler keleceklermi, yoqsa kelmeyceklermi? — dep soradım ondan bir defa,— menim içün bu añlaşılmağan bir tarih.
 Ne keleler, ne de yazalar...
 Yoqsa, ekimiz Ödessağa barıp keleyikmi?
 Bu o qadar qyın şey degil..."
-
 "Yoq.
-Ğaliba özüm barıp kelirim...— dedi Margarita ve közlerini sürtip aldı.— Belki, olarnıñ haberi ve razılığı olmay sizge evlengenimni işitken ve buña darılğandırlar?!"
-
+Ğaliba özüm barıp kelirim... — dedi Margarita ve közlerini sürtip aldı.
+— Belki, olarnıñ haberi ve razılığı olmay sizge evlengenimni işitken ve buña darılğandırlar?!"
 Ekinci künü men hızmetten ertece qayttım.
 Kvartiramıznıñ qapusı aralıq edi.
 İçeri kirdim.
@@ -413,21 +411,16 @@ Bu ne demek?
 Margaritanı çağıra, qıdıra başladım.
 Davuşı çıqmadı.
 Azbarğa çıqtım, qomşumız İsmail Tsulukidzeniñ evine kirdim.
-
 "İsmail emce!
 Margaritanı körmediñizmi?"
-
-"Margaritanı?— qart taaciplenip, qaşlarını bir-birine cılıştırdı,— evde yoqmı?"
-
+"Margaritanı? — qart taaciplenip, qaşlarını bir-birine cılıştırdı, — evde yoqmı?"
 "Yoq.
 Kvartiramıznı çaypağanlar!"
-
 "Ey, alla..!
-Olacaq şey degil...— emce telâşqa keldi, titredi-qaltıradı, soñra işaret parmağını töpege köterip, dedi: — Toqta sen, Nikolay!..
+Olacaq şey degil... — emce telâşqa keldi, titredi-qaltıradı, soñra işaret parmağını töpege köterip, dedi:
+— Toqta sen, Nikolay!..
 Sen, Margarita evde yoq, deysiñmi?"
-
 "Ebet!"
-
 "Bir saat evelsi oğlum Suleyman Margaritanı vokzal meydanında körgen".
 
 İsmail emce daa neler dedi, bilmeyim, men bar küçümnen vokzal betke çapmaqta edim.
