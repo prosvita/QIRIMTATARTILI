@@ -82,18 +82,15 @@ Demir yolcular ayrette qaldılar.
 — Bu ne demek ola? — eski şpallarnı körip, taaciplendiler.
 — Bekitmege-bekitkenler, amma şpallar özleri çürük...
 Vagonlar yüklenilgen soñ relsler kerilip ketmezlermi?
-
 Krasnânskaya ekskavatornıñ kögertesinde, Almazovnıñ yanaşasında tura.
 Birinci vagon kelip yanaşqanınen, maşinist kovş içindeki qumnı dumpkarğa tökti, soñ yelquvannı çar-çabik sağ tarafqa çevirip, kovşnı yerge tüşürdi.
 Bir qaç saniye keçken soñ, kovş tekrar köterildi ve içindeki qum diger dumpkarğa töküldi.
-
 — Demir yoldan çekiliñiz!— dep qıçırdı Anna Yakovlevna.
 — Relsler sınğan kibi olsa, dumpkarlar yerge qapaqlanıp, işçilerni yaralamaq mümkün.
 
 Men onıñ emirini başqa türlü añladım.
 Maña öyle keldi ki, Anna Yakovlevna bizni qasevet etmey, bizge ve bizim işimizge şübelene.
 Oña bunıñ aksini isbat etmek kerek.
-
 Bunda, yaqın bir yerlerde İrada yoqmı eken, dep etrafıma baqındım.
 Olsa, maña yardım eter edi, lâkin yoq... sesi uzaqta, parovoz betlerde çıqmaqta.
 Şpallar, kerçekten de, ağır yükniñ taziqı altında azaçıq çökken kibi körüneler.
@@ -235,19 +232,16 @@ Lâkin, Cevdet... tek özüñ bileceksiñ!
 Kandıba seskenip ketti.
 — Qaydan bilesiñ Hristofor ayttımı?
 — Yoq.
-
 — Hurma ne?
 Bu ondan zevqlı.
-
-—...Qutunı eline alıp, tükândan çıqıp ketti,— dedim men.— Soñ ne oldı?
-
+—...Qutunı eline alıp, tükândan çıqıp ketti, — dedim men.
+— Soñ ne oldı?
 — Sırıñnı aytacaq oldıñ.
 Albu ki er keske malüm.
 Bu nasıl sır? — Curayev soza berip, hihıldap küldi.
 Onıñ böyle külgenini ilki sefer kördim.
-
-— Hristofor ve Cevdet — er kes demek degil,— dedi Nikolay,— qız hurma qutusını eline alıp, ketti.
-Men onı bosağağa qadar ozğardım, peşinden ketmedim...— Nikolay ikâyesini öyle başladı,— o künü Tuapsege cönemek kerek edim.
+— Hristofor ve Cevdet — er kes demek degil,— dedi Nikolay, — qız hurma qutusını eline alıp, ketti.
+Men onı bosağağa qadar ozğardım, peşinden ketmedim... — Nikolay ikâyesini öyle başladı, — o künü Tuapsege cönemek kerek edim.
 Bir aydan soñ Batumğa qaytıp keldim.
 Qıznı kene Samson emceniñ tükânı yanında rastketirdim.
 Acaip yaz aqşamı edi.
@@ -255,17 +249,14 @@ Meni uzaqtan sezdi, lâkin özüni laqırdınen meşğul kibi tuttı.
 Yanında, özünden azaçıq esli, dülber qadın bar edi.
 Yaqın keldim.
 
-"Afu etiñiz!— dedim sarışın qızğa,— zan etem, meni unutmağandırsıñız!"
-
-"Sizni?— qız taaciplengen kibi oldı, soñ cilveli közlerinen külümsiredi. — Yüzüñiz pek tanış.
+"Afu etiñiz! — dedim sarışın qızğa, — zan etem, meni unutmağandırsıñız!"
+"Sizni? — qız taaciplengen kibi oldı, soñ cilveli közlerinen külümsiredi.
+— Yüzüñiz pek tanış.
 Amma hatirime ketiralmay turam".
-
-"İçeride...— parmağımnen qavehanege işaret ettim,— Samson emcede olğan iş esiñizdemi?
+"İçeride... — parmağımnen qavehanege işaret ettim, — Samson emcede olğan iş esiñizdemi?
 Hurma almağa kelgen ediñiz!.."
-
 — O güya on sene evelsi olıp keçken adiseni hatırlamağa tırışır kibi, közlerini qarşıdaki dağnıñ töpesine doğrulttı, köz bebekleri kenişlep kettiler.
-
-"Ebet, ebet!— dedi qız, bir talay vaqıt keçken soñ yasama, dülber davuşnen,— şimdi hatirime keldi.
+"Ebet, ebet! — dedi qız, bir talay vaqıt keçken soñ yasama, dülber davuşnen, — şimdi hatirime keldi.
 O siz ediñizmi?
 Soñ derece usta ve çeber uydurılğan temaşa edi...
 Özü böyle, ümütsizden, daa doğrusı, biraz nezaketsizce başlasa da, er alde, zevqlı şey olıp çıqqan edi.
@@ -274,10 +265,8 @@ Soñ derece usta ve çeber uydurılğan temaşa edi...
 Men Curayevniñ yüzüne baqıp oturdım.
 Nikolaynıñ ikâyesi onda nasıl teessurat doğurır eken dep bekledim.
 Çünki bu vaqıtqa qadar Curayevaniñ, Nikolaynen qadın hususında laqırdı etkenini körmegen edim.
-
 Nikolay, özüniñ lirik sözleriniñ davuşından hoşlanıp qızıştı, rolüne kire berdi.
 Eecanlanğan sayın sözleri tabiiy ve tesirli yañğıradılar.
-
 Ta soñunda kitaptan oqup aytqan kibi, tutulmay, tamşanmay söyledi.
 Men onıñ istidadındaki bu hususiyetni şimdi bildim.
 Curayev ne tüşündi, sezalmadım.
