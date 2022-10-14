@@ -167,13 +167,15 @@ Soñ Taşkentke cenedim.
 "Moskvada ne kordiñ?" dep soradılar.
 "On altıncı syezdni...
 Kirovnı kördim".
-"Kirovnı?" "Ebet, Kirovnı...— dedim men,— Orconekidzeni de".
+"Kirovnı?"
+"Ebet, Kirovnı...— dedim men,— Orconekidzeni de".
 "Nasıl kördiñ?
 Arbatta kezine edilermi?"
-"Yoq... maşina içinde... yanımdan keçeyatqanda maşinanı toqtattılar: "kim olasıñ?— dep soradı menden Kirov" —
-"Cevdet Bekirov...
-Bademlikdenim.
-Taşkentke oqumağa keteyatam". — "Yahşı, çoq yahşı,— dedi Kirov, omuzımnı taptadı,— mazlum şarq endi uyandı...
+"Yoq... maşina içinde... yanımdan keçeyatqanda maşinanı toqtattılar:
+"Kim olasıñ? — dep soradı menden Kirov" —
+"Cevdet Bekirov....
+Taşkentke oqumağa keteyatam".
+— "Yahşı, çoq yahşı, — dedi Kirov, omuzımnı taptadı, — mazlum şarq endi uyandı...
 İlim, fen, medeniyetke yapıştı..."
 
 Öyle uydurıp, eecanlanıp ikâye ettim ki, buña er kes inandı.
