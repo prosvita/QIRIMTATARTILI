@@ -747,7 +747,7 @@ Özü tışta, qaburçaq taş basamaq üstünde turdı.
 – Evde, – dedi Acire.
  – Kiriñiz!
 
-Ocanıñ müçeleri öyle ezgin edi ki, “sofra başından nasıl turıp töşekke nasıl barıp yatacağını...” qasevetlenip otura edi.
+%
 Şimdi belâğa baq!
 Çare yoq.
 Turmaq... kişini qarşılap almaq kerek.
