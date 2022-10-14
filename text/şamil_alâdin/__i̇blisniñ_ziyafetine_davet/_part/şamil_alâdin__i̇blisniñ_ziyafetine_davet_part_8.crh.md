@@ -713,7 +713,7 @@ Acire ile Seit-Celil arasında laqırdı alevlene başlağanda, azbarda at tuy
 Dava kesildi.
 Seit-Celil alel-acele tışqa çıqtı.
 Bir talaydan soñ içeri Üsein kirdi.
-O yorğun ve şeñköründi.
+O yorğun ve şeñ köründi.
 
 – Men pek açıqtım, – dedi oca, ayaqqaplarını çıqarğan soñ.
  – At üstünde silkine-silkine, içim boşap qaldı.
