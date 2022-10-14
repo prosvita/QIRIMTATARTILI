@@ -155,11 +155,10 @@ Volgadaki traktor zavodınıñ yaş şorbacıları istisal ameliyatında de yañ
 Ardı-sıra qaç kün ve gece yuqlamay, ustahaneden ustahanege çapqalap, adsız-isapsız traktor qısımlarını qarıştırıp, bir-birine uydıruvnen çekiştiler.
 Traktornı taqıştırıcı mütehassıslar boltlarnı ve gaykalarnı iş esnasında öz ellerinen yasay, ketip azbar içinde egevley ediler.
 İşçiler ilki traktornı böyle yasap, Moskvağa on altıncı syezdge alıp keldiler.
-
 On altıncı syezd...
 Men bilem o syezdni.
 İlki defa Moskvağa kelgen vaqıtımda İnqilâb meydanından keçeyata edim, büyük bina yanında adam qalabalığını körip, toqtaldım, bu nasıl yer dep soradım.
-"Büyük opera teatri,— dedi militsiya hadimi,— on altıncı syezd devam ete".
+"Büyük opera teatri, — dedi militsiya hadimi, — on altıncı syezd devam ete".
 
 O vaqıtta Taşkentke oqumağa kele edim.
 Moskvada bir afta yaşadım.
