@@ -351,18 +351,14 @@ Gemimiz deñizge çıqıp, eppiy yol alğan soñ, onıñ yalıda alâ maña yavl
 Asretten yüregim küymekte edi.
 Skelede Margaritanı kördim.
 O meni bekley edi.
-
 Soqaqta onıñnen yan-yanaşa ketkende erkekler ve qadınlar ekimizge baqıp suqlana... men ise buña ğrurlana edim.
 Onıñnen er kün körüşe edim.
 Margarita meni öz evine davet etmey... utana edi, amma menim evime kelip-ketüvden red etmey edi.
 Menim, terrasası deñizge baqar eki odalıq, kvartiram bar edi.
-
 Sentâbr aqşamlarınıñ birinde, qız mende, terrasada oturğan vaqıtında, elimni yengilden boynuna qoydım.
-
-"Margarita!— dedim oña,— bizim körüşe başlağanımız üç ay.
+"Margarita! — dedim oña, — bizim körüşe başlağanımız üç ay.
 Bu mület yeterlik degilmi?"
-
-"Ebet, tamam üç ay...— dedi o ve maña nazlı nazarlar fırlattı,— taqdir bizni ümütsizden bir-birimiznen öyle bağlap qoydı ki... şimdi sensiz nasıl yaşaycağımnı tasavur etalmayım.
+"Ebet, tamam üç ay... — dedi o ve maña nazlı nazarlar fırlattı, — taqdir bizni ümütsizden bir-birimiznen öyle bağlap qoydı ki... şimdi sensiz nasıl yaşaycağımnı tasavur etalmayım.
 Anamdan mektüp aldım...
 Eñ olmağanda, bir aftağa kelip ket, dep yaza.
 Menim ise, seni bir saatke bile bıraqıp ketmege mecalım yoq.
@@ -370,12 +366,11 @@ Olarğa seniñ aqqıñda yazğan edim...
 Seni körmek isteyler.
 Menim içün pek raatsızlanar.
 Çünki, bilesiñmi, men baarde Ödessada qocağa çıqqan edim.
-Onıñnen bir afta... yaşağan soñ, bıraqıp mında keldim.— Qız bu yerde ağlamsırap aldı,— kocam meni insafsızca aldadı..."
-
+Onıñnen bir afta... yaşağan soñ, bıraqıp mında keldim.
+— Qız bu yerde ağlamsırap aldı, — kocam meni insafsızca aldadı..."
 Terrasada çoq oturdıq.
 Geceniñ bir maalinde Margarita yerinden qalqtı, boynuna mavı yipek yavluğını bağladı ve evine ketmege tedariklene başladı.
-
-"Ketmeñiz, qalıñız mında, Margarita!— dedim men,— ana ve babañız Batumğa kelgen soñ men olarnen özüm körüşir... afu isterim..."
+"Ketmeñiz, qalıñız mında, Margarita! — dedim men, — ana ve babañız Batumğa kelgen soñ men olarnen özüm körüşir... afu isterim..."
 
 Yaz keçti.
 Küz keldi — keçti, Margaritanıñ ana-babası körünmediler.
