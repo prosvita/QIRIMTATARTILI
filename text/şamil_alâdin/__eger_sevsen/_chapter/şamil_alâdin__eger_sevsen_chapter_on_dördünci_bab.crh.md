@@ -59,7 +59,8 @@ Men şimdi depodan keldim.
 Bütün rezervlerni... bütün ütilni közden keçirdik.
 Zan etsem, "Yengil kavaleriya" aqlı.
 Olar endi eki yüzge yaqın şpal azırlap qoyğanlar.
-Başqalarından iç osal degiller. — Krasnânskaya demir yol vekiline muracaat etip, dedi: — umumen, Aleksey Georgiyeviç, demir yol uçastkasına ciddiy emiyet berilmey.
+Başqalarından iç osal degiller.
+— Krasnânskaya demir yol vekiline muracaat etip, dedi: — umumen, Aleksey Georgiyeviç, demir yol uçastkasına ciddiy emiyet berilmey.
 Bunı nazar itibarğa alıñız!
 Meclisten soñ qızğın künler başladı.
 Biz, Baş Dugüm komsomolları, bu dört kilometrlik demir yolnı özümiz qurmağa qarar berdik.
@@ -79,15 +80,16 @@ Bir saat keçti.
 İskander betten ilki poyezd köründi.
 Arqasına dumpkarlar taqılğan...
 Demir yolcular ayrette qaldılar.
-
-— Bu ne demek ola?— eski şpallarnı körip, taaciplendiler. — Bekitmege-bekitkenler, amma şpallar özleri çürük...
+— Bu ne demek ola?— eski şpallarnı körip, taaciplendiler.
+— Bekitmege-bekitkenler, amma şpallar özleri çürük...
 Vagonlar yüklenilgen soñ relsler kerilip ketmezlermi?
 
 Krasnânskaya ekskavatornıñ kögertesinde, Almazovnıñ yanaşasında tura.
 Birinci vagon kelip yanaşqanınen, maşinist kovş içindeki qumnı dumpkarğa tökti, soñ yelquvannı çar-çabik sağ tarafqa çevirip, kovşnı yerge tüşürdi.
 Bir qaç saniye keçken soñ, kovş tekrar köterildi ve içindeki qum diger dumpkarğa töküldi.
 
-— Demir yoldan çekiliñiz!— dep qıçırdı Anna Yakovlevna. — Relsler sınğan kibi olsa, dumpkarlar yerge qapaqlanıp, işçilerni yaralamaq mümkün.
+— Demir yoldan çekiliñiz!— dep qıçırdı Anna Yakovlevna.
+— Relsler sınğan kibi olsa, dumpkarlar yerge qapaqlanıp, işçilerni yaralamaq mümkün.
 
 Men onıñ emirini başqa türlü añladım.
 Maña öyle keldi ki, Anna Yakovlevna bizni qasevet etmey, bizge ve bizim işimizge şübelene.
