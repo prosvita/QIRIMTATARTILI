@@ -45,12 +45,9 @@ Niayet, İrada qarındaşınen stol üstündeki grafinni çınqıldatıp, tezden
 
 Dava bitti.
 Yigitler birer sigar yasap, içtiler, İrada tekrar saatine köz eteyatqan arada köridorda ayaq davuşları işitildi.
-
 Krasnânskaya...
 O, zaldaki adamlarğa başını sallap, selâmlaştı, soñra reisniñ yanına barıp oturdı.
-
 — Soñ, nasıl? — dep soradı İradadan, — keliştiñizmi?
-
 — Nesine kelişeceksiñ onıñ? — dedi kimdir, zal içinden, — demir yol idaresi tek bir şey bile — itiraz etmek.
 Ne olsa-olsun.
 — İtiraz yahşı şey degil, — dedi Anna Yakovlevna, — o teşebbüsni öldüre... añladşıñmı?
