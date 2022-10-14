@@ -533,13 +533,10 @@ Curayevniñ bugün bizim barakta peyda olğanına kimse taaciplenmedi.
 Bu — birinci defa körülgen şey degil.
 O, maña yaşlar arasında nizam-intizam, terbiye hususında laqırdı etmek içün bergen vazifesiniñ edasını teşkermege kelgen.
 Kandıbanıñ meselesi onı eecanlandırdı.
-
 Bugün başqa baraklarğa kirmek içün endi vaqıt qalmağanını, aqşam ise evde oturıp siyasiy oquvnen meşğul olacağını, söz sırası aytıp taşladı.
 Doğrudan-doğru öyle dedi: siyasiy oquvnen meşğul olacağım.
 Bu menim oşıma ketti, institut bitirgen kişi, alâ siyasiy oquvnen oğraşıp yüre... hucur şey.
-
 Curayev bizge, — "bizge" degenim — maña ve İradağa — mında, barak içinde ve anda, ekskavatorda — yigitlerge, bu müim halq hızmetinde öz yerlerini tapuvda yardım körsetmemizni, ondan da ğayrı, Arhipka özüniñ eski adetlerine qaytıp barmasına yol bermemek içün Bassaraba ve Karimnen laqırdı etmemizni rica etti.
-
 Curayev bu vazifeniñ edası içün iç birimizni "müdir", "nevbetçi", yahut "vekil" tayin etmedi.
 Bir-birimizge nisbeten arqadaşlıq duyğusı beslememizni, dostluq içün özümizde mesuliyet sezip turmamıznı rica etti.
 Ebet, doğrudan-doğru oyle dedi: dostluq içün mesuliyet...
@@ -549,15 +546,11 @@ Curayevniñ ketkeni yarım saat olmadı, Raşid qıp-qırmızı sarğuş alda ke
 Nikolay maña baqıp, küldi.
 men de, ğaliba, küldim.
 Raşid yer yüzünde ne bar — ne yoq, episini eñ qatmerli sözlernen sögerek, peçkanıñ ögünden entir-tentir keçip, koykası üstüne barıp yıqıldı.
-
-— Qayda ediñ?— dep soradı ondan Nikolay.
+— Qayda ediñ? — dep soradı ondan Nikolay.
 — Bankettemi?
-
 — Basit aqıllı kişi eken, — dedi o, qarıq sesinen, — qışlaqqa ketip — qurtuldı.
 Men, ahmaq... bütün gece: la-la-la, la-la-la!
-
 — Karamat yoq edimi?
-
 — Bar edi.
 Onıñ adetini bilmeysiñmi?
 Karim qayda, dep soray menden.
@@ -567,24 +560,24 @@ Oturdıq, yarımşar meşrebe samogon içtik, tiller yañ çezilip başlağanda,
 Valâ peyda oldı...
 Zır sarğuş.
 Otur, deymiz, oturmay.
-
 — Dülgerler barağında atqandır!.. — dedi Nikolay, — dülgerler onı sıylamağa seveler.
 Özüne qalsa, çoq içmey.
 Zevqlı qız!
 Soñ?
 Daa?
-
 — Daa?
 Qızlar onı qap-qaç etip aldı, yatqızacaq oldılar.
 Elini bir siltedi, qızlar anda-mında sepilip kettiler.
 "Maña Nikolaynı tapıp ketiriñiz!" dep qıçırdı.
 "Saña Nikolay niçün kerek? — deyler qızlar.
-— O şimdi smenada!" "Qayda olsa-olsun, tapıp ketiriñiz!
+— O şimdi smenada!"
+"Qayda olsa-olsun, tapıp ketiriñiz!
 Ketirmeseñiz, özüm barıp ketirem..." dey.
-Opladıq-topladıq, biraz yatıştırğan kibi oldık, kene qıçırdı: "Şakallar!
+Opladıq-topladıq, biraz yatıştırğan kibi oldık, kene qıçırdı:
+ "Şakallar!
 Coyulıñız közümniñ ögünden!" — Stol üstündeki qaşıqlarnı, çanaqlarnı urıp parladı.
 Az qaldı, vilkanen közümni çıqarayazdı.
-— "Ne quturasıñ?— deyim oña.
+— "Ne quturasıñ? — deyim oña.
 — İnsan kibi otursañ olmaymı?" Aldı-köçti: "Sen erkek degilsiñ!
 Saña ştan degil, Sabira halanıñ yırtıq tumanını kiymek kerek..." Ziy-çuv.
 Karamat maña darıldı, çıqıp ketti.
@@ -592,28 +585,23 @@ Niçün darıla, bilmeyim.
 Ondan soñ, eki kişi daa çıqıp ketti.
 
 — Valâ... matüv qız! — dedi Kandıba tüşünceli alda, — oña Nikolay nege kerekken?
-
 — Bir laqırdı etip baqsañ ne ola? — dedi Raşid.
 — O seni seve.
 Özü aqıllı, dülber mahlüq...
 Belki içmez edi.
-
 — Kerekmey... — Kandıba qolunen avanı kesip taşladı.
 — Barsın, istegeni kibi yaşasın.
 Sen ise... yuqla!
 Em pek hırıldama, cenab Arhipkanı uyantırsıñ!
-
 — Arhipkanı... top atsañ uyantalmazsıñ! — dedim men.
-
 — Farqına bardıñmı, Cevdet? — dedi Kandıba yavaştan.
-O bugün ne hususta laqırdı etse-etsin, kederli davuşnen başlay edi.— Bu barakta sekiz adam yaşaymız.
+O bugün ne hususta laqırdı etse-etsin, kederli davuşnen başlay edi.
+— Bu barakta sekiz adam yaşaymız.
 Er birimizniñ öz dünyası bar.
 Er kesniñ öz qaseveti ve sevinçi.
 Raşidniñki bir türlü, menimki bir türlü, seniñki daa bir türlü...
-
-— Menim qasevetim yoq...— dedim men, — ondan da ğayrı, bilesiñmi?..
+— Menim qasevetim yoq... — dedim men, — ondan da ğayrı, bilesiñmi?..
 Sevinç ve qasevetni yalıñız sevgide qıdırmaq olmaz.
-
 — Daa qayda qıdırmaq mümkün?
 Ayatta sevgisiz bir şey yoq.
 Ava bile yoq.
@@ -629,43 +617,32 @@ Sen anañnıñ etegi astında çoq yaşağansıñ.
 Şimdige qadar körgenleriñ — qarından yañ çıqqan balanıñ körgenleri edi.
 Bu muzıka endi bitti.
 Endi anañnıñ oğulgçığı degilsiñ.
-
-— Anamnıñ oğulçığı? — içten yüregimni ne-dir tırnap aldı,— E!
+— Anamnıñ oğulçığı? — içten yüregimni nedir tırnap aldı, — E!
 Qardaş!
-Sen meni at üstün-de... elimde qılıç, atakağa ketkenimni kördiñmi?
-
+Sen meni at üstünde... elimde qılıç, atakağa ketkenimni kördiñmi?
 — Arbiy hızmet başqa... — dedi Nikolay.
 — Ögüñde duşman.
 Tek quvet ve çeviklik kerek.
 Amma Çar-Çaqqa keldiñ, etrafıñ çıtırman dağ, bir şey bilmeysiñ.
 Bilgence başıñnı ğayıp ettiñ.
-
 — Başımnı?
 Yoq!
 Neni-neni, lâkin başımnı ğayıp etmedim.
-
 — Endi ğayıp ettiñ.
 Mende anda... sailde kezingen vaqıtımda seniñ kibi edim.
 Soñundan er şey başlı-ayaqlı olıp ketti.
 Gizlegeniñ ne?
 Men bilem, seniñ qafañda şimdi tek bir adam bar.
-
 — Ebet... yüregim Elpidenen yaralı... — yalan ayttım men.
-
-— Elpidenen?— Nikolay közlerini qıbırdatmay, açuvlı çere ile zornen külümsiredi, — o yarañnıñ tüzelgeni çoqtan.
-
+— Elpidenen? — Nikolay közlerini qıbırdatmay, açuvlı çere ile zornen külümsiredi, — o yarañnıñ tüzelgeni çoqtan.
 Arhipka uyandı, turıp peçka betke ketti, soñ stol üstünde çaynikni körip, toqtadı.
 Teneke meşrebege sıcaq suv qoyıp, divardaki küçük küzgü ögüne bardı, saqalını cibitti, fin pıçağınen tıraş ola başladı.
-
-— Mına, insan!— dedi Nikolay, Arhipkağa işaret etip, — dünyada er şeyge tükürgen.
+— Mına, insan! — dedi Nikolay, Arhipkağa işaret etip, — dünyada er şeyge tükürgen.
 Men onıñnen büyük laqırdı etecegim...
 Tezden.
-Ey!— dep qıçırdı o, Arhipkağa perişan sesnen, — qulaqlarıñnıñ içlerini de tıraş et!
-Pre biylemesinler!
-
-Nikolaynıñ adeti iç bir seviyede turmay.
+Ey! — dep qıçırdı o, Arhipkağa perişan sesnen, — qulaqlarıñnıñ içlerini de tıraş et!
+#Nikolaynıñ adeti iç bir seviyede turmay.
 Daqiqa sayın deñişe bere ve iç tekrarlanmay.
-
 O, ilki körgen vaqıtımda, pervasız deñizci edi.
 Er eki sözüniñ birine fransızca qarıştıra edi.
 Soñ ağızından fransız sözü çıqmadı.
@@ -675,14 +652,11 @@ Aytqan da, er beyitniñ soñunda, ispan tilinde.
 "Mio Karo, mio Karo" dep tekrarlamağa seve.
 Soñundan añladım: "Menim sevgilim" demek eken.
 Lâkin ispanca degil, italyanca...
-
 Koykanıñ üstüne çalqağa tüşip yattım, dersliklerni elime aldım.
 Mektepteki arqadaşlarımnıñ artına tez yeterim bellegen edim, lâkin qolay iş degil eken.
 Olar tek oquylar... amma men çalışam, smenadan soñ, Hazar Kendke yuvuram, lektsiyalar diñleyim, başqalarnıñ eski konspektlerini yazıp alam, soñra balçıqlı soqaqlar boyu barakqa çapam, evge berilgen vazifelerni çezem, shemalar çızam ve... mehanika qaidelerini ezberleyim.
-
 İlki künlerde maña mektepte skemle üstünde dört saat oturuv iç qıyın körünmedi, atta dersten evel ve soñ, yollar boyunda taze avada yürüvge faydalı şey dep baqtım.
 aqiqatta, bu kezintiler meni öyle qıynadılar ki, ders vaqıtında yuqsıray berdim, evge qaytqan soñ, geceleri töşegimde yuqusızlıq bastı ve maddem kesildi.
-
 Kandıba maña qaç defa mektepni bıraqmaqnı tevsiye etti, qulaq asmadım.
 İmtianlarnıñ epsini berip, mektepni er kesnen beraber bitirmege yemin ettim.
 İmtianlarnıñ başlamasına eki afta qalğanda işniñ müim tarafını añladım.
@@ -690,33 +664,24 @@ Men ekskavatorda çalışam, tecribem büyük.
 Lâkin nazariy bilgim az ve bu sebepten imtianda yıqıla bilem.
 İşniñ aqqından nasıl kelmeli?
 Bu hususta tüşünip otura edim, yardımnıñ özü kele qoydı.
-
 Apansızdan İrada meni komsomol komitetine çağırdı, beraber Novorossiyskke komandirovkağa ketecegimizni ayttı.
-
 — Ne?
 Sevinesiñmi? — dep soradı o, maña baqıp ve külümsiredi.
 — Niçün?
-
 — O taraflarda çoqtan olmağan edim.
 Er alde Bademlikke yaqın...
-
 İrada küleyatqan yerinde birden küsti.
-
 — Ketecekmiz...
 Nasıl işnen, dep soramaysıñ!
-
 — Bunıñ ne emiyeti bar? — dedim men.
 — Eñ müimi... beraber ketecekmiz.
-
 İş şundan ibaret: Novorossiyskte Amerikadan ketirilgen kranlar yata ekenler.
 Tezden plotina içün kerek donatmanıñ montajını başlamaq kerek, amma kranlar yoq.
 Çar-Çaq qurucılığı Baş İdaresi ve komsomol komiteti ekimizni Novorossiyskke yollamağa qarar bergenler.
 Biz anda bu donatmanı tapıp, acele surette mında yollamaq kerekmiz.
-
-— Ne qadar müim vazife, haberiñ barmı? — İrada, Anna Yakovlevnanıñ oña ne teklif etkenini, soñra İradanıñ özü komsomol Merkeziy Komitetine telefon çekip, ne söylegenini, anda, Merkeziy Komitette nasıl etip, Novorossiysk portı komsomollarına muracaatname yazıp azırlağanlarını özüne has tamlıq ve açıqlıqnen añlattı.
-
+— Ne qadar müim vazife, haberiñ barmı?
+— İrada, Anna Yakovlevnanıñ oña ne teklif etkenini, soñra İradanıñ özü komsomol Merkeziy Komitetine telefon çekip, ne söylegenini, anda, Merkeziy Komitette nasıl etip, Novorossiysk portı komsomollarına muracaatname yazıp azırlağanlarını özüne has tamlıq ve açıqlıqnen añlattı.
 Ondan soñ İrada:
-
 — Men Mansurovanı...
 Yekaterina Vasilyevnanı kördim, — dep taşladı, — onıñ bu meseleden haberi bar.
 Haberi olğanı bir şey degil, halq arasında çeşit öşekler darqatıp yürmekte... güya biz ekimiz kezintige keteyata ekenmiz.
@@ -739,24 +704,17 @@ Nasıl büyük iş?
 Elbette, yanğın içine kirip, birevni ölümden qurtarmaq degil.
 ...Mında yanğın olmay.
 Qapuğa bir köz etip aldım, soñ yavaştan İradanı quçaqladım, lâkin biraz qolaysızca quçaqladım,— yüzümni onıñ yüzüne tayadım, onıñ... dünyada eñ güzel qıznıñ, İradanıñ, dudaqlarından öpmek istedim.
-
 O çar-çabik başını keri çekti, müçesini çetke yantaytıp, pencerege doğruldı ve keteyatqanda, başını bile çevirip baqmayıp:
-
 — Siz meni başqa türlü añladıñız, Cevdet! — dedi.
-
 Şu gecesi meni idarege çağırdılar.
 Krasnânskaya ve teminat bölüginiñ başlığı ekisi menimnen laqırdı etti, er şeyni añlattı, menden: kranlarnı qayda ve nasıl qıdırıp tapacağım ve mında nasıl yollaycağım hususında talimatnı tekrarlamamnı talap eterek, repetitsiya yapıp baqtılar.
-
 Kabinetten çıqacaqta Anna Yakovlevna meni toqtattı.
-
 — Bir özüñiz ketecegiñizden haberiñiz barmı? — dedi o maña, — İradanıñ beton zavodında işi bar.
 Ekinci sefer beraber ketersiñiz.
 İşiñizde küçlük olsa, telegramma beriñiz!
 Biz poçtamtqa yazarmız.
-
 Anna Yakovlevnanıñ sözlerini diñledim, añlap olamadım.
 Qafamda fikirler qarıştılar.
-
 İradanen laqırdı etkenim sekiz saat oldı.
 Çar-Çaqqa kelgen ilki künümden başlap, bu daqiqağa qadar ekimizniñ aramızda yüz bergen muamelelerni tüşünip baqtım.
 Men İradanı kerçekten de sevgenimni añladım.
@@ -771,13 +729,11 @@ Belki keter.
 — Tezden menim maşinam kelecek, — dedi Anna Yakovlevna.
 — Aşhanege kirip, özüñizge yollıq erzarq alıñız.
 Buhgalteriyağa episini añlattım.
-
 Bir saatten soñ "Fordqa" minip, aşhanege keldim, andan — barakqa, soñ paromğa cönedim.
 İrada ile körüşalmadım.
 O qaçıp, saqlanıp yurdi.
 Lâkin qaysı yaqqa nasıl adım atqan olsam, episini kördi.
 Sekiz künüm-sekiz gecem poyezdda keçti.
-
 ...İşte, Novorossiysk.
 Adres mürekkep degil.
 Port, komsomol komiteti.
