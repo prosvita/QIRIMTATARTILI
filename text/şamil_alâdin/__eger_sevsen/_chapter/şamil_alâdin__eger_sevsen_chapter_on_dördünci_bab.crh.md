@@ -313,10 +313,9 @@ Ava ne qadar hafif!
 Markiz adaları...
 Siz, belki, Batumnı yahşı bilmeydirsiñiz!
 İsteseñiz, biraz kezineyik!"
-
 "Vay, bilmeyim... siziñnen ilki körüşüvimiz... — dedi Margarita.
-Közleri meni sınağan ve turuşıma qıymet keseyatqan kibi, ciddiy baqmaqta ediler.— Qolaysız olıp çıqmazmı?"
-
+Közleri meni sınağan ve turuşıma qıymet keseyatqan kibi, ciddiy baqmaqta ediler.
+— Qolaysız olıp çıqmazmı?"
 "Raatsız olmañız!
 Er şey istegeniñiz kibi olur!
 Buña Batum deyler!" 
@@ -327,13 +326,11 @@ Men yigirmi altı yaşında edim.
 Özüm ticaret flotında hızmet etem.
 Uzaq memleketlerge barıp kelem.
 İspaniya ve Afrika skelelerini beş parmağım kibi bilem.
-Deycegim, sail cadde boylap Margaritanen ketem, qafamnıñ içinde çeşit tüşünce-ler...
+Deycegim, sail cadde boylap Margaritanen ketem, qafamnıñ içinde çeşit tüşünceler...
 Gemimiz dört künden soñ Yunanstanğa cöneycek.
 
 Lâkin qız toqtadı... niçündir, deñiz yalısına ketecegi keldi.
-
-"...Yalıda turıp, dalğalarnıñ iñiltisini diñlemege sevem, çünki özüm de deñiz sailinde doğdım..." dedi qız.
-
+"...Yalıda turıp, dalğalarnıñ iñiltisini diñlemege sevem, çünki özüm de deñiz sailinde doğdım..." - dedi qız.
 Sailge kettik.
 Dalğalarnıñ kelip uruna ve keri çekile bergen yerinde, çaqıllar üstünde oturdıq.
 Deñizniñ dülberligi, dalğalarnıñ tılsımlı iñiltisi hususında, sevgi hususında laqırdı ettik.
