@@ -271,29 +271,25 @@ Ta soñunda kitaptan oqup aytqan kibi, tutulmay, tamşanmay söyledi.
 Men onıñ istidadındaki bu hususiyetni şimdi bildim.
 Curayev ne tüşündi, sezalmadım.
 O, krovat üstünde biraz qam-buraya berip oturmaqta ve ciddiy çıraynen diñlemekte edi.
-
 Kandıba devam etti.
-
 — "Ebet!
-Öyle!— dedim men,— ğayet hoş vaqia olıp çıqqan edi.
+Öyle! — dedim men, — ğayet hoş vaqia olıp çıqqan edi.
 Şimdi ise adıñıznı bilmege ruhset etiñiz!
 Zan etsem, buña aqqım bar!"
-
-"Ne demek olsun...— dedi sarışın qız ve cazibeli nazar ile küldi.
+"Ne demek olsun... — dedi sarışın qız ve cazibeli nazar ile küldi.
 Dülber qadın külküsi — dünya zenginliginiñ yarısı.
-Batumda şay deyler.— Biz endi siziñnen eski tanışlar kibimiz.
+Batumda şay deyler.
+ — Biz endi siziñnen eski tanışlar kibimiz.
 Menim adım Margarita".
  "Margarita!
 Margarita! — dep tekrarladım men, sevinçimden başımnı ğaip etip,— acaip ad!"
-
 Kandıba tekrar sustı.
 Menim ve Curayevniñ közlerimizge baqıp oturdı.
 Soñra kederli alda dedi:
-
 — Dünya.
 seni... o vaqıtta birde-bir kişi tapılıp: Nikolay, vazgeç bu işten degen olsa, ne olur edi?
-
-— Yazıqsınasıñmı?— dedi Curayev. — Sen onı sevgendirsiñ...
+— Yazıqsınasıñmı? — dedi Curayev.
+— Sen onı sevgendirsiñ...
 
 Nikolay, yanbaşına ine sançılğan kibi, sekirip yiberdi.
 Curayev onı añladı, daa alicenap islerle diñledi.
@@ -301,28 +297,24 @@ Men öyle yapqanını begendim.
 Arada sevgi olmağan olsa, Nikolay bu tarihnı bizge böyle, edinip ikâye etip oturırmı edi?
 Añlaşıla, yüregini qurtçıq kemirmekte.
 Deñiz, dağlar.
-Margaritanıñ tığız, yanıq teni ve dünyalarğa berilmez közleri...
 Bular yigitniñ yüregini iç bir vaqıt terk etkenleri yoq.
 Onıñ içün bugün Nikolayğa bir tökünmek kerek oldı.
 Curayev ise böyle, taliyi sınıq adamlarnı diñlemege seve.
-
 — O vaqıtta maña kimse: sen aldandıñ, demedi.
 Men Margaritanıñ közlerine baqıp sevindim.
 Yanaşamızda turğan qadın bir yaqqa aşıqayatqanını bildirdi, bizden afu istep, ketti.
 Ekimiz qaldıq.
-
-"Birevni beklep tura ediñizmi?— dep soradım men Margaritadan...— Mani olmadımmı?"
-
-"Yoq...— dedi Margarita. — Aqşamlıq taze ava alayıq, dep çıqqan edik!
-Kündüz ğayet sı-caq".
-
-"Aqşam ava oldıqça serin!— dedim men,— amma, baqıñız, deñiz ne qadar mavı!
+"Birevni beklep tura ediñizmi? — dep soradım men Margaritadan... — Mani olmadımmı?"
+"Yoq... — dedi Margarita.
+— Aqşamlıq taze ava alayıq, dep çıqqan edik!
+Kündüz ğayet sıcaq".
+"Aqşam ava oldıqça serin! — dedim men, — amma, baqıñız, deñiz ne qadar mavı!
 Ava ne qadar hafif!
 Markiz adaları...
 Siz, belki, Batumnı yahşı bilmeydirsiñiz!
 İsteseñiz, biraz kezineyik!"
 
-"Vay, bilmeyim... siziñnen ilki körüşüvimiz...— dedi Margarita.
+"Vay, bilmeyim... siziñnen ilki körüşüvimiz... — dedi Margarita.
 Közleri meni sınağan ve turuşıma qıymet keseyatqan kibi, ciddiy baqmaqta ediler.— Qolaysız olıp çıqmazmı?"
 
 "Raatsız olmañız!
