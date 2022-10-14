@@ -159,7 +159,6 @@ On altıncı syezd...
 Men bilem o syezdni.
 İlki defa Moskvağa kelgen vaqıtımda İnqilâb meydanından keçeyata edim, büyük bina yanında adam qalabalığını körip, toqtaldım, bu nasıl yer dep soradım.
 "Büyük opera teatri, — dedi militsiya hadimi, — on altıncı syezd devam ete".
-
 O vaqıtta Taşkentke oqumağa kele edim.
 Moskvada bir afta yaşadım.
 Soñ Taşkentke cenedim.
@@ -177,7 +176,6 @@ Arbatta kezine edilermi?"
 Taşkentke oqumağa keteyatam".
 — "Yahşı, çoq yahşı, — dedi Kirov, omuzımnı taptadı, — mazlum şarq endi uyandı...
 İlim, fen, medeniyetke yapıştı..."
-
 Öyle uydurıp, eecanlanıp ikâye ettim ki, buña er kes inandı.
 Özüm de inandım...
 
@@ -188,25 +186,20 @@ Biz ekinci beşyıllıqnıñ qurucıları... yolumız birinci beşyıllıq adaml
 Çar-Çaqtan Taşkentkece demir ve şosse yollar barlığı, Qadıryadan İskander betke yüksek voltlı elektrik telleri çekilgeni bizni endi taaciplendirmey edi.
 İskanderde eki afta içinde tula yasayıcı ve ağaç bıçıcı zavodlar quruldı.
 Çar-Çaqnıñ bir yalısından diger yalısına çelik yip yol tartıldı, bu müddet içinde beton ve çaqıl zavodları teşkil etildi.
-
 Biz Sotsialist Şeerçikte yaşaymız.
 Amma boyle şeerçikler bizde sekiz dane.
 Soñundan bazıları bir-birine qoşuldı, eki büyük şeer asıl oldı.
 
 Çar-Çaq gidroelektrostantsiyaları kaskadı.
 Yetmek ve ozıp keçmek!
-Tehnikanı menimsemek!—işte, künlerniñ şıarları.
+Tehnikanı menimsemek! — işte, künlerniñ şıarları.
 Derslerniñ başlağanına eki ay olğan soñ meni zorlap ekskavatorcılar mektebine kirsettiler.
 "Tehnikanı menimsemek kerek..."
-
-— Olar endi çoq şey keçkendirler,— dedim men İradağa. — Enden soñ anda ne yapacağım?
-
+— Olar endi çoq şey keçkendirler, — dedim men İradağa. — Enden soñ anda ne yapacağım?
 Men, bu ceetten İradanıñ sarsılmaz, sınmaz ekenini bile edim.
 Lâkin ayttım...
-
-— Zararı yoq,— dedi o,— sanayı akademiyası degil!
+— Zararı yoq, — dedi o, — sanayı akademiyası degil!
 Qorqma!
-
 Amma olarnıñ artına yetmek içün çoq çekiştim.
 Smenadan soñ aşhanege çapam, andan barakqa kelip, koykamnıñ üstüne qabırğalap yatam, adıisabı yoq tehnikiy terminlerni ezberleyim.
 Amma Nikolay özüni sıqmay.
@@ -216,45 +209,31 @@ Kandıba gitara çala.
 Arhipka çızmasınıñ ökçesini mıhlay.
 Basit Atakulov, Raşid Mahkamov ve Mihail Bassaraba, ellerinde çilengir anahtarları, eski motornı cıyıştırayatalar.
 Karim bosağa üstünde odun kesmekte.
-
 Nikolay muzıkasını toqtatmay, ayneci közlerini menim közlerime doğrulttı.
-
-— Qayda ediñ?— dep soradı o,—kene sezgimi?
-
+— Qayda ediñ? — dep soradı o, — kene sezgimi?
 — Sevgi?
 Yoq, qardaş!
-
-— Dünyada bir şey olıp keçmedi, öylemi?— o, külümsiredi. — Zararı yoq.
+— Dünyada bir şey olıp keçmedi, öylemi? — o, külümsiredi. — Zararı yoq.
 Qız fena degil.
-
 Men cevap berecek oldım, yetiştiralmadım... yuqlap qalğanım.
-
 Uyanğanda, tınç oda içinde kimniñdir, aqırından laqırdı eteyatqanını işittim.
 Közlerimni aralıq etip baqtım: Curayev...
-
 O yavaştan bir şey ayttı.
-
-— Yoq, Bekirovtan sıqılmayım,— dep cevap berdi Nikolay,— o öz kişimiz! 
+— Yoq, Bekirovtan sıqılmayım, — dep cevap berdi Nikolay, — o öz kişimiz!
 Közlerimni açtım.
 
-— Bu ne bitmegen yuqu!— dep qıçırdı Kandıba.
+— Bu ne bitmegen yuqu! — dep qıçırdı Kandıba.
 Kelip, ödeyalımnı çekip alıp attı,— tur!
-
-— Aşhanege ketmek kerek,— dedim men.
+— Aşhanege ketmek kerek, — dedim men.
 Turdım.
 Lâkin yuqu içinde tentrey berdim.
-
 — Aşhanege?
-Toqta, aşıqma!— dedi Nikolay. — Otur tekaran!
+Toqta, aşıqma! — dedi Nikolay. — Otur tekaran!
 Men partâçeykağa müim bir şeyni bildirmek isteyim.
 Lâkin, Cevdet... tek özüñ bileceksiñ!
-
-— Hurma meselesi degilmi?— dep soradım men.
-
+— Hurma meselesi degilmi? — dep soradım men.
 Kandıba seskenip ketti.
-
 — Qaydan bilesiñ Hristofor ayttımı?
-
 — Yoq.
 
 — Hurma ne?
