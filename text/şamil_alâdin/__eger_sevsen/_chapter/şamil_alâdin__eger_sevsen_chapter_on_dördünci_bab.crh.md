@@ -14,27 +14,27 @@ Meclisniñ reisi İrada sözni evelâ zavod vekiline berdi.
 İri, beyaz közlükli yaş kişi analizlerni oqudı.
 Bizdeki qum, karyerden ketirileyatqan qumdan yahşı eken; eger bizde demir yol olsa...
 
-— Siz añlamaq kereksiñiz, arqadaşlar,— dedi demir yol vakili.
-O bizni qandıracaq olıp çekişti,— biz bunı sizden yahşı bilemiz, lâkin imkân yoq.
+— Siz añlamaq kereksiñiz, arqadaşlar, — dedi demir yol vakili.
+O bizni qandıracaq olıp çekişti, — biz bunı sizden yahşı bilemiz, lâkin imkân yoq.
 Şpal qayda?
 Rels qayda?
 Bir şey yoq!
 Añladıñızmı?
 Parovozlar özenge yuvarlanıp tüşkenlerini isteysiñizmi?
 
-— Afu etiñiz, Aleksey Georgiyeviç!— demir yol deposı komsomol yaçeykasınıñ kâtibi injenerniñ sözüni böldi. — Bizim "Yengil kavaleriya" eski şpal ve relsler arasında işke kelişikli soylarını taptı.
+— Afu etiñiz, Aleksey Georgiyeviç! — demir yol deposı komsomol yaçeykasınıñ kâtibi injenerniñ sözüni böldi.
+— Bizim "Yengil kavaleriya" eski şpal ve relsler arasında işke kelişikli soylarını taptı.
 Pek yahşı degiller, er alde, faydalanmaq mümkün.
 
-— Men sizge, Löşa, qaç kereler ayttım, laqırdı etkende pek qızışmañız dedim,— demir yol vekili özüni aqlamağa tırıştı,— demir yol, o ciddiy mesele.
+— Men sizge, Löşa, qaç kereler ayttım, laqırdı etkende pek qızışmañız dedim, — demir yol vekili özüni aqlamağa tırıştı, — demir yol, o ciddiy mesele.
 
 Eppiy vaqıt olarnıñ davasını diñlep oturdım.
 Kimerde İradağa köz etip alam.
 İşni nasıl çezer eken?
 Ne der eken, dep tüşünem.
 
-— Yeter endi!— dep qıçırdı komsomol komiteti bürosı azalarından birisi,— er şey añlaşıldı.
-
-— Yoq, ayta bersinler...— dedi İrada.
+— Yeter endi! — dep qıçırdı komsomol komiteti bürosı azalarından birisi, — er şey añlaşıldı.
+— Yoq, ayta bersinler... — dedi İrada.
 O saatine köz etip aldı, soñra maña külümsiredi.
 
 Meclis dadsız edi.
@@ -49,12 +49,11 @@ Yigitler birer sigar yasap, içtiler, İrada tekrar saatine köz eteyatqan arada
 Krasnânskaya...
 O, zaldaki adamlarğa başını sallap, selâmlaştı, soñra reisniñ yanına barıp oturdı.
 
-— Soñ, nasıl?— dep soradı İradadan,— keliştiñizmi?
+— Soñ, nasıl? — dep soradı İradadan, — keliştiñizmi?
 
-— Nesine kelişeceksiñ onıñ?— dedi kimdir, zal içinden,— demir yol idaresi tek bir şey bile — itiraz etmek.
+— Nesine kelişeceksiñ onıñ? — dedi kimdir, zal içinden, — demir yol idaresi tek bir şey bile — itiraz etmek.
 Ne olsa-olsun.
-
-— İtiraz yahşı şey degil,— dedi Anna Yakovlevna,— o teşebbüsni öldüre... añladşıñmı?
+— İtiraz yahşı şey degil, — dedi Anna Yakovlevna, — o teşebbüsni öldüre... añladşıñmı?
 Men şimdi depodan keldim.
 Bütün rezervlerni... bütün ütilni közden keçirdik.
 Zan etsem, "Yengil kavaleriya" aqlı.
@@ -80,7 +79,7 @@ Bir saat keçti.
 İskander betten ilki poyezd köründi.
 Arqasına dumpkarlar taqılğan...
 Demir yolcular ayrette qaldılar.
-— Bu ne demek ola?— eski şpallarnı körip, taaciplendiler.
+— Bu ne demek ola? — eski şpallarnı körip, taaciplendiler.
 — Bekitmege-bekitkenler, amma şpallar özleri çürük...
 Vagonlar yüklenilgen soñ relsler kerilip ketmezlermi?
 
@@ -100,16 +99,14 @@ Olsa, maña yardım eter edi, lâkin yoq... sesi uzaqta, parovoz betlerde çıqm
 Şpallar, kerçekten de, ağır yükniñ taziqı altında azaçıq çökken kibi körüneler.
 Belki er yerde degildir?!
 Belki bizge öyle körüngendir?
-
 Krasnânskaya tekrar:
-
-— Demir yoldan çetke çekiliñiz!— dep qıçırdı. 
+— Demir yoldan çetke çekiliñiz! — dep qıçırdı.
 Men eñ yaqın dumpkarnıñ töpesine çıqtım, ellerimnen işaret etip kösterdim: telükeli iç bir şey yoq.
 Relsler kerilecekke beñzemeyler.
 Poyezd güzel-güzel keçip kete bile.
 Diger dumpkarnıñ üstüne de adamlar mindiler.
 
-Demir yol topraq yığınları üstünde qurulğan: bir tarafı Çar-Çaq, diger tarafı —aylanma kanal.
+Demir yol topraq yığınları üstünde qurulğan: bir tarafı Çar-Çaq, diger tarafı — aylanma kanal.
 Platforma üstünden baqsañ, yüksek qayanıñ töpesinde turğan kibi kele.
 Elbette, büyük taziq neticesinde yığın çetindeki topraqnıñ aşağı tayğan yerleri oldı, şpallarnıñ üstleri açılş qaldılar.
 
@@ -127,28 +124,22 @@ Qum yüklü ilki poyezd yerinden köçti.
 Evelâ pek yavaş yurdi, soñ suratını arttırdı.
 Biz elliden ziyade, belki de yüz qadar adam dumpkar üstünde turıp, ellerimizni sallay, "ura" dep qıçıra, bir-birimizniñ omuzlarını taptay, quçaqlaşamız.
 Böylece, aman-aman İskanderge barıp yeteyazdıq.
-
 Poyezd beton tsehiniñ yanında toqtadı.
 Biz yerge tüştik.
 Uçastka başlığı bizim kelgenimizge pek sevindi.
-
 Diqqatnen baqtım: ögümde beyaz közlükli yigit... komsomol meclisinde nutq söylegen yigit turmaqta.
-
-— Tam vaqtında keldiñiz!— dedi o, bizge,— çünki altıncı nomer içün qum az.
+— Tam vaqtında keldiñiz! — dedi o, bizge, — çünki altıncı nomer içün qum az.
 İşsiz turacaqmız dep qorqıp başlağan edim.
 Qum karyerde de yoq.
 Sizden de kelmegen olsa, işler fena olacaq edi.
-
 Dumpkarlar qapaqlandılar.
 Qum yerge töküldi.
 Parovoz platformalarnı arqa tarafqa üytep alıp ketti, yelquvannıñ ögünde toqtadı, ögden keleyatqan qum yüklü ekinci poyezdğa yol berdi.
-
-Demir yel azır.
+Demir yol azır.
 Lâkin oña daima köz-qulaq ola bermek, kimer yerlerinde şpallarnı ve relslerni deñiştirip turmaq kerek oldı.
 Çünki yolnıñ ömüri uzun degil... muvaqqat.
 Klub, furun, magazin, sklad — episiniñ qurucılığı içün beton kerek.
 Poyezd toqtamay-tınmay bu obyektler içün işley, Tezden aylanma kanalnı bitirecek, plotina qurucılığına başlaycaqmız, o vaqıtta bir zavodnıñ betonı azlıq etecek.
-
 ...Qum ve demir yol tarihını tafsilâtlı söyledim, çünki böyle işlerni daima bizge, komsomollarğa avale ete ediler.
 Biz oña, kerçekten de, alışıp qaldıq.
 Özümizni, dünyada er şeyge burun soqmağa aqlı adamlarmız dep bile... er uçastkada qurucılıqnıñ tez bitirilmesine yardım etmege tırışa edik, çünki bu işlerde taqlid etilecek ocalarımız bar edi.
