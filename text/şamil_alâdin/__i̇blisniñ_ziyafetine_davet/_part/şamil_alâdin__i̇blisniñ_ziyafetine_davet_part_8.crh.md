@@ -1330,7 +1330,7 @@ Ürhiye endi oda içinde yoq edi.
 Bir talay vaqıt keçken soñ:
 – “Bizim babay hususında... bir şeyler yazılğan!” dep qıçırdı aşhane içinden.
 – “Ba-bbam hususında d-deysiñmi? – sevingenimden tutuqlana başladım.
-– Ne yyazılğan?”
+– Ne yazılğan?”
 Közlügimni taqtım, mecmualarnıñ saifelerini yengilden qarıştırıp çıqtım.
 E!
 Şamil ağa, bu siziñ eseriñiz!
@@ -1380,7 +1380,7 @@ Onı tapıp, oqumaqnıñ imkânı yoqmı?”
 – O vaqıtta elyazma müellifiniñ taqdiri belli degil edi.
 Bir soy adamlar: “o, yigirminci yıllarnıñ başında Parijge ketti, qaytıp kelmedi” dediler.
 Digerleri: “hatirat”nıñ müellifi şuralar akimiyeti oğurındaki cenklerde elâk oldı” diye kestirdiler.
-Ekinci soy adamlarnıñ fikirleri aqlı olıp çıqtı.
+%
 
 Bu vaqialarnı men, teessüf, şimdi, siziñ eseriñizni oquğan soñ hatırladım.
 Men babam aqqında bilgen şeylerimden birisini... tek birisini, lâkin müimini sizge söylemege unutqanım.
