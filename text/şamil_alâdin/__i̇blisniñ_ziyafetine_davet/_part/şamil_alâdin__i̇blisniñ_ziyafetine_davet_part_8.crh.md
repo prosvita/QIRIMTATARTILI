@@ -322,7 +322,7 @@ Üstünde beyaz bıcaq, qara ştan.
 Ava tunçıq, bıcaqnen yürmek küç, ama oca cıynaqlı olmaq, zemane tertibine riayet etmek kerek.
 Adet öyle olıp kelgen.
 Oca nasıldır, eski türküni, uzaqqa eşitilmez tarzda, yırlay-yırlay ketti.
-“Bu giden qız – kimniñ qızı, fistavı tizden...”
+“Bu giden qız – kimniñ qızı, fistanı tizden...”
 
 Tükânğa taze mal kelgen.
 Qave, şeker, çamaşır sabunı, kürpe... demir senek, at taqımı.
@@ -347,7 +347,7 @@ Alayıqmı? – dep soradı Bekir bay Abdulladan.
 Özü makaronnı sındırdı, kesegini çaynap baqtı.
 “Tiyran qara tarta, – dedi Bekir bay ve ağızı içindeki hamırnı yerge tükürdi, boyunını bir de qısıp aldı.
 – Alsaq alayıq.
-Kerçdeki de şundan aruv tuvul”.
+Kerçteki de şundan aruv tuvul”.
 
 Acı Erbain hamutlarnı begendimi?
 Alacaqmı... yoqmı?
@@ -376,7 +376,7 @@ Qamçıda ille tapamadı.
 Lâkin Üsein oca qıbırdavuq... içten araretli, yaş adam, qamçını bir sallap, davuşını eşitmey tura, yüregi tınçlanıp olamaycaq.
 Baba-dedelerimizniñ özlerinde de öyle adet olıp kelgen...
 Oca sağ qolunen qamçınıñ sapından tutıp, töpege köterdi, arqağa keñ qulaç sozıp, qamçını bir siltedi.
-Tasması öyle küçlü şuvuladı ki, tükânnıñ içi ses sadağa toldı.
+Tasması öyle küçlü şuvuldadı ki, tükânnıñ içi ses-sadağa toldı.
 Qamçınıñ avadaki şuvultısı ocanıñ qulağında Bethovenniñ ekinci simfoniyası kibi iñledi.
 Davuşı öyle hoş eşitildi... lâkin bu hoş aenk içinde nasıldır deşetli, ğayrı tabiy insan davuşı yañğırağan kibi keldi.
 Ebet, tasma avada sızğırğan vaqıtta insan sadası da çıqqan kibi oldı.
@@ -395,7 +395,7 @@ Kene qamçısını köterdi.
 Üsein oca vucuttan yufqa kelse de, cısman zayıf, ruhtan qorqaq adamlardan degil edi.
 Madam ki, Acı Erbain toqtalıp, insan kibi añlaşmaq istemey, qamçını endire bere, oca da qamçısını tekrar köterdi, yahşı etip, Acı Erbainniñ yüzüne yerleştirdi.
 Emirzaq oğlu qamçınıñ küçünden artqa qaqılıp ketti.
-Ve esini toplartoplamaz, oca kene siliştirdi.
+Ve esini toplar-toplamaz, oca kene siliştirdi.
 Emirzaqov da urdı.
 Oca tekrar yandırdı.
 Başına, yelkesine, omuzına, ne yeri rastkelse, o yerine urdı.
@@ -421,7 +421,7 @@ Yardım etiñiz!”
  – Kim öldüre yata?”
 “Üsein oca...”
 
-Üsein oca degen soñ, adamlar şübelendiler...
+Üsein oca degen soñ, adamlar şubelendiler...
 Tükânnıñ içine sürüşip kirdiler, çünki iri kevdeli Emirzaqov ocanı urıp, saqatlaya bileceginden qorqtılar.
 Dört mazallı kişi, kötekleşicilerniñ ortasına kirdi.
 Acı Erbainniñ qollarından qapqaç etip, arqasından üytep, tışqa alıp çıqtılar.
@@ -450,7 +450,7 @@ Bu iş oca ile...”
  Lâkin Bekir bay onı diñlemedi, yolnıñ ortasına tüşti, aqırın-aqırın ketti.
 O kimnidir beklemekte edi, Talip oña keder etti.
 
-Bu esnada tükân içinden Üsein oca çıqtı, beş – altı adam ile beraber evge doğru cönedi.
+Bu esnada tükân içinden Üsein oca çıqtı, beş-altı adam ile beraber evge doğru cönedi.
 
 Aqşam Acı Erbain qomşunıñ oğlunı yiberip, Meñlibeyni evge çağırttı.
 Meñlibey, tükânda olıp-keçken vaqia munasebeti ile Acı Erbainge özüniñ teessuratını bildirdi.
@@ -460,7 +460,7 @@ Endi işniñ ilerisini tüşünmek kerek”.
 
 Ebet!
 Ebet!
-Acı Erbain onı bağsus ilerideki işler içün çağırttı.
+Acı Erbain onı mahsus ilerideki işler içün çağırttı.
 
 – Sen bilesiñmi, Meñlibey?
 Üsein başqa ocalarğa beñzemey, – dedi o hamutçığa.
@@ -494,7 +494,7 @@ Men zayıflardanmı?
 – Sizmi?
 Acı Erbain efendimi?
 
-O semiz, qırmızı közlerini yuma berip, cılmaydı.
+O, semiz, qırmızı közlerini yuma berip, cılmaydı.
 Öyle ki, közleri tekmil coyulıp ketti, külküsi bitken soñ, tem-tegiz betinde tekrar küçük delikler peyda oldılar.
 Peyda olğan soñ, nazarı şişege ilişti.
 Ev saibinden ruhset almay, qadelerge özü raqı qoydı ve qadelerni toquştırmayıp, ekisi de “niyetlerine irmek içün” içtiler.
@@ -522,7 +522,7 @@ Biri – digerini elge bermeycegi içün tövbe etti, ekisi de Qurannı alıp
 Meñlibey öz evine ziyafet azırlaycaq, güya, Üsein ocanı Acı Erbain ile barıştırmaq içün ekisini evge davet etecek.
 
 Ertesi künü Meñlibey oca ile körüşti.
-Yumşaq davuşı ile ocanıñ ve bala-çalasınıñ al ve hatirini soradı, bir vaqıtlarda Meñlibeynen bir dam astında ömür sürip de, soñki yıllarda evinden ocanıñ ayağı kesilgenine, eñ olmağanda, kimerde, böyle dersten qaytqanda, kirip bir filcan qave içip ketmegenine öpkelendi.
+Yumşaq davuşı ile ocanıñ ve bala-çağasınıñ al ve hatirini soradı, bir vaqıtlarda Meñlibeynen bir dam astında ömür sürip de, soñki yıllarda evinden ocanıñ ayağı kesilgenine, eñ olmağanda, kimerde, böyle dersten qaytqanda, kirip bir filcan qave içip ketmegenine öpkelendi.
 Meñlibey bir talay indemey turdı, oca onıñle sağlıqlaşıp, evge ketmege niyetlengende, ocanı lafqa tuttı.
 Yaqında qoşu egeri ve qaparalı cügen tapıp alğanını, sez arası, qıstırıp aldı.
 
@@ -576,7 +576,7 @@ Niyetim oğurlı eken.
 – Maña... bizim ailege – dedi Meñlibey.
 – Sizni, sevimli ocamıznı, eski dostumıznı yarın evimizde olacaq ziyafetke davet etem.
 
-Hamut ustasınıñ ağızından sözler öyle töküldiler ki, güya olarğa şübe, yahut itiraz oluvı mümkün degil.
+Hamut ustasınıñ ağzından sözler öyle töküldiler ki, güya olarğa şübe, yahut itiraz oluvı mümkün degil.
 %
 
 – Ziyafet... ne munasebetnen? – dep soradı oca.
