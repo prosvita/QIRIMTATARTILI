@@ -910,7 +910,7 @@ Üzük ayılnıñ ucunı zengi içine qıstırdı.
 Atnıñ cügeninden tutıp, ögge on adım atqan edi, qulağına sağır davuş eşitildi.
 Eleslenip başını köterdi, qırmızı, maylı çereli Meñlibey onıñle yan-yanaşa adımlamaqta edi.
 Çıbalıq tüşüncelerge dalğan Üsein oca, hamutçını tanımadı.
-Bir talay yürgen, esini başına toplağan soñ, farqına bardı.
+%
 
 – Üsein muallim! – dedi Meñlibey.
  – Sizni bekley-bekley yüreklerimiz qurıp incerip qaldı.
@@ -954,7 +954,8 @@ Bu nasıl muammalı ziyafet?
 Ev saibiniñ özü sofra başına oturmağa tedariklengende, ayatnıñ qapusı tarsıldadı.
 Meñlibey musafirni unutıp, sofağa çaptı.
 “Qarısı keldi, ğaliba! – dep tüşündi oca.
- – Yoqsa balalardan birisimi?” Hayli vaqıt keçti.
+ – Yoqsa balalardan birisimi?”
+Hayli vaqıt keçti.
 Ses-soluq çıqmadı.
 Qapu niçün açıldı, aceba?
 Başqa birev kirdimi?
