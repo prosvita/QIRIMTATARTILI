@@ -1273,7 +1273,7 @@ Kümüş saplı tayaq aqqında tüşünmege imkân barmı edi?”
 
 Ümer Malaycı...
 hatiriñizdemi?
-İkâyemizniñ baş saifelerinde han azbarına mögedekli arabanı aydap kelgen qırcıman kişi.
+%
 Şu Ümerniñ özü Üsein ocanıñ elyazmalarını Kökközge ketirgen soñ, çoq yıllar Toqtar aqaynıñ evinde, sandıq içinde tutqan.
 Kâğıtlar üzerinde ne yazılğan, kimse oqup olamağan.
 Oqup baqsalar da, qıymet kesip olamaycaqlar.
