@@ -910,7 +910,7 @@ Üzük ayılnıñ ucunı zengi içine qıstırdı.
 Atnıñ cügeninden tutıp, ögge on adım atqan edi, qulağına sağır davuş eşitildi.
 Eleslenip başını köterdi, qırmızı, maylı çereli Meñlibey onıñle yan-yanaşa adımlamaqta edi.
 Çıbalıq tüşüncelerge dalğan Üsein oca, hamutçını tanımadı.
-%
+% 
 
 – Üsein muallim! – dedi Meñlibey.
  – Sizni bekley-bekley yüreklerimiz qurıp incerip qaldı.
