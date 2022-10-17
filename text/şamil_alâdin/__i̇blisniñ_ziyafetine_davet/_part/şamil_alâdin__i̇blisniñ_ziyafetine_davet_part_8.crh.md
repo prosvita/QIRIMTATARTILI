@@ -1066,7 +1066,7 @@ Qolundaki qadeni qaytarıp sofra üzerine qoydı.
 – Qamçıñ yengil degil edi... – dep taşladı o.
 – Caqımdaki yara yaqında tüzelecekke beñzemey.
 
-Tükânda qamçı üstünde çıqqan qavğa da, bugün bu sofra başındaki öpkelenüvniñ özü de, “caqı yaqında tüzelmeycegi de...” episinden maqsat – oca aqqında deşetli fikir doğurmaq edi.
+%
 Oca bunı añladı.
 
 Sizge tasmanıñ ucu toqunğan, – dedi Üsein oca Erbain efendige.
