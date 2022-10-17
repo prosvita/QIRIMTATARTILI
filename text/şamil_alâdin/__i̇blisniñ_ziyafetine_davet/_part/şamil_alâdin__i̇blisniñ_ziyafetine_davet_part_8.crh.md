@@ -1,5 +1,5 @@
 Oca toqtadı.
-Üküm-qarar bekler kibi, közlerini Acerge tikledi, sustı.
+Üküm-qarar bekler kibi, közlerini Acirege tikledi, sustı.
 
 – Tek şumı? – dep soradı qarısı.
 
@@ -34,7 +34,7 @@ Körüşüvde Emir Ali, Üseinniñ edebiy faaliyetinen meraqlandı.
 – Bittimi?”
 
 “Bitti... – dedi Üsein.
- – Qoyun cebimde !”
+ – Qoyun cebimde!”
 
 Qonuşmada bulunğan muallimler müellifke pyesanı oqumasını rica ettiler.
 Üsein Şamil özüne has artistlik qabiliyetinen “Mollalar proyekti”ni nefis davuş ve ifade ile oqudı.
@@ -71,7 +71,7 @@ Allağa ve padişağa nefret kördik.
 Üsein oca kim?
 Musulmanmı?
 Yoqsa, kâfirmi?
-Men sizden sorayıp!
+Men sizden sorayım!
 
 – Üsein oca – Allanıñ lânetinde qalğan kişi, – dedi Acı Erbain.
 Sarı mıyığına eki pirniç yapışıp qalğan, olarnı sezmey, sözüni devam etti.
