@@ -329,7 +329,8 @@ Raat ister iseñ, para!
 Kerek para, para, para!
 
 Nasıl oldı, bilmem, muallimniñ tili bir şeyge ilişken kibi, toqtaldı.
-Şiirniñ soñunı hatırlamaq içün eppi vaqıt dudaqlarını qıbırdatıp oturdı, sözlerni davuşsız oqudı, niayet soñunı tapıp, devam etti:
+Şiirniñ soñunı hatırlamaq içün eppi vaqıt dudaqlarını qıbırdatıp oturdı, sözlerni davuşsız oqudı, 
+niayet soñunı tapıp, devam etti:
 
 Yatsañ para, tursañ para!
 Doğsañ para, ölseñ para!
@@ -339,7 +340,8 @@ Kerek para, para, para!
 Bu sözler İsmail efendiniñ oşuna ketti, samimiyetle küldi.
 Çoq küldi.
 
-– Üsein efendi, siz bu şiirni, menim vaziyetimni yahşı bilgen adam kibi yazğansıñız! – dedi muallim.
+– Üsein efendi, 
+siz bu şiirni, menim vaziyetimni yahşı bilgen adam kibi yazğansıñız! – dedi muallim.
 – Fena degil!
 Fena degil! – diye tekrarladı naşir.
 
@@ -354,8 +356,7 @@ Bu sözler ocanıñ ruhunı köterdi.
 
 Gasprinskiy bir yanbaşından tüşip, diger yanbaşı üstüne oturdı.
 Çeresinde raatsızlıq asıl oldı.
-
-“Bakalım, bu başetilmez ve daima qanaatsız genç nesil daa ne diyecek”, – dep tüşündi İsmail efendi içinden.
+% “Baqayıq, bu başetilmez ve daima qanaatsız genç nesil daa ne diyecek”, – dep tüşündi İsmail efendi içinden.
 Ve o kendi fikirleri ile meşğul oldıqta, Üsein efendi qoyun cebinden defterni çıqarıp, naşirge uzattı.
 
 – Lâyıq körseñiz...
