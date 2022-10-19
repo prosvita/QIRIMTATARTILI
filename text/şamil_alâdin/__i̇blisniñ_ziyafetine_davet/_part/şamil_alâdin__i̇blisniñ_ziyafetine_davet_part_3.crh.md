@@ -239,8 +239,8 @@ Musafir özüni keniş oda içinde, siyrek ve çal saçlı, uzun, gür m�
 Üstünde ufaq dögmeli, tar yaqalı, uzun çekmen.
 Başında püskülli, qırmızı fes.
 Elinde rus tilinde “Vestnik” gazetası.
-Yanaşasında kostümli ve galstukli, ince mıyıqlı Adam oturmaqta, yaşı Üsein ocanıñki qadar olmalı.
-Üsein oca oña diqqatle közetti: “kişi bu evde bir qaç künlerden beri musafirlikte bulunsa kerek” dep tüşündi.
+Yanaşasında kostümli ve galstuklı, ince mıyıqlı Adam oturmaqta, yaşı Üsein ocanıñki qadar olmalı.
+Üsein oca oña diqqatle közetti: “kişi bu evde bir qaç künlerden berli musafirlikte bulunsa kerek” dep tüşündi.
 
 – Selâm aleyküm, İsmail muallim! – dedi oca, özü sıqıldı, qızardı.
 
@@ -254,9 +254,9 @@ Kendine uzatılğan qolnı tutıp, sıqtı.
 – Hoş sefağa keldiñiz!
 Rica etem!..
 Buyurıñız!
-Oturıñız! – divar yanındaki vyana kreslosına işaret etti.
+Oturıñız! – divar yanındaki viyana kreslosına işaret etti.
 
-Üsein kresloğa oturğan soñ yavlığınen mañ layını sildi, közlerini yerdeki kilimge doğrultıp, eppi indemey oturdı.
+Üsein kresloğa oturğan soñ yavlığınen mañlayını sildi, közlerini yerdeki kilimge doğrultıp, eppi indemey oturdı.
 Laqırdını birden quraştırıp olamay, zametlendi.
 Gasprinskiy karyola üstünde eken, musafirge kergin diqqat ile baqıp oturdı... bekledi.
 
@@ -265,7 +265,7 @@ Üsein Şamil olam, – dedi, niayet, ziyaretçi ve yutqunıp aldı.
 – Hatiriñizde olsa, dört yıl evelsi uzurıñızda bulunğan edim.
 
 – Ebet!
-Ebet! – dedi muallim. – Hatirimde.
+Ebet! – dedi muallim, – Hatirimde.
 Rica etem, Üsein efendi, qıymetli musafirim ile tanış oluñız! 
 – O ince mıyıqlı adamnı kösterdi.
 
@@ -275,10 +275,11 @@ O da Toqtarğazınıñ qolunı küçlü sıqıp, aselet üç defa silkitt
 
 Eki musafir tatar tilinde bir-birleriniñ sağlığını ve selâmetligini sorap, bilgen soñ, tekrar öz yerlerine oturdılar.
 Odanıñ içine sükünet çökti.
-Eppi vaqıt kimseniñ ağızından söz çıqmadı.
+Eppi vaqıt kimseniñ ağzından söz çıqmadı.
 Kimse lafnı nasıl başlamaqnı bilmedi.
 Toqtarğazınıñ özü, bu evge mahsus bugün kelüvni biraz oñaytsızca al dep esap etti.
-O, ücrege kirgen vaqıtta İsmail muallim ile Aleksandr Nikolayeviç, mektepte balalarnı, Gasprinskiy usulı ile oqutuv hususında qonuşmaqta ediler, Toqtarğazı peyda olğan soñ, laqırdı kesildi, lâkin Üsein oca artıq içeri kirgen, naşir ise onı oğlu Refat vasıtası ile, umumiy qabul hanege degil de, özüniñ iş odasına davet etken edi.
+O, ücrege kirgen vaqıtta İsmail muallim ile Aleksandr Nikolayeviç, mektepte balalarnı, Gasprinskiy usulı ile oqutuv hususında qonuşmaqta ediler, 
+Toqtarğazı peyda olğan soñ, laqırdı kesildi, lâkin Üsein oca artıq içeri kirgen, naşir ise onı oğlu Refat vasıtası ile, umumiy qabul hanege degil de, özüniñ iş odasına davet etken edi.
 Bunda endi iç bir şeyni deñiştirmek mümkün degil.
 
 – Ay Vasılda işleriñiz nasıl? – dep soradı ondan İsmail efendi, niayet. 
@@ -290,7 +291,7 @@ Ay Vasıl ealisiniñ zevqlı adetleri bar.
 İlki künlerde adamğa, bu yerniñ halqı paranı pek qolay qazanğan ve zengin ayat sürgen kibi kele.
 Erkekler saba erte, arqalarında tarpileri, çayırlarğa kete, aqşam qaytıp keleler.
 Qadınlar olarnıñ ketirgen meyvalarını sepetlerge toldurıp, başları üstüne oturtıp, Yalta bazarına kötürip satalar.
-Cilik, kirez, vişne, zerdali, alma, hıyar, pomidor ve çay tepisi büyüklikte tatlı soğan... 
+Cilek, kirez, vişne, zerdali, alma, hıyar, pomidor ve çay tepisi büyüklikte tatlı soğan...
 bularnı qırlardaki küçük miyraçıqlarda östürmek yengil iş degil.
 O sebepten yarımadanıñ yalı boyundaki dağlılarınıñ ayatı pek şeñ degil.
 Ama bu yerlerniñ adamları namuslı, merametli ve küçlüler.
