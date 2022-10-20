@@ -727,9 +727,11 @@ Qapuğa bir köz etip aldım, soñ yavaştan İradanı quçaqladım, lâkin bira
 O çar-çabik başını keri çekti, müçesini çetke yantaytıp, pencerege doğruldı ve keteyatqanda, başını bile çevirip baqmayıp:
 — Siz meni başqa türlü añladıñız, Cevdet! — dedi.
 Şu gecesi meni idarege çağırdılar.
-Krasnânskaya ve teminat bölüginiñ başlığı ekisi menimnen laqırdı etti, er şeyni añlattı, menden: kranlarnı qayda ve nasıl qıdırıp tapacağım ve mında nasıl yollaycağım hususında talimatnı tekrarlamamnı talap eterek, repetitsiya yapıp baqtılar.
+Krasnânskaya ve teminat bölüginiñ başlığı ekisi menimnen laqırdı etti, er şeyni añlattı, menden: 
+kranlarnı qayda ve nasıl qıdırıp tapacağım ve mında nasıl yollaycağım hususında talimatnı tekrarlamamnı talap eterek, repetitsiya yapıp baqtılar.
 Kabinetten çıqacaqta Anna Yakovlevna meni toqtattı.
-— Bir özüñiz ketecegiñizden haberiñiz barmı? — dedi o maña, — İradanıñ beton zavodında işi bar.
+— Bir özüñiz ketecegiñizden haberiñiz barmı? — dedi o maña, 
+— İradanıñ beton zavodında işi bar.
 Ekinci sefer beraber ketersiñiz.
 İşiñizde küçlük olsa, telegramma beriñiz!
 Biz poçtamtqa yazarmız.
@@ -743,17 +745,17 @@ Bugün muabbetten nefesim tutula yazdı.
 Amma, baqıñız!
 İrada ketmey!
 Niçün?
-Onıñ ile mutlaqa laqırdı etmek kerek.
+Onıñ ile mıtlaqa laqırdı etmek kerek.
 Belki keter.
 
 — Tezden menim maşinam kelecek, — dedi Anna Yakovlevna.
 — Aşhanege kirip, özüñizge yollıq erzarq alıñız.
 Buhgalteriyağa episini añlattım.
-Bir saatten soñ "Fordqa" minip, aşhanege keldim, andan — barakqa, soñ paromğa cönedim.
+Bir saatten soñ "Fordğa" minip, aşhanege keldim, andan — barakqa, soñ paromğa cönedim.
 İrada ile körüşalmadım.
 O qaçıp, saqlanıp yurdi.
 Lâkin qaysı yaqqa nasıl adım atqan olsam, episini kördi.
-Sekiz künüm-sekiz gecem poyezdda keçti.
+Sekiz künüm-sekiz gecem poyezdde keçti.
 ...İşte, Novorossiysk.
 Adres mürekkep degil.
 Port, komsomol komiteti.
