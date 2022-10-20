@@ -405,15 +405,15 @@ Kim bilsin?
 Maña öyle kele edi ki, Margarita maña bir şeyler söylemek istey, lâkin qorqa.
 Neden?
 
-Hatrime Margaritanen, onıñ anası ve babası hususında laqırdı etip baqmaq fikiri kelmegen olsa, belki er şey sırasında olur edi.
+Hatrime Margaritanen, onıñ anası ve babası hususında laqırdı etip baqmaq fikri kelmegen olsa, belki er şey sırasında olur edi.
 "Soñ nasıl?
 Siziñkiler keleceklermi, yoqsa kelmeyceklermi? — dep soradım ondan bir defa,— menim içün bu añlaşılmağan bir tarih.
 Ne keleler, ne de yazalar...
-Yoqsa, ekimiz Ödessağa barıp keleyikmi?
-Bu o qadar qyın şey degil..."
+Yoqsa, ekimiz Odessağa barıp keleyikmi?
+Bu o qadar qıyın şey degil..."
 "Yoq.
 Ğaliba özüm barıp kelirim... — dedi Margarita ve közlerini sürtip aldı.
-— Belki, olarnıñ haberi ve razılığı olmay sizge evlengenimni işitken ve buña darılğandırlar?!"
+— Belki, olarnıñ haberi ve razılığı olmay sizge evlengenimni eşitken ve buña darılğandırlar?!"
 Ekinci künü men hızmetten ertece qayttım.
 Kvartiramıznıñ qapusı aralıq edi.
 İçeri kirdim.
@@ -446,9 +446,9 @@ Eski kvartirasını qıdırıp taptım.
 Yoq...
 — Qısqası, bir daa körüşip olamadıñız, öylemi?— dedim men.
 — Yazıq!
-— Körüşken olsa, bu iş öz zevqını ğaip eter edi, — dedi Curayev.
+— Körüşken olsa, bu iş öz zevqını ğayıp eter edi, — dedi Curayev.
 — Devam et, Nikolay!
-— Lâkin biz, er alde, körüştik.
+— Lâkin biz, er alda, körüştik.
 — Nikolay qasvetli çıraynen külümsiredi.
 — Bir defa daa körüştik.
 Men Batumda bir yıl olmadım.
