@@ -667,7 +667,7 @@ O, ilki körgen vaqıtımda, pervasız deñizci edi.
 Er eki sözüniñ birine fransızca qarıştıra edi.
 Soñ ağzından fransız sözü çıqmadı.
 Ne özü, ne tabiatı tekrarlanmaz bir adam.
-Amma gitarada andaluziya türküleri aytmağa seve.
+Amma gitarada andaluziya türkülerini aytmağa seve.
 Aytqan da, er beyitniñ soñunda, ispan tilinde.
 "Mio Karo, mio Karo" dep tekrarlamağa seve.
 Soñundan añladım: "Menim sevgilim" demek eken.
@@ -676,7 +676,7 @@ Koykanıñ üstüne çalqağa tüşip yattım, dersliklerni elime aldım.
 Mektepteki arqadaşlarımnıñ artına tez yeterim bellegen edim, lâkin qolay iş degil eken.
 Olar tek oquylar... amma men çalışam, smenadan soñ, Hazar Kendke yuvuram, lektsiyalar diñleyim, başqalarnıñ eski konspektlerini yazıp alam, soñra balçıqlı soqaqlar boyu barakqa çapam, evge berilgen vazifelerni çezem, shemalar çızam ve... mehanika qaidelerini ezberleyim.
 İlki künlerde maña mektepte skemle üstünde dört saat oturuv iç qıyın körünmedi, atta dersten evel ve soñ, yollar boyunda taze avada yürüvge faydalı şey dep baqtım.
-aqiqatta, bu kezintiler meni öyle qıynadılar ki, ders vaqıtında yuqsıray berdim, evge qaytqan soñ, geceleri töşegimde yuqusızlıq bastı ve maddem kesildi.
+aqiqatta, bu kezintiler meni öyle qıynadılar ki, ders vaqtında yuqsıray berdim, evge qaytqan soñ, geceleri töşegimde yuqusızlıq bastı ve maddem kesildi.
 Kandıba maña qaç defa mektepni bıraqmaqnı tevsiye etti, qulaq asmadım.
 İmtianlarnıñ epsini berip, mektepni er kesnen beraber bitirmege yemin ettim.
 İmtianlarnıñ başlamasına eki afta qalğanda işniñ müim tarafını añladım.
