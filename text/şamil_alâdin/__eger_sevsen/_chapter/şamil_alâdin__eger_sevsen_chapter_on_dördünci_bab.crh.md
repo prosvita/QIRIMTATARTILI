@@ -612,8 +612,8 @@ Belki içmez edi.
 — Kerekmey... — Kandıba qolunen avanı kesip taşladı.
 — Barsın, istegeni kibi yaşasın.
 Sen ise... yuqla!
-Em pek hırıldama, cenab Arhipkanı uyantırsıñ!
-— Arhipkanı... top atsañ uyantalmazsıñ! — dedim men.
+Em pek hırıldama, cenab Arhipkanı uyatırsıñ!
+— Arhipkanı... top atsañ uyatalmazsıñ! — dedim men.
 — Farqına bardıñmı, Cevdet? — dedi Kandıba yavaştan.
 O bugün ne hususta laqırdı etse-etsin, kederli davuşnen başlay edi.
 — Bu barakta sekiz adam yaşaymız.
@@ -649,7 +649,7 @@ Bilgence başıñnı ğayıp ettiñ.
 Yoq!
 Neni-neni, lâkin başımnı ğayıp etmedim.
 — Endi ğayıp ettiñ.
-Mende anda... sailde kezingen vaqıtımda seniñ kibi edim.
+Mende anda... sailde kezingen vaqtımda seniñ kibi edim.
 Soñundan er şey başlı-ayaqlı olıp ketti.
 Gizlegeniñ ne?
 Men bilem, seniñ qafañda şimdi tek bir adam bar.
@@ -661,11 +661,11 @@ Teneke meşrebege sıcaq suv qoyıp, divardaki küçük küzgü ögüne bardı, 
 Men onıñnen büyük laqırdı etecegim...
 Tezden.
 Ey! — dep qıçırdı o, Arhipkağa perişan sesnen, — qulaqlarıñnıñ içlerini de tıraş et!
-#Nikolaynıñ adeti iç bir seviyede turmay.
+% Nikolaynıñ adeti iç bir seviyede turmay.
 Daqiqa sayın deñişe bere ve iç tekrarlanmay.
 O, ilki körgen vaqıtımda, pervasız deñizci edi.
 Er eki sözüniñ birine fransızca qarıştıra edi.
-Soñ ağızından fransız sözü çıqmadı.
+Soñ ağzından fransız sözü çıqmadı.
 Ne özü, ne tabiatı tekrarlanmaz bir adam.
 Amma gitarada andaluziya türküleri aytmağa seve.
 Aytqan da, er beyitniñ soñunda, ispan tilinde.
