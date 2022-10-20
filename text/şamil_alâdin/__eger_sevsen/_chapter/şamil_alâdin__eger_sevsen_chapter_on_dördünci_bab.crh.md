@@ -452,17 +452,17 @@ Yoq...
 — Nikolay qasvetli çıraynen külümsiredi.
 — Bir defa daa körüştik.
 Men Batumda bir yıl olmadım.
-Soñ keldim, itimal, birde-bir yerde apansızdan közüme Margarita çalınır dep, şeerge çıqtım.
+Soñ keldim, ihtimal, birde-bir yerde apansızdan közüme Margarita çalınır dep, şeerge çıqtım.
 Öyle adetim bar, bir çıqıp, dolanıp kelem.
 Tek Batumda degil...
 Gemimiz qaysı şeerde toqtasa, Margaritanı anda qıdırdım.
 Çünki seve edim.
 
-Tsulukadzeniñ evinde yañılıq işittim: "Margarita mında...
+Tsulukadzeniñ evinde yañılıq eşittim: "Margarita mında...
 Onı sail-caddede korgenler.
 Bir özü degil, deñizcilernen beraber eken".
 Parkta tapılmadı.
-Zelönıy mıske kettim.
+% Zelönıy burunğa kettim.
 Kabuletide bulundım.
 Suhumnı, Gagranı aylanıp çıqtım.
 Üç kün daa keçti.
@@ -473,7 +473,7 @@ Deñizcige eki söz ayttım — menden afu istedi... ketti.
 "Yigit bu hanımnen tünevin aqşam tanış olğan.
 Deñizciniñ qadını aqayını satmağa istidatlı ekenini bilmegen".
 O tekrar afu istedi.
-"Margarita, — dedim men, — bizim acaip sevgimiz bar edi.
+"Margarita, — dedim men, — bizim acayip sevgimiz bar edi.
 Onı niçün böyle aqaretlediñ?"
 Başqa bir şey aytalmadım.
 Yüregim solqıldadı.
