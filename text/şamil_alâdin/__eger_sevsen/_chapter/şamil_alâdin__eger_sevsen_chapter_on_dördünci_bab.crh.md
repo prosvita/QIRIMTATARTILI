@@ -578,7 +578,8 @@ Oturdıq, yarımşar meşrebe samogon içtik, tiller yañ çezilip başlağanda,
 Valâ peyda oldı...
 Zır sarğuş.
 Otur, deymiz, oturmay.
-— Dülgerler barağında atqandır!.. — dedi Nikolay, — dülgerler onı sıylamağa seveler.
+— Dülgerler barağında atqandır!.. — dedi Nikolay, 
+— dülgerler onı sıylamağa seveler.
 Özüne qalsa, çoq içmey.
 Zevqlı qız!
 Soñ?
