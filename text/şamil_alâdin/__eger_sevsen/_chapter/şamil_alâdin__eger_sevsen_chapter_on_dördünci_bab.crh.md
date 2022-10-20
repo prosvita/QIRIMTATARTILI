@@ -196,7 +196,8 @@ Yetmek ve ozıp keçmek!
 Tehnikanı menimsemek! — işte, künlerniñ şıarları.
 Derslerniñ başlağanına eki ay olğan soñ meni zorlap ekskavatorcılar mektebine kirsettiler.
 "Tehnikanı menimsemek kerek..."
-— Olar endi çoq şey keçkendirler, — dedim men İradağa. — Enden soñ anda ne yapacağım?
+— Olar endi çoq şey keçkendirler, — dedim men İradağa. 
+— Enden soñ anda ne yapacağım?
 Men, bu ceetten İradanıñ sarsılmaz, sınmaz ekenini bile edim.
 Lâkin ayttım...
 — Zararı yoq, — dedi o, — sanayı akademiyası degil!
@@ -208,19 +209,21 @@ Elinde gitarası, Gavay türküleri çala... yırlay, soñ susa — çoq susa.
 Bir defa barakqa keldim, qulaqlarnı tındırıcı kontsert keteyata.
 Kandıba gitara çala.
 Arhipka çızmasınıñ ökçesini mıhlay.
-Basit Atakulov, Raşid Mahkamov ve Mihail Bassaraba, ellerinde çilengir anahtarları, eski motornı cıyıştırayatalar.
+Basit Atakulov, Raşid Mahkamov ve Mihail Bassaraba, 
+ellerinde çilengir anahtarları, eski motornı cıyıştırayatalar.
 Karim bosağa üstünde odun kesmekte.
 Nikolay muzıkasını toqtatmay, ayneci közlerini menim közlerime doğrulttı.
 — Qayda ediñ? — dep soradı o, — kene sezgimi?
 — Sevgi?
 Yoq, qardaş!
-— Dünyada bir şey olıp keçmedi, öylemi? — o, külümsiredi. — Zararı yoq.
+— Dünyada bir şey olıp keçmedi, öylemi? — o, külümsiredi, — zararı yoq.
 Qız fena degil.
 Men cevap berecek oldım, yetiştiralmadım... yuqlap qalğanım.
-Uyanğanda, tınç oda içinde kimniñdir, aqırından laqırdı eteyatqanını işittim.
+Uyanğanda, tınç oda içinde kimniñdir, 
+aqırından laqırdı eteyatqanını eşittim.
 Közlerimni aralıq etip baqtım: Curayev...
 O yavaştan bir şey ayttı.
-— Yoq, Bekirovtan sıqılmayım, — dep cevap berdi Nikolay, — o öz kişimiz!
+— Yoq, Bekirovdan sıqılmayım, — dep cevap berdi Nikolay, — o öz kişimiz!
 Közlerimni açtım.
 
 — Bu ne bitmegen yuqu! — dep qıçırdı Kandıba.
@@ -229,7 +232,7 @@ Kelip, ödeyalımnı çekip alıp attı,— tur!
 Turdım.
 Lâkin yuqu içinde tentrey berdim.
 — Aşhanege?
-Toqta, aşıqma! — dedi Nikolay. — Otur tekaran!
+Toqta, aşıqma! — dedi Nikolay, — Otur tekaran!
 Men partâçeykağa müim bir şeyni bildirmek isteyim.
 Lâkin, Cevdet... tek özüñ bileceksiñ!
 — Hurma meselesi degilmi? — dep soradım men.
@@ -244,7 +247,8 @@ Bu ondan zevqlı.
 Albu ki er keske malüm.
 Bu nasıl sır? — Curayev soza berip, hihıldap küldi.
 Onıñ böyle külgenini ilki sefer kördim.
-— Hristofor ve Cevdet — er kes demek degil,— dedi Nikolay, — qız hurma qutusını eline alıp, ketti.
+— Hristofor ve Cevdet — er kes demek degil,— dedi Nikolay, — 
+qız hurma qutusını eline alıp, ketti.
 Men onı bosağağa qadar ozğardım, peşinden ketmedim... — Nikolay ikâyesini öyle başladı, — o künü Tuapsege cönemek kerek edim.
 Bir aydan soñ Batumğa qaytıp keldim.
 Qıznı kene Samson emceniñ tükânı yanında rastketirdim.
