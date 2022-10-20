@@ -501,16 +501,16 @@ Militsiyanen böyle laqırdı oldı.
 Ekinci künü meni gemide hızmetten azat ettiler.
 Eki ay artelde balıqçılıq etim.
 Soñ bezdim... verbovka olıp Pâtireçyege kettim.
-Madamki sevgi berbad oldı, deñiznen de sağlıqlaştım.
+Madamki sevgi berbat oldı, deñiznen de sağlıqlaştım.
 Nikolay gitarasınıñ tellerini çertti — olar ökünçli davuş ile iñlediler.
 O Margaritanı alâ seve edi.
 Curayev indemedi.
 Men de sustım...
-Elpide hususında tüşündim, amma hatirime İrada keldi, külümsiredim.
+Elpide hususında tüşündim, amma hatrime İrada keldi, külümsiredim.
 Kandıba bunı sezdi.
 — Saqın... kimsege söyleme! — dedi o, yalvarıp, — iç kimsege!
 Bunı yalıñız Hristofor bile.
-Men saña dostım dep...
+Men saña dostum dep...
 Ne?
 Men bu işte zerre qadar qabaatlı degilim.
 Margaritanı keçken sene Rostovda körgenler.
@@ -521,7 +521,8 @@ Saña yazıq, Nikolay.
 Saf, pak kişi... vicdandan marum o, giyenanıñ qoluna tüşkensiñ.
 Alâ sevesiñ?!
 Curayev de bir tarihnı ikâye etecekmi ne, dep tüşündim, lâkin o küldi ve sözüni qısqadan kese qoydı.
-— Şimdilik qalbimni tırnağan şey yoq, — dedi o, — eger evlensem...
+— Şimdilik qalbimni tırnağan şey yoq, — dedi o, 
+— eger evlensem...
 O da tez olacaq şeyge beñzemey.
 — Niçün?
 — Plotinanı qurıp bitireyik... soñ.
@@ -529,27 +530,27 @@ O da tez olacaq şeyge beñzemey.
 — Plotina bir şey, qadın — diger... — dedi Nikolay, külümsirep, — arada alâqa yoq.
 ...Bu yerde, müterem oquyıcı ruhset etse, biraz ögge yürip, Curayevniñ taqdiri hususında eki söz aytır edim.
 "Plotinanı qurıp bitireyik..." dedi o...
-Lâkin aradan bir buçuq sene keçken soñ Curayev Rusiyeniñ cenüp şeerleriniñ birinde yaşağan dostınen İspaniya muarebesine ketti, anda İnternatsional Brigadanıñ askeri ve siyasiy hadimi sıfatında cenk etti.
+Lâkin aradan bir buçuq sene keçken soñ Curayev Rusiyeniñ cenüp şeerleriniñ birinde yaşağan dostunen İspaniya muarebesine ketti, anda İnternatsional Brigadanıñ askeri ve siyasiy hadimi sıfatında cenk etti.
 Olarnıñ batalyonı muasaradaki Madridde Kasso del Kampo parkınıñ divarı yanındaki meşur qanlı çatışmalarda büyük qaramanlıqlar körsetti.
 Andan eki yaranen qaytıp keldi.
 Soñ Arbiy injenerlik Akademiyası...
 Vatan muarebesi.
-Şimdi men bu satırlarnı yazayatqan vaqıtımda Curayev — istifa bergen polkovnik, elektrik stantsiyalarını proyektleştirüv institutınıñ baş injeneri hızmetinde.
+Şimdi men bu satırlarnı yazayatqan vaqtımda Curayev — istifa bergen polkovnik, elektrik stantsiyalarını proyektleştirüv institutınıñ baş injeneri hızmetinde.
 Oğlu — Garsia yaqında politehnika institutını bitirdi.
 Garsia, Kataloniya eteginde küçük köyçikte elâk olğan respublika askeri Kasionıñ oğlu, şimdi Curayevniñ evlâtlığı.
 Curayevniñ özüniñ doğmuş eki qızı bar; eñ büyügi — Mehri, — yigirmi yaşında, nişanlı.
 Garsia menim közlerime baqıp, ilekâr külkünen küle ve özbekçe, qoyu Taşkent şivesinde: — madam ki qorantacılıq başladı, men aptem Manzura evlengence sabır etecegim, dey.
 Añlaşıla, oña çoq vaqıt beklemek kerek olacaq.
-Curayevniñ qarısı Halida — bala ekimi, şimdi İradanıñ yaqın dostı, ekimizniñ dostımız.
+Curayevniñ qarısı Halida — bala ekimi, şimdi İradanıñ yaqın dostu, ekimizniñ dostumız.
 Zakir Curayev yigirmi dört sene içinde zerre qadar deñişkeni yoq.
 Evelkisi kibi, alicenap.
 Kene öyle raatsız.
-Bir baqasıñ — Devlet planı hadimlerinen iddalaşmaqta, çünki onıñ fikirince, Orta Asiyadaki gidrostantsiyalar alqası, qurucılığı içün kerek materiallarnıñ bir qısımı planda közde tutulmağan, bir daa — Raysovet muşaveresinde yeñi energetik baza aqqında proyektte deñişme yapılmasını, institut bitirip kelgen dört yaş injenerge, eñ olmağanda, bir büyük oda tapılıp berilmesini talap eteyatqanını köresiñiz.
-Adamlarnıñ hızmette ösüvi içün ğayret etüv — Curayevniñ tabiatınıñ eñ acaip ceeti.
+Bir baqasıñ — Devlet planı hadimlerinen iddalaşmaqta, çünki onıñ fikrince, Orta Asiyadaki gidrostantsiyalar alqası, qurucılığı içün kerek materiallarnıñ bir qısmı planda közde tutulmağan, bir daa — Raysovet muşaveresinde yeñi energetik baza aqqında proyektte deñişme yapılmasını, institut bitirip kelgen dört yaş injenerge, eñ olmağanda, bir büyük oda tapılıp berilmesini talap eteyatqanını köresiñiz.
+Adamlarnıñ hızmette ösüvi içün ğayret etüv — Curayevniñ tabiatınıñ eñ acayip ceeti.
 Curayevniñ bugün bizim barakta peyda olğanına kimse taaciplenmedi.
 Bu — birinci defa körülgen şey degil.
 O, maña yaşlar arasında nizam-intizam, terbiye hususında laqırdı etmek içün bergen vazifesiniñ edasını teşkermege kelgen.
-Kandıbanıñ meselesi onı eecanlandırdı.
+Kandıbanıñ meselesi onı eyecanlandırdı.
 Bugün başqa baraklarğa kirmek içün endi vaqıt qalmağanını, aqşam ise evde oturıp siyasiy oquvnen meşğul olacağını, söz sırası aytıp taşladı.
 Doğrudan-doğru öyle dedi: siyasiy oquvnen meşğul olacağım.
 Bu menim oşıma ketti, institut bitirgen kişi, alâ siyasiy oquvnen oğraşıp yüre... hucur şey.
