@@ -319,11 +319,13 @@ Curayev ise böyle, taliyi sınıq adamlarnı diñlemege seve.
 Men Margaritanıñ közlerine baqıp sevindim.
 Yanaşamızda turğan qadın bir yaqqa aşıqayatqanını bildirdi, bizden afu istep, ketti.
 Ekimiz qaldıq.
-"Birevni beklep tura ediñizmi? — dep soradım men Margaritadan... — Mani olmadımmı?"
+"Birevni beklep tura ediñizmi? — dep soradım men Margaritadan... 
+— Mani olmadımmı?"
 "Yoq... — dedi Margarita.
 — Aqşamlıq taze ava alayıq, dep çıqqan edik!
 Kündüz ğayet sıcaq".
-"Aqşam ava oldıqça serin! — dedim men, — amma, baqıñız, deñiz ne qadar mavı!
+"Aqşam ava oldıqça serin! — dedim men, 
+— amma, baqıñız, deñiz ne qadar mavı!
 Ava ne qadar hafif!
 Markiz adaları...
 Siz, belki, Batumnı yahşı bilmeydirsiñiz!
@@ -333,7 +335,7 @@ Közleri meni sınağan ve turuşıma qıymet keseyatqan kibi, ciddiy baqmaqta e
 — Qolaysız olıp çıqmazmı?"
 "Raatsız olmañız!
 Er şey istegeniñiz kibi olur!
-Buña Batum deyler!" 
+Buña Batum deyler!"
 Margarita razı oldı.
 Onıñnen sail cadde boylap, park betke kettim.
 Men yigirmi altı yaşında edim.
