@@ -1,4 +1,4 @@
-## On dördünci bab — Margaritanıñ aqibeti
+## On dörtünci bab — Margaritanıñ aqibeti
 İşlegen yerimizde qum tabaqası peyda oldı.
 Bu qum beton yasamaq içün keyfiyetli tanıldı.
 Evellerde parovozlar qumnı yigirmi kilometr uzaqtan dumpkarlarnen ketire ediler, şimdi uzaqqa ketmek kerekmey.
@@ -6,7 +6,7 @@ Ekskavator çuqur içinden gece-kündüz qum çıqarmaqta.
 Demir yol yasalsa, ekskavator qazğan qumnı platformağa derrik vastasınen yüklep alıp ketmek mümkün.
 Bu fikir Krasnânskayanıñ özünde doğdı, lâkin şpal ve rels yetişmedi.
 İş qaldı.
-Bizim ekskavatorğa yaqın barıp yanaşa bilecek demir yol yasamaq da mümkün olmadı, çünki sarı topraq üstünde qurulğan demir yol ağır yükli vagonlarnı köteralmay.
+Bizim ekskavatorğa yaqın barıp yanaşa bilecek demir yol yasamaq da mümkün olmadı, çünki sarı topraq üstünde qurulğan demir yol ağır yüklü vagonlarnı köteralmay.
 Böyle topraq bir defa bizim ekskavatornı uçurumdan aşağı yuvarlatayazğan edi.
 Qısqası, demir yol hususında laqırdı etmege — ettik, amma işni yapmağa kelgende, netice çıqmadı.
 Bugün komsomol komitetiniñ meclisine demir yol injeneri ve beton zavodı vekili çağırıldı.
@@ -14,7 +14,7 @@ Meclisniñ reisi İrada sözni evelâ zavod vekiline berdi.
 İri, beyaz közlükli yaş kişi analizlerni oqudı.
 Bizdeki qum, karyerden ketirileyatqan qumdan yahşı eken; eger bizde demir yol olsa...
 
-— Siz añlamaq kereksiñiz, arqadaşlar, — dedi demir yol vakili.
+— Siz añlamaq kereksiñiz, arqadaşlar, — dedi demir yol vekili.
 O bizni qandıracaq olıp çekişti, — biz bunı sizden yahşı bilemiz, lâkin imkân yoq.
 Şpal qayda?
 Rels qayda?
@@ -24,10 +24,11 @@ Parovozlar özenge yuvarlanıp tüşkenlerini isteysiñizmi?
 
 — Afu etiñiz, Aleksey Georgiyeviç! — demir yol deposı komsomol yaçeykasınıñ kâtibi injenerniñ sözüni böldi.
 — Bizim "Yengil kavaleriya" eski şpal ve relsler arasında işke kelişikli soylarını taptı.
-Pek yahşı degiller, er alde, faydalanmaq mümkün.
+Pek yahşı degiller, er alda, faydalanmaq mümkün.
 
-— Men sizge, Löşa, qaç kereler ayttım, laqırdı etkende pek qızışmañız dedim, — demir yol vekili özüni aqlamağa tırıştı, — demir yol, o ciddiy mesele.
-
+— Men sizge, Löşa, qaç kereler ayttım, laqırdı etkende pek qızışmañız dedim, — demir yol vekili özüni aqlamağa tırıştı, — 
+demir yol, o ciddiy mesele.
+% İmkânlar yoq, dedmiz de. 
 Eppiy vaqıt olarnıñ davasını diñlep oturdım.
 Kimerde İradağa köz etip alam.
 İşni nasıl çezer eken?
@@ -40,23 +41,25 @@ O saatine köz etip aldı, soñra maña külümsiredi.
 Meclis dadsız edi.
 Dadsız ekenine zaldaki komsomollar da, prezidiumdaki İradanıñ özü de emin ediler.
 Amma kimse indemedi.
-Çünki böyle bezgilek meclislerge, quru-uzun nutqılarğa zpimiz alışıq edik.
-Niayet, İrada qarındaşınen stol üstündeki grafinni çınqıldatıp, tezden Anna Yakovlevna keldejegini, onıñnen aqıl tanışıp baqmaq mümkün olacağını söyledi.
+Çünki böyle bezgilek meclislerge, quru-uzun nutqılarğa epimiz alışıq edik.
+Niayet, İrada qarındaşınen stol üstündeki grafinni çınqıldatıp, tezden Anna Yakovlevna keldecegini, onıñnen aqıl tanışıp baqmaq mümkün olacağını söyledi.
 
 Dava bitti.
-Yigitler birer sigar yasap, içtiler, İrada tekrar saatine köz eteyatqan arada köridorda ayaq davuşları işitildi.
+Yigitler birer sigar yasap, içtiler, İrada tekrar saatine köz eteyatqan arada köridorda ayaq davuşları eşitildi.
 Krasnânskaya...
 O, zaldaki adamlarğa başını sallap, selâmlaştı, soñra reisniñ yanına barıp oturdı.
 — Soñ, nasıl? — dep soradı İradadan, — keliştiñizmi?
 — Nesine kelişeceksiñ onıñ? — dedi kimdir, zal içinden, — demir yol idaresi tek bir şey bile — itiraz etmek.
 Ne olsa-olsun.
-— İtiraz yahşı şey degil, — dedi Anna Yakovlevna, — o teşebbüsni öldüre... añladşıñmı?
+— İtiraz yahşı şey degil, — dedi Anna Yakovlevna, — o teşebbüsni öldüre... 
+Añladıñmı?
 Men şimdi depodan keldim.
 Bütün rezervlerni... bütün ütilni közden keçirdik.
 Zan etsem, "Yengil kavaleriya" aqlı.
 Olar endi eki yüzge yaqın şpal azırlap qoyğanlar.
 Başqalarından iç osal degiller.
-— Krasnânskaya demir yol vekiline muracaat etip, dedi: — umumen, Aleksey Georgiyeviç, demir yol uçastkasına ciddiy emiyet berilmey.
+— Krasnânskaya demir yol vekiline muracaat etip, dedi: 
+— umumen, Aleksey Georgiyeviç, demir yol uçastkasına ciddiy emiyet berilmey.
 Bunı nazar itibarğa alıñız!
 Meclisten soñ qızğın künler başladı.
 Biz, Baş Dugüm komsomolları, bu dört kilometrlik demir yolnı özümiz qurmağa qarar berdik.
@@ -85,7 +88,7 @@ Bir qaç saniye keçken soñ, kovş tekrar köterildi ve içindeki qum diger dum
 — Demir yoldan çekiliñiz!— dep qıçırdı Anna Yakovlevna.
 — Relsler sınğan kibi olsa, dumpkarlar yerge qapaqlanıp, işçilerni yaralamaq mümkün.
 
-Men onıñ emirini başqa türlü añladım.
+Men onıñ emrini başqa türlü añladım.
 Maña öyle keldi ki, Anna Yakovlevna bizni qasevet etmey, bizge ve bizim işimizge şübelene.
 Oña bunıñ aksini isbat etmek kerek.
 Bunda, yaqın bir yerlerde İrada yoqmı eken, dep etrafıma baqındım.
