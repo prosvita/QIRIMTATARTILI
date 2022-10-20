@@ -339,14 +339,14 @@ Buña Batum deyler!"
 Margarita razı oldı.
 Onıñnen sail cadde boylap, park betke kettim.
 Men yigirmi altı yaşında edim.
-Üstümde acaip deñiz urbası, cebimde qalın portmone.
-Özüm ticaret flotında hızmet etem.
+Üstümde acayip deñiz urbası, cebimde qalın portmone.
+Özüm ticaret flotunda hızmet etem.
 Uzaq memleketlerge barıp kelem.
 İspaniya ve Afrika skelelerini beş parmağım kibi bilem.
 Deycegim, sail cadde boylap Margaritanen ketem, qafamnıñ içinde çeşit tüşünceler...
-Gemimiz dört künden soñ Yunanstanğa cöneycek.
+Gemimiz dört künden soñ Yunanistanğa cöneycek.
 
-Lâkin qız toqtadı... niçündir, deñiz yalısına ketecegi keldi.
+Lâkin qız toqtadı... niçündir, deñiz yalısına ketecegi keldi. 
 "...Yalıda turıp, dalğalarnıñ iñiltisini diñlemege sevem, çünki özüm de deñiz sailinde doğdım..." - dedi qız.
 Sailge kettik.
 Dalğalarnıñ kelip uruna ve keri çekile bergen yerinde, çaqıllar üstünde oturdıq.
@@ -362,19 +362,19 @@ Margarita kezintiden çoq memnün olıp qayttı.
 Aqşam sailde kezdik.
 O dalğalarnıñ şuvultısına diñlene berdi.
 
-Yunanstanğa ketecek künümde meni ozğarıp skelege keldi.
+Yunanistanğa ketecek künümde meni ozğarıp skelege keldi.
 Gemimiz deñizge çıqıp, eppiy yol alğan soñ, onıñ yalıda alâ maña yavluq sallay bergenini esledim.
 Üç aftadan soñ qaytıp keldim.
 Asretten yüregim küymekte edi.
 Skelede Margaritanı kördim.
 O meni bekley edi.
-Soqaqta onıñnen yan-yanaşa ketkende erkekler ve qadınlar ekimizge baqıp suqlana... men ise buña ğrurlana edim.
+Soqaqta onıñnen yan-yanaşa ketkende erkekler ve qadınlar ekimizge baqıp suqlana... men ise buña ğururlana edim.
 Onıñnen er kün körüşe edim.
 Margarita meni öz evine davet etmey... utana edi, amma menim evime kelip-ketüvden red etmey edi.
 Menim, terrasası deñizge baqar eki odalıq, kvartiram bar edi.
-Sentâbr aqşamlarınıñ birinde, qız mende, terrasada oturğan vaqıtında, elimni yengilden boynuna qoydım.
+Sentâbr aqşamlarınıñ birinde, qız mende, terrasada oturğan vaqtında, elimni yengilden boynuna qoydım.
 "Margarita! — dedim oña, — bizim körüşe başlağanımız üç ay.
-Bu mület yeterlik degilmi?"
+Bu müddet yeterlik degilmi?"
 "Ebet, tamam üç ay... — dedi o ve maña nazlı nazarlar fırlattı, — taqdir bizni ümütsizden bir-birimiznen öyle bağlap qoydı ki... şimdi sensiz nasıl yaşaycağımnı tasavur etalmayım.
 Anamdan mektüp aldım...
 Eñ olmağanda, bir aftağa kelip ket, dep yaza.
@@ -382,9 +382,9 @@ Menim ise, seni bir saatke bile bıraqıp ketmege mecalım yoq.
 Olarğa seniñ aqqıñda yazğan edim...
 Seni körmek isteyler.
 Menim içün pek raatsızlanar.
-Çünki, bilesiñmi, men baarde Ödessada qocağa çıqqan edim.
+Çünki, bilesiñmi, men baarde Odessada qocağa çıqqan edim.
 Onıñnen bir afta... yaşağan soñ, bıraqıp mında keldim.
-— Qız bu yerde ağlamsırap aldı, — kocam meni insafsızca aldadı..."
+— Qız bu yerde ağlamsırap aldı, — qocam meni insafsızca aldattı..."
 Terrasada çoq oturdıq.
 Geceniñ bir maalinde Margarita yerinden qalqtı, boynuna mavı yipek yavluğını bağladı ve evine ketmege tedariklene başladı.
 "Ketmeñiz, qalıñız mında, Margarita! — dedim men, — ana ve babañız Batumğa kelgen soñ men olarnen özüm körüşir... afu isterim..."
