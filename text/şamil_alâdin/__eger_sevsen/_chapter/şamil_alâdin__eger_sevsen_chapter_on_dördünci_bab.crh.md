@@ -851,10 +851,12 @@ cevap bergen kişi olmadı.
 — Evde yoq, — o, elini soqıp, bosağanıñ astını qarıştırdı, — kördiñizmi?
 Bütün sırlarını bilem! — elindeki anahtarnı maña korsetti.
 Biz keniş köridordan keçip, camlı sofağa çıqtıq.
-Küçük qapunıñ ögünde toqtaldıq, — qoyıñız yerge!
+Küçük qapunıñ ögünde toqtaldıq, 
+— qoyuñız yerge!
 Zembilni yerge qoydım, çar-çabik sağlıqlaşıp ketmek istedim.
 Qaysı qapudan, nasıl çıqıp ketecegimni tüşüneyatqan arada, omuzlarımnıñ üstüne Yekaterina Vasilyevnanıñ eli tüşti.
-— Aşamaq isteysiñizmi? — dep soradı o menden ve cevabımnı beklemey, — bare, sizni bir sıylayım! — dep küldi.
+— Aşamaq isteysiñizmi? — dep soradı o menden ve cevabımnı beklemey, 
+— bare, sizni bir sıylayım! — dep küldi.
 — Soñ beraber şeerge çıqarmız!
 Ne deysiñiz buña?
 Kiçik odanıñ içine kirip ketti.
@@ -896,51 +898,53 @@ Tünevinden qalmalı.
 Ekimiz stol başına oturdıq.
 — Raqı içesiñizmi? — dep soradı menden, — siz arbiy kişisiñiz.
 — İçem! — dedim men.
-Yaş bala isap etmesin dep ayttım.
+Yaş bala esap etmesin dep ayttım.
 İçtik.
-Aşayyatqanda menim bu qadın hususında şübelerim ğaip olıp kettiler.
+Aşayyatqanda menim bu qadın hususında şübelerim ğayıp olıp kettiler.
 Közlerimniñ şefaatını alıcı baqışları, stol üstündeki savutlarnı cıyıştırğanda, baldırınen, bir kere degil, ayağıma toqunıp keçüvi, saçlarını qaqıtıp, uclarını yüzüme tiysete berüvi ve, niayet, bitmez-tükenmez hahıldılar, şübesiz...
 erkeklerni, hususan yaş kişilerni, pek sevgeninden delâlet ekenini sezdirdiler.
 Birinci qadeden soñ, başım aylanıp ketti, soñ şorbağa zıqarladım.
 Bir tarelka etli borşç aşadım.
 — Daa qoyayımmı? — dep soradı Yekaterina Vasilyevna.
-— Qoyıñız! — başımnı salladım.
+— Qoyuñız! — başımnı salladım.
 O meni yañlış añladı.
 Qadege kene raqı toldırdı.
 Men ise, aqılsız... içtim.
-Soñ ğaliba, bir şeyler daa aşadım, belki de içtim, aqılımda yoq.
+Soñ ğaliba, bir şeyler daa aşadım, belki de içtim, aqlımda yoq.
 Ne oldı, bilmeyim.
-Közlerimni açqanda Yekaterina Vasilevna ayaqlarımdan çızmalarımnı çıqarayata... gimnastörkam küşetka üstünde edi.
+Közlerimni açqanda Yekaterina Vasilevna ayaqlarımdan çızmalarımnı çıqarayata... 
+gimnastörkam küşetka üstünde edi.
 — Yat, raatlan! — dedi Yekaterina Vasilyevna.
-Onıñ beti ve boyunı qıp-qırmızı edi. 
+Onıñ beti ve boynu qıp-qırmızı edi.
 Men ayaqqa qalqtım, gimnastörkamnı kiydim.
-— Ketmek... tez-tez poyezdğa yetişmek kerek. 
+— Ketmek... tez-tez poyezdge yetişmek kerek.
 Yekaterina Vasilyevna muğaydı.
 Men sezmegen kibi oldım.
 Beraber soqaqqa çıqtıq.
 — Siziñ bu qadar günahsız ekeniñizni bilmey edim... — dedi maña, — bağışlañız!
 Men cevap bermedim.
-Vokzalğa barıp yetkence ne onıñ, ne menim ağızımdan söz çıqmadı.
+Vokzalğa barıp yetkence ne onıñ, ne menim ağzımdan söz çıqmadı.
 Vagonda o pencereniñ yanında oturdı, men üçünci polkağa çıqıp yattım... deral yuqlap qaldım.
-Çar-Çaqta paromdan tüşeyatqan vaqıtımızda Yekaterina Vasilyevna tez-tez ögge yurdi, soñ arqasına çevirilip, şeñ ve oynaq davuşnen qıçırdı.
-— Maña borclı qaldıñız, Bekirov!
-Hatiriñizden çıqmasın!
+Çar-Çaqta paromdan tüşeyatqan vaqtımızda Yekaterina Vasilyevna tez-tez ögge yürdi, soñ arqasına çevirilip, şeñ ve oynaq davuşnen qıçırdı.
+— Maña borclu qaldıñız, Bekirov!
+Hatriñizden çıqmasın!
 Kişiler taaciplenip, evelâ oña, soñra maña közlerini aqayttılar.
 Betim qızarıp ketkenini özüm duydım.
-"Men borclım.
+"Men borclum.
 Kimge?
 Yekaterina Vasilyevnağamı?"
 — Qadın, dep böylesine aytıla... — dedi calos qalpaqlı kişi.
-Turkmen edi ğaliba... ağızını qulaqlarına qadar kerip küldi.
+Türkmen edi ğaliba... ağzını qulaqlarına qadar kerip küldi.
 Kişiler arasında Muşuq peyda oldı.
 O, maña külümsirep, köz etip aldı.
 Yekaterina Vasilyevna onı kördi... zevqından irip keteyazdı.
 Aqşam İradanı köralmadım.
 Ekinci künü saba komsomol komitetinde rastkeliştik.
-Nasıl bardım, nasıl keldim — episini eecanlı sözlernen, tafsilâtlı ikâye ettim.
+Nasıl bardım, nasıl keldim — episini eyecanlı sözlernen, tafsilâtlı ikâye ettim.
 O menim sözlerimni suvuq, lâkin diqqatnen diñledi, soñ özünen beraber Krasnânskayanıñ kabinetine kirmemni rica etti.
 Yolda keteyatqanda:
-— Men sizni pek sağındım, İrada! — dedim men, — bir aydan beri...
+— Men sizni pek sağındım, İrada! — dedim men, 
+— bir aydan beri...
 Qız indemedi.
 — Bilesiñizmi, İrada?
 Novorossiysk skelesi komsomol komitetinde...
