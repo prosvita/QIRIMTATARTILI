@@ -795,23 +795,23 @@ Küzgüden maña, ösük, çullı saqallı pek tanış bir kişi köz etti.
 Berber saçlarımnı keskeleyyatqanda: "yetmiş yaşıma kelsem, tıpqı böyle olacağım" dep tüşündim ve öz başıma külümsiredim.
 Özümni eñ azdan qırq beş sene yaşarğan is etip, vokzal aldına çıqtım.
 O vaqıtlarda vokzalnıñ ögünde küçük tereklik bar edi.
-Aqılıma zevqlı fikirler keldiler.
+Aqlıma zevqlı fikirler keldiler.
 Arheolognıñ biri: "insannıñ faciası vokzalda başlay, panteonda bite" degen.
 Facia!?
 Menim içün vokzal daima erlik ömüriniñ başlanğıçı olıp keldi.
 Starıy Konstantinov, Tambov, Novorossiysk vokzalları... ne?
-Olar menim ayatımda yeñi devirler açmadılarmı?
+Olar menim ayatımda yañı devirler açmadılarmı?
 
 — Bu kim?
-Cevdetmi? — yanaşamda ümütsizden tanış davuş işitildi.
+Cevdetmi? — yanaşamda ümütsizden tanış davuş eşitildi.
 — Maña siz kerek ediñiz...
-Siz, siz! — davuş çıqqan betke çevirilip baqtım, Yekaterina Vasilyevna ellerini kere berip, maña doğru yuvurmaqta edi, — qıçıram, qıçıram, işitmeysiñiz!
+Siz, siz! — davuş çıqqan betke çevirilip baqtım, Yekaterina Vasilyevna ellerini kere berip, maña doğru yuvurmaqta edi, — qıçıram, qıçıram, eşitmeysiñiz!
 — O elindeki zembilni ayaqlarınıñ ucuna, yerge qoydı.
 — Eslemedim, afu etiñiz! — dedim men.
 — Eslemegeniñizni kördim.
 Tüşüncege dalğansıñız...
 Kimni tüşünesiñiz?
-— Ağızımnı açtım: "İradanı..." deycek edim, buña fursat bermedi, zembilge işaret etip: — yarım saatlik vaqıtıñız barmı? — dep soradı.
+— Ağzımnı açtım: "İradanı..." deycek edim, buña fırsat bermedi, zembilge işaret etip: — yarım saatlik vaqıtıñız barmı? — dep soradı.
 — Olsa, yardım etiñiz!
 Bizim eşyalarımıznıñ yarısı mında, şeerde, yarısı — Çar-Çaqta.
 Kettik.
@@ -826,7 +826,8 @@ Maşşalla! — dedi Yekaterina Vasilyevna.
 Krasnânskayağa muavin qoymaq kerek.
 Aysa?!
 Mansurovqa qaç kereler ayttım.
-— Krasnânskaya? — men eñqastan memnuniyetsiz çıray yasadım — eñ eyisi...
+— Krasnânskaya? — men eñqastan memnuniyetsiz çıray yasadım 
+— eñ eyisi...
 Torizoğa muavin tayin etsinler, — dedim men.
 — Mümkün! — dedi Yekaterina Vasilyevna.
 Meni añlamadı.
@@ -836,18 +837,19 @@ Siz meni pek kötermeñiz.
 Men yüksek pervazlarğa alışıq degilim.
 Yekaterina Vasilyevna şahıldap küldi.
 — Bilem.
-Siz adden aşıq namuslı qız balağa beñzeysiñiz!
-Yeñi yıl aqşamında bu qadın maña pek dülber körünmegen edi.
+Siz adden aşır namuslı qız balağa beñzeysiñiz!
+Yañı yıl aqşamında bu qadın maña pek dülber körünmegen edi.
 Şimdi baqam... deşet!
-— Mında menim dostım yaşay... yaş qadın.
-Yapâlıñız.
+— Mında menim dostum yaşay... yaş qadın.
+Yap-yalıñız.
 Şimdi oña beñzegen qadınlar pek az.
 Bir munasebet kelgende onıñ aqqında sizge tafsilâtlı söylerim.
 — Lâkin Yekaterina Vasilyevna munasebet beklep turmadı, dost qadını oñaytsız sevgi neticesinde pek tüşkünlengenini, bir yaqqa çıqmaq, kimsenen körüşmek istemegenini, yalıñız kütübhane hızmetinen meşğul olıp, sabadan aqşamğa qadar anda vaqıt keçirgenini aytıp qoydı.
 "Çoq dülber... cazibeli qadın!" dep bitirdi sözüni.
-Salar çetinde şarap zavodı qarşısında alçaq evniñ azbarına kirdik, Yekaterina Vasilyevna qapunı qaqtı, cevap bergen kişi olmadı.
-— Evde yoq, — o, elini soqup, bosağanıñ astını qarıştırdı, — kördiñizmi?
-Bütün sırlarını bilem! — Elindeki anahtarnı maña korsetti.
+Salar çetinde şarap zavodı qarşısında alçaq evniñ azbarına kirdik, Yekaterina Vasilyevna qapunı qaqtı, 
+cevap bergen kişi olmadı.
+— Evde yoq, — o, elini soqıp, bosağanıñ astını qarıştırdı, — kördiñizmi?
+Bütün sırlarını bilem! — elindeki anahtarnı maña korsetti.
 Biz keniş köridordan keçip, camlı sofağa çıqtıq.
 Küçük qapunıñ ögünde toqtaldıq, — qoyıñız yerge!
 Zembilni yerge qoydım, çar-çabik sağlıqlaşıp ketmek istedim.
