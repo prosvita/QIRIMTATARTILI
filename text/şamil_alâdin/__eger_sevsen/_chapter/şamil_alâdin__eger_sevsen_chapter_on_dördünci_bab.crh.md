@@ -249,25 +249,30 @@ Bu nasıl sır? — Curayev soza berip, hihıldap küldi.
 Onıñ böyle külgenini ilki sefer kördim.
 — Hristofor ve Cevdet — er kes demek degil,— dedi Nikolay, — 
 qız hurma qutusını eline alıp, ketti.
-Men onı bosağağa qadar ozğardım, peşinden ketmedim... — Nikolay ikâyesini öyle başladı, — o künü Tuapsege cönemek kerek edim.
+Men onı bosağağa qadar ozğardım, peşinden ketmedim... 
+— Nikolay ikâyesini öyle başladı, 
+— o künü Tuapsege cönemek kerek edim.
 Bir aydan soñ Batumğa qaytıp keldim.
 Qıznı kene Samson emceniñ tükânı yanında rastketirdim.
-Acaip yaz aqşamı edi.
+Acayip yaz aqşamı edi.
 Meni uzaqtan sezdi, lâkin özüni laqırdınen meşğul kibi tuttı.
 Yanında, özünden azaçıq esli, dülber qadın bar edi.
 Yaqın keldim.
 
-"Afu etiñiz! — dedim sarışın qızğa, — zan etem, meni unutmağandırsıñız!"
+"Afu etiñiz! — dedim sarışın qızğa, 
+— zan etem, meni unutmağandırsıñız!"
 "Sizni? — qız taaciplengen kibi oldı, soñ cilveli közlerinen külümsiredi.
 — Yüzüñiz pek tanış.
-Amma hatirime ketiralmay turam".
+Amma hatrime ketiralmay turam".
 "İçeride... — parmağımnen qavehanege işaret ettim, — Samson emcede olğan iş esiñizdemi?
+% Yaqında olğan şey.
 Hurma almağa kelgen ediñiz!.."
 — O güya on sene evelsi olıp keçken adiseni hatırlamağa tırışır kibi, közlerini qarşıdaki dağnıñ töpesine doğrulttı, köz bebekleri kenişlep kettiler.
-"Ebet, ebet! — dedi qız, bir talay vaqıt keçken soñ yasama, dülber davuşnen, — şimdi hatirime keldi.
+"Ebet, ebet! — dedi qız, bir talay vaqıt keçken soñ yasama, dülber davuşnen, 
+— şimdi hatrime keldi.
 O siz ediñizmi?
 Soñ derece usta ve çeber uydurılğan temaşa edi...
-Özü böyle, ümütsizden, daa doğrusı, biraz nezaketsizce başlasa da, er alde, zevqlı şey olıp çıqqan edi.
+Özü böyle, ümütsizden, daa doğrusı, biraz nezaketsizce başlasa da, er alda, zevqlı şey olıp çıqqan edi.
 Öyle degilmi?"
 
 Men Curayevniñ yüzüne baqıp oturdım.
@@ -276,12 +281,13 @@ Nikolaynıñ ikâyesi onda nasıl teessurat doğurır eken dep bekledim.
 Nikolay, özüniñ lirik sözleriniñ davuşından hoşlanıp qızıştı, rolüne kire berdi.
 Eecanlanğan sayın sözleri tabiiy ve tesirli yañğıradılar.
 Ta soñunda kitaptan oqup aytqan kibi, tutulmay, tamşanmay söyledi.
-Men onıñ istidadındaki bu hususiyetni şimdi bildim.
+Men onıñ istidatındaki bu hususiyetni şimdi bildim.
 Curayev ne tüşündi, sezalmadım.
 O, krovat üstünde biraz qam-buraya berip oturmaqta ve ciddiy çıraynen diñlemekte edi.
 Kandıba devam etti.
 — "Ebet!
-Öyle! — dedim men, — ğayet hoş vaqia olıp çıqqan edi.
+Öyle! — dedim men, 
+— ğayet hoş vaqia olıp çıqqan edi.
 Şimdi ise adıñıznı bilmege ruhset etiñiz!
 Zan etsem, buña aqqım bar!"
 "Ne demek olsun... — dedi sarışın qız ve cazibeli nazar ile küldi.
@@ -290,7 +296,8 @@ Batumda şay deyler.
  — Biz endi siziñnen eski tanışlar kibimiz.
 Menim adım Margarita".
  "Margarita!
-Margarita! — dep tekrarladım men, sevinçimden başımnı ğaip etip,— acaip ad!"
+Margarita! — dep tekrarladım men, sevinçimden başımnı ğayıp etip,
+— acayip ad!"
 Kandıba tekrar sustı.
 Menim ve Curayevniñ közlerimizge baqıp oturdı.
 Soñra kederli alda dedi:
