@@ -131,17 +131,20 @@ Qum karyerde de yoq.
 Sizden de kelmegen olsa, işler fena olacaq edi.
 Dumpkarlar qapaqlandılar.
 Qum yerge töküldi.
-Parovoz platformalarnı arqa tarafqa üytep alıp ketti, yelquvannıñ ögünde toqtadı, ögden keleyatqan qum yüklü ekinci poyezdğa yol berdi.
+Parovoz platformalarnı arqa tarafqa üytep alıp ketti, yelquvannıñ ögünde toqtadı, ögden keleyatqan qum yüklü ekinci poyezdge yol berdi.
 Demir yol azır.
 Lâkin oña daima köz-qulaq ola bermek, kimer yerlerinde şpallarnı ve relslerni deñiştirip turmaq kerek oldı.
 Çünki yolnıñ ömüri uzun degil... muvaqqat.
 Klub, furun, magazin, sklad — episiniñ qurucılığı içün beton kerek.
-Poyezd toqtamay-tınmay bu obyektler içün işley, Tezden aylanma kanalnı bitirecek, plotina qurucılığına başlaycaqmız, o vaqıtta bir zavodnıñ betonı azlıq etecek.
+Poyezd toqtamay-tınmay bu obyektler içün işley.
+ Tezden aylanma kanalnı bitirecek, plotina qurucılığına başlaycaqmız, o vaqıtta bir zavodnıñ betonı azlıq etecek.
 ...Qum ve demir yol tarihını tafsilâtlı söyledim, çünki böyle işlerni daima bizge, komsomollarğa avale ete ediler.
 Biz oña, kerçekten de, alışıp qaldıq.
-Özümizni, dünyada er şeyge burun soqmağa aqlı adamlarmız dep bile... er uçastkada qurucılıqnıñ tez bitirilmesine yardım etmege tırışa edik, çünki bu işlerde taqlid etilecek ocalarımız bar edi.
+Özümizni, dünyada er şeyge burun soqmağa aqlı adamlarmız dep bile... er uçastkada qurucılıqnıñ tez bitirilmesine yardım etmege tırışa edik, 
+çünki bu işlerde taqlid etilecek ocalarımız bar edi.
 
-Gazetalarda basılğan, radiodan aytılğan haberlerni, barıp kelgen adamlarnıñ laqırdılarını işitip, Volgada meşur traktor zavodınıñ nasıl qurulğanını tasavur ete, anda komsomollarnıñ körsetken işkuzarlığını özümiz içün nümüne dep qabul ete edik.
+Gazetalarda basılğan, radiodan aytılğan haberlerni, barıp kelgen adamlarnıñ laqırdılarını eşitip, Volgada meşur traktor zavodınıñ nasıl qurulğanını tasavur ete, 
+anda komsomollarnıñ körsetken işkuzarlığını özümiz içün nümüne dep qabul ete edik.
 İşni bütün titamatınen ögrengen edik.
 Söz kelimi, mehanika tsehinde, tsement pol üstünde börnen dörtköşeler çızılğan edi.
 Bu dörtköşeler içinde tezyalar yerleştirilecek.
@@ -149,12 +152,13 @@ Bu dörtköşeler içinde tezyalar yerleştirilecek.
 Adamlar vaqıtnı hızmetke uydurmağa ögrendiler.
 Volgadaki traktor zavodınıñ yaş şorbacıları istisal ameliyatında de yañlışıp, de tüzelip, mañlaylarını divarğa urıp-teşip, miylerini yorultıp, şay etip, tehnikanı menimsev yollarını taptılar.
 
-Ardı-sıra qaç kün ve gece yuqlamay, ustahaneden ustahanege çapqalap, adsız-isapsız traktor qısımlarını qarıştırıp, bir-birine uydıruvnen çekiştiler.
+Ardı-sıra qaç kün ve gece yuqlamay, ustahaneden ustahanege çapqalap, adsız-esapsız traktor qısımlarını qarıştırıp, bir-birine uydıruvnen çekiştiler.
 Traktornı taqıştırıcı mütehassıslar boltlarnı ve gaykalarnı iş esnasında öz ellerinen yasay, ketip azbar içinde egevley ediler.
 İşçiler ilki traktornı böyle yasap, Moskvağa on altıncı syezdge alıp keldiler.
 On altıncı syezd...
 Men bilem o syezdni.
-İlki defa Moskvağa kelgen vaqıtımda İnqilâb meydanından keçeyata edim, büyük bina yanında adam qalabalığını körip, toqtaldım, bu nasıl yer dep soradım.
+İlki defa Moskvağa kelgen vaqıtımda İnqilâb meydanından keçeyata edim, büyük bina yanında adam qalabalığını körip, 
+toqtaldım, bu nasıl yer dep soradım.
 "Büyük opera teatri, — dedi militsiya hadimi, — on altıncı syezd devam ete".
 O vaqıtta Taşkentke oqumağa kele edim.
 Moskvada bir afta yaşadım.
@@ -173,7 +177,7 @@ Arbatta kezine edilermi?"
 Taşkentke oqumağa keteyatam".
 — "Yahşı, çoq yahşı, — dedi Kirov, omuzımnı taptadı, — mazlum şarq endi uyandı...
 İlim, fen, medeniyetke yapıştı..."
-Öyle uydurıp, eecanlanıp ikâye ettim ki, buña er kes inandı.
+Öyle uydurıp, eyecanlanıp ikâye ettim ki, buña er kes inandı.
 Özüm de inandım...
 
 Deycegim, o vaqıtlarda er kesniñ ağızında "yetmek ve ozmaq..." edi.
