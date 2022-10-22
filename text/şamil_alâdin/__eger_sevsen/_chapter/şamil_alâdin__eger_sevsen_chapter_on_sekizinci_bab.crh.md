@@ -147,14 +147,14 @@ Topraqnıñ üstü buzlağan.
 Astı yımşaq.
 Uç metr uzunlığında ve bir buçuq metr terenliginde çuqur qazdıq.
 Ziyade qazuvda mana yoq, dep tüşündik, lâkin Menjevetskiy bizge: qaza beriñiz, dedi.
-O, ellerini paltosınıñ ceplerine soqıp, baş parmaqlarını tışarıda qaldırıp, kimerde, eecanlanğanda, olarnı qıbırdata berdi.
+O, ellerini paltosınıñ ceplerine soqıp, baş parmaqlarını tışarıda qaldırıp, kimerde, eyecanlanğanda, olarnı qıbırdata berdi.
 Birinci çuqurnı nafile qazayatqanımıznı añlağan soñ başqa yer kösterdi.
 Bir metr qadar qazdıq, Raşidniñ kirkası tars etip, qattı şeyge urundı.
 Ekinci kere siltegende kene qattı şeyge urıp, çetke tayıp ketti.
 Menjevetskiy onıñ yanına keldi, kirkanı elinden alıp, özü qaza başladı.
 Biz balaban topraq keseklerini kenarğa sürdik.
 Çuqurnıñ tübünde yalpaq taş köründi.
-Epimiz, keşfciler ve tedqiqatçılar kibi, eecanğa keldik.
+Epimiz, keşfciler ve tedqiqatçılar kibi, eyecanğa keldik.
 Ne olur eken?
 Menjevetskiyniñ emirine binaen, yalpaq taşnıñ etrafına tizildik, kirka, kürek, lom vastasınen onı köterecekmiz.
 Topraqnı qazıp, daireni eppi kenişletken soñ taşnıñ pek terenge kirip ketkenini kördik.
@@ -184,7 +184,7 @@ Yeter!
 Endi al!.. çetke, taşnı çetke çek!
 Çetkemi?
 Baş üstüne!
-Men kovşnıñ tişlerini taşnıñ ucuna ketirdim, elimnen ekinci rıçagqa bastım, köndelen tros tartıldı... baqtım, taş yerinden köçti.
+Men kovşnıñ tişlerini taşnıñ ucuna ketirdim, elimnen ekinci rıçagğa bastım, köndelen tros tartıldı... baqtım, taş yerinden köçti.
 Trosnı kene tarttım, taş sol tarafqa qıyıştı, astından truba deligi körüne başladı. 
 %
 Taş alınğan soñ kanalnıñ üstünde bir buçuq metr keñlikte teşik açıldı.
@@ -194,7 +194,7 @@ Aqıntı küçlü.
 Menjevetskiy tayaqnı çıqarıp, sılaq yeriniñ uzunlığını baqtı.
 — Doqsan beş santimetr.
 Soñra tayaqnı tekrar suv içine tüşürdi. 
-Biz, onıñ emire binaen, on metr uzaqqa çekilip, ekinci çuqurnı qaza başladıq.
+Biz, onıñ emrine binaen, on metr uzaqqa çekilip, ekinci çuqurnı qaza başladıq.
 Trubanı tez taptıq.
 Üstüni kene kovş vastasınen açtıq... açtıq degil, qırdıq.
 Bu sefer rıçag başında Almazovnıñ özü oturdı.
