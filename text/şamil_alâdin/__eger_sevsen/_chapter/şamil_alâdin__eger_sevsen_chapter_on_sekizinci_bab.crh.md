@@ -271,7 +271,8 @@ Kandıba aqırın adımlarnen oña taba torüş etti, elinden kürsüni çekip a
 O bu davuşsız areketlerden qorqtı.
 Özüni qorçalaycaq adam olmağanını bilip, aqırından yerinden turdı, barıp koykası üstüne yattı.
 — Alçaq insan...
-Hristofornı öldürmek istedi, — Nikolay devam etti, — vaşiylik keçer-keter belledi.
+Hristofornı öldürmek istedi, — Nikolay devam etti, 
+— vaşiylik keçer-keter belledi.
 Niçün öldürmek istedi, bilesiñizmi?
 Çünki Hristofor onıñ bütün sırlarını...
 — Yalan aytasıñ!
@@ -281,23 +282,27 @@ Men Hristoforğa toqunmadım.
 Onı makemede añlatırsıñ!
 Tur!
 Biz bir şey aytmadıq.
-Raşid bir şeyler söylemek içün ağızını açtı, Nikolay onı toqtattı.
+Raşid bir şeyler söylemek içün ağzını açtı, Nikolay onı toqtattı.
 — Otur!
 Sen qarışma!
 Men bu parazitni öldürmek istegen edim.
-Öldürgen olsam, qarışa bilir ediñ. — Açuvından komgok kesilgen alda Arhipkağa çevirildi,— öldürmeycegim!
-— Ne yapmaq isteysiñ? — dep ökürdi Arhipka. — Meni qayda davet etesiñ?
+Öldürgen olsam, qarışa bilir ediñ. 
+— Açuvından komgok kesilgen alda Arhipkağa çevirildi,— öldürmeycegim!
+— Ne yapmaq isteysiñ? — dep ökürdi Arhipka. 
+— Meni qayda davet etesiñ?
 — Sen ne aytasıñ?— dedim men Nikolayğa, — bir şey añlamayım!
 — Tezden añlarsıñ.
 Mında mürekkep şey yoq.
-Tur!— dedi o, Arhipkağa, — Qırğız Qulaqqa ketecekmiz!
+Tur!— dedi o, Arhipkağa, 
+— Qırğız Qulaqqa ketecekmiz!
 — Ne içün?
 — Duranidini bu alğa ketirgeniñ... onı öldürmek istegeniñ içün.
 Hristofor hastahaneden çıqqan soñ bile adamğa beñzemeycek.
 Tur!
 Menimnen keteceksiñ!
 — Men?
-Seniñnen? — o koykasından turdı, — Arhipkanı operativ bölükke alıp kete bilecek adam daa doğğanı yoq.
+Seniñnen? — o koykasından turdı, 
+— Arhipkanı operativ bölükke alıp kete bilecek adam daa doğğanı yoq.
 — Öyle belleysiñmi?
 Şimdi menimnen keteceksiñ.
 Men alıp ketecegim.
@@ -316,9 +321,9 @@ Men seniñ... — Kandıba eki eliniñ parmaqlarınen Arhipkanıñ boğazından 
 Arhipka telâşqa tüşti: "Petâ emce!
 öldüreler..." dep qıçırdı.
 — Sus, ahmaq!— dedi Nikolay,— bir şey yapmaycağım.
-Men seniñ üçköşe başıñnı bu in-ce yelkeñden üzip taşlamaq istegen edim, Cevdet razı olmadı.
+Men seniñ üçköşe başıñnı bu ince yelkeñden üzip taşlamaq istegen edim, Cevdet razı olmadı.
 Oña teşekkür et!
-Menim ise... yapqan alçaqlığıñnı işitkenimden berli saña ellerim qaşınıp yüre.
+Menim ise... yapqan alçaqlığıñnı eşitkenimden berli saña ellerim qaşınıp yüre.
 Aydı, çıq!
 — Seniñnenmi?
 — Menimnen!
@@ -327,12 +332,14 @@ Utanasıñmı?
 — Saqın, toqunayım, deme!
 Yoqsa, senden tek sılaq tamğa qalır.
 Haberiñ olsun!
-— Yur!
-— Yezdir başımdan! — dep cekirdi Arhipka ve yumruqlarını sıqıp Nikolayğa taba yurdi. — Saña ne kerek?
+— Yür!
+— Yezdir başımdan! — dep cekirdi Arhipka ve yumruqlarını sıqıp Nikolayğa taba yürdi. 
+— Saña ne kerek?
 Kandıba onıñ elini tutıp burdı, Arhipka çıdayalmay, yerge otura qoydı.
 Esini toplamağa fursat bermey, süyreklep tışarı çıqardı.
 — Deñiz aydutı! — Arhipka yayğara qopardı.
-Ketmege istemey, ellerinen qapuğa tireldi, lâkin Nikolay bıraqmadı. — Yiber, farmozon!
+Ketmege istemey, ellerinen qapuğa tireldi, lâkin Nikolay bıraqmadı. 
+— Yiber, farmozon!
 Çemodanım açıq qaldı...
 Kâr etmedi.
 Nikolay üyteklep alıp ketti.
