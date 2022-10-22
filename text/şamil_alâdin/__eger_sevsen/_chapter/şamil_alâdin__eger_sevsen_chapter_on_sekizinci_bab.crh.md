@@ -55,29 +55,29 @@ Bu — güzel.
 İnstitutta studentler pol ve pencere yuva köçegarlıq eteler.
 Seyyare urbalarını özü tike, özü yuva.
 Dostları da öyle yapalar.
-Kimerde bizim evde toplanalar, ortadaki stol üstündeki moda jurnallarını cayrata, içlerinden bir şeyler tapıp, er kün yeñi anter biçe ve tikeler.
+Kimerde bizim evde toplanalar, ortadaki stol üstündeki moda jurnallarını cayrata, içlerinden bir şeyler tapıp, er kün yañı anter biçe ve tikeler.
 Bu güzel şey, lâkin gençlik arasında başqaları da bar.
 Bir jurnalda yaş qıznıñ mektübini oqudım.
-Saifeniñ çetinde, büyükten-büyük sual işareti qoyılıp, astı eki kere çızılğan.
+Saifeniñ çetinde, büyükten-büyük sual işareti qoyulıp, astı eki kere çızılğan.
 Bu Seyyareniñ eli?
 Zıtına tiygenge beñzey.
 Kerçekten de, bu matüv bir qıznıñ mektübi.
-Lâkin yazğan meselesi yaşlıqnıñ belli bir qısımı içün tipik şey.
+Lâkin yazğan meselesi yaşlıqnıñ belli bir qısmı içün tipik şey.
 "Qıymetli redaktsiya!
 Men bir studentka olıp, adiy işçini sevem, bu doğru olurmı..."
 Şimdi, baraktaki eski dostlarımnı hatırlap, taaciplenem: cısmiy ve ruhiy ceetten ne qadar sağlam ekenmiz!
 Barakta altı adam qaldıq, dedim.
 Nikolay kitapnıñ çabik oqulğanını istedi, çünki kitap meraqlı keldi.
 Gitarasını koyka üstüne attı, Raşidni diñledi.
-Bassaraba, adeti üzre, eski maşina detallerini tamirnen meşğul.
-Evge er kün demir parçaları ketire, ocaq yanında, polda daima qatran tamğaları ola.
+Bassaraba, adeti üzre, eski maşina detalleriniñ tamirinen meşğul.
+Evge er kün demir parçalarını ketire, ocaq yanında, polda daima qatran tamğaları ola.
 Bassaraba endi er şeyni bu yerde yapa.
 Köşede teneke savutlar içinde qatran ve kerosin tuta.
-Onıñ fikirine köre, mehanikadan eñ müimi — detalniñ temiz oluvı.
+Onıñ fikrine köre, mehanikadan eñ müimi — detalniñ temiz oluvı.
 Oña bir kişi yardım etecek olsa:
 — Toqta,— dey,— evelâ bulaşıq yerini yuvayıq, soñ belli olur.
 Bassaraba qarardan ziyade yüksek boylu, aqçil ve tar betli, arıq adam.
-Burunı, uzunlığından başqa, üzülip tüşken kibi, birden bitip kete.
+Burnu, uzunlığından başqa, üzülip tüşken kibi, birden bitip kete.
 Güya bundan evel süyrü eken de, soñundan bıçılıp alınğan.
 Hristofor bir kere bunı oña söyledi.
 Arhipka teren manalı şey aytqan olıp:
@@ -87,15 +87,16 @@ Amma soñundan, söz başqa şey hususında ketkende, küldi.
 — Bıçılğanı da ne?
 Anam nasıl doğurğan olsa, öyle tura, — dedi.
 Onıñ bütün eglencesi — detaller...
-Daima bir şeyni tamirnen meşğul.
+Daima bir şeyniñ tamirinen meşğul.
 Lâkin bu adet — bir hucurlıq degil, mehanikağa sevgi.
 Bassarabanı işte çıqımsız degenleri, yalan.
-Tek, bir defa planını toldıralmadı...
+Tek, bir defa planını tolduralmadı...
 Onıñ içün ekipajına qasır bayraq berildi.
 Bassaraba bu bayraqnı barakqa ketirip, ülkün köşede divarğa tayandırıp qoydı.
 Barağımızda böyle masharalıqqa yol bermeymiz, dep baqtıq, Bassaraba indemedi.
 Arhipka bayraqnı ilip aldı, azbarğa çıqarıp, çinarnıñ töpesine asacaq oldı, Bassaraba şaqıldap küldi.
-- Zevqlı adamlarsıñız... — dedi bizge, — bayraq daima bayraqtır.
+- Zevqlı adamlarsıñız... — dedi bizge, 
+— bayraq daima bayraqtır.
 Qasırmı, yipekmi...
 Sizge ne?
 Bir kün barakqa keldik, bayraq yerinde yoq edi.
