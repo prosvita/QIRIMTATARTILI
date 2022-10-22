@@ -109,11 +109,11 @@ Babası ayrette qalğan, onıñ yasağan meşrebesini peçke qoyıp qızdırğan
 Bu, ilki savut, özüniñ aytqanına köre, alâ evde tura eken.
 Ondan soñ basit ayaqnen aylanıcı tezya tögeregini işke öyle güzel uydurğan ki, pek çoq ustalar onı çağırıp, öz tezyalarını tüzettirgenler.
 Basit kimerde közlerini qapatıp, evde tezyada nasıl çalışqanını, ayaqlarınen daireni nasıl aylandırğanını, eki elinen küçük balçıq topaçından nasıl etip savut şekillendirgenini, soñra, savutnıñ astında öz tamğasını nasıl qoyğanını bizge körsete edi.
-O, tez ve güzel çalışmaq içün, yeñi usullar tüşünip çıqarğan.
+O, tez ve güzel çalışmaq içün, yañı usullar tüşünip çıqarğan.
 Soñ baba ve oğul arasında dava çıqqan.
 Basit, qaç kereler belgisiz adamlar, şeerde yoq, tansıq boyalarnı kontraband yolunen ketirip, satıp ketkenlerini sezip, babasına, bu işten vazgeçmesini rica etken.
 Babası boyanı keri qaytarmağa istemegenini körip, özü evni terk etken.
-Ataqulov, Bassarabanıñ indemezligine... onıñ sözsiz, işmarnen berilgen emirlerine alışqan.
+Ataqulov, Bassarabanıñ indemezligine... onıñ sözsüz, işmarnen berilgen emirlerine alışqan.
 Olarnıñ beraber çalışqanlarını körmek pek meraqlı.
 Nikolay kitap diñlep bezdi, ğaliba, aqırından turdı, kelip menim koykama oturdı ve tumboçka üstünde yatqan defterimni açıp baqtı.
 Bu arada qapu açıldı.
@@ -127,7 +127,7 @@ Epiñiz peşimden yürüñiz!
 Anda Menjevetskiy ve geologlar bekleyler.
 — Andası... qayda?
 — Siziñ ekskavatorıñız yanında, — dedi Mansurov, soñ emirge beñzer qattı sözlernen devam etti:
-— Bir de biriñiz Almazovqa barıp aytıñız!O da kelsin!
+— Bir de biriñiz Almazovğa barıp aytıñız, o da kelsin!
 Yerastı kanalınıñ üstüni siziñ uçastkañızda açacaqmız.
 — Dünyada belâ az edi... — dedi Arhipka, — bir dane daa tapıldı.
 Episi bizim başımızğa kelip tüşe.
