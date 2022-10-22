@@ -1,6 +1,6 @@
-## On sekizinci bab — Yur! Kettik!
+## On sekizinci bab — Yür! Kettik!
 Barakta altı adammız.
-Hristofor yoq Karim yoq.
+Hristofor yoq, Karim yoq.
 Raşid kitap oquy.
 İçinden oqup olamay, bar küçünen qıçırıp oquy.
 Eki-üç söz oquy, toqtay.
@@ -10,12 +10,12 @@ Kandıba onıñ oquğanını diñlep oturdı, soñ ökelendi:
 — Pek yavaş oquysıñ, — dedi oña.
 Lâkin kitaptaki kimer sözler onıñ yüregini tırmalağan kibi oldı.
 Gitarasını aldı, muzıkağa beñzegen bir şeyler uydurmaq istedi, çıqmadı... gitaranı bıraqtı.
-...Bir çerik asır evelsi menimnen ömür keçirgen bu kişilerni şimdi hatirime ketirgende eecanlanam.
+...Bir çerik asır evelsi menimnen ömür keçirgen bu kişilerni şimdi hatrime ketirgende eyecanlanam.
 O kişiler, tasil ve terbiye ceetinden pek küçlü olmasalar da, namuslı, vicdanlı ediler.
 Bir kün dülgerler baragından adam kelip, Şpitsbergenge ketüv laqırdısını çıqardı.
 Anda kömür ocaqlarına adam kerek eken.
 İstegen kişige ketmek mümkün.
-Aylığı üç qat ziyade... urba, aş — episi ayrı isaplana, maaşqa kirmey.
+Aylığı üç qat ziyade... urba, aş — episi ayrı esaplana, maaşqa kirmey.
 Epimiz alevlenip kettik.
 Şpitsbergen?
 Suvuq qayalar, qırlar?
@@ -27,7 +27,7 @@ Amma ne qadar sergüzeşt körecekmiz.
 Şimdi bu satırlarnı yazayatqanda Nikolaynıñ adetlerini ayrıca hoşnutlıqnen hatırlayım.
 O kitaplarnen pek meraqlana, lâkin özü oqumağa sevmey edi.
 Alışmağan...
-Raşid yavaş oqusa da, er alde, boş vaqıtını kitapnen keçirmege seve...
+Raşid yavaş oqusa da, er alda, boş vaqtını kitapnen keçirmege seve...
 Kitaplarğa inana, kitaplarda yazılğan vaqialarnıñ episiniñ aqiqat ekenini bile edi.
 ...Tünevin aqşam bizim Seyyarege özüniñ aqranları musafirlikke keldiler.
 Olar Pikassonı modernizmge ziyade qapılğanı hususında davalaştılar.
@@ -49,7 +49,7 @@ Bazan ev içinde saatlernen dolanıp, quçağımdaki balanı sallay, ağlavını
 Gece elektrik stantsiyasına yuvuram... anda montör hızmetindem.
 O seneleri eñ çoq telmirgen şeyim — yuquğa toymaq edi.
 Biñ doquz yüz qırq bir senesiniñ yazında diplomnı qorçaladım ve ilki istraat künüm iyunniñ yigirmi ekinci künü oldı.
-Öz-özüme deyim: ömürimde çoq küçlükler kördim, episini yeñe bildim.
+Öz-özüme deyim: ömrümde çoq küçlükler kördim, episini yeñe bildim.
 Şimdi, gençlikni emekte terbiyelemek kerek, deyler.
 Bu — güzel.
 İnstitutta studentler pol ve pencere yuva köçegarlıq eteler.
