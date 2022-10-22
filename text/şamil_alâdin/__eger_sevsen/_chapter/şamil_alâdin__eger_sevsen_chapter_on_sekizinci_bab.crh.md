@@ -210,11 +210,10 @@ Taşqa tayanıp turğan Raşid abındı, elindeki feneri trubanıñ içine tüş
 Men ekinci çuqurğa çaptım.
 Onıñ yanında yatqan sırıqnı alıp, trubanıñ üstüne köndelen qoydım, eki elimnen sırıqnı tutıp, ayaqlarımnı aşağı, trubanıñ içine sarqıttım.
 Suvnıñ aqıntısı ayaqlarımnı çetke üytep yiberdi.
-Belime insan teni toqundı...
-Raşid.
+Belime insan teni toqundı... Raşid.
 O, can alâmetinen ayaqlarıma yapışıp, yuqarı tırmaştı.
-Men kimniñdir sesini işittim, amma ne degenlerini añlamadım.
-Raşid kene süründi, tekrar suz içine yıqıldı.
+Men kimniñdir sesini eşittim, amma ne degenlerini añlamadım.
+Raşid kene süründi, tekrar suv içine yıqıldı.
 Aqıntı onı çekkelep alıp ketti.
 Basit! — Bassaraba öz yardımcısını ögge üytedi, — çap!
 Çap!
@@ -223,12 +222,11 @@ O endi kanalnıñ içinde, ayaq üstünde turmaqta edi.
 — Altı adam... Tez!
 Altı adam... — dep qıçırdı Menjevetskiy, — maña yaqın keliñiz!
  — Kimdir, elini Raşidke uzattı, töpege çekip çıqardı.
-O, çıqqan soñ, balıq kibi, şap etip yerge tüşti.
-Aynı şu el Raşidni köterip, çetke üytep taşladı.
+% O, çıqqan soñ, balıq kibi, şap etip yerge tüşti, aynı şu el Raşidni köterip, çetke üytep taşladı.
 Kim?
 Bu cesürlikni yapqan kim?
 Bassaraba... ekenligini sezgen soñ er kes taaciplendi.
-
+% 
 — Tez!
 Tez!..
 "Mavı qayağa" ketiñiz! — dedi Sigizmund Genrihoviç.
@@ -238,21 +236,24 @@ Daa ne yapacaqmız?
 Bizim ekskavatornıñ işi toqtatıldı.
 Maşinamıznı beş metr kenarğa çekip taşladıq.
 Yerastı kanalınıñ tarihını söylep bitirmek kerekim.
-Asaratiqacılar Menjevetskiyniñ fikirini tasdiq ettiler.
+Asaratiqacılar Menjevetskiyniñ firini tasdiq ettiler.
 Bu — qadim kanal.
 Teessüf ki, onı betonnen qapatmaq kerek oldı.
-Meraqlı şey, aylanma kanalnıñ çetindeki bu kanalnıñ ustünde açılğan teşiklerden birisini tıqatqan soñ, bizim Sotsialist Şeerçikten üç kilometr uzaqta, dağ içinde yeñi çoqraq peyda oldı.
+Meraqlı şey, aylanma kanalnıñ çetindeki bu kanalnıñ ustünde açılğan teşiklerden birisini tıqatqan soñ, bizim Sotsialist Şeerçikten üç kilometr uzaqta, dağ içinde yañı çoqraq peyda oldı.
 Çar-Çaq şeerine yoluñız tüşse, suvundan içip baqıñız.
 Bu — çoqraq suvu.
 Yerniñ terenliginden çıqqan, salqın, lezetli suv, qısmen bu qadim kanal boyu kelip, magistral yolğa qoşulğan suv.
 Evge kelgen soñ, bugünki işimiz hususında fikirleştik.
 Arhipka bizge qaşana berdi:
 — Keşfçiler… geologlar! — dep mısqılladı, — men de bir çomıp çıqqan olsam... suvu şifalı, deyler.
-— Temaşa körmek isteysiñmi? — dep soradı Nikolay menden, — şimdi bu şakalnıñ...
-— Şakalnıñ? — Arhipka onıñ aytqanını işitti, añlap olamadı, — nasıl şakalnıñ?
+— Temaşa körmek isteysiñmi? — dep soradı Nikolay menden, — 
+şimdi bu şakalnıñ...
+— Şakalnıñ? — Arhipka onıñ aytqanını eşitti, añlap olamadı, — nasıl şakalnıñ?
 Kandıba közüni qıptı.
-— Senden sorayım... — Arhipkanıñ yüregi deşetli şey sezdi,— ne yapmaq isteysiñ?
-— Sabır et! — dedi oña Nikolay, soñ bizge muracaat etti: — maña baqıñız!
+— Senden sorayım... — Arhipkanıñ yüregi deşetli şey sezdi,
+— ne yapmaq isteysiñ?
+— Sabır et! — dedi oña Nikolay, soñ bizge muracaat etti: 
+— maña baqıñız!
 Hristofor yer patlavından yaralanmadı.
 Yer patlavı vaqıtında Arhipka...
 — Kim?
