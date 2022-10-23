@@ -208,8 +208,10 @@ Başımnı çevirdim — muşuq...
 o, kenardaki çardivarğa tayanğan, sigar içmekte ve tosat-tosat özenge tükürmekte edi.
 Üstündeki qısqa paltosınıñ ögü açıq, astından buşlat ve yolaqlı matros kölmegi körüne.
 Meni eslegeni kibi, başını silkti ve külümsiredi.
-Bu arada kişiler arasında Yekaterina Vasilyevna yalqıldap aldı... ve deral maña arqasını çevirdi.
-Muşuq yalığa er kesten soñ tüşti, kevdesini ögge berip, deve kibi qaqına-qaqına, keniş adımlarnen gidromonitorlar baragı betke cönedi.
+Bu arada kişiler arasında Yekaterina Vasilyevna yalqıldap aldı... 
+ve deral maña arqasını çevirdi.
+Muşuq yalığa er kesten soñ tüşti, 
+kevdesini ögge berip, deve kibi qaqına-qaqına, keniş adımlarnen gidromonitorlar baragı betke cönedi.
 Kandıba onıñ artından baqa berdi.
 — Matros körsin közüñ, — dedi o, — yürüşine baq!
 Fıraun padişası!
@@ -234,15 +236,15 @@ Onı qaburğa tarafına çevirip qoydıq.
 Bir şeyler mırıldandı, ne ekeni añlaşılmadı, kene yuquğa ketti, lâkin huruldamadı.
 Men de yattım.
 Nikolaynıñ yuqlaycağı kelmedi, gitarasını aldı, aqırından yırlap başlağan edi, birden sustı, indemey, oturdı-oturdı, soñra sekirip ayaqqa turdı.
-— Bir kere Marselden Barselonağa kete edik... kene ispaniya efsanesi başladı.
+— Bir kere Marselden Barselonağa kete edik... kene ispaniya efsanesi başlandı.
 Men Nikolaynıñ ikâyelerini diñlemege seve edim.
-Sevgenimnn bilip, sergüzeştli vaqialarnı çoqça söyley, çünki o, bir şeyni ikâye etkende, diqqatlı diñleseler, quvana edi.
+Sevgenimni bilip, sergüzeştli vaqialarnı çoqça söyley, çünki o, bir şeyni ikâye etkende, diqqatlı diñleseler, quvana edi.
 — Barselonağa... añladıñmı?
 Adına diqqat et!
 Vahtada ardı-sıra eki defa turğanımdan, soñ derece yorğun edim.
 Kökteki yıldızlar öyle alçaq ediler ki... qısqası, tam İspaniya geceleri.
 Lâkin baraknıñ qapusı açıldı.
-Nikolay susetı.
+%
 Bosağa üstünde Valâ köründi.
 — Saña ne oldı? — dedi qız gizliden, — betiñde ayret kölgeleri...
 Tüşten uyanğan kişige beñzeysiñ.
@@ -256,7 +258,7 @@ Valâ Nikolaynıñ yanına oturğanını sezdim.
 — Bilem.
 Amma niçün?
 — İsteseñ iç, istemeseñ içme!
-Kene gitara davuşı işitildi.
+Kene gitara davuşı eşitildi.
 — Kimge keldiñ?
 Mañamı?
 — Saña!
@@ -300,10 +302,10 @@ Onıñ içün tüşünmeysiñiz?
 Arhipka Hristofornı öldürmek istedi, öldüralmadı.
 Siziñ içün bu — bir şey demek degil.
 Nikolaynıñ davuşı keskin, açuvlı çıqtı.
-— İş olğan... men ne yapmağa borclım?
+— İş olğan... men ne yapmağa borclum?
 Bu kiçiçik ellerimnen Arhipkanıñ boğazına yapışmaq kerekimmi?
 Siz... erkekler bu dünyada niçün yaşaysıñız?
-— Seni deñişti, dep işitken edim.
+— Seni deñişti, dep eşitken edim.
 Kene eski adetleriñnen qalğansıñ.
 — Qıçırma!
 Men episini añladım.
@@ -316,7 +318,7 @@ Oturıp talğan soñ, turdı — yanıma keldi.
 — Tur!— dedi maña, — episini işittiñ.
 Daa ne bekleysiñ?
 Başımnı köterdim.
-— Musafirni... kördiñmi? — Nikolay pek eecanlı edi.
+— Musafirni... kördiñmi? — Nikolay pek eyecanlı edi.
 — Rica etmege kelgen.
 Kim içün?
 Sen de öylesiñ, Cevdet!
