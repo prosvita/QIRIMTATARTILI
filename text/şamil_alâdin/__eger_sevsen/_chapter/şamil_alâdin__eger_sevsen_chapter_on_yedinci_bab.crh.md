@@ -112,7 +112,7 @@ O dudaqlarınıñ kenarından zornen külümsiredi.
 — Raatsız olma, Elpide kele qoymaz!
 — Men onı körmek isteyim.
 - Sende vicdan barmı? — dedi maña Nikolay, darğın alda, — eçki can derdinde, qasapçı mal...
-Hristofor közlerini tavanğa tikledi, işitilir-işitilmez davuşnen dedi:
+Hristofor közlerini tavanğa tikledi, eşitilir-eşitilmez davuşnen dedi:
 — Baq sen... bir barakta yaşa, bir çanaqtan aşa da, kişi seniñ ayatıña hast olsun!
 Nikolay tizleri üstündeki küçük boğçanı açtı, yüzüm, nar, alma ve eki pite alıp, tumboçka üstüne qoydı.
 — Bularnı tapqanca üç bazarnı dolanıp çıqtıq, — dedi o, — senden tek bir şey talap etile... tez tüzelip çıq!
@@ -125,7 +125,7 @@ Cayav ketmege mecbur oldıq.
 Yol boyunda ekimiz yan-yanaşa adımlar ekenmiz, Nikolayğa köz ettim.
 O ğayet kederli edi.
 — Şübelenmey bilesiñ, — dedi o maña, — men er şeyni añladım.
-Hristofor yaralanğan ve hastahanege yollanılğan soñ, aqılıñda olsa, men kompressor bölügine kirip baqtım.
+Hristofor yaralanğan ve hastahanege yollanılğan soñ, aqlıñda olsa, men kompressor bölügine kirip baqtım.
 Yıqılğan yerinde, pol üstünde qan tamçılar bar edi.
 O vaqıtta diqqat ettim: taş güya qapudan kirgen.
 Kirgende, avada yarım daire yasap, Hristofornıñ eñsesine ve omuzına tüşkenmi?
@@ -136,13 +136,13 @@ Bunı Arhipka körgen.
 O Hristofornıñ yanaşasında eken.
 Aqiqatta ne olğan?
 Arhipka taşnı alıp, Hristoforğa atqan, amma taş közlegen yerine degil, biraz aşağı, eñsesinen omuzı ortasına tüşken.
-Hristofor gurultini işitken, başqa şeyden haberi yoq.
+Hristofor gürültini eşitken, başqa şeyden haberi yoq.
 Adeti üzre, evelâ ne ola?
-Patlav, soñ gurulti.
+Patlav, soñ gürülti.
 — Bunı, bilesiñmi, çeşit türlü añlamaq mümkün.
 — Yoq.
 Bunı tek bir türlü añlamaq mümkün.
-Madamki Hristofor gurultini işitken, demek, yer patlavından yaralanmağan, çünki yer patlavı işitilgen maalde taş-topraq kesekleri endi tüşecek yerlerine tüşken olalar.
+Madamki Hristofor gürültini eşitken, demek, yer patlavından yaralanmağan, çünki yer patlavı eşitilgen maalde taş-topraq kesekleri endi tüşecek yerlerine tüşken olalar.
 — Öyle tezmi? — dep soradım men.
 — Ya ne?
 O qadar küç!
@@ -152,7 +152,7 @@ Lâkin nasıl olğan — nasıl olmağan, bir taş, er alda, tüşken, qapunı u
 Diger taşlar... añlaşılğan mesele, er biri avada özüniñ çıqa bilgen yüksekligine yetken soñ, yerge tüşip ketkenler.
 Olar ekskavatornıñ tek damı üstüne tüşe bile ediler.
 Bu taş, niçündir, qapudan kirgen?!
-Hristofor patlavnıñ gurultisini işitken olsa, demek, patlavdan soñ yaralanğan.
+Hristofor patlavnıñ gürültisini eşitken olsa, demek, patlavdan soñ yaralanğan.
 Arhipka episini nazar itibarğa alğan.
 Lâkin bir şeyge aqılı yetmegen, — Hristofor sağ qala bilecegini tüşünmegen.
 O Hristofornı ekinci taşnen urıp öldüre bile edi, añlaşıla, raqı keder etken.
@@ -162,7 +162,7 @@ Bu bir.
 Ekincisi, şu!
 Bugün nijniklerden bir yigit menim yanıma keldi.
 Baq sen, rastkeliş...
-Yanıma kelip, bir laqırdı işitkenini ayttı.
+Yanıma kelip, bir laqırdı eşitkenini ayttı.
 Gece ateş başında üç adam Hristofor hususında laqırdı etkenler.
 Kimler ediler dep soradım.
 "Biri siziñ nijnik...
@@ -175,14 +175,15 @@ Soñmı!? — dep soradım.
 Patlamazdan evel, dedi.
 Bizde patlavlar, elbette, çoq olalar.
 O yahşı bilmey...
-
 Nikolay yolnıñ ortasında toqtaldı.
 Maña çevirilip, közlerimniñ içine baqıp turdı.
-— Muşuq, Arhipka... bu kişilernen esaplaşmaq kerek, — dedi o, yavaştan, — sen kimsege indeme!
+— Muşuq, Arhipka... bu kişilernen esaplaşmaq kerek, — dedi o, yavaştan, 
+— sen kimsege indeme!
 Men özüm baqarım.
 — Saqın...
 Nikolay! — dedim men oña, — kerekmey!
-— Niçün? — dep cekirdi o, tınç qaranlıq içinde, — Arhipka menim dostımnı öldürmek istedi... tesadüfen sağ qaldı.
+— Niçün? — dep cekirdi o, tınç qaranlıq içinde, 
+— Arhipka menim dostumnı öldürmek istedi... tesadüfen sağ qaldı.
 Sağ qalacaqmı?
 Belli degil.
 Men Arhipkanıñ nişaretli taqletine baqıp, susıp yürecegimmi?
@@ -192,7 +193,7 @@ Makeme etmek kerek.
 Men de öyle tüşünem.
 Nikolay menim aytqanımnı başqa türlü añladı.
 Yeñini töpege çekip, qalın, qısqa qolunı ögge uzattı.
-— Onıñ ince, uzun boyunını bu parmaqlarnen sıqmaq ve insaniyetni bir zevaldan qurtarmaq isteyim.
+— Onıñ ince, uzun boynunı bu parmaqlarnen sıqmaq ve insaniyetni bir zevaldan qurtarmaq isteyim.
 — Yoq, Nikolay!
 Sen bunı yapmazsıñ!
 — Neniñ eşqına?
@@ -203,8 +204,8 @@ Skelege kelip yettik.
 Parom özenniñ ortasında... bizge taraf kelmekte.
 Üstünde küçük avtomobil, etrafında adamlar.
 Paromnıñ skelege yanaşmasına yardım ettik, soñ çetke çekilip, yerge tüşeyatqan adamlarnı köz etip turdıq.
-Kimerde insanda hucur isler asıl olalar... şimdi de öyle: betime bir adam baqayatqan kibi keldi.
-Başımnı çevirdim — muşuq... o, kenardaki çardivarğa tayanğan, sigar içmekte ve tosat-tosat özenge tukürmekte edi.
+Başımnı çevirdim — muşuq... 
+o, kenardaki çardivarğa tayanğan, sigar içmekte ve tosat-tosat özenge tükürmekte edi.
 Üstündeki qısqa paltosınıñ ögü açıq, astından buşlat ve yolaqlı matros kölmegi körüne.
 Meni eslegeni kibi, başını silkti ve külümsiredi.
 Bu arada kişiler arasında Yekaterina Vasilyevna yalqıldap aldı... ve deral maña arqasını çevirdi.
