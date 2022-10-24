@@ -1080,14 +1080,14 @@ Siz köylüniñ qanı, teri, közyaşınen yaşaysıñız!
 Sizni, Acı Erbain efendi... yalıñız sizni degil, Cemaledinni, Bekirni, epiñizni gemige toldurıp, Talbuzant adasına yollamaq kerek.
 
 Ev saibi qadesini köterdi, Acı Erbain ile toquştırmağa niyetlendi, lâkin közlerinde sert nazarlar sezip, bir özü içti.
-İçmedi, çengesini töpege köterip, filcannıñ içindekini ağızı içine teke qoydı.
+İçmedi, çengesini töpege köterip, filcannıñ içindekini ağızı içine töke qoydı.
 Artından penir parçası qaptı, soñra çekmeniniñ yeñinen dudaqlarını sildi.
 
 – Talbuzant... o qayda? – dep soradı Meñlibey, taaciplenip.
- – eşitken yerim degil.
+ – Еşitken yerim degil.
 
 – Öyle yer bar, – dedi Üsein oca.
- – Oqyanusta... dünyanıñ ta, çetinde.
+ – Okyanusta... dünyanıñ ta çetinde.
 Anda adamnı qarağa tüşürip, qoluna çoyun qazan, tüfek ve bir çımtım da barot berip, taşlap keteler.
 “Öz çareñni – özüñ tap, – deyler oña.
  – Başqasınıñ küçüne işanma!”
@@ -1115,7 +1115,7 @@ Sarsıntıdan savutlar sekiriklep aldılar.
 – Sen Acı Erbain efendini aqaretlediñ, buña aqqıñ yoq! – Ocanıñ çeresi ap-aq oldı.
 Qorqudan degil, yoq...
 Üsein oca yufqa yürekli degil.
-Bulundığı müitniñ qabalığından, bu eki adamnıñ alçaqlığından asa bilendi.
+Bulundığı müitniñ qabalığından, bu eki adamnıñ alçaqlığından asabiуlendi.
 
 – Siz, Meñlibey, ufaq adamsıñız, – dedi Üsein evniñ saibine.
  – Qoluñızdan kelgen iş – hamut tikmek.
@@ -1168,7 +1168,7 @@ Ağızından qan keldi.
 İri kevdesinen Meñlibeyge çevirildi.
  – Öyle yaptım.
 Haberiñ olmadımı? – O aşhanege kirdi.
-Metideki suv içinde qollarını çayqadı, cebinden yavlğını çıqarıp, sürtti.
+Metideki suv içinde qollarını çayqadı, cebinden yavluğını çıqarıp, sürtti.
  – Men ketemen.
 İş catışqance köyde bolmam, – dedi Meñlibeyge.
 – Kişi ciberirim, vaziyetni maña bildirip turarsıñ, – ve cesetke işaretle dedi: – Bunı cıyıştır.
