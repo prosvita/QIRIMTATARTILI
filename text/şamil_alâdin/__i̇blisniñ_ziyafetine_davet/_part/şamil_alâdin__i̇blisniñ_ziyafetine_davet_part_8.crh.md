@@ -1231,10 +1231,10 @@ Ertesi künü makeme pristavı keldi, Meñlibeynen laqırdı etti.
 Protokol yazdı... yazğan soñ, üç adam imza çekti.
 Pristav arabasına oturıp qayttı.
 
-Uyezd köylerinden ve türlü şeerlerden kelgen çoqtan-çoq adamlarnıñ feryadı, fiğanı, ğamğussa iñiltileri, ahi – zarları altında, qırım halqınıñ ulu ve sevimli edibi Üsein Şamil Toqtarğazı oğlu Harcibiye köyüniñ mezarlığında defn olundı.
+Uyezd köylerinden ve türlü şeerlerden kelgen çoqtan-çoq adamlarnıñ feryadı, fiğanı, ğamğussa iñiltileri, ahizarları altında, qırım halqınıñ ulu ve sevimli edibi Üsein Şamil Toqtarğazı oğlu Harcibiye köyüniñ mezarlığında defn olundı.
 Onıñ sevimli refiqası Acire hanım qocasız, oğulları Daniyal ve Ebabil babasız qaldılar.
 
-Tasalı haber ealige eşitilgen soñ, merumnıñ refiqası Acire hanımğa ve Kökköz qariyesindeki Toqtarğazılar ailesine Qırımnıñ ve diger ülkelerniñ ziyalılarından, sade köylülerden, mühtelif zenaat saiplerinden adsız-esapsız taziye mektüpleri keldiler ki olarda, o mektüplerde, sevimli edip ve muallimniñ qatil elinen vahşiyce öldürilüvi munasebetile halqnıñ kederi ve açuvı izar etilmekte edi.
+Tasalı haber ealige eşitilgen soñ, merumnıñ refiqası Acire hanımğa ve Kökköz qariyesindeki Toqtarğazılar ailesine Qırımnıñ ve diger ülkelerniñ ziyalılarından, sade köylülerden, mühtelif zenaat saiplerinden adsız-esapsız taziye mektüpleri keldiler ki, olarda, o mektüplerde, sevimli edip ve muallimniñ qatil elinen vahşiyce öldürilüvi munasebetile halqnıñ kederi ve açuvı izar etilmekte edi.
 
 Üsein Şamilniñ Kökközdeki doğmuşları ölüm haberini keç aldıqları ve yol uzaqlığı sebebinden defn merasimine keçikip kelseler de, Üseinniñ şeit kettigine derin feryat ettiler.
 Merumnıñ Abibulla ağasınıñ oğlu Ümer Malaycı Kefede advokat tuttı, qatilniñ şiddetli surette cezalanılmasını talap etip, makeme palatası reisine arzual yazdırttı.
@@ -1266,7 +1266,7 @@ Ebabil darılmay edi.
 “Babamnıñ hatiresi”, – dep cevap bere turğan.
 
 Men bıltır küzde Ebabilniñ evini ziyaret etkende, ondan kümüş saplı tayaqnıñ taqdirini soradım.
-Maña taaciplenip baqtı: “Siz ne aytasıñız? – Dedi Ebabil.
+Maña taaciplenip baqtı: “Siz ne aytasıñız? – dedi Ebabil.
 – Cenk.
 Türlü felâketler...
 Kümüş saplı tayaq aqqında tüşünmege imkân barmı edi?”
