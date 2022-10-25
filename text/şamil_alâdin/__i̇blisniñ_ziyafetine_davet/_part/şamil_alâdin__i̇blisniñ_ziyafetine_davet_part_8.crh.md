@@ -18,7 +18,7 @@ Fikirdeşleri ne alda ekenligi malüm degil.
 Bazıları qapaldı, bazıları qaçtı – gizlendiler, evleri tintildi.
 O sebepten, Üsein oca kendi de ihtiyat iş körmekte!
 Kerçke barıp, vaziyetni bilip kelmek istey, çaresi yoq.
-Quyruq Meñlibey de onıñ peşinden ketecek, ne hızmetnen barğanını bilip, şorbacılarına bildirecek, şorbacıları da Kefe uyezdi polis başlığına barıp, ocanıñ padişa azretleri aleyhine işler ile meşğul ekenini yaraştırıp aytacaqlar.
+Quyruq Meñlibey de onıñ peşinden ketecek, ne hızmetnen barğanını bilip, şorbacılarına bildirecek, şorbacıları da Kefe uyezdi polis başlığına barıp, ocanıñ padişa azretleri aleyhine işler ile meşğül ekenini yaraştırıp aytacaqlar.
 Acı Erbain ve Cemaledin içün yeñi delil kerek.
 Yeñi, açıq delil ki, onıñ esasında Toqtarğazı apshanege qapalsın, bu köyge bir daa kelmez olsun.
 Er alda, Meñlibey aqıldan ve bilgiden zengin degil, onı aldatmaq mümkün.
@@ -49,7 +49,7 @@ Qayışev özüne Abdulkelâm efendi rolüni aldı.
 Abibulla aqaynı Menseit Kömürcige berdi.
 Dülgerov ise Toqtarğazığa tüşti.
 Qırım Ğazı mırzanı İbraim oca oynadı.
-Repetitsiyalar, nevbetnevbet, ocalarnıñ evlerinde oldı.
+Repetitsiyalar, nevbet-nevbet, ocalarnıñ evlerinde oldı.
 Kimer ocalarğa bunıñ içün vaqıt tapmaq, uzaqlardan Saraymenge qatnamaq qolay degil edi.
 Küç olsa da, işni yarı yolda qaldırmadılar.
 Temaşağa azırlıq başlağan künler içinde haber bütün volostqa darqadı.
@@ -186,7 +186,7 @@ Sözlerini aytıp bitirmek içün özünde küç yoqluğından, yavluğ
 Niayet, kişi devam etti:
  – Rica etem, bir çareler tapıp, bu haberi Üsein Şamil efendiniñ şahsen kendine bildiriñiz!”
 
-Öyle degen soñra, yol çetinde, yüksek emen altında beklegen faytonğa minip, Qaravullar Meydanına doğru ketti.
+Öyle degen soñra, yol çetinde, yüksek emen altında beklegen faytonğa minip, Qaravullar meydanına doğru ketti.
 Qayğısı pek büyük edi.
 
 – Bu adam kim? – dep soradım Mamut efendiden.
@@ -259,7 +259,7 @@ Nusret efendi ihtiyatle barıp, tabut altına, Üsein ocanıñ ögüne soqul
  ocalardan kimdir tez-tez Üseinni qoltuqlap, çetke çekip, artta qaldırdı, soñra ekevleşip kenardan yavaş-yavaş kettiler.
 Halq aqıntısı ep küçlendi, ep ileri ıntıldı.
 Caddeniñ bir yaqında – qadınlar gimnaziyasınıñ.
- diger yaqında – erkekler gimnaziyasınıñ talebeleri özleriniñ yaraşıqlı kiyimlerinde saf olıp, yas tutıp, tertip ile yürgenleri alda, tabutnıñ arqasında, halqnıñ ögünde, Ruşdiye şagirtleri bulunmaqta ediler.
+ Diger yaqında – erkekler gimnaziyasınıñ talebeleri özleriniñ yaraşıqlı kiyimlerinde saf olıp, yas tutıp, tertip ile yürgenleri alda, tabutnıñ arqasında, halqnıñ ögünde, Ruşdiye şagirtleri bulunmaqta ediler.
 
 Kişiler areketi Sarı Suv köpürinece devam etti.
 Bu yerde toqtadı.
@@ -268,7 +268,7 @@ Abdureşid Medi oğlu yeşil yükseklikte halq mezarlığında defn olundı
 Halqnı parlaq istiqbalge, yüksek ğayelerge yeteklegen ulu Mediyev ayattan ketti.
 Suvuq topraq bağrında qaldı.
 Adamlar onıñle ebediyen vedalaşıp, evlerine qayttılar.
-Mediyevni sevgensayğan kişilerniñ qalplerindeki yanıq iç bir vaqıt sönmeycek, közlerindeki accı yaşlar qurumaycaq.
+Mediyevni sevgen-sayğan kişilerniñ qalplerindeki yanıq iç bir vaqıt sönmeycek, közlerindeki accı yaşlar qurumaycaq.
 Halq özüniñ sevimli evlâdı Abdureşid Mediyevni unutmaycaq.
 
 Üsein oca evge Suleyman Ali efendi ile beraber keldi.
@@ -431,7 +431,7 @@ Oca tükân içinde qaldı.
 Onı quçaqlap, kürpe çuvalı üstüne oturttılar.
 Qızarğan, terge pişken.
 Beyaz bıcağınıñ üstü qatranlı tasma izlerinen çilterlengen.
-Yüregi boğazına cılışqan kibi, tıyılıptıyılıp nefes almaqta.
+Yüregi boğazına cılışqan kibi, tıyılıp-tıyılıp nefes almaqta.
 Kimdir ketirip ögüne bir filcan qave qoydı.
 Oca aylanıp baqmadı, asabiyetten, qolları qaltıramaqta edi.
 
@@ -602,7 +602,7 @@ Meñlibey onıñ arqasından bir şeyler aytıp, qıçırdı.
 Oca aylanıp baqmadı.
 Meñlibey avanı keser kibi, qolunı tersine siltegen soñ, evine qaytıp keldi.
 Qasevetten ezilgen vucudını minder üzerine, çalqağa taşlap, yattı.
-O, elbette, daa tüşünecek-taşınacaq, çapacaq-çapqalaycaq, ille usulınıtapıp, ocanı evge ketirecek.
+O, elbette, daa tüşünecek-taşınacaq, çapacaq-çapqalaycaq, ille usulını tapıp, ocanı evge ketirecek.
 Emirzaqov vazife berecek de, Meñlibey eda etip olamaycaqmı?
 Böyle al olğanı yoq!
 
@@ -663,7 +663,7 @@ Çölniñ niayeti ateş renkli ziyalar içinde balqıldamaqta.
 Ekinler cıyılğan, otlar-ölenler sararğan-solğanlar.
 Qarğalar qıçırşıp, bir yerden diger yerge uça-qona... boğday danelerini çoqçıylar.
 Qıpçaq başını töpege tiklep, quyruğını oñğa-solğa sallap, kete.
-O çöldeki serbestliginden memnün.
+O, çöldeki serbestliginden memnün.
 Üsein oca özüniñ qalbindeki kederlerge toqunmadı, olarnı qozğamadı, olar hususında tüşünmek istemedi.
 O böyle yapmağa bile.
 Oca türkü ayttı.
