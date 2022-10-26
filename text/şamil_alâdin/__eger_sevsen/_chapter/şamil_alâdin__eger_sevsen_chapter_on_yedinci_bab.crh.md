@@ -315,7 +315,7 @@ Qız çıqıp ketti.
 Nikolay koyka üstünde qaldı.
 Eki elinen caqını tuttı, çoq vaqıt qıbırdamay, nelerdir tüşünip oturdı.
 Oturıp talğan soñ, turdı — yanıma keldi.
-— Tur!— dedi maña, — episini işittiñ.
+— Tur!— dedi maña, — episini eşittiñ.
 Daa ne bekleysiñ?
 Başımnı köterdim.
 — Musafirni... kördiñmi? — Nikolay pek eyecanlı edi.
@@ -341,8 +341,8 @@ Men Nikolaynı tınçlandırmaq istedim.
 O ise açuvlandı.
 Elindeki gitarasını koykası üstüne attı, qapunı tars qapatıp çıqıp ketti.
 Men de onıñ artından çıqtım.
-Küneş endi yük-sekke köterilgen.
-Aqılıma ne keldi, bilmeyim.
+Küneş endi yüksekke köterilgen.
+Aqlıma ne keldi, bilmeyim.
 Ayaqlarım meni "Mavı qayağa" ketirgenlerini duymay qaldım.
 Qapunı aralıq etip baqtım, içeride adam çoq kibi köründi.
 Toqtabayev uzun rezina çızmalarını qasıqlarına qadar tarttırğan, ögge-artqa yürip balaban müçeli qıznen laqırdı etmekte.
@@ -355,7 +355,8 @@ Sizsiñizmi?
 Çevirilip baqtım — İrada.
 O alâ ciddiy ve suvuq edi.
 Oña gece smenasındaki vaqianı...
-soñ Hristofor ile körüşüvimizni ikâye ete başlağan edim, yanaşamızdaki topraq yığını artından adam sesleri işitildi.
+soñ Hristofor ile körüşüvimizni ikâye ete başlağan edim,
+ yanaşamızdaki topraq yığını artından adam sesleri işitildi.
 Tursunov ve Curayev töpege köterilmekte ediler.
 Yanlarında hoş çereli qız.
 Qıznıñ üstünde yengil palto.
