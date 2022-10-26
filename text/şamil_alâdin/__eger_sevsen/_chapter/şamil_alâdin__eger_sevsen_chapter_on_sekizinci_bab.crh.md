@@ -317,8 +317,10 @@ Bunı er kes bile.
 İlişe berme!
 Özüñ içün yahşı olmaz.
 — Qorquzmaq isteysiñmi?
-Men seniñ... — Kandıba eki eliniñ parmaqlarınen Arhipkanıñ boğazından tuttı.
-Arhipka telâşqa tüşti: "Petâ emce!
+Men seniñ... 
+— Kandıba eki eliniñ parmaqlarınen Arhipkanıñ boğazından tuttı.
+Arhipka telâşqa tüşti: 
+"Petâ emce!
 öldüreler..." dep qıçırdı.
 — Sus, ahmaq!— dedi Nikolay,— bir şey yapmaycağım.
 Men seniñ üçköşe başıñnı bu ince yelkeñden üzip taşlamaq istegen edim, Cevdet razı olmadı.
