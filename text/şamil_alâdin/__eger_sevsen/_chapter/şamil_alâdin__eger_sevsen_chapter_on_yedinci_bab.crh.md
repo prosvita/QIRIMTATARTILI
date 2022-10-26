@@ -369,55 +369,56 @@ Betten de bir-birlerine beñzeyler.
 Sual menden ziyade İradağa ait ekenligi sezildi.
 — Bekirov maña Duranidiniñ ahvalı hususında ikâye etmekte.
 Santıraç paltolı kişilerniñ biri cebinden maşinkasını çıqarıp yaqtı, çubuğını tutandıracaq oldı.
-Çubuq tutanmadı.
 — Yel, — dedi rusça, aciz alda.
 Terciman deral tercime etti.
-— Yel küçlü... dey senor Marki.
+— Yel küçlü... dey senyor Marki.
 — Onı añladıq, Tursunov başını qaqıttı.
 Terciman qız külümsiredi.
 — Afu etiñiz! — dedi o, — men alışqanım.
 Curayev qurucılıq aqqında izaatnı devam etti.
 Bu adamlar — italyanlar... gidrotehnika inşaatlarınıñ proyektlerini tertip eteyatqan İsveçre firmasınıñ vekilleri.
-— Gazetalarıñız pek qıçırıqlaylar, — dedi senor Kroççi, — dünyada er şey, reportörlarnıñ tevsiyesinen degil de, altın sayesinde yapıla.
+— Gazetalarıñız pek qıçırıqlaylar, — dedi senyor Kroççi, 
+— dünyada er şey, reportörlarnıñ tevsiyesinen degil de, altın sayesinde yapıla.
 Altın — tezyalar ve maşinalar demek.
 Şu kanalnı bir ayda qazıp çıqmaq mümkün edi.
-Quvvet, işkuzarlıq kerek.
+Quvet, işkuzarlıq kerek.
 — O Tursunovqa çevirildi.
 — Siz, evellerde elektrik küçü yetişmey edi, dediñiz.
 Amerikada ve Germaniyada azır dizeller bar... istegeniñiz qadar.
 Niçün olardan satın almaysıñız?
 — Biz aylanma kanalnı öz müddetinden bir ay evel bitirecekmiz,— dedi Curayev.
-— İşittim.
+— Eşittim.
 Pek yahşı.
 Siziñ tilde buña darbeli brigada deyler.
 Bizde ise — cebriyet, yüksek faiz...
 Episi — bir şey.
-Curayev Baş Dugümdeki iş usullarını sabırlı surette añlattı: bizdeki fabrikalar, şahtalar, gidrostantsiyalar halqnıñ malı, dedi olarğa.
+Curayev Baş Dügümdeki iş usullarını sabırlı surette añlattı: bizdeki fabrikalar, şahtalar, gidrostantsiyalar halqnıñ malı, dedi olarğa.
 Biz özümiz içün çalışamız.
 Öz sanayımız meydanğa kelgen soñ halq raat ve zengin ömür sürecek.
 — Buña... — Marki italyanca ayttı.
 Terciman çevirdi.
-—Buña, ğaliba, kapitalistik memleketlerniñ peşine yetmek ve ozıp keçmek, deyler öylemi?
+— Buña, ğaliba, kapitalistik memleketlerniñ peşine yetmek ve ozıp keçmek, deyler öylemi?
 — Ebet, öyle deyler.
 Şübelenesiñizmi?
-— Senora öz küçüne adden-aşıq işanğanğa beñzey, — dedi Marki İradanı kösterip, — bu elbette, yaş qız içün afu etilecek şey.
-— Senora smena injeneri, — dedi Curayev, — menim kibi.
+— Senyora öz küçüne adden-aşıq işanğanğa beñzey, — dedi Marki İradanı kösterip, — bu elbette, yaş qız içün afu etilecek şey.
+— Senyora smena injeneri, — dedi Curayev, — menim kibi.
 — Gençlik içün yol açıq...
-— Marki bu sözlerni kinâye tarzında ayttı, soñ ilâve etti:
+— Marki bu sözlerni kinaye tarzında ayttı, soñ ilâve etti:
 — Menim içün de yol açıq edi.
 Kaprini bilesiñizmi?
 Men o adada doğdım.
 Anakapri degen yer de bar... yüksek, çıplaq qayalıq.
 Anda balalar eçki baqalar.
-Seyyaatçılar ise maşina ile kelip, Roma inperatorı Tiberi sarayı harabesini ziyaret eteler.
+Seyaatçılar ise maşina ile kelip, 
+Roma inperatorı Tiberi sarayı harabesini ziyaret eteler.
 Maña siziñ, yaş injenerlerniñ, er şeyden haberdar olmaq içün tırışqanıñıznı söylediler.
-Öyle eken, siz de yeñi yol quruñız!
+Öyle eken, siz de yañı yol quruñız!
 Anakapri yolunıñ er santimetri menim köz yaşım ve mañlay terimnen quruldı.
 Eger yolnı yasap olamasam, firma meni hızmetten quvacaq edi.
-Men bu acaip senorita ve onıñ yanındaki yigit çağımda qıyın yaşadım.
+Men bu acayip senyorita ve onıñ yanındaki yigit çağımda qıyın yaşadım.
 — Menim injenerlik yolum yengil ve sade, — dedi İrada.
 — Öyle... — Marki köküs keçirdi, — siziñ yoluñız sade.
-Ya siziñ indemez dostıñız?
+Ya siziñ indemez dostuñız?
 O da injenermi?
 — Yoq.
 O — işçi.
@@ -425,19 +426,19 @@ Adiy nijnik.
 — Nijnik?
 — Kroççi taaciplendi.
 Onıñ er şeyge taaciplengen adeti bar eken...
-— Siziñ memleketiñizde er şey zevqlı, er şey acaip.
+— Siziñ memleketiñizde er şey zevqlı, er şey acayip.
 Amma biz işke başqa ceetten baqamız.
 Biz başqa dünyadan kelgen adamlarmız!
 — O, bala kibi, utansırap külümsiredi.
 — Emin oluñız, Curayev efendi, men kapitalist degilim!
 Men injenerim.
-Sovet ler Birligi içün namus ve vicdan ile çalışam.
+Sovetler Birligi içün namus ve vicdan ile çalışam.
 Menim içün eñ müimi — yapqan proyektlerim.
 Em sovetler içün, em de kapitalistler içün quram.
 Menim içün farqı yoq.
 Men siyasetniñ tışında yaşağan adamım.
 — Siyasetniñ tışında...
-Meraqlı şey, — dedi Marki. — Men başqa türlü tüşünem.
+% Meraqlı şey, — dedi Marki, — men başqa türlü tüşünem.
 Olar topraq yığınından tayıp, aşağı tüşerek, "Mavı qayağa" doğruldılar.
 İrada olarnen ketti.
 Men qaldım.
