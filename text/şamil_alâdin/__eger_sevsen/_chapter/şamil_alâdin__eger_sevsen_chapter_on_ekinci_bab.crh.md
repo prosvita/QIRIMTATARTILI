@@ -12,9 +12,9 @@ Men kelgenimden beri üçünci defa maaş alayatam.
 Eki ay, bir kün kibi, keldi-keçti.
 
 Bugün smenanı teslim eteyatqan vaqıtımızda, Toqtabayev iri, etli köz qapaqlarını aqırından aralıq etip, külümsiredi.
-Aralıq etkende, közleri eki dane üçköşe quvuş şekilini aldılar.
+Aralıq etkende, közleri eki dane üçköşe quvuş şeklini aldılar.
 
-— Suqlanam sizge!— dedi o Almazovqa,— eki kün, bir gece istraat eteceksiñiz!
+— Suqlanam sizge! — dedi o Almazovqa,— eki kün, bir gece istraat eteceksiñiz!
 
 Mavlân aka aqlı.
 Gece smenasından evel daima öyle — eki kün, bir gece boşmız; istraat künü ve arfesi... men özümni bugün, aqiqaten, bahtlı isap ettim.
