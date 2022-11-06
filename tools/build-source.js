@@ -49,6 +49,7 @@ function filterNoCyrillic(item) {
 }
 
 function getMetaFromFilename(filename) {
+    /* eslint-disable-next-line no-useless-escape */
     const reFile = new RegExp(/(?:(?<author>.+)__)?(?<title>.+)\.[^\.]+\.md$/, 'i')
     const meta = {
         author: '-',
