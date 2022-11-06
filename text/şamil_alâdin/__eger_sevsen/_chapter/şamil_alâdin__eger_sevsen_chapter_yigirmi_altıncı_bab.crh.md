@@ -1,7 +1,7 @@
 ## Yigirmi altıncı bab — Anna Yakovlevna bizden ketti
 
 Çar-Çaq eski yoldan çıqtı, yeñi yolğa kirdi.
-Amma müim bir qısmı eski yolnen ceryan etti, kotlovan qazılacaq yerde, suv içinde adalar şekilinde ufaq-tüfek bayırçıqlar asıl oldılarişni bütün köleminen başlamaq içün suvnı tekmil aylanma kanalğa çevirmek, eski yolnı qurutmaq kerek.
+Amma müim bir qısmı eski yolnen ceryan etti, kotlovan qazılacaq yerde, suv içinde adalar şeklinde ufaq-tüfek bayırçıqlar asıl oldılarişni bütün köleminen başlamaq içün suvnı tekmil aylanma kanalğa çevirmek, eski yolnı qurutmaq kerek.
 
 Bunıñ çareleri körüldi.
 
@@ -22,8 +22,8 @@ Vadim Semönoviçni kişilerniñ közü ögünde azarlay, mashara ete.
 Vadim Semönoviç ise omuzlarını qısa — bir şey aytmay.
 
 — Niçün indemeysiñiz?
-Niçün boynuñıznı qısa beresiñiz?— dep cekire Torizo onıñ üstüne,— grafigiñiz qayda?
-Kene..."maña munasebeti yoq sebeplerden ötrü bozuldı" demek isteysiñizmi?
+Niçün boynuñıznı qısa beresiñiz? — dep cekire Torizo onıñ üstüne,— grafigiñiz qayda?
+Kene... "maña munasebeti yoq sebeplerden ötrü bozuldı" demek isteysiñizmi?
 
 Vadim Semönoviç susa — indemey.
 
@@ -35,12 +35,12 @@ Bu nasıl mesuliyetsizlik?
 
 Krasnânskayanı qıdırmağa bir qaç adamnı birden yolladı.
 Episi tapalmay qaytıp keldiler.
-Anna Yakovlevna Baş Dugümde yoq edi.
+Anna Yakovlevna Baş Dügümde yoq edi.
 Soñundan añlaşıldı...
 Curayevnen beraber eki köpçekli arabağa minip, qışlaqqa ketkenler.
 Aydavcı bile almağanlar.
 
-— Mesuliyetsizlik... ziyankârlıq,— dep qıçırdı Torizo Seyaatqa ketmek kerek olğan!
+— Mesüliyetsizlik... ziyankârlıq,— dep qıçırdı Torizo.- Seyaatqa ketmek kerek olğan!
 Böyle vaqıtta...
 
 Vadim Semönoviçni kotlovanda qaldırıp, özü barot çapçağı alıp, İskander betke cönedi.
@@ -109,7 +109,7 @@ Qomşu kolhoz adamlarına şay dey edik.
 Kelgen kişiler bizim çalışqanımızğa baqıp turdı, soñ taşlarnıñ üstüne oturıp, laqırdı ettiler.
 Soñ bizden — bu eki kestirme arasında qalğan suv ne qadar vaqıt içinde boşatılıp bitirilecegini soradılar.
 Karnokeryan olarğa meseleni añlattı... amma yigitler onıñ lafından çoq şey añlamağan kibi köründiler.
-"Diametr, taziq, surat..." — kişiler ağızlarını açıp, diñlep oturdılar.
+"Diametr, taziyıq, surat..." — kişiler ağızlarını açıp, diñlep oturdılar.
 Karnakeryan ğaliba, olarğa körünmek istedi.
 Men laqırdığa kiriştim.
 Toqtabayev aqqında söyledim, bir vaqıtlarda geologlar bu yerlerde ilki palatalarnı qurıp, Çar-Çaq plotinası içün topraqnı tedqiq etkenlerini, Toqtabayevniñ apansızdan uçurımdan yuvarlanıp özenge tüşkenini ikâye ettim.
@@ -204,7 +204,7 @@ Men rubilnikni tüzettim, qayışnı valikke keçirdim.
 Soñ Karnakeryan rubilnikni keçirdi — tulumba vıñıldap aldı, niayet, motor areketke keldi.
 Karnakeryan, qapuğa top urğan futbolcı kibi, delice sevinerek meni quçaqladı, çekkeledi, çamur içinde yıqıla yazdıq.
 
-— Stantsiya azır... añladıñmı?— dep qıçırdı o, alâ meni boşamayıp, — bunı tek biz... seniñ ile ekimiz yapa bildik!
+— Stantsiya azır... añladıñmı? — dep qıçırdı o, alâ meni boşamayıp, — bunı tek biz... seniñ ile ekimiz yapa bildik!
 
 Motor işley berdi... pişkekler biraz alışsınlar.
 Qulaqlarımıznı yaqın ketirip, olarnıñ iñiltisini diñlep baqtıq, ziyansız!
@@ -364,7 +364,7 @@ Meseleniñ aqibetini bilmek kerek edi.
 — Daa?..
 Tursunov, kişilerniñ fikirlerine qarşı ketmege mecbur olğanını ayttı.
 Men ne gaip etkenimni bilem, dedi...
-Añladıñmı, Bekirov O ne ğaip etkenini bile eken?
+Añladıñmı, Bekirov O ne ğayıip etkenini bile eken?
 Lâkin, er alde, meselege qarşı çıqtı.
 Bundan añladım ki, biz epimiz yañlışqanmız, tek Tursunov aqlı eken.
 Ya barıp da qaza olğan olsa?
@@ -480,7 +480,7 @@ Aç qalırsıñ.
 — Çal!
 Yırla!
 
-— Seni añlamaq qıyın!— Hristofor yekâne közünen hucur-hucur baqtı.
+— Seni añlamaq qıyın! — Hristofor yekâne közünen hucur-hucur baqtı.
 — De öylesiñ!
 De böyle.
 Seni ne tişledi?
@@ -506,7 +506,7 @@ Lâkin, qıymetli dost, biz başqa şey de işittik.
 
 — Kim?! — bedenime keskin demir sançılğan kibi oldı.
 Özümni ğaip ete başladım.
-—Kim?
+— Kim?
 Kim?
 
 — Sen qıçırma,— dedi Hristofor.
@@ -526,7 +526,7 @@ Soyunıp, yattım.
 Aqşamnı ve geceni yuqlap keçirdim.
 Saba açıqıp uyandım.
 
-— Bugün er kesten evel keldiñ, hayır ola!— dedi Sabira hala.
+— Bugün er kesten evel keldiñ, hayır ola! — dedi Sabira hala.
 Lağmandan soñ maña teneke qalaynı toldırıp çay berdi,— çırayıñ niçün sıtıq?
 İşke keteyatasıñmı, yoqsa keldiñmi?
 
