@@ -23,13 +23,18 @@ async function run() {
         const issues = await getIssues(octokit, owner, repo)
         const data = await getSyncedFileList(issues, metaFiles)
 
+        mixWithFiles(data, 'crh')
+        mixWithFiles(data, 'crh-RU')
+        mixWithFiles(data, 'crh-Cyrl')
+
         const targetDir = path.join(process.cwd(), 'target')
         if (fs.existsSync(targetDir)) {
             fs.rmSync(targetDir, { recursive: true })
         }
         fs.mkdirSync(targetDir, { recursive: true })
 
-        generateSource(path.join(targetDir, 'generated'), data)
+        generateSource(path.join(targetDir, 'generated'), data, 'crh-RU')
+        generateSource(path.join(targetDir, 'generated'), data, 'crh-Cyrl')
         // Rename crh-RU to crh-Cyrl [https://datatracker.ietf.org/doc/html/rfc5646]
         // renameCyrillicSource(path.join(targetDir, 'generated'), data)
 
@@ -40,15 +45,60 @@ async function run() {
 }
 
 function filterNoCyrillic(item) {
-    return item.lang !== 'crh-RU'
+    return item.lang !== 'crh-RU' && item.lang !== 'crh-Cyrl'
 }
 
-function generateSource(generatedDir, data) {
+function getMetaFromFilename(filename) {
+    const reFile = new RegExp(/(?:(?<author>.+)__)?(?<title>.+)\.[^\.]+\.md$/, 'i')
+    const meta = {
+        author: '-',
+        title: '-'
+    }
+
+    const basefile = path.basename(filename)
+    const found = basefile.match(reFile)
+
+    if (found === null) {
+        return meta
+    }
+
+    const {author, title} = found.groups
+    if (author) {
+        meta.author = author
+    }
+    if (title) {
+        meta.title = title
+    }
+
+    return meta
+}
+
+function mixWithFiles(data, pattern_lang) {
+    const sourceFiles = glob.sync(`**/*.${pattern_lang}.md`, {realpath: true})
+
+    for (const sourceFile of sourceFiles) {
+        if (data.find((item) => item.filename === sourceFile)) {
+            continue
+        }
+
+        const meta = getMetaFromFilename(sourceFile)
+        data.push({
+            filename: sourceFile,
+            author: meta.author,
+            title: meta.title,
+            year: '-',
+            lang: pattern_lang
+        })
+    }
+}
+
+function generateSource(generatedDir, data, from_lang) {
+    const reFileExt = new RegExp(`\\.${from_lang}\\.md$`, 'i')
     // Create generated dir
     fs.mkdirSync(generatedDir, {recursive: true})
 
-    for (const interim of data.filter((item) => item.lang === 'crh-RU')) {
-        const findFilename = interim.filename.replace(/\.crh-RU\.md$/, '.crh.md')
+    for (const interim of data.filter((item) => item.lang === from_lang)) {
+        const findFilename = interim.filename.replace(reFileExt, '.crh.md')
         if (data.find((item) => item.filename === findFilename)) {
             continue
         }
