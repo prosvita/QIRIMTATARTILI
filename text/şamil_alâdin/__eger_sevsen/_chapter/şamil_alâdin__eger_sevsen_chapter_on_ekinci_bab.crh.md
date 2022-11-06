@@ -11,7 +11,7 @@ Nikolay, üyken nijnik olğanı içün, bizden qırq kümüş ziyade ala.
 Men kelgenimden beri üçünci defa maaş alayatam.
 Eki ay, bir kün kibi, keldi-keçti.
 
-Bugün smenanı teslim eteyatqan vaqıtımızda, Toqtabayev iri, etli köz qapaqlarını aqırından aralıq etip, külümsiredi.
+Bugün smenanı teslim eteyatqan vaqtımızda, Toqtabayev iri, etli köz qapaqlarını aqırından aralıq etip, külümsiredi.
 Aralıq etkende, közleri eki dane üçköşe quvuş şeklini aldılar.
 
 — Suqlanam sizge! — dedi o Almazovqa,— eki kün, bir gece istraat eteceksiñiz!
