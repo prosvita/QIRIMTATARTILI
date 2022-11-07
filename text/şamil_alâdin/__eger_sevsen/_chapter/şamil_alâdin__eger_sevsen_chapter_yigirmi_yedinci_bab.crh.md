@@ -123,7 +123,7 @@ Anna Yakovlevna endi mında yoq.
 Anda da aynı işte.
 Bizimkinden bir qaç kere büyük…— şay dep, Curayev sustı ve birazdan soñ ilâve etti. — Onıñnen çalışmaq qolay degil edi.
 %
-Başqasınıñ işinden degil, özüniñkinden şübelene turğan.
+Başqasınıñ işinden degil, özüniñkinden şubelene turğan.
 %
 
 Curayevniñ hatirine başqa şey tüşse kerek, külümsiredi.
@@ -140,7 +140,7 @@ Kommunistik cemiyet — umumiy cemiyet, yani topraq, istisal, emek — episi umu
 %
 
 %
-Amma men demir yolda doğdım.
+Amma men demiryolda doğdım.
 Yigirmi ekinci post.
 %
 Ursatyevskniñ artında.
