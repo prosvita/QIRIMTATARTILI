@@ -381,7 +381,7 @@ He had been in it and he had watched it and it was his duty to write of it; but 
 
 She had come out from the tent now after her bath.
 
--Good.
+- Good.
 
 "Could you eat now?"
 
