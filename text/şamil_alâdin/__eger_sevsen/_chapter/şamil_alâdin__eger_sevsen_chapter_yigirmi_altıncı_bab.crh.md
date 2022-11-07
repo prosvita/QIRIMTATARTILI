@@ -31,7 +31,7 @@ Vadim Semönoviç susa — indemey.
 Oña telefon etmek mümkünmi?
 Yoq?
 Mümkün degil?
-Bu nasıl mesuliyetsizlik?
+Bu nasıl mesüliyetsizlik?
 
 Krasnânskayanı qıdırmağa bir qaç adamnı birden yolladı.
 Episi tapalmay qaytıp keldiler.
