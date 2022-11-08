@@ -487,7 +487,7 @@ Añlamadı.
 Soñ yanıma kelip oturdı.
 
 — Sizge ne oldı, Cevdet aka?
-Keyfiñiz yoqmı?— dep soradı menden.
+Keyfiñiz yoqmı? — dep soradı menden.
 — Bir şey aşamaysıñız. — Ögüme sıcaq qartop ezmesi tolu çanaqnı sürdi.
 Zornen de olsa, kene qapındım.
 Karamat türtip qaşıqnı polğa tüşürdi, egilip onı ala-yata edim, qulağıma gizliden: "İrada sizni bekley..." dep fısıldadı, ketip tekrar Karimniñ yanına oturdı.
@@ -507,7 +507,7 @@ Kuhnânıñ ögünden keçeyatqanda omuzım apansızdan Yekaterina Vasilyevnanı
 Men indemedim.
 O keyfim bozuq ekenini sezdi.
 
-— Oturt onı bu yerge!— dedi Nikolayğa, urba asqıçı yanındaki sandıqnı körsetip,— men şimdi ilâc taparım.
+— Oturt onı bu yerge! — dedi Nikolayğa, urba asqıçı yanındaki sandıqnı körsetip,— men şimdi ilâc taparım.
 
 Yarım daqiqa keçmedi, naşatırlı spirtke beñzer bir stakan yıltıravuq beyaz suv ketirdi.
 Qaç daqiqadan soñ, yüzümde küçük ter tamçıları asıl oldılar.
