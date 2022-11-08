@@ -6,7 +6,7 @@ Tışarıda qaranlıq.
 Turdım, soñ tekrar koykanıñ üstüne oturdım.
 Bugün...
 "kanalda ekskavatorcılar içün iş yoq".
-Toyğanca yuqlamaq mümkün.
+Toyğance yuqlamaq mümkün.
 Lâkin bizim ekipaj içün degil.
 Bizge büyük iş avale etildi.
 Biz Çar-Çaqtan aylanma kanalğa suv yiberecekmiz.
@@ -26,13 +26,13 @@ Kotlovanda demir yol qurayatqan kişilerniñ ve traktorlarnıñ davuşları qula
 
 Tar topraq yolağından eki kovş topraq alıp, suvnı aylanma kanalğa yiberüv şerefi Andrey Zaharoviçke ve maña — ekimizge tüşti.
 Men bugün onıñ yardımcısım.
-Eski manadki yardımcısı degil, menim mustaqil maşinist olıp çalışa başlağanım endi beşçinci kün.
+Eski manadki yardımcısı degil, menim mustaqil maşinist olıp çalışa başlağanım endi beşinci kün.
 Bugün men meşur maşinistniñ yardımcısım.
 Tek bugün.
 İşke ertece keleyiim, dedim.
 Almazov endi mında edi.
 
-— Ne keldiñ?— dep soradı menden,— yuquñ qaçtımı?
+— Ne keldiñ? — dep soradı menden,— yuquñ qaçtımı?
 Bar, dizel tulumbasını teşker!
 
 Maşinanıñ astına kirdim.
@@ -49,7 +49,7 @@ Eki başlı adammı (Karim ve Raşid) çeşit nefis eserler.
 Şimdi esledim.
 Yahşı ki, esledim!
 Musafirler kelip körgen olsalar?
-Deyocegim, episini silip aldım.
+Deycegim, episini silip aldım.
 
 Bassaraba keldi: açuvlı, darğın...
 Çırayına baqılmay.
@@ -57,7 +57,7 @@ Maña selâm bermedi, yüzüme baqmadı.
 Karimden: bu ne demek ola?-dep soradım.
 Saba onı uyantmay ketkenim içün eken!
 
-— Açuvlanmağa ne bar?— dedim Bassarabağa — Biraz raatlandıñ.
+— Açuvlanmağa ne bar? — dedim Bassarabağa. — Biraz raatlandıñ.
 Güzel oldı.
 Ondan soñ..men siziñ dayañız degilim.
 Özüñiz uyanıñız!
@@ -71,12 +71,12 @@ Olar da maña açuvlılar: "niçün uyantmadıñ?"
 
 Saat sekizde Krasnânskaya ve Curayev peyda oldılar.
 
-— Maşinanı teşkerdiñizmi?— dep soradı Curayev.
+— Maşinanı teşkerdiñizmi? — dep soradı Curayev.
 
 — Ne?
-Maşinanı teşkerdiñizmi?— Almazov onıñ sözlerini tekrarlap, küldi.
+Maşinanı teşkerdiñizmi? — Almazov onıñ sözlerini tekrarlap, küldi.
 
-— Men sizden sorayım!— dedi Curayev.
+— Men sizden sorayım! — dedi Curayev.
 
 — Men de sizden sorayım,— dedi Almazov.
 Kene küldi.
@@ -90,9 +90,9 @@ Pişkek alqalarını mutlaqa deñiştirmek kerek...— Almazovnıñ sözüni bö
 
 Böyle eken, maşinanıñ sağ kögertesi astından Mansurov çıqtı.
 
-— Ekskavatornı teşkerdiñizmi?— dep soradı o, Almazovdan.
+— Ekskavatornı teşkerdiñizmi? — dep soradı o, Almazovdan.
 
-— Ya siz maşinanı teşkerdiñizmi?— Almazov, cevap yerine, oña sual berdi.
+— Ya siz maşinanı teşkerdiñizmi? — Almazov, cevap yerine, oña sual berdi.
 
 Er kes külüşti.
 Başqa vaqıt olsa böyle cevap içün Mansurov, Almazovnı tınçıqtırır edi.
@@ -123,11 +123,11 @@ Smena injenerlerinden eñ keç kelgen İrada oldı.
 Oña aşıqmağa şey yoq edi.
 Er kesnen selâmlaşıp çıqtı, soñ maşina bölügine, menim yanıma keldi.
 
-— Maşinanı teşkerdiñizmi?— dep soradı o. 
+— Maşinanı teşkerdiñizmi? — dep soradı o.
 Men oña, bu sualniñ Almazovqa endi pek çoq seferler berilgenini ve Almazovnıñ ne cevap, bergenini ayttım, soñ küldim.
 O da küldi.
 
-— Ya sizge?— dedi İrada,— sizge qaç adam sual berdi?
+— Ya sizge? — dedi İrada,— sizge qaç adam sual berdi?
 
 — Siz!
 Yalıñız siz!
@@ -138,13 +138,13 @@ Daa maña darılasıñız, Cevdet!
 Men eecanlandım, bedenim terlep ketti.
 "İrada!
 Sevimli İrada!
-Sen ne qadar güzelsiñ!" Az qaldı, qıçırıp yibera yazdım.
+Sen ne qadar güzelsiñ!" Az qaldı, qıçırıp yiberе yazdım.
 Bu arada Andrey Zaharoviç maña parmağını köterdi.
 Tışqı kögertege çıqtım.
 Kovşnı tekrar teşkermege qarar berdik.
 Bu işnen meşğul vaqıtımızda aylanma kanalnıñ kenarında adamlar daa arttı.
 
-Ekskavatornıñ artında, yüksek çetinde yeñi klubımıznıñ orkestri yerleşken.
+Ekskavatornıñ artında, yüksek çetinde yeñi klubumıznıñ orkestri yerleşken.
 Onıñ çalğanını işitmegen edik.
 
 Klarnet, bariton, alt... davuşları kiyikçe.
@@ -163,20 +163,20 @@ De işte, de baraklarda...
 Lâkin klub qurulıp bitkenini duymay qalğanım.
 Tek men degil.
 Kimse duyğanı yoq.
-Kerçek, pollarına daa tahta töşelmegen, pencereleriniñ camları qoyılmağan, amma orkestr azır.
+Kerçek, pollarına daa tahta töşelmegen, pencereleriniñ camları qoyulmağan, amma orkestr azır.
 İşçi komiteti hadimleri çeşit renklerde plakatlar alıp çıqtılar.
 Üstünde büyük plotinanıñ resimi...
 Artında pamuq tarlaları, elektrik direkleri ve telleri.
 Men bugün erte turdım, İrada ise asılda yuqlamağanğa beñzey.
 Karamat klubda İradanıñ birinci yardımcısı.
-Şimdi plakatlarnı asmağa yer körsete, orkestrni uçurım betten tursatıp, qarağaç astında yerleş-tireyata.
+Şimdi plakatlarnı asmağa yer körsete, orkestrni uçurım betten tursatıp, qarağaç astında yerleştireyata.
 Bu da büyük iş.
 Karamat sıqılmay.
 Cesür emirler bere.
 İcrasını talap ete.
 
 İskanderniñ işçileri maşinalarğa tolıp keldiler.
-Bizim adamlar Görkiy avtozavodında ilki çıqarılğan bu bir buçuq tonnalıq maşinalarnı sarıp aldılar, orkestr guruldete berip marş çaldı.
+Bizim adamlar Görkiy avtozavodında ilki çıqarılğan bu bir buçuq tonnalıq maşinalarnı sarıp aldılar, orkestr gürüldete berip marş çaldı.
 Bayram ekeni sezildi.
 Adamlar bizim ekskavatornıñ yanında toplandılar.
 Men kögertede turıp, parom betke köz etem: yengil maşinalar körünmeylermi aceba?
@@ -222,7 +222,7 @@ Er kesniñ familiyasını ezberden söyledi... kâğıtqa baqmadı.
 Başqaları da öyle...
 Çar-Çaq üzerinden ğalip kelüvimiz ve erlik, cesürlik körsetüvimiz içün bizni tekrar-tekrar hayırladılar.
 
-Men ekskavatornıñ kögertesinde turıp, nutqlarnı eecanle diñledim.
+Men ekskavatornıñ kögertesinde turıp, nutqlarnı eуecanle diñledim.
 Bu yerde olayatqan şeylerniñ episi menim ömürim.
 
 Turğan yerimde aqılıma rubilnik tüşti.
@@ -235,10 +235,10 @@ Yoq, iliklerni ta, saba kelgenim kibi temizlep qoyğanım.
 Bu kim içün aceba?
 Qapunı aralıq etip baqtım.
 Minberde qısqa, süyrü saqallı kişi...
-Yoldaş Ahunbabayev nutq söylemekte.
+Yoldaş Ahunbabayev nutuq söylemekte.
 
 — Çar-Çaq işçileri aylanma kanalnı qurıp bitirdiler.
-Bu — büyük ğalebe,— dedi o,— yarım plotina qurıcılığı başlaycaq.
+Bu — büyük ğalebe,— dedi o,— yarın plotina qurıcılığı başlaycaq.
 Tezden Çar-Çaq yalısındaki ufaq qışlaqlar yerine büyük şeerler ve zavodlar peyda olacaqlar.
 Pamuq çölleri suv ve mineral kübrenen temin etilecek.
 Derivatsion kanal boyunda gidroelektrostantsiyalar kaskadı usulge ketirilecek.
@@ -253,14 +253,14 @@ Ahunbabayevniñ sözleri alğışlar içine kömüldiler.
 Orkestr "İnternatsional" çaldı.
 Bu arada Almazov, Krasnânskayanıñ işmar etkenini körip, elini rıçagğa bastı, yelquvan sol tarafqa çevirildi.
 Avada asılı qalğan kovş yavaş-yavaş aşağı endi, tişlerini, aylanma kanalnı özenden ayırğan tar topraq yolağına batqızdı.
-Kişiler eecan içinde sustılar.
+Kişiler eyecan içinde sustılar.
 
 Almazov köndelen çelik arqannı özüne çekkeni kibi, Çar-Çaqnıñ sailine tiklendi... açuvlanıp, ökürip bentten aşağı sıçradı, aylanma kanalnıñ astına tüşken soñ toqtaldı, aylandı-üyrüldi, yüksek divarlarğa çapqıldı, qaynadı, köpürdi, uludı, qayadan-qayağa urundı, soñ yeñi yol boyu ileri ıntıldı.
 
-İş böyle eken, adamlarnıñ arqa tarafında, topraq yığını çetinde yük maşinası kelip toq tağanını kimse duymadı.
+İş böyle eken, adamlarnıñ arqa tarafında, topraq yığını çetinde yük maşinası kelip toqtağanını kimse duymadı.
 
 — Cevdet!
-Mında kel!— dep qıçırdı kimdir.
+Mında kel! — dep qıçırdı kimdir.
 
 Baqtım, kuzov üstünde Kandıba.
 Maşinağa çaptım.
@@ -270,11 +270,11 @@ Nikolaynen ekimiz onı qoltuqlap aldıq.
 
 İrada bizni eslegen.
 
-— Hristofor!— dep qıçırdı uzaqtan. 
+— Hristofor! — dep qıçırdı uzaqtan.
 Elleri açıq alda çapıp keldi, Hristofornı quçaqladı, yanağından öpti.
 
 — Keldiñizmi, qıymetli Hristofor?
-Keldiñizmi?— dep tekrarladı o.
+Keldiñizmi? — dep tekrarladı o.
 — Ne qadar güzel.
 Sizni yiberdilermi?
 
@@ -335,7 +335,7 @@ Bu arada qadınlar kuhnâda ve köridorda qarıştı, çapqaladılar.
 
 İçeri kirip, oturdıq degende, Karim peyda oldı.
 Onı Yekaterina Vasilyevna özü çıqıp qarşılap aldı.
-Köridor içinde toqtatıp, yanağından öpti, gizliden maña köz qıptı: "o vaqıtta saña da böyle yapqan edim... soñ, ne oldı?Öldüñmi bundan?" demek istedi.
+Köridor içinde toqtatıp, yanağından öpti, gizliden maña köz qıptı: "o vaqıtta saña da böyle yapqan edim... soñ, ne oldı? Öldüñmi bundan?" demek istedi.
 
 — Va-ay, Karim!— dep qıçırdı Yekaterina Vasilyevna. — Tıpqı maşinistniñ özü olğansıñ.
 %
