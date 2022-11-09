@@ -8,12 +8,12 @@ Başqa şey yoq.
 Taze bir şeyler tüşünip çıqarmaq kerek.
 Nijniklerniñ ve maşinistlerniñ ayrı-ayrı olıp keçken muşaverelerinde bu hususta laqırdılar oldı.
 İrada er kün iş vaqtında bizge kelip, hronometrajnı eksiltip kete edi.
-Aqibeti, tenefüssiz çalışmağa qarar berdik.
+Aqibeti, teneffüssiz çalışmağa qarar berdik.
 Bizge aşhaneden lağman, ürük qoşafı ve çay ketireler.
 Bir çanaq lağmannı aşap bitirmek içün üç daqiqa vaqıt kerek, lâkin üç daqiqa içinde meşrebe içindeki çay suvıp qala, çünki aşhaneden ketirile.
 Cepke bir qaç kesek ötmek qoyıp, soñundan aşamağa da mümkün.
 Qısqası, üylelik tenefüs beş daqiqadan çoqqa barmay.
-Biz birinci künlerde yeñi plan normalarını toldıramadıq.
+Biz birinci künlerde yeñi plan normalarını tolduramadıq.
 Elbette, üylelik teneffüs vaqtında çalışqanda eppi işler yapa bildik, lâkin bu, teessüf ki, eppiy işler... edi.
 
 Bassaraba aqşamları barakta körüşkende "işler yahşı..." dep taşlay, men bala kibi sevine edim.
