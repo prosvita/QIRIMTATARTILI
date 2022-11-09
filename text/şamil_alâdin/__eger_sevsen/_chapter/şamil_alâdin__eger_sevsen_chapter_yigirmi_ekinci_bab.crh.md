@@ -26,10 +26,10 @@ Kotlovanda demir yol qurayatqan kişilerniñ ve traktorlarnıñ davuşları qula
 
 Tar topraq yolağından eki kovş topraq alıp, suvnı aylanma kanalğa yiberüv şerefi Andrey Zaharoviçke ve maña — ekimizge tüşti.
 Men bugün onıñ yardımcısım.
-Eski manadki yardımcısı degil, menim mustaqil maşinist olıp çalışa başlağanım endi beşinci kün.
+Eski maşnadaki yardımcısı degil, menim mustaqil maşinist olıp çalışa başlağanım endi beşinci kün.
 Bugün men meşur maşinistniñ yardımcısım.
 Tek bugün.
-İşke ertece keleyiim, dedim.
+İşke ertece keleyim, dedim.
 Almazov endi mında edi.
 
 — Ne keldiñ? — dep soradı menden,— yuquñ qaçtımı?
@@ -54,12 +54,12 @@ Deycegim, episini silip aldım.
 Bassaraba keldi: açuvlı, darğın...
 Çırayına baqılmay.
 Maña selâm bermedi, yüzüme baqmadı.
-Karimden: bu ne demek ola?-dep soradım.
+Karimden: bu ne demek ola? - dep soradım.
 Saba onı uyantmay ketkenim içün eken!
 
 — Açuvlanmağa ne bar? — dedim Bassarabağa. — Biraz raatlandıñ.
 Güzel oldı.
-Ondan soñ..men siziñ dayañız degilim.
+Ondan soñ... men siziñ dayañız degilim.
 Özüñiz uyanıñız!
 
 O indemedi.
