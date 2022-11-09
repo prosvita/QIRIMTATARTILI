@@ -7,14 +7,14 @@ Bunı, tek iş saatlerini arttıruv yolunen elde etmek mümkün degil: smena kel
 Başqa şey yoq.
 Taze bir şeyler tüşünip çıqarmaq kerek.
 Nijniklerniñ ve maşinistlerniñ ayrı-ayrı olıp keçken muşaverelerinde bu hususta laqırdılar oldı.
-İrada er kün iş vaqıtında bizge kelip, hronometrajnı eksiltip kete edi.
+İrada er kün iş vaqtında bizge kelip, hronometrajnı eksiltip kete edi.
 Aqibeti, tenefüssiz çalışmağa qarar berdik.
 Bizge aşhaneden lağman, ürük qoşafı ve çay ketireler.
 Bir çanaq lağmannı aşap bitirmek içün üç daqiqa vaqıt kerek, lâkin üç daqiqa içinde meşrebe içindeki çay suvıp qala, çünki aşhaneden ketirile.
 Cepke bir qaç kesek ötmek qoyıp, soñundan aşamağa da mümkün.
 Qısqası, üylelik tenefüs beş daqiqadan çoqqa barmay.
 Biz birinci künlerde yeñi plan normalarını toldıramadıq.
-Elbette, üylelik tenefüs vaqıtında çalışqanda eppi işler yapa bildik, lâkin bu, tessüf ki, eppiy işler... edi.
+Elbette, üylelik teneffüs vaqtında çalışqanda eppi işler yapa bildik, lâkin bu, teessüf ki, eppiy işler... edi.
 
 Bassaraba aqşamları barakta körüşkende "işler yahşı..." dep taşlay, men bala kibi sevine edim.
 
@@ -22,13 +22,13 @@ Bassaraba aqşamları barakta körüşkende "işler yahşı..." dep taşlay, men
 
 Bu sözler bizni qanaatlendire bile edimi?
 Vaqıtnı saatlergece degil, saniyelergece iqtisad etmek kerek.
-Maşinanı öyle idare etmeli ki, tsikllarnıñ mıqdarı arta bersin.
+Maşinanı öyle idare etmeli ki, tsikllarnıñ miqdarı arta bersin.
 İş tsiklları ğayet adiy areketlerden ibaret — kovşnı yerge tüşürip, töpege köterüv, içindeki topraqnı yığın üstüne yahut platformağa töküv.
 Bu operatsiyanı yarım daqiqada yapmaq mümkün.
 İş topraqnıñ keyfiyetine, kanalnıñ terenligine, elektrik küçüniñ berilüvine bağlı.
 Biz bunı, Bassaraba aytmasa da, bilemiz.
 Lâkin o ne dese, episine emiyet beremiz.
-Soñki devirde, vaqıtnı iqtisad etüvge ait kim ne söylese, episine diqqat etemiz.
+Soñki devirde, vaqıtnı iqtisat etüvge ait kim ne söylese, episine diqqat etemiz.
 Eger adam-aqıllı bir usul tüşünip çıqarmasaq, kanalnı müddetinde bitiralmaycaqmız.
 
 Karim endi barakta siyrek körüne.
@@ -37,10 +37,10 @@ Qatnaması küç.
 İster-istemez bizden köçip ketmek kerek oldı.
 Tumboçkasında şeyleri qalğan.
 Kimerde kirip çıqa.
-Bir smenada çalışamız, lâkin er kes öz işinen meşğul.
+Bir smenada çalışamız, lâkin er kes öz işinen meşğül.
 
 Karimniñ işleri, aytılacaq kibi, parlaq degil.
-O da üylelik tenefüs vaqıtında çalışa, lâkin maşinası bir qaç kere qazalandı, motorı küydi, kompressorı bozuldı — qısqası, saatlerce toqtap turdı.
+O da üylelik teneffüs vaqtında çalışa, lâkin maşinası bir qaç kere qazalandı, motorı küydi, kompressorı bozuldı — qısqası, saatlerce toqtap turdı.
 
 Mansurov bizge kelse, aşagıdan elini köterip, ekskavatornı toqtata: er bir daqiqanı, er saniyeni iqtisad etmek kerekligini añlata.
 Amma bu printsipni añlatmaq içün özü er tosatında yarım saat vaqıtımıznı ala.
