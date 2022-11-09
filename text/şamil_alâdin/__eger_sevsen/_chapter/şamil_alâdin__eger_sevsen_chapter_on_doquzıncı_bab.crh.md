@@ -133,7 +133,7 @@ Vızıldap kene aşağı tüşti.
 Tüşti degence, töpege köterildi ve keniş qulaçnen topraq yığını betke aylandı.
 İnjenerlerden biri saatke baqıp turğan eken.
 
-— Altmış eki!— dep qıçırdı.
+— Altmış eki! — dep qıçırdı.
 
 Bütün bu tsikl altmış eki saniyede eda etilgen.
 Er kes saatine baqtı.
@@ -206,7 +206,7 @@ Bir kün bizim ekskavatornıñ yanında qadalıp turdı-turdı, maña hucur-hucu
 Men öz işimnen meşğul edim.
 Bizge lağman ketirdiler Onıñnen oturıp aşadıq, miyıqlarını sileyatqanda maña:
 
-— Maddeñiz fena degil eken, Bekirov!— dep taşladı ve azaçıq külümsiredi.
+— Maddeñiz fena degil eken, Bekirov! — dep taşladı ve azaçıq külümsiredi.
 Azaçıq...
 
 Sözleriniñ manasını añlamadım.
@@ -228,21 +228,21 @@ Soñ menim elimdeki kitapnı alıp, adını oqup baqtı, külümsiredi.
 Men Zoşçenkonı oquğanda, avtor bürokratizmnen küreşe bellemey edim.
 Oquması zevqlı kele edi.
 
-— İşleriñ nasıl?— dep soradı menden Abdulla Sadıkoviç.
+— İşleriñ nasıl? — dep soradı menden Abdulla Sadıkoviç.
 
 — Sırasında,— dedim men.
-— Lâkin, afu etesiñiz, epimizni alâ yerastı kanalı meraqlandır-maqta.
+— Lâkin, afu etesiñiz, epimizni alâ yerastı kanalı meraqlandırmaqta.
 O qalıp ketecekmi?
 
 — Niçün?
-Şimdi onıñnen oğraşmağa vaqıtımız yoq.
+Şimdi onıñnen oğraşmağa vaqtımız yoq.
 Plotina bitsin...
 Soñ belki onı tedqiq etmek mümkün olur.
 Şimdi bizge bir şey belli degil.
-Belli yeri şu ki, kanal — siz özüñiz de kördiñiz — dört köşe truba şekilinde.
+Belli yeri şu ki, kanal — siz özüñiz de kördiñiz — dörtköşe truba şeklinde.
 Diametri bir buçuq metr; Hazar-Kend betten kelip, Çar-Çaq yalısı boyu yüre, aylanma kanalnıñ astından bir qaç yerde keçe ve plotina uçastkasında özenge barıp çıqa.
 
-— Onı kim qurğan?— dep soradım men.
+— Onı kim qurğan? — dep soradım men.
 
 — Emiyeti yoq,— dep cevap berdi Mansurov. — Asaratiqacılar oğraşsınlar.
 
@@ -253,7 +253,7 @@ Onı nasıl toqtatmaq mümkün?
 Biz — ekskavatorcılarmız... añladıñmı?
 Aylanma kanalnı nasıl qazıp kelgen olsaq, öyle devam etecekmiz,— dedi Mansurov,— yapılğan iş yapılğan.
 
-— Kanal İskanderniñ devirinden qalğan, deyler.
+— Kanal İskanderniñ devrinden qalğan, deyler.
 Doğrumı?
 
 Mansurov özüniñ şayna da tar közlerini qısıp, maña tiklenip baqtı.
@@ -262,7 +262,7 @@ O açuvlandı, dudaqlarını salındırdı.
 
 — İskander?
 Olmaycaq şey.
-Kanal, fikirimce, ind eserlerniñ qollarınen yasalğan,— soñra maña pek yaqın kelip, qulağıma yavaştan dedi:
+Kanal, fikrimce, ind eserlerniñ qollarınen yasalğan,— soñra maña pek yaqın kelip, qulağıma yavaştan dedi:
 — Doğrusını söyle, dostım, arañızda bir şeyler oldımı?
 
 Öyle degeni de ne edi... bilmeyim.
@@ -277,7 +277,7 @@ Men sizge yemin ettim...
 — Kerçekmi?
 
 — Yalan aytmağa ne acet?
-Zembilni alıp ket dedi Alıp kettim.
+Zembilni alıp ket dedi. Alıp kettim.
 Özü yanağımdan şap etip öpti.
 Teşekkür yerine... dedi.
 Soñ borşç berdi.
@@ -301,5 +301,5 @@ Seniñ aytqanlarıña, doğrusını aytsam, başta inana qoymadım.
 Niçün inanmadıñız?
 
 — Çünki seniñ İradañ deli!
-Özüñ de aqıldan pek bay degilsin!
+Özüñ de aqıldan pek bay degilsiñ!
 Oña bularnı añlatmaq kerek ediñ...
