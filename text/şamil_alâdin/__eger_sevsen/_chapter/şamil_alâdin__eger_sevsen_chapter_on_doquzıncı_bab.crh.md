@@ -137,9 +137,9 @@ Tüşti degence, töpege köterildi ve keniş qulaçnen topraq yığını betke 
 
 Bütün bu tsikl altmış eki saniyede eda etilgen.
 Er kes saatine baqtı.
-Tsikl ketken sayın az vaq-ıtta eda etile berdi.
+Tsikl ketken sayın az vaqıtta eda etile berdi.
 
-— Endi elli dört saniye!— dep qıçırdı Curayev.
+— Endi elli dört saniye! — dep qıçırdı Curayev.
 
 — Elli eki!
 
@@ -183,7 +183,7 @@ Meseleni yerastı kanalı mürekkeplendirdi.
 
 Bir defa Mansurovdan:
 
-— Aylanma kanal tezden bitecek, yerastı kanalı ne olacaq?— dep soradım.
+— Aylanma kanal tezden bitecek, yerastı kanalı ne olacaq? — dep soradım.
 
 — Yer üstü kanalıñıznı qaza beriñiz,— dedi maña.
 "Bugün ekskavatorlar başlığınıñ keyfi yoq..." dep tüşündim.
