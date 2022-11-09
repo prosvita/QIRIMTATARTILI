@@ -43,14 +43,14 @@ Karimniñ işleri, aytılacaq kibi, parlaq degil.
 O da üylelik teneffüs vaqtında çalışa, lâkin maşinası bir qaç kere qazalandı, motorı küydi, kompressorı bozuldı — qısqası, saatlerce toqtap turdı.
 
 Mansurov bizge kelse, aşagıdan elini köterip, ekskavatornı toqtata: er bir daqiqanı, er saniyeni iqtisad etmek kerekligini añlata.
-Amma bu printsipni añlatmaq içün özü er tosatında yarım saat vaqıtımıznı ala.
+Amma bu printsipni añlatmaq içün özü er tosatında yarım saat vaqtımıznı ala.
 
-— Başqasına... başqasına aytıñız!— dey Almazov,— bizge izzat kerekmey!
+— Başqasına... başqasına aytıñız! — dey Almazov,— bizge izzat kerekmey!
 
 Mansurov vaqıtnı iqtisad içün maşinistlerni tenbiley.
 Yardım?
 Yardım yoq.
-Saqalı öskün, özü azğın-tozğın bizim Toqtabayev, üç maşinistni öz kefaletine alıp, üç smena vaqıtında maşinanı toqtavsız işletüvni ve vaqıtnı iqtisad etüvni ögretti.
+Saqalı öskün, özü azğın-tozğın bizim Toqtabayev, üç maşinistni öz kefaletine alıp, üç smena vaqıtında maşinanı toqtavsız işletüvni ve vaqıtnı iqtisat etüvni ögretti.
 
 Bir kere Karim barakqa keldi.
 Er kesniñ elini aldı, Nikolaynıñ krovatı üstüne oturdı, epimizni közden keçirgen soñ tınç davuşnen dedi:
@@ -61,7 +61,7 @@ Kanalnı, Sergo istegen müddet içinde bitirmek mümkün.
 — Ne taptıñ?
 
 — Mümkün!
-Mümkün...— dep tekrarladı Karim,— yakında tüşünip taptım.
+Mümkün...— dep tekrarladı Karim,— yaqında tüşünip taptım.
 Eki saat evelsi.
 
 O cebinden bir tabaq kâğıt çıqarıp stol üstüne qoydı.
@@ -73,15 +73,15 @@ Tros yahşı olsa, üzülmez...
 Bizdeki troslar niçün üzüle bereler?
 Kovş taşqa iliştimi, üzülip kete.
 Amma bazı ekskavatorlarda tros bir yıl içinde bir kere üzülmey.
-Men rıçagnı tutqanda, kovşnıñ ne vaziyette ekenini, avuçımnıñ sarsın-tısından duyam.
+Men rıçagnı tutqanda, kovşnıñ ne vaziyette ekenini, avuçımnıñ sarsıntısından duyam.
 Tros ayaq damarı kibi tartılıp qaldımı, demek, bir şeyge ilişti.
-— O Nikolaynıñ yüzüne cılp etip baqtı: — öyle degilmi?
+ O, Nikolaynıñ yüzüne cılp etip baqtı: — öyle degilmi?
 
 Soñ er kes öz bilgenini ayttı.
 Ğala-ğula köçti.
 Elbette, bu, işni çabikletmek içün yapılğan şey.
 Sade, açıq ve er keske añlayışlı iş.
-Bu vaqıtqa qadar aqılımızğa kelmegeni… taacipli şey!?
+Bu vaqıtqa qadar aqlımızğa kelmegeni… taacipli şey!?
 Lâkin böyle büyük kovş qayda?
 Bizdeki kovşnı büyültmek mümkünmi?
 
@@ -94,7 +94,7 @@ Közleriniñ astında mos-mor daireler.
 
 — Komsomol komitetiniñ meclisine Tursunov arqadaşnı da davet ettim,— dedi İrada ve Tursunovqa köz etip, azaçıq külümsiredi.
 O da kulümsiredi,— olar...
-Curayev ve Tursunov ciddiy işnen meşğuller.
+Curayev ve Tursunov ciddiy işnen meşğüller.
 Elektrik stantsiyası donatmasınıñ montajı ve başqa acele vazifeler... lâkin konstruktsiya meselesinde bizge yardım eteceklerine şübe yoq.
 
 "Nasıl konstruktsiya?
@@ -102,7 +102,7 @@ Buña Tursunovnıñ ne alâqası bar?" — dep tüşündim men.
 Soñ Curayev keldi.
 O Taşkentke telefon etken.
 Komsomol Merkeziy Komiteti Çar-Çaq komsomollarınıñ teklifini tadbiq işini öz şefligine alğan.
-Yeñi kovşnıñ çatqısı azır olğan soñ, zavodda acele surette böyle on dane kovş yasatıp barmekni işandırğan.
+Yeñi kovşnıñ çatqısı azır olğan soñ, zavodda acele surette böyle on dane kovş yasatıp bermekni işandırğan.
 
 Karimniñ adiy fikiri onlarca, yüzlerce injenerlerniñ, tehniklerniñ, proyektçilerniñ ve, niayet, işçilerniñ miylerini qozğadı.
 
