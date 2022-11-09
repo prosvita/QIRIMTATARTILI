@@ -208,7 +208,7 @@ Mansurov ekskavator üstünden yerge sıçradı, tribunağa çapıp ketti.
 
 Birinci maşinadan Yoldaş Ahunbabayev çıqtı.
 Ekincisinden Torizo...
-Çoqtan-çoq musafirler:halq komissarları, alimler, zavod işçileri.
+Çoqtan-çoq musafirler: halq komissarları, alimler, zavod işçileri.
 Olar minber yanına keldi, bizimnen selâmlaştılar.
 Curayev şapkasını töpege köterip, salladı.
 Halq tındı.
@@ -312,12 +312,12 @@ Yeşil çardıvar ögünde Andrey Zaharoviç toqtadı.
 Bu — onıñ evi ekenini bizge añlatmağa tutunğanda, qapu açıldı.
 
 — Beki-rov!
-Sizni mında nasıl yeller alıp keldi?— dedi qadın sesi.
+Sizni mında nasıl yeller alıp keldi? — dedi qadın sesi.
 Baqsam, Yekaterina Vasilevna, üstünde yeñsiz, qısqa anter.
 — Ne öyle baqasıñız?
 Tanımaysıñızmı?
 
-— Buyur, Cevdet!— Andrey Zaharoviç, Yekaterina Vasilyevnanı çetke çekip, kirmege yol açtı,— bu menim evim.
+— Buyur, Cevdet! — Andrey Zaharoviç, Yekaterina Vasilyevnanı çetke çekip, kirmege yol açtı,— bu menim evim.
 Katâ qomşumız.
 
 Sofa içinde Mansurov köründi.
@@ -327,7 +327,7 @@ Seniñki — menimki yoq.
 Kerçekten de.
 Tünevin işten soñ ştanımnı qurutmaq içün peçkanıñ yanında çüyge asıp qoyğan edim, Andrey kiyip ketken.
 Men de tutqanım, onıñkini kiygenim.
-Bütün kün ceblerimde papiros qıdırıp yurdim, üstümdeki başqasınıñ ştanı ekenini bilmedim.
+Bütün kün ceblerimde papiros qıdırıp yürdim, üstümdeki başqasınıñ ştanı ekenini bilmedim.
 
 Soyundıq, ellerimizni yuvdıq... sürtündik.
 Hristofornı tekrar-tekrar quçaqlay berdik.
@@ -335,9 +335,9 @@ Bu arada qadınlar kuhnâda ve köridorda qarıştı, çapqaladılar.
 
 İçeri kirip, oturdıq degende, Karim peyda oldı.
 Onı Yekaterina Vasilyevna özü çıqıp qarşılap aldı.
-Köridor içinde toqtatıp, yanağından öpti, gizliden maña köz qıptı: "o vaqıtta saña da böyle yapqan edim... soñ, ne oldı? Öldüñmi bundan?" demek istedi.
+Köridor içinde toqtatıp, yanağından öpti, gizliden maña köz qıptı: "o vaqıtta saña da böyle yapqan edim... soñ, ne oldı? Öldiñmi bundan?" demek istedi.
 
-— Va-ay, Karim!— dep qıçırdı Yekaterina Vasilyevna. — Tıpqı maşinistniñ özü olğansıñ.
+— Va-ay, Karim! — dep qıçırdı Yekaterina Vasilyevna. — Tıpqı maşinistniñ özü olğansıñ.
 %
 Yüzüñ aqçıl renk alğan, bürüşken.
 Güya on yıl yuqu körmegensiñ.
@@ -350,9 +350,9 @@ O yuvunğan, başınıñ töpesindeki siyrek saçlarını tarap, cik açqan, ye�
 Ev saibine beñzegen.
 
 — Arhipkanı çıqarıp yibergenler.
-Haberiñiz barmı?— dedi Karim. — Komendnanttan işittim.
+Haberiñiz barmı? — dedi Karim. — Komendnanttan işittim.
 
-— Arhipkanımı?— Andrey Zaharoviçniñ yüzü titislendi.
+— Arhipkanımı? — Andrey Zaharoviçniñ yüzü titislendi.
 
 — Niçün?
 
@@ -361,7 +361,7 @@ Haberiñiz barmı?— dedi Karim. — Komendnanttan işittim.
 — Ne vaqıt?
 Nasıl çıqarğanlar?
 Petâ emce tafsilâtını bilmey,— dedi Karim.
-—Amma pek qasevetlene.
+— Amma pek qasevetlene.
 Parom işçileri körgenler.
 Azğan-tozğan.
 Çar-Çaqtan ketecegim, degen.
@@ -370,12 +370,12 @@ Azğan-tozğan.
 — Kandıba kene inanmadı,— çemodanı bizde.
 Onıñ içün çemodan ne demek, bilesiñizmi?
 
-— Alçaq adam!— dedi Bassaraba.
+— Alçaq adam! — dedi Bassaraba.
 
-Nikolay çıdayalmadı, aqırından yerinden turıp, qapuğa doğru yurdi.
+Nikolay çıdayalmadı, aqırından yerinden turıp, qapuğa doğru yürdi.
 Men elinden çekip, toqtattım.
 
-— Vazgeç!— dedi oña Hristofor,— bu maalde ne yapmaq isteysiñ?
+— Vazgeç! — dedi oña Hristofor,— bu maalde ne yapmaq isteysiñ?
 
 — Özüñ aqılsızlıq yaptıñ,— dedi oña Mansurov. — Alıp kettiñ, öperpunktqa teslim ettiñ.
 İskander öperpunktı ne demek?
@@ -398,16 +398,16 @@ Neden qorqacaq?
 — Biz çoq adammız,— dedi Hristofor,— Arhipka ise bir kişi...
 Küçüçik bir kişi.
 Onıñ aqqında bu qadar büyük laqırdı lâyıq degil.
-Bugün bizim bayramamız.
+Bugün bizim bayramımız.
 
 Yekaterina Vasilyevna kirdi, stolnıñ üstüne çiy pamuq yağı qarışıq qartop ezmesi qoydı.
-Qartopnıñ artından tuzlı domuz eti, hıyar turşusı peyda oldı.
-Soñra doğralmağan qapısta, şalqam ve saire.
+Qartopnıñ artından tuzlu domuz eti, hıyar turşusı peyda oldı.
+Soñra doğralmağan qapısta, şalğam ve saire.
 
 Musafirlerniñ sayısı arta berdi.
 Bizim baraknıñ bütün ealisi mında edi.
 %
-Toqtabayev da keldi.
+Toqtabayev dе keldi.
 Tursunov da.
 
 O Nikolaynen ekimizniñ aramızda oturdı.
@@ -420,7 +420,7 @@ Bir talay vaqıt keçken soñ eski vaqialarnı ikâye etti.
 — Kommunistler drujinasınıñ vzvod komandiri edim,— dedi Mavlân aka.
 
 — Mında…
-"Mavı qaya"da kimsiñiz?— dep soradı ondan Ataqulov.
+"Mavı qaya"da kimsiñiz? — dep soradı ondan Ataqulov.
 
 — Mında?
 Ekskavatorcılar polkınıñ komandiri.
@@ -433,21 +433,21 @@ Aşqa buyurmamız teklif etildi.
 Qaşıqlarnen silâlandıq.
 Andrey Zaharoviç sandıqnıñ artından litrlik raqı şişesi çıqardı, laqırdı birden toqtadı.
 
-— Ma, Abdulla Sadıkoviç, özüñ aç!— dedi o.
+— Ma, Abdulla Sadıkoviç, özüñ aç! — dedi o.
 Şişeni stolnıñ ortasına qoydı. — Bayram, umumen, seniñki!
 
 Mansurov avuçınıñ içinen bir urdı, şişeniñ tapası top kibi patlap, atılıp ketti.
 Demir qalaylarğa, episine musaviy derecede, raqı qoyıp çıqtı.
 Soñ özüniñkini yüksekke köterdi.
 
-— Dostlar!— dedi o,— Ne yaptıq-yaptıq, kanalnı bitirdik.
+— Dostlar! — dedi o,— Ne yaptıq-yaptıq, kanalnı bitirdik.
 Bitirgen soñ da içmeycek olsaq, bu canıvarnı ne vaqıt içecekmiz?
 Mansurov öyle, Mansurov böyle... kanal, er alda, bitti.
 Eñ müimi şu.
 Öyle degilmi?
 Qana, köterdik!
 
-— Hanım azretleri?— Karim başınen kuhnâ tarafqa işaret etti,— olar içmeyceklermi?
+— Hanım azretleri? — Karim başınen kuhnâ tarafqa işaret etti,— olar içmeyceklermi?
 
 — Roza, Katâ,— Almazov qadınlarnı davet etti.
 — Sizni bekleymiz.
@@ -457,10 +457,10 @@ Tek özleri degil, olarnen beraber Karamat da bar edi.
 Karamat bizimnen selâmlaştı, Karimniñ yanına oturdı.
 Zevqlı şey.
 Ya — Raşid?
-Qalaylarğa tekrar raqı qoyıldı.
+Qalaylarğa tekrar raqı qoyuldı.
 
 Birinci qalaynıñ raqısını içken soñ, stol başındaki kişilerniñ yüzleri közlerime qıyış-mıyış olıp keldiler.
-Qalaylarnıñ tışı küyeli, içleri, ğaliba, totlı...
+Qalaylarnıñ tışı küyeli, içleri, ğaliba, totlu...
 Qaç kere içtik?
 Bilmeyim.
 Qoyğanını içe berdim.
@@ -500,10 +500,10 @@ Yaramay oldıñmı?
 — Ebet.
 Yüregim qarışıla.
 
-— Tışarı çıq!— dedi Nikolay. — Avada yur! 
+— Tışarı çıq! — dedi Nikolay. — Avada yür!
 Kuhnânıñ ögünden keçeyatqanda omuzım apansızdan Yekaterina Vasilyevnanıñ köküsine toqundı.
 
-— Cevdet, yaramazlanma!— dedi o, aselet yüksek davuşnen.
+— Cevdet, yaramazlanma! — dedi o, aselet yüksek davuşnen.
 Men indemedim.
 O keyfim bozuq ekenini sezdi.
 
@@ -575,7 +575,7 @@ Lomakovnı bilmeyim...
 Bir gece ondan suv alğansıñız.
 Barakta...
 
-— Muşuq?!— laklı kartuzı, santıraç bıcağı, qaşları üstüne sarqqan bir top quvurçıq saçı közlerimniñ ögüne keldiler.
+— Muşuq?! — laklı kartuzı, santıraç bıcağı, qaşları üstüne sarqqan bir top quvurçıq saçı közlerimniñ ögüne keldiler.
 
 — Menim degen kişim olsa...— Muşuqnıñ biçimini tasvir ete başladım.
 
@@ -587,7 +587,7 @@ Mansurov onı mehanik hızmetine almaq istey.
 Men indemedim.
 Yekaterina Vasilyevnanıñ közlerine baqtım, olarnıñ içinde özümniñ aytıp yetiştiralmağan sualime cevap kördim.
 
-— Sizge ne oldı, Cevdet?— dedi o, yasama mulâyimlik ile,— künleysiñizmi?
+— Sizge ne oldı, Cevdet? — dedi o, yasama mulâyimlik ile,— künleysiñizmi?
 Men onıñnen tek eki kere körüştim.
 Yoq.
 Şaqa etem!
@@ -595,14 +595,14 @@ Yoq.
 Kene indemedim.
 Öz arareti va isteklerini baş etalmağan bu qadın aqqında tüşündim.
 
-— Niçün indemeysiñiz?— Yekaterina Vasilyevna menim omuzımdan tutıp silkitti.
+— Niçün indemeysiñiz? — Yekaterina Vasilyevna menim omuzımdan tutıp silkitti.
 
-— Niçün indemeyim?— farqına barmay, onıñ sözlerini tekrarladım,— Lomakovnı tüşünem.
+— Niçün indemeyim? — farqına barmay, onıñ sözlerini tekrarladım,— Lomakovnı tüşünem.
 O, menim ve siziñ içün, çeşit körünişlerde yaşağan kişi.
 
 — Mihail İgnatyeviç menimnen bir türlü muamelede buluna, siziñnen ise başqa...— Yekaterina Vasilyevna külümsiredi, özüniñ bu adamğa olğan munasebetini gizlemege tırışmadı. — Tabiat qanunı...
 
-— Tanış olğanıñız çoqtanmı?— dep soradım men.
+— Tanış olğanıñız çoqtanmı? — dep soradım men.
 
 — Ayttım da!
 Bir qaç kere körüştik.
@@ -623,8 +623,8 @@ Lâkin özü nezaketli adam.
 
 — Bunı maña aytqanıñız ne?
 
-— Doğrusını söyleyimmi?— Yekaterina Vasilyevna qaşlarını tuyümledi.
-Çeresi ciddileşti,— men aqiqatnı aytmaq, em sizge aytmaq isteyim!
+— Doğrusını söyleyimmi? — Yekaterina Vasilyevna qaşlarını tüyümledi.
+Çeresi ciddiyleşti,— men aqiqatnı aytmaq, em sizge aytmaq isteyim!
 E! Aytqanda da, ep bir, añlamazsıñız....
 
 O başını divarğa tayadı.
@@ -633,16 +633,16 @@ Eppi vaqıt indemey oturdı.
 Soñ atılıp turdı, musafirler odasına kirip ketti.
 
 — Özüñiz içesiñiz, maña bermeysiñiz.
-Bu nasıl şey?— dep qıçırdı o, içeri kirgen soñ. — Aydıñız, sevgi içün içeyik!
+Bu nasıl şey? — dep qıçırdı o, içeri kirgen soñ. — Aydıñız, sevgi içün içeyik!
 Barsın, yaşlar-yaşlarnı sevsinler.
 Karim, Karamat!
 Siziñ sağlığıñız içün!
 
 Pencere ögünde ayaq üstünde turğan Mansurov.
 
-— İrada...— dep ayqırdı (İradanıñ evi qomşu azbarda edi).
+— İrada...— dep ayqırdı. (İradanıñ evi qomşu azbarda edi.)
 
-— İrada qayda?— dep soradı Yekaterina Vasilyevna tez-tez. — O mında kelmez.
+— İrada qayda? — dep soradı Yekaterina Vasilyevna tez-tez. — O mında kelmez.
 Öldürseñ, kelmez.
 Evinde kişi bekley.
 Sabira hala çoqtan aşhaneden tarelkalar alıp, oña ketti.
@@ -650,7 +650,7 @@ Sabira hala çoqtan aşhaneden tarelkalar alıp, oña ketti.
 İrada adam bekley.
 Kimni?
 
-— Otur bu yerge, Cevdet!— Andrey Zaharoviç parmağınen işaret etip, meni yanına çağırdı.
+— Otur bu yerge, Cevdet! — Andrey Zaharoviç parmağınen işaret etip, meni yanına çağırdı.
 Sandıqnıñ artından kene raqı çıqardı.
 
 — İçemiz!— meşrebeni elime alğan edim, közlerime Karamatnıñ közleri çalındılar: "kerekmey... içmeñiz!" Meşrebeni qaytarıp, stol üstüne qoydım.
