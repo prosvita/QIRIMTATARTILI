@@ -37,7 +37,7 @@ E. V."
 
 Yahşı ki, kâğıtnı yırtıp atmağanım. 
 İş böyle olğan edi: men ortalıq qaranlıqlanğan soñ barakqa keldim.
-Raşid elime bir kâğıt tuttırdı.
+Raşid elime bir kâğıt tutturdı.
 
 — Saña bir kişi kelip-ketti,— dedi o,— bir qadın.
 Men yuqlay edim, meni uyantıp, bu kâğıtnı parmaqlarım arasına tıqtı.
@@ -93,7 +93,7 @@ Muşuqnıñ bir quruntısı bar.
 
 ...Curayevnen beraber yük maşinasına minip Taşkentke kettim.
 Militsiya idaresi ve prokuratura Yekaterina Vasilyevnanıñ öldürilüvinen pek meraklandılar.
-Militsiya idaresi bu qatillikni bir qaç adamdan şübelendi.
+Militsiya idaresi bu qatillikni bir qaç adamdan şubelendi.
 Olarnıñ arasında Muşuq da bar.
 Men bu qadınnıñ öldürilüvinde sen de belli derecege qabaatlısıñ, dep meni söger, belki de qapatırlar belledim, öyle olmadı.
 Yekaterina Vasilyevnanıñ özü qabaatlı olıp çıqtı... o, evelâ Muşuqnıñ işine iştirak etken, soñ qorqqan.
@@ -182,11 +182,11 @@ Yalıñız anda-mında teren çuqurlarda biraz suv bar.
 Bugün Çar-Çaqnı bir yalıdan diger yalığa rezina çızmalarnen birinci defa yürip keçtim.
 Ekskavatorlar, evelkisi kibi, yalığa qısılıp turalar.
 Olarğa areket etmek içün endi er şey azır.
-Quru yerlerde şpallar ve relsler qoyılğan.
+Quru yerlerde şpallar ve relsler qoyulğan.
 Bizim ihtiyarımızda üç tulumba bar.
 Ekskavator işke başlağanı yoq.
 %
-Lâkin şçit künde eñ azdan yedi-sekiz kere bozıla, Karnakeryan onı toqtamay tüzetip tura.
+Lâkin şçit künde eñ azdan yedi-sekiz kere bozula, Karnakeryan onı toqtamay tüzetip tura.
 
 Meni körgende:
 
@@ -225,7 +225,7 @@ Menim elimni sıqtı, selâmlaştı, bir şey soramadı.
 
 Karnakeryan rezina qolçaqlarını köterip, rubilnikke urdı, vilkaları öz yuvalarına kirip kettiler, motor köçti, valik areketke keldi.
 Pişkekler işley başladılar.
-Tulumba şlanglarğa suv toldırıp, eski Çar-Çaqtan yuqarı — bayır üstüne, ondan ise aylanma kanalğa quvaladı.
+Tulumba şlanglarğa suv toldurıp, eski Çar-Çaqtan yuqarı — bayır üstüne, ondan ise aylanma kanalğa quvaladı.
 
 Böyle eken, kestirme arqasında adsız-isapsız adamlar sezildi.
 Er birine ayrı vazife berilgen.
@@ -243,14 +243,14 @@ Lâkin ne yapacaqsıñ?
 Bütün kün tulumba stantsiyası etrafında dolanıp çıqamız.
 Sabalein işke kelgende ekskavatorlarğa kederli alda köz etemiz, teren, köküs keçiremiz.
 %
-Kotlovan qazıp başlamağa ise daa erte, özenniñ tübindeki zığat topraqnı sarqıtmaq kerek.
+Kotlovan qazıp başlamağa ise daa erte, özenniñ tübündeki zığat topraqnı sarqıtmaq kerek.
 
 Bugün tulumba stantsiyasına Tursunov keldi.
 Yanında kene Mansurov edi.
 
 — Bilesiñizmi ne, ata? — dedi Tursunov Almazovqa,— suv çeküv meselesini, kerçekten de, bitirmeli.
 Bugün tulumba stantsiyasında çalışuvıñız soñki kün olsun.
-Yarın motorlarnıñ yanında bir elektr montör qoyıñız, bu işnen oğraşsın!
+Yarın motorlarnıñ yanında bir elektr montör qoyuñız, bu işnen oğraşsın!
 
 — Soñki kün...— Andrey Zaharoviç kerçekten sevindi. — Men bu sözlerni çoqtan bekleyim.
 
@@ -277,7 +277,7 @@ Kotlovannı qazıp başlaymız.
 
 Ketmege tedariklegende Tursunovnıñ hatirine yaş ekskavatorcılar tüşti.
 %
-Çünki araret stantsiyası montajınen meşğul vaqıtında umum qurucılıqnıñ işinden biraz üzülgen.
+Çünki araret stantsiyası montajınen meşğül vaqtında umum qurucılıqnıñ işinden biraz üzülgen.
 
 — Bir qısımı bizde qaldı,— dedi Mansurov ve közlerini maña tikledi,— meselâ, Bekirov...
 Men olarnıñ episiniñ mında qaldırılmasını emir ettim.
@@ -295,7 +295,7 @@ Ekskavatorcılarnı mında qaldırmaq aqqında emir bergen...
 — Emirni kimge berdiñiz?
 Krasnânskayağamı?
 Torizoğamı? — Tursunov küldi.
-Mansurovnıñ yaltaqlana berüvinden artıq bezgeni sezildi,bugün özüne duydırmaq istedi.
+Mansurovnıñ yaltaqlana berüvinden artıq bezgeni sezildi, bugün özüne duydurmaq istedi.
 
 — Afu etiñiz!
 Çar-Çaq qurucılığı idaresi ihtiyarına yolladım.
@@ -328,7 +328,7 @@ Yalını tegizlesin!
 Aqşam idarede küçük muşavere bar.
 Siz ve smena injenerleri... tam sekizde.
 Unutmañız!
-Curayevni ve Şadmanovanı yeñi işlerge tain etmek kerek.
+Curayevni ve Şadmanovanı yeñi işlerge tayin etmek kerek.
 
 Tursunov epimizniñ elimizni sıqtı, acele-acele ketti.
 %
@@ -378,7 +378,7 @@ Yahşı ekskavatorcı maşinanıñ alını, davuşından añlay... muftalarnıñ
 Almazov maşinada telükeli şuvultı tapalmadı.
 %
 
-Şay etip, Tursunovnıñ ilki emirini eda ettik... lâkin aytqan vaqıtında degil.
+Şay etip, Tursunovnıñ ilki emirini eda ettik... lâkin aytqan vaqtında degil.
 Ekskavatorlar işke birinci künü tüşalmadılar.
 Kişiler bütün kün-bütün gece çalışmağa mecbur oldılar.
 Tursunov, ğaliba, yuqlamadı.
@@ -393,7 +393,7 @@ Bir sene evelsi kişiler Çar-Çaqta ilki peyda olğan vaqıtta adımları cesar
 Yer qazıcılar mında ellerine tek ketmenlerini tutıp kelgen ediler, şimdi armaturcı ve betoncılar mektebinde oqumaqtalar.
 Bir qaç ay evelsi ketmencilerden yer qazıcılar brigadası teşkil etildi.
 Olar, ket-kete mektepte ve kursta oquy berip, zenaat saibi oldılar.
-Şimdi birde-birine yer qazıcı deseñ, canı ağıra: öyle degeniñ ne?
+Şimdi bir de-birine yer qazıcı deseñ, canı ağıra: öyle degeniñ ne?
 Kim?
 Öyle kişi bilmeymiz! — dey.
 %
@@ -412,7 +412,7 @@ Birinci deyim, çünki o plotina kotlovanına tüşken birinci kovş.
 
 — Meni meraqlandırğan şey bar...— dedi o.
 Maşina ziyade guruldegeni sebebinden, Almazovnıñ qulağınıñ içine qıçırıp laqırdı etti,— topraqnıñ terenligi ne qadar eken?
-Proyektke baqqanda, bu yerde konglomerat olmağa borclı.
+Proyektke baqqanda, bu yerde konglomerat olmağa borclu.
 
 — Konglomerat?
 
@@ -437,7 +437,7 @@ Bu seniñ içün kâfimi?
 
 — Plotinanıñ uzunlığı?
 
-— Üç yüz metr.
+— Üç yuz metr.
 Özü keñ olacaq.
 Siziñ bellegeniñizden oldıqça keñ.
 Üstünden avtomaşinalar qatnaycaqlar.
@@ -493,7 +493,7 @@ O, ümütten kesilgen alda, elini siltedi. — Kene tiş sındımı?
 Meni Almazov yiberdi.
 Niçün toqtay bergeniñni bilmek istey.
 
-— Sınmay, ne yapacaq?— Karim öz sözüne özü izaat bere başladı. — Güzel ki, tek birdanesi sındı!
+— Sınmay, ne yapacaq? — Karim öz sözüne özü izaat bere başladı. — Güzel ki, tek birdanesi sındı!
 Amma mesele tişte degil.
 Yerniñ üstü sılaq, yımşaq, astı — qattı.
 Bir buçuq metr terenliginece qazdım, iş güzel ketti... soñundan bütünley taş çıqtı.
@@ -515,7 +515,7 @@ Karim azaçıq külümsiredi.
 Nikolay boş tura.
 Turğance, işlesin.
 
-Maşina guruldep köçti.
+Maşina gürüldep köçti.
 Nikolayğa köz ettim, o qızışmay, muqayt çalışmaqta edi.
 
 — Nasıl? — Karim qıçırıp Kandıbağa bir şeyler işmar etti,— kene ilişemi?
@@ -544,7 +544,7 @@ Nikolay çar-çabik trosnı zayıflattı.
 
 — Bu ne demek?
 Kene krakovâkmı?
-Ustten al!
+Üstten al!
 Astta bir şeyge toqunma!
 
 Nikolay indemedi, çalışa berdi.
