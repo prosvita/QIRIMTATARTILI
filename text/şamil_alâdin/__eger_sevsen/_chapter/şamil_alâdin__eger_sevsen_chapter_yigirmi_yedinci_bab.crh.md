@@ -92,7 +92,7 @@ Men tüşkün göñülnen evge qayttım.
 Muşuqnıñ bir quruntısı bar.
 
 ...Curayevnen beraber yük maşinasına minip Taşkentke kettim.
-Militsiya idaresi ve prokuratura Yekaterina Vasilyevnanıñ öldürilüvinen pek meraklandılar.
+Militsiya idaresi ve prokuratura Yekaterina Vasilyevnanıñ öldürilüvinen pek meraqlandılar.
 Militsiya idaresi bu qatillikni bir qaç adamdan şubelendi.
 Olarnıñ arasında Muşuq da bar.
 Men bu qadınnıñ öldürilüvinde sen de belli derecege qabaatlısıñ, dep meni söger, belki de qapatırlar belledim, öyle olmadı.
@@ -109,7 +109,7 @@ Curayev meni tınçlandırdı.
 
 — Onı endi tiriltmek mümkün degil.
 Men de daa yaqınlarda büyük yañlışlıq yaptım.
-Bizim Tursunov, şübe yoq, acaip kişi.
+Bizim Tursunov, şube yoq, acayip kişi.
 Amma Krasnânskayanıñ bizde qalması içün cenkleşmek kerek edim.
 Farqına barmadım.
 Men obkomğa barğanda, keç oldı, dediler.
@@ -129,7 +129,7 @@ Başqasınıñ işinden degil, özüniñkinden şubelene turğan.
 Curayevniñ hatirine başqa şey tüşse kerek, külümsiredi.
 
 — Kommunist ne demek, bilesiñmi? — dep soradı menden.
-Ve güya birisiniñ sözlerini aqılına ketirgen olıp, devam etti.
+Ve güya birisiniñ sözlerini aqlına ketirgen olıp, devam etti.
  — Kommunist latın sözü: umumiy, demek.
 Kommunistik cemiyet — umumiy cemiyet, yani topraq, istisal, emek — episi umumiy.
 İşte, kommunizm ne demek.
@@ -153,7 +153,7 @@ Bana kommunizm hususında söylegen sözlerim — onıñ sözleri edi. — Sust�
 ...Mansurov meni körgende kederli közlerinen külümsiredi.
 Elimni sıqqan soñ, yibermey, eppi vaqıt eli içinde tutıp turdı.
 Maña teşekkür ayttı.
-Men oña bütün tarihni ikâye etip oturmadım, çünki bunı oña endi Curayev söylegenge beñzey.
+Men oña bütün tarihnı ikâye etip oturmadım, çünki bunı oña endi Curayev söylegenge beñzey.
 
 — Qatilni taparlar, mıtlaqa taparlar,— dedi Mansurov.
 Başını çetke burıp, közlerini kiyiklendirdi, yutquna-yutquna zornen ilâve etti,— Katâ ğayet alicenap qadın edi.
