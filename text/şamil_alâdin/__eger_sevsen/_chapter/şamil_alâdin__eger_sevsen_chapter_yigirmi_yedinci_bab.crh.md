@@ -37,7 +37,7 @@ E. V."
 
 Yahşı ki, kâğıtnı yırtıp atmağanım. 
 İş böyle olğan edi: men ortalıq qaranlıqlanğan soñ barakqa keldim.
-Raşid elime bir kâğıt tuttırdı.
+Raşid elime bir kâğıt tutturdı.
 
 — Saña bir kişi kelip-ketti,— dedi o,— bir qadın.
 Men yuqlay edim, meni uyantıp, bu kâğıtnı parmaqlarım arasına tıqtı.
@@ -62,7 +62,8 @@ Hatriñizdemi?
 
 Men indemedim.
 
-— Elbette, hatriñizde,— Yekaterina Vasilyevna öz sözüni özü tasdıqlağan soñ, devam etti. — Açıq göñülliligim içün meni afu etiñiz, o kişi bir insan olaraq, daa isteseñiz, bir erkek olaraq menim yüregimni esir aldı.
+— Elbette, hatriñizde,— Yekaterina Vasilyevna öz sözüni özü tasdıqlağan soñ, devam etti.
+ — Açıq göñülliligim içün meni afu etiñiz, o kişi bir insan olaraq, daa isteseñiz, bir erkek olaraq menim yüregimni esir aldı.
 Men onıñnen bazı yerlerde, tanış kişilerimniñ evlerinde, bulunam. — Böyle degen soñ Yekaterina Vasilyevna sustı, men bekledim.
 
 — Keçenlerde o kişi özüne biraz yardım etmemni istedi.
@@ -70,14 +71,11 @@ Beraber şeerge ketmek ve... deycegim, yardım etmek... kerek.
 Men, elbette, red ettim.
 Lâkin elimden öyle iş kelirmi edi, bilmeyim.
 Siz o adamnı bilesiñizmi?
-Yekaterina Vasilyevna ne qadar bilse, men de oqadar bilem, bilgenimni ayttım. 
+
+Yekaterina Vasilyevna ne qadar bilse, men de oqadar bilem, bilgenimni ayttım.
 Men ayttım, o başını sallay berdi. 
 — Yarabbi, men de öyle bellegen edim.
 Öyle tüşüngen edim.
-Öyle olıp çıqar isap etken edim.
-
-— Şay... dırıldadı oturdı.
-Soñ közlerini aqaytıp: — men o adamdan qorqam, Cevdet! — dedi.
 
 Qomşu oda içinde ayaq davuşları işitildi.
 Yekaterina Vasilyevna çar-çabik qapunı açtı.
@@ -90,12 +88,11 @@ Men tüşkün göñülnen evge qayttım.
 Muşuqnıñ bir quruntısı bar.
 
 ...Curayevnen beraber yük maşinasına minip Taşkentke kettim.
-Militsiya idaresi ve prokuratura Yekaterina Vasilyevnanıñ öldürilüvinen pek meraklandılar.
-Militsiya idaresi bu qatillikni bir qaç adamdan şübelendi.
+Militsiya idaresi ve prokuratura Yekaterina Vasilyevnanıñ öldürilüvinen pek meraqlandılar.
+Militsiya idaresi bu qatillikni bir qaç adamdan şubelendi.
 Olarnıñ arasında Muşuq da bar.
 Men bu qadınnıñ öldürilüvinde sen de belli derecege qabaatlısıñ, dep meni söger, belki de qapatırlar belledim, öyle olmadı.
 Yekaterina Vasilyevnanıñ özü qabaatlı olıp çıqtı... o, evelâ Muşuqnıñ işine iştirak etken, soñ qorqqan.
-Qorqqanı içün onı...
 
 — Kâğıtını sizge, özü sağ ekende ketirgen olsam,— dedim prokurorğa ve teşkericige,— belki bu vaqia olmaz edi?!
 
@@ -107,7 +104,7 @@ Curayev meni tınçlandırdı.
 
 — Onı endi tiriltmek mümkün degil.
 Men de daa yaqınlarda büyük yañlışlıq yaptım.
-Bizim Tursunov, şübe yoq, acaip kişi.
+Bizim Tursunov, şube yoq, acayip kişi.
 Amma Krasnânskayanıñ bizde qalması içün cenkleşmek kerek edim.
 Farqına barmadım.
 Men obkomğa barğanda, keç oldı, dediler.
@@ -120,25 +117,21 @@ Anna Yakovlevna endi mında yoq.
 — Volga qurucılığında.
 Anda da aynı işte.
 Bizimkinden bir qaç kere büyük…— şay dep, Curayev sustı ve birazdan soñ ilâve etti. — Onıñnen çalışmaq qolay degil edi.
-Er şeyden şübelenici, raatsız adam..
-Başqasınıñ işinden degil, özüniñkinden şübelene turğan.
-Amma aqıllı...
+
+Başqasınıñ işinden degil, özüniñkinden şubelene turğan.
 
 Curayevniñ hatirine başqa şey tüşse kerek, külümsiredi.
 
 — Kommunist ne demek, bilesiñmi? — dep soradı menden.
-Ve güya birisiniñ sözlerini aqılına ketirgen olıp, devam etti. — Kommunist latın sözü: umumiy, demek.
+Ve güya birisiniñ sözlerini aqlına ketirgen olıp, devam etti.
+ — Kommunist latın sözü: umumiy, demek.
 Kommunistik cemiyet — umumiy cemiyet, yani topraq, istisal, emek — episi umumiy.
-İşte, kommunizm ne demek. — Curayev biraz indemey turdı, soñ soradı: — iç de işitmegen ediñmi?
+İşte, kommunizm ne demek.
+— Curayev biraz indemey turdı, soñ soradı: — iç de işitmegen ediñmi?
 
-— Niçün?
-Kommunistler... kommunizm hususında çoq işittim.
-Men "Kommunist manifestini" ögrendim.
-
-— Öylemi?
-Amma men demir yolda doğdım.
+Amma men demiryolda doğdım.
 Yigirmi ekinci post.
-Belki biledirsiñ!
+
 Ursatyevskniñ artında.
 Babam ve bütün doğmuşlarım demir yolcular.
 On yedincide Qızıl gvardiyağa kirdim.
@@ -149,7 +142,7 @@ Bana kommunizm hususında söylegen sözlerim — onıñ sözleri edi. — Sust�
 ...Mansurov meni körgende kederli közlerinen külümsiredi.
 Elimni sıqqan soñ, yibermey, eppi vaqıt eli içinde tutıp turdı.
 Maña teşekkür ayttı.
-Men oña bütün tarihni ikâye etip oturmadım, çünki bunı oña endi Curayev söylegenge beñzey.
+Men oña bütün tarihnı ikâye etip oturmadım, çünki bunı oña endi Curayev söylegenge beñzey.
 
 — Qatilni taparlar, mıtlaqa taparlar,— dedi Mansurov.
 Başını çetke burıp, közlerini kiyiklendirdi, yutquna-yutquna zornen ilâve etti,— Katâ ğayet alicenap qadın edi.
@@ -166,23 +159,23 @@ Bir qaç künler keçti.
 Qurucılıqta bir yañılıq artından diger yañılıq yüz bere başladı.
 Yañılıqlardan biri konglomerat edi.
 Kotlovan qazılayatqan yerde tutaş qattı tabaqalar asıl oldılar.
-Olarnı kovşnen parlamaq yahud ammonalnen patlatmaq mümkün degil, dediler.
+
 Kim ayttı, bilmeyim.
 
 Bunıñ içün esas bar edi.
 Amma bu tabaqalarğa barıp yetmek içün daa vaqıt çoq.
 
 Kotlovan dairesinde suv qalmadı.
-Episini tulumba stantsiyası çekip alıp, aylanma kanalğa boşattı.
+
 Yalıñız anda-mında teren çuqurlarda biraz suv bar.
 Bugün Çar-Çaqnı bir yalıdan diger yalığa rezina çızmalarnen birinci defa yürip keçtim.
 Ekskavatorlar, evelkisi kibi, yalığa qısılıp turalar.
 Olarğa areket etmek içün endi er şey azır.
-Quru yerlerde şpallar ve relsler qoyılğan.
+Quru yerlerde şpallar ve relsler qoyulğan.
 Bizim ihtiyarımızda üç tulumba bar.
 Ekskavator işke başlağanı yoq.
-Büyüklerden biri keçip keteyatqanda: "tulumbalar nasıl?"... dep soray, Karnakeryan: "Mına..." dep baş parmağını töpege köterip körsete.
-Lâkin şçit künde eñ azdan yedi-sekiz kere bozıla, Karnakeryan onı toqtamay tüzetip tura.
+
+Lâkin şçit künde eñ azdan yedi-sekiz kere bozula, Karnakeryan onı toqtamay tüzetip tura.
 
 Meni körgende:
 
@@ -197,28 +190,22 @@ Mende ekinci nomer pek pasravlay...— dey o,— kene faza yoq.
 Şimdi Çar-Çaq betten Almazov kelip çıqtı.
 Menim elimni sıqtı, selâmlaştı, bir şey soramadı.
 
-— Suv meselesini tez-tez bitirmek kerek! — dedi yalıñız, soñ tulumbanıñ yanına keldi. — Şlangnı doğurt! — dep cekirdi Hristoforğa,— Nikolay qayda?
+— Suv meselesini tez-tez bitirmek kerek! — dedi yalıñız, soñ tulumbanıñ yanına keldi.
+— Şlangnı doğurt! — dep cekirdi Hristoforğa.
+— Nikolay qayda?
 
-— Muftalarnı deñiştirmege ketti,— dedi Hristofor ve eleslenip maña baqtı, soñ yavaştan: — Buña ne oldı şu? — dep soradı.
-
-Amma biz Andrey Zaharoviçni bilemiz.
-Onıñ açuvı çoqqa sürmey.
-Tezden keçip keter.
-
-— Maña baq! — dedi Almazov, bir talaydan,— biz ekskavatorcılar edik, şimdi kimmiz?
+— Muftalarnı deñiştirmege ketti,— dedi Hristofor ve eleslenip maña baqtı, soñ yavaştan:
+— Buña ne oldı şu? — dep soradı.
 
 — Ekskavatorcılarmız,— dedim men,— er şey evelkisi kibi.
 
 — Evelkisi kibi olsa, bu ne? — elinen tulumba stantsiyasını körsetti,— bu işniñ öz mütehassısları yoqmı?
 
-Karnakeryan şçit başına keçti.
-Men direkniñ astında turğan şlangnı köterip, ucunı ögge, uzaqqa attım.
-
 — Qana, keçir! — dedi Almazov. — Baqayıq, ne olıp çıqacaq?
 
 Karnakeryan rezina qolçaqlarını köterip, rubilnikke urdı, vilkaları öz yuvalarına kirip kettiler, motor köçti, valik areketke keldi.
 Pişkekler işley başladılar.
-Tulumba şlanglarğa suv toldırıp, eski Çar-Çaqtan yuqarı — bayır üstüne, ondan ise aylanma kanalğa quvaladı.
+Tulumba şlanglarğa suv toldurıp, eski Çar-Çaqtan yuqarı — bayır üstüne, ondan ise aylanma kanalğa quvaladı.
 
 Böyle eken, kestirme arqasında adsız-isapsız adamlar sezildi.
 Er birine ayrı vazife berilgen.
@@ -235,15 +222,15 @@ Bir özenden diger özenge tulumba ile suv boşatmaq, doğrusını aytsam, can s
 Lâkin ne yapacaqsıñ?
 Bütün kün tulumba stantsiyası etrafında dolanıp çıqamız.
 Sabalein işke kelgende ekskavatorlarğa kederli alda köz etemiz, teren, köküs keçiremiz.
-Olarnı sağınğanmız.
-Kotlovan qazıp başlamağa ise daa erte, özenniñ tübindeki zığat topraqnı sarqıtmaq kerek.
+
+Kotlovan qazıp başlamağa ise daa erte, özenniñ tübündeki zığat topraqnı sarqıtmaq kerek.
 
 Bugün tulumba stantsiyasına Tursunov keldi.
 Yanında kene Mansurov edi.
 
 — Bilesiñizmi ne, ata? — dedi Tursunov Almazovqa,— suv çeküv meselesini, kerçekten de, bitirmeli.
 Bugün tulumba stantsiyasında çalışuvıñız soñki kün olsun.
-Yarın motorlarnıñ yanında bir elektr montör qoyıñız, bu işnen oğraşsın!
+Yarın motorlarnıñ yanında bir elektr montör qoyuñız, bu işnen oğraşsın!
 
 — Soñki kün...— Andrey Zaharoviç kerçekten sevindi. — Men bu sözlerni çoqtan bekleyim.
 
@@ -269,8 +256,8 @@ Añlaştıqmı?
 Kotlovannı qazıp başlaymız.
 
 Ketmege tedariklegende Tursunovnıñ hatirine yaş ekskavatorcılar tüşti.
-Mektepni bitirgen yeñi maşinistler ne yerde işlegenlerini soradı.
-Çünki araret stantsiyası montajınen meşğul vaqıtında umum qurucılıqnıñ işinden biraz üzülgen.
+
+Çünki araret stantsiyası montajınen meşğül vaqtında umum qurucılıqnıñ işinden biraz üzülgen.
 
 — Bir qısımı bizde qaldı,— dedi Mansurov ve közlerini maña tikledi,— meselâ, Bekirov...
 Men olarnıñ episiniñ mında qaldırılmasını emir ettim.
@@ -288,8 +275,7 @@ Ekskavatorcılarnı mında qaldırmaq aqqında emir bergen...
 — Emirni kimge berdiñiz?
 Krasnânskayağamı?
 Torizoğamı? — Tursunov küldi.
-Mansurovnıñ yaltaqlana berüvinden artıq bezgeni sezildi.
-Bugün özüne duydırmaq istedi.
+Mansurovnıñ yaltaqlana berüvinden artıq bezgeni sezildi, bugün özüne duydurmaq istedi.
 
 — Afu etiñiz!
 Çar-Çaq qurucılığı idaresi ihtiyarına yolladım.
@@ -297,7 +283,7 @@ Andan belki derivatsion kanalğa tüşkendirler.
 Olarnıñ bir qısımını...
 
 — Zanımca, "men" yerine "biz" denilse yahşı olur.
-Hatiriñizden çıqarmañız!
+
 Mektep hususın-da sorağanımnıñ sebebi bar.
 İnjener Şadmanova öz smenası içün altı adam istey.
 Bu mümkünmi?
@@ -305,31 +291,24 @@ Bu mümkünmi?
 Mansurov qarıq davuşnen küldi.
 
 — Şadmanova kişi almaq istese, he-he-he, emin oluñız, Vahid Samatoviç, begengen adamçıqlarını çoqtan saylap alğandır.
-Qasevet etmeñiz!— Mansurov, pek teren ve aqıllı laqırdı etem dep, özüniñ bu eki adam arasındaki şahsiy munasebetlerden haberdar ekenini sezdirip aldı.
+
+— Mansurov, pek teren ve aqıllı laqırdı etem dep, özüniñ bu eki adam arasındaki şahsiy munasebetlerden haberdar ekenini sezdirip aldı.
 Tursunov bunı sezmegen oldı.
 
 — Alğan olsa, yahşı... bunıñ içün İradanı maqtamaq kerek,— dedi Tursunov,— demek, Abdulla Sadıkoviç, siziñnen keliştik.
-Şaymı?
-Keliştikmi?
 
 — Er şey emir etkeniñiz kibi olur! — Mansurov sağ elini köküsine qoydı,— bir ekskavatornı yalıda qaldırmaq isteyim.
 Mümkünmi?
 
 — Bu hususta laqırdı ettik...
-Kerek olsa, qalsın!
+
 Yalını tegizlesin!
 Aqşam idarede küçük muşavere bar.
 Siz ve smena injenerleri... tam sekizde.
 Unutmañız!
-Curayevni ve Şadmanovanı yeñi işlerge tain etmek kerek.
+Curayevni ve Şadmanovanı yeñi işlerge tayin etmek kerek.
 
 Tursunov epimizniñ elimizni sıqtı, acele-acele ketti.
-Etraf tizgece suv ekeninden, ayavlarını ziyade yuqarı köterip, oşlı yürmekte edi...
-Tap, külecegim keldi.
-Elektriklerniñ büyügi olğanda böyle muqayt yürmey edi.
-Suv yüzüne saçray... lâkin indemey edi.
-Hızmet... vazife adamnı çar-çabik türlendirip yibere.
-Tursunov burun kötermege sevgen kişi olsa, ne olur edi?
 
 — Tros... nasıl? — dep soradı Almazov Mansurovdan.
 
@@ -348,18 +327,10 @@ Andrey Zaharoviç Nikolaynı ve Hristofornı erte-yarıq skladqa yollağan.
 Olar körünmeyler.
 Üylelik teneffüste Bassaraba ile Raşid kelip, bizim işlerni közden keçirip, mıyıq astından külüp kettiler.
 "...bekleñiz-bekleñiz, iş özü olur!" Aqşam olayım dep turğanda trosnı ketirdiler.
-Almazov, lafnı uzatmay, deral eski trosnı çıqarıp, yeñisini qoymaqnı emir etti.
+
 Maña ne?
 Usta ne dese, onı yapmağa azırım.
 Yapmaq, elbette, qolay degil.
-Hazar-Kend mektebinde bizge bunı... tros deñiştirüvni pek yengilden ögrettiler.
-Şimdi yanımda Almazov olmağan olsa, ne yapar edim, bilmeyim?
-Bassarabanıñ yavaştan kelip-ketkeniniñ sebebi de bu eken.
-Lâkin o maalde bizde yeñi tros yoq edi.
-Eski trosnı alıp, yerine yeñisini qoyğance geceniñ yarısı oldı.
-
-Andrey Zaharoviç rıçagnıñ ögüne oturdı... parovoz endi taş yol keçitke kelip toqtağan eken.
-Bizge gudok bermedi.
 
 — Endi Çar-Çaqnı ast-üst etmek mümkün,— dedi Almazov.
 Yüzü şeñ ve ğururlı edi.
@@ -367,11 +338,10 @@ Yüzü şeñ ve ğururlı edi.
 Ekskavatornı hayli vaqıt boş çalıştırdı.
 Ekimiz diñlenip turdıq.
 Yahşı ekskavatorcı maşinanıñ alını, davuşından añlay... muftalarnıñ ve çanalarnıñ işlevi doğrumı, yoqmı?
-Bunı şu arada seze.
-Almazov maşinada telükeli şuvultı tapalmadı.
-Kovşnıñ ve barabannıñ areketi güzel ekenine emin olğan soñ ekskavatornı toqtattı ve bizge, evge qaytmağa ruhset etti.
 
-Şay etip, Tursunovnıñ ilki emirini eda ettik... lâkin aytqan vaqıtında degil.
+Almazov maşinada telükeli şuvultı tapalmadı.
+
+Şay etip, Tursunovnıñ ilki emirini eda ettik... lâkin aytqan vaqtında degil.
 Ekskavatorlar işke birinci künü tüşalmadılar.
 Kişiler bütün kün-bütün gece çalışmağa mecbur oldılar.
 Tursunov, ğaliba, yuqlamadı.
@@ -386,11 +356,10 @@ Bir sene evelsi kişiler Çar-Çaqta ilki peyda olğan vaqıtta adımları cesar
 Yer qazıcılar mında ellerine tek ketmenlerini tutıp kelgen ediler, şimdi armaturcı ve betoncılar mektebinde oqumaqtalar.
 Bir qaç ay evelsi ketmencilerden yer qazıcılar brigadası teşkil etildi.
 Olar, ket-kete mektepte ve kursta oquy berip, zenaat saibi oldılar.
-Şimdi birde-birine yer qazıcı deseñ, canı ağıra: öyle degeniñ ne?
+Şimdi bir de-birine yer qazıcı deseñ, canı ağıra: öyle degeniñ ne?
 Kim?
 Öyle kişi bilmeymiz! — dey.
-Ammallar da öyle, kibirli kişiler oldılar: arqada yük taşımaq?
-Ne demek olsun...
+
 Olarnıñ ihtiyarında transportörlar, avtomaşinalar barlar.
 Kerçek, elnen çalışmaq da kerek ola.
 Lâkin ketmen ve qolaraba yoq.
@@ -405,7 +374,7 @@ Birinci deyim, çünki o plotina kotlovanına tüşken birinci kovş.
 
 — Meni meraqlandırğan şey bar...— dedi o.
 Maşina ziyade guruldegeni sebebinden, Almazovnıñ qulağınıñ içine qıçırıp laqırdı etti,— topraqnıñ terenligi ne qadar eken?
-Proyektke baqqanda, bu yerde konglomerat olmağa borclı.
+Proyektke baqqanda, bu yerde konglomerat olmağa borclu.
 
 — Konglomerat?
 
@@ -413,7 +382,6 @@ Proyektke baqqanda, bu yerde konglomerat olmağa borclı.
 Konglomerat.
 Qatıp, taş kesilip qalğan çaqıl.
 Million seneler içinde...— dep başladı Mansurov.
-Bugün o şeñ edi.
 
 — Tezden körermiz,— dedi Almazov. — Meni başqa şey meraqlandıra.
 Plotinanıñ yuqarı byefiniñ yüksekligi ne qadar olacaq?
@@ -425,11 +393,12 @@ Mansurov, kerçekten de, proyektte konglomerat hususında bütün konspektni oqu
 
 — Kotlovannı yañıçıq qazıp başladıñ, yuqarı byefniñ yüksekligini sorağanıñ zevqlı...— dedi o. — İç bağlanmay...
 Sırt divarnıñ yüksekligi on metr olmaq kerek.
+
 Bu seniñ içün kâfimi?
 
 — Plotinanıñ uzunlığı?
 
-— Üç yüz metr.
+— Üç yuz metr.
 Özü keñ olacaq.
 Siziñ bellegeniñizden oldıqça keñ.
 Üstünden avtomaşinalar qatnaycaqlar.
@@ -439,7 +408,6 @@ Bu şeylerni bilmemesi mümkün degil,— suv, kanalnen keter eken, yetmiş metr
 Turbinalarnı areketke ketirecek.
 
 — Ne vaqıt?
-
 — İş sizge bağlı.
 
 — Tek bizgemi?
@@ -457,8 +425,6 @@ Bizim kovşnıñ bir tişi sındı.
 Mansurov yanımızdan ketmedi.
 Demir yol yasayatqan Hristofornıñ nijnikleri arasında bir talay qarışıp yurdi.
 Ne yaptı?
-Yahşı köralmadım.
-Elinde kirkası, kıçırıqlamaqta.
 
 Lâkin iş toqtap qaldı.
 Kovş çuqırnıñ içinde topraqnıñ üstünden tayğalap kete berdi.
@@ -486,7 +452,7 @@ O, ümütten kesilgen alda, elini siltedi. — Kene tiş sındımı?
 Meni Almazov yiberdi.
 Niçün toqtay bergeniñni bilmek istey.
 
-— Sınmay, ne yapacaq?— Karim öz sözüne özü izaat bere başladı. — Güzel ki, tek birdanesi sındı!
+— Sınmay, ne yapacaq? — Karim öz sözüne özü izaat bere başladı. — Güzel ki, tek birdanesi sındı!
 Amma mesele tişte degil.
 Yerniñ üstü sılaq, yımşaq, astı — qattı.
 Bir buçuq metr terenliginece qazdım, iş güzel ketti... soñundan bütünley taş çıqtı.
@@ -504,12 +470,11 @@ Tukürdim... kabinadan tüştim.
 
 Karim azaçıq külümsiredi.
 
-— Bir de-birimizge, er alde.
-çalışmaq kerekmi?
+— Bir de-birimizge, er alde çalışmaq kerekmi?
 Nikolay boş tura.
 Turğance, işlesin.
 
-Maşina guruldep köçti.
+Maşina gürüldep köçti.
 Nikolayğa köz ettim, o qızışmay, muqayt çalışmaqta edi.
 
 — Nasıl? — Karim qıçırıp Kandıbağa bir şeyler işmar etti,— kene ilişemi?
@@ -538,7 +503,7 @@ Nikolay çar-çabik trosnı zayıflattı.
 
 — Bu ne demek?
 Kene krakovâkmı?
-Ustten al!
+Üstten al!
 Astta bir şeyge toqunma!
 
 Nikolay indemedi, çalışa berdi.
@@ -553,9 +518,6 @@ Maşinanıñ deşetli gurultisi arasında terenden qadın davuşı işitildi.
 
 — Almazov, maşinanı toqtat!
 
-Maşinist rıçagnı özüne çekti.
-Kovş avada asılı qaldı.
-
 — Cevdet, rubilnikni çıqar! — dep qıçırdı usta.
 
 Men kögertege çıqtım.
@@ -566,12 +528,11 @@ Qıznıñ çırayı aqçıllanğan, özü azğan.
 — Selâm aleyküm, İrada! — hatrime şu arada soñki defa körüşüvimiz keldi. — Mında nasıl olıp tüştiñiz?
 
 Yüzü qıp-qırmızı kesildi.
-Azaçıq külümsiredi.
-"Mavı qaya"nıñ bosağası üstünde maña aytqan sözlerini tekrarlağanımnı añladı.
 
 — Maşinağa ne oldı? — dep soradı o ve kögertege tırmaştı.
-Almazov aşağıda turıp, yeñi emir beklemekte edi. — Vahid Samatoviç ayttı... sizde tolraq fena eken.
-Öylemi?
+Almazov aşağıda turıp, yeñi emir beklemekte edi.
+ — Vahid Samatoviç ayttı... sizde tolraq fena eken.
+
 
 — Ebet... kovş bir şey almay.
 
@@ -582,6 +543,7 @@ Soñ elinen işmar etip, Almazovnı çağırdı.
 Eppi vaqıt aşağı baqıp turğan soñ, İrada çuqurnıñ içine tayıp tüşti.
 Almazov tüşmedi.
 Töpeden baqıp turdı.
+
 Hayli vaqıttan soñ çuqurnıñ çetinde İradanıñ başı köründi.
 Usta elini uzattı, qıznı töpege çekip çıqardı.
 
@@ -598,7 +560,8 @@ Bir şey de!
 Konglomeratnı patlatmaq kerek...
 Qazuvnı toqtatıñız.
 Maşinanı artqa cılıştırıp qoyıñız...
-Yarın yer patlatıcılar kelirler. — İrada közleriniñ qıyığından maña baqıp aldı,— Tursunov meni, vaziyetni bilmek içün yolladı.
+Yarın yer patlatıcılar kelirler.
+ — İrada közleriniñ qıyığından maña baqıp aldı,— Tursunov meni, vaziyetni bilmek içün yolladı.
 Meseleni añlatırım.
 Selâm, Hristofor! — İrada, niçündir, Duranidini şimdi eslep, elini sıqtı. — Köresiñizmi, iş nasıl olıp çıqtı?
 Yañ başladıq degende taşlamaq kerek.
@@ -615,32 +578,3 @@ Kelir-kelmez, İrada ile laqırdı eteyatqan Karimge gizliden köz etip aldı.
 — Sizni körmegenim yüz yıl oldı, Karamat,— dedim men,— qaydalarda yurdiñiz?
 
 — Komandirovkada edim... haberiñiz olmadımı?
-
-— Yeq.
-Bu bir şey degil, onıñ haberi oldımı? — Karim betke işaret ettim.
-
-— Elbette, oldı.
-İskanderge keteyatqanımnı oña ayttım.
-Kotlovanda çalışacaq adamlarnıñ vesiqalarını azırladım.
-Bizge pek çoq beton ve armatura mütehassısları kelecek.
-Ne?
-Meni sağındıñızmı?
-
-— Şübesiz.
-
-— Yanaşañızda maşuqañsız... daa ne kerek?
-
-— Yanaşamda... ve pek uzaqta.
-
-— Uzaqta?
-Kene tişleştiñizmi?
-
-— Ebet... yoq!
-Niçün? 
-Ne deycegimni bilmey, şaşmaladım. 
-Yazıq...
-Karamat yüregimdeki acizlikni añlar, maña bu kederden qurtulmağa yardım eter belledim.
-O yarı kerçek ve yarı yalan açuv tolu közlerini maña tikledi.
-
-— Bilesiñizmi ne, Cevdet? — dedi qız,— men siziñ çekkeleşüviñizden bıqtım.
-Öz çareñizni özüñiz körüñiz.
