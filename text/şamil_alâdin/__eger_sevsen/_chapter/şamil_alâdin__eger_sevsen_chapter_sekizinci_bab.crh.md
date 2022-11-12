@@ -7,7 +7,7 @@ O gece hızmetteki adamlar içün, aşhaneden yemek ketirip qoya, çay qaynata, 
 Kerçek, polımız temiz olması içün onı sipirmek degil, demir qırğıçnen qırıp, sıcaq suvnen yuvmaq kerek, lâkin... bizde pol ayda eki kere yuvula, yuvulğan soñ bir qaç saat temiz ola, kişiler smenadan qaytıp kelgen soñ kene evelki renkni ala.
 
 Biz buña alıştıq.
-Tumboçkalarımız qapatılmay, içlerindeki şeylerimiz coyılmaylar... bunıñ özü kâfi.
+Tumboçkalarımız qapatılmay, içlerindeki şeylerimiz coyulmaylar... bunıñ özü kâfi.
 Yataqhanemizde, yazılmağan-çızılmağan kodeks yaşay.
 Kerçek, onda maddelerniñ mıqdarı soñ derece az.
 Söz kelimi, adamnı kötekleşkeni içün qabaatlav hususında madde yoq.
@@ -19,15 +19,17 @@ Bu — soñ derece ayıp şey, çünki epimizge aydutlar dep baqacaqlar, dedim.
 
 Men, elbette, dülber nutq söylemege bilmeyim, "mına", "añlaşılamı", "demek" sözlerini tekrarlay berip, eki-üç cümle quraştırıp ayttım, soñ koykamnıñ üstüne otura qoydım.
 
-— Toplaşuvnı yañlış alıp barasıñ,— dedi maña Nikolay. — Madamki sen komsomolsıñ, bizni, bitaraflarnı, terbiyelemege borclısıñ.
-Toplaşuvda reys ve sekretar olmaq şart.
+— Toplaşuvnı yañlış alıp barasıñ,— dedi maña Nikolay.
+— Madamki sen komsomolsıñ, bizni, bitaraflarnı, terbiyelemege borclusıñ.
+Toplaşuvda reis ve sekretar olmaq şart.
 Reis mecliske reberlik yapsın, sekretar protokol yazsın.
 Bu seniñki ne?
 Oturırmız, laqırdı etermiz, darqar ketermiz.
 İç izi qalmaz.
 Ne deysiñ buña?
 
-— Bir şey de, — dedim men. — Doğru fikir!
+— Bir şey de, — dedim men.
+— Doğru fikir!
 
 — Öyle olsa, meclisni qapalı ilân etem, — dedi Nikolay.
 
@@ -36,10 +38,10 @@ Nikolay dülgerler baragındaki kötek hususında laqırdını tazertmege isteme
 Muşuq olmağan olsa, Arhipkanen çatışuvı ne ile biter edi, bilmeyim.
 
 Deycegim, er kes öz işine tutundı.
-Bu arada Arhipkanıñ nutq söyleycegi keldi.
+Bu arada Arhipkanıñ nutuq söyleycegi keldi.
 
 — Kötekleşüvni niçün bıraqmaq kerek? — dep soradı o,— bir adam diger adamnıñ taqletini azaçıq siypap alğanınıñ ne zararı bar?
-Bunı da yapmasaq, cak sıqısından ölüp ketermiz.
+Bunı da yapmasaq, can sıqısından ölip ketermiz.
 Mında körgenimiz ne?
 Tek aşhane.
 Anda ne bar?
@@ -54,7 +56,8 @@ Bir şey yoq...
 Ne?
 Yoqsa bu Çatqal eteginde bir monastırmi?
 
-— Maña baq, Arhipka! — dedi Kandıba. — Bizge seniñ sentimental fikirleriñ... felsefeñ kerekmey.
+— Maña baq, Arhipka! — dedi Kandıba.
+— Bizge seniñ sentimental fikirleriñ... felsefeñ kerekmey.
 
 Arhipka bu sözlerniñ ne demek ekenini añladı.
 Sustı.
@@ -78,13 +81,13 @@ Ertesi künü altı kolhoznıñ balaları sıcaq aş yediler.
 
 Bunıñ içün, Arhipkanıñ nutqı kiyik davuş olıp işitildi.
 
-— Men öz fikirimni ayttım,— dedi Arhipka,— keyfiñizge uymasa, qabul etmeñiz, lâkin sözüni keri aldı bellemeñiz!
+— Men öz fikrimni ayttım,— dedi Arhipka,— keyfiñizge uymasa, qabul etmeñiz, lâkin sözüni keri aldı bellemeñiz!
 
 Arhipka qısmen aqlı edi.
 Zevq, eglence ceetinden bizde, kerçekten de, maqtanmağa şey yoq edi.
 Barakta kimerde gitara, yahud garmon davuşları işitile, amma çoqqa barmay, tınalar.
 İşçiler ya işke çıqıp kete, ya da hızmetten yorulıp kele, alel-acele aşap, yuqlamağa yataqoyalar.
-İstraat künleri gidromonitorlar ve ekskavatorcılar paromğa minip, sağ yalığa kete, anda magazinden apaylarına o-bu satın/p alalar.
+İstraat künleri gidromonitorlar ve ekskavatorcılar paromğa minip, sağ yalığa kete, anda magazinden apaylarına o-bu satın alalar.
 Maşinistler aqşam sarğuş qaytıp keleler.
 
 Klub qurulayata.
@@ -92,7 +95,7 @@ Ne vaqıt bitecek?
 Kimse bilmey, çünki klub plan mücibi, devlet parasınen degil, komsomollarnıñ öz küçlerinen... bedava qurula.
 Torizo onıñ divarlarını qalamaq içün bir bataq teneke... şifer bermedi.
 Klub binası umumiy inşaatnıñ iqtisadı esabına qurulmaqta.
-Bir kün yarım tonna ganç, yahud tsement tapıla qoysa, Hristofor, Nikolay, Raşid, men  boş vaqıtımızda yuvurıp barıp, rastvor yasay, binanıñ bir köşesini, qalap ve sılap kelemiz.
+Bir kün yarım tonna ganç, yahud tsement tapıla qoysa, Hristofor, Nikolay, Raşid, men  boş vaqıtımızda yuvurıp barıp, rastvor yasay, binanıñ bir köşesini, qalap ve sılap kelemiz.
 Soñ biraz ağaç tapılğance beklemek kerek ola.
 
 Arhipka turmuş problemaları hususında çoq davalaşıp oturdı.
@@ -109,14 +112,17 @@ Kimerde Nikolay ispanol türkülerinden beze, yunan yahud portegiz tavernaları 
 — Singapurda bulundıñmı? — dep soray menden,— anda bütün cadde ötellerden ve restoranlardan ibaret.
 Kerçek aytam — yalıñız ötel ve restoranlardan.
 Muzıka ve oyun gece-kündüz tınmay.
-Yemekler... o! Tekaran daa yürseñ — maallelerde adamlarnıñ soqaqlarda ayaq astında yatqalağanlarını ve açıq avada aç-çıplaq ömür keçirgenlerini köresiñ.
+Yemekler... o! Tekaran daa yürseñ — maalelerde adamlarnıñ soqaqlarda ayaq astında yatqalağanlarını ve açıq avada aç-çıplaq ömür keçirgenlerini köresiñ.
 Skelede adamlar yanımızdan keçkende "bolşevik", "Lenin", "koroşo" dep pısıldaylar.
-Olar bileler... episini bileler. — Nikolaynıñ parmaqları gitara telleri üzerinde oynağanları alda, sözüni devam etti: — Daa ne?
+Olar bileler... episini bileler.
+— Nikolaynıñ parmaqları gitara telleri üzerinde oynağanları alda, sözüni devam etti: — Daa ne?
 İspaniyamı?
 Barselona, şübesiz dülber şeer.
-Yalığa ayaq bastım deysiñ, seni acaip ispan qızları sarıp alalar: "yur, yur, keteyik!" — deyler. — "Yoq, qızlar, menim şeerde acele işim bar" — deyim. — "İşiñ barmı?
+Yalığa ayaq bastım deysiñ, seni acaip ispan qızları sarıp alalar: "yur, yur, keteyik!" — deyler.
+— "Yoq, qızlar, menim şeerde acele işim bar" — deyim.
+— "İşiñ barmı?
 Öyle olsa, ket! — deyler.
-Nasıl isteseñ, öyle yap: istessñ ket, istemeseñ — ketme.
+Nasıl isteseñ, öyle yap: isteysiñ ket, istemeseñ — ketme.
 İstesen tavernağa barayıq!" Olar gece-kündüz matroslarnen kezeler…
 Yap-yaş qızlar.
 Ya türkü aytıp başlasalar?
@@ -164,7 +170,8 @@ Bağşışlarnı qabul etmegen.
 Yalan aytasıñ! — Kandıba iddetlenip ayqırdı.
 Hristofor ise açuvlanıp, kitapnı krovat üstüne attı.
 Er vaqıt öyle ola.
-Kandıba kitaptaki şeyge inanmasa, basa qavğa ete.— Asâ niçün qalmadı?
+Kandıba kitaptaki şeyge inanmasa, basa qavğa ete.
+— Asâ niçün qalmadı?
 Niçün çıqıp ketti?
 
 — Men saña o yerini oquğan edim...
@@ -175,7 +182,8 @@ Nikolay qızıştı.
 Dava Turgenevniñ "Asâ"sı üstünde edi.
 
 — O ne?
-Esire edimi? — Kandıba, az qaldı, Hristofornıñ ğırtlağına yapışayazdı. — Deli qız...
+Esire edimi? — Kandıba, az qaldı, Hristofornıñ ğırtlağına yapışayazdı.
+— Deli qız...
 Böyle hucur sevgi olsunmı?
 Adresini bilmegeni ne?
 Men qıznıñ yerinde olsam...— O peçkanıñ yanına keldi, odunlarnı qarıştırıp baqtı, sılaq ekenligini körgen soñ, açuvlandı...
@@ -184,7 +192,8 @@ Qaqırıp polğa tükürdi, soñ ketip koykası üstüne yıqıldı.
 Peçkanıñ qapağı açıq qalğan soñ, dam üstünde uvulday bergen yel trubağa kirdi, baraknıñ içi tütünge toldı.
 
 Arhipka, dünyada ne qadar pesnut söz olsa, episini cıyıştırıp, bizni sögerek, peçkanıñ ögüne yuvurıp bardı, saksaul parçasınen türtip qapaqnı yaptı, soñ ayağınen tepip qapunı artınace açtı.
-Kandıba, Karim ve Raşid oña şübeli-şübeli baqtılar: — Delirdimi, ne? — dep tüşündiler olar, soñ mesele añlaşıldı.
+Kandıba, Karim ve Raşid oña şubeli-şubeli baqtılar.
+ — Delirdimi, ne? — dep tüşündiler olar, soñ mesele añlaşıldı.
 Hristofor asıl da sesini çıqarmadı.
 Gece işten qaçıp ketkeninden berli Arhipkanen laqırdı etmey edi.
 Bassaraba da indemedi.
@@ -194,13 +203,14 @@ Asıl da siyrek laqırdı ete.
 
 — Saña mektepniñ ne kerekligi bar? — dedi Kandıba,— şay da ülemasıñ!
 
-— Men şpal taşımaqtan bezdim,— dedi Arhipka. — Şaadetname olmasa, rıçag başına qoymaylar.
+— Men şpal taşımaqtan bezdim,— dedi Arhipka.
+— Şeadetname olmasa, rıçag başına qoymaylar.
 
 Raşid gizliden Arhipkanıñ artına keçti.
 
 — Arhipka niçün mektepke kirmek istey?
 Bilesiñizmi? — dep soradı,— men bilem.
-Naçalnik olıp, yuqarı maallege köçmek... sığır almaq, Rahilge evlenip, tınç yaşamaq istey...
+Naçalnik olıp, yuqarı maalege köçmek... sığır almaq, Rahilge evlenip, tınç yaşamaq istey...
 Öylemi, Arhipka?
 
 Arhipka ırcaydı.
@@ -217,7 +227,8 @@ Rahil külküge qulaq asmadı.
 — Pek sıcaqlandıñızmı, ne? — dep soradı o.
 İçeri kirip, qapunı qapattı.
 
-— Arhipkanıñ bürtükli betini körmeseñ, eki daqiqa oturalmaysıñ, — dedi Kandıba.— Bezmediñmi ondan?
+— Arhipkanıñ bürtükli betini körmeseñ, eki daqiqa oturalmaysıñ, — dedi Kandıba.
+— Bezmediñmi ondan?
 
 — Arhipkadan bezmek olurmı? — Rahil yasama ğurur ile onıñ krovatına doğruldı.
 
@@ -227,11 +238,13 @@ Rahil cevap bermedi.
 Egilip, Arhipkanıñ qulağına bir şeyler pısırdadı.
 Soñ başını töpege tikledi.
 
-— Kilsege? — taaciplenip soradı. — Niçün?
+— Kilsege? — taaciplenip soradı.
+— Niçün?
 
-Qız, koftasınıñ tışqa asılıp qalğan ucunı yubkasınıñ içine tıqtı, kölmeginiñ astında coyılıp ketken küçük köküslerine kederli baqtı elini pervasız alda sallap, krovat üstüne oturdı.
+Qız, koftasınıñ tışqa asılıp qalğan ucunı yubkasınıñ içine tıqtı, kölmeginiñ astında coyulıp ketken küçük köküslerine kederli baqtı, elini pervasız alda sallap, krovat üstüne oturdı.
 
-— Aqayğa çıqa bermekten yoruldım,— dedi o. — Bekârlıq yahşı.
+— Aqayğa çıqa bermekten yoruldım,— dedi o.
+— Bekârlıq yahşı.
 Elbette, Arhipka razı olsa, bir kere daa evlenip baqmaq mümkün.
 
 Men onı acıdım, çünki soñki sözleri — yürekteki ağrınen çıqqan sözler edi.
@@ -239,13 +252,14 @@ Men onı acıdım, çünki soñki sözleri — yürekteki ağrınen çıqqan sö
 Arhipka elini onıñ omuzı üzerine qoydı.
 Rahil sekirip ayaqqa turdı.
 
-— Bu baraknıñ içinde ekşip-pükşüp oturğanıñız ne?— dedi o,— aşhanede eki bayan, bir gitara... ur patlasın, çalalar.
+— Bu baraknıñ içinde ekşip-pükşüp oturğanıñız ne? — dedi o,— aşhanede eki bayan, bir gitara... ur patlasın, çalalar.
 Barıp, bir-birimnzniñ boyunlarımızğa asılsaq, beton polnı biraz taptasaq, ne ola?
 
 Qız çıqtı.
 Onıñ artından Arhipka yuvurıp ketti.
 
 — E!
-Ya men? — Nikolay gitarasını qaqıp aldı. — Ekşip-pükşüpmi?
+Ya men? — Nikolay gitarasını qaqıp aldı.
+— Ekşip-pükşüpmi?
 Yo-o-q!
 Men de kettim.
