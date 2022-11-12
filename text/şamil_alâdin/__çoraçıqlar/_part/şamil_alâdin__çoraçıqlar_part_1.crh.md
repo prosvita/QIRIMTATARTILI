@@ -1,6 +1,6 @@
 Yapraqlar töküldi.
 Otlar-ölenler sarardı, soldılar.
-Çürük hıyar örkenleri arasında alma tökündisi çoqçıp yürgen uzun quyruqlı savusqanlarnıñ davuşı qarıq ve ğamlı çıqmaqta.
+Çürük hıyar örkenleri arasında alma töküntisi çoqçıp yürgen uzun quyruqlı savusqanlarnıñ davuşı qarıq ve ğamlı çıqmaqta.
 Bu hayriyetlikke degil.
 Ava deñişecek.
 Belki topraq buzlaycaq, belki qar yağacaq, çünki küz endi bitmek üzre.
@@ -14,8 +14,8 @@ Qomşu evlerde kimse yoq.
 Olarnıñ saipleri yazlıq mevsimni bitirip, şeerdeki qışlıq evlerine qayttılar.
 
 Qart qazah Aman, bu evlerniñ qaravulı, omuzında, tüfegi, yoldan künde eki kere keçe, kimerde toqtalıp, qapumıznı qaqa: “Süt... qatıq kerekmi?” dep soray.
-“Kerek...” desem, ertesi künü tañda qarısı Han Babu qapu ögündeki terekniñ çatallı pıtaqları arasında bir bardaq süt, yahut qatıq qaldırıp kete.
-Yazda Aman bizim evni sıqça ziyaret ete.
+“Kerek...” desem, ertesi künü tañda qarısı Han Babu qapu ögündeki terekniñ çatallı pıtaqları arasında bir bardaq süt yahut qatıq qaldırıp kete.
+Yazda Аman bizim evni sıqça ziyaret ete.
 Özü bir çaqrım uzaqta, demiryol keçidi yanında yaşay.
 
 Şimdi ava bulutlı.
@@ -42,7 +42,7 @@ Kündüz elektrik çırağı yaqmağa istemeyim.
 Yaqsam, közlerim yorula, yaşlana.
 Evelde öyle olmay edi.
 Evde bu arada özümden başqa kimse yoq.
-Aqırından ayaqqa turam, kibrit çertem, şamdamlar üstündeki yeşil ve qırmızı renkli çıraqlarnı yaqam.
+Aqırından ayaqqa turam, kibrit çertem, şamdanlar üstündeki yeşil ve qırmızı renkli çıraqlarnı yaqam.
 Çıraqlar yanğan soñ, odanıñ içinde azaçıq mavı, azaçıq da sarı ışıqlı efsaneviy müit ükümran ola.
 Bir talay vaqıt keçe.
 Çıraqlar qıza, alevleri töpege sozula, yelpirey... tosat-tosat küçlü etip çatlaylar.
@@ -51,7 +51,7 @@ Ortalıq balavuz qoquy.
 Özüm odanıñ ortasında alçaq kürsü üstünde oturam, ayaqlarımnı ögge uzatıp, televizor baqam.
 Mikis Teodorakiske barışıqnı mühkemlendirüv oğrundaki müim hızmetleri içün Lenin mukâfatı berilgeni beyan etilmekte.
 Quvurçıq saçlı, dedil çereli kişi...
-Yunanistannı almanlar zapt etken devirde özüniñ faşist apishanelerinde çekken ziyetlerini yunanca ve türkçe ikâye ete.
+Yunanistannı almanlar zapt etken devirde özüniñ faşist apishanelerinde çekken еziyetlerini yunanca ve türkçe ikâye ete.
 Men diqqatle diñleyim.
 Teodorakis acayip kompozitor.
 Kilim üzerinde Serovnıñ “Tatar qadınları” buluna.
@@ -67,13 +67,14 @@ Digeriniñ yüzü açıq.
 Başında altınlı fes ve mavı bürümçik.
 Eki acayip varlıq.
 İzaatqa kelmez tabiat serveti.
-Olar aqşam üstü gügümleri ile dereden suv almağa kelgenler, araretli, oynaq yürekleri sevgi ile tolup taşqanından sebep, suv başında öz aralarında dertleşüvge tutunğanlar.
+Olar aqşam üstü gügümleri ile dereden suv almağa kelgenler, araretli, oynaq yürekleri sevgi ile tolıp taşqanından sebep, suv başında öz aralarında dertleşüvge tutunğanlar.
 Gügümler unutılğan... kenarda bom-boş, yatsırap turalar.
 Eki peri eki taş üzerine oturğan, ayaqqaplarını çıqarıp, ayaqlarını suv içine tüşürgenler.
 Özende suv çağlay, aqa.
 Eki peri subet eteler.
 Ah, bu sıcaq közler!
 Bu cilveli baqışlar!
+
 Sizlerni qaysı hoş-baht ana doğurdı aceba?
 
 Dereniñ bir yaqı qayalıq.
@@ -84,6 +85,7 @@ Nasıl köy?
 Ay Serezmi?
 Urkustamı?
 Yoqsa, menim cigerim Mahuldürmi?
+
 Siz, Valentin Aleksandroviç, ğayet alicenap adam ekensiñiz!
 Sanatta böyle şerefli mearet, böyle muammalı bediyet yaratmaq... taacipli şey!
 
@@ -95,14 +97,14 @@ Serov 1893 senesiniñ yazını öz ailesi ile beraber Bağçasaray civarında R.
 S. Lvovanıñ yazlıq evinde keçirgen.
 O vaqıtta etüdlar çızğan.
 “Tatar qadınları” o ziyaretniñ yemişi.
+
 Süret Roma ve Parij sergilerinde bulunğan, alemniñ alğışlarını qazanğan!
 
 Hayalım sürette eken, talğın közlerimni zametle yuqarı köterdim, nazarım pencere ögündeki şımşırğa tüşti.
 Ruzgârdan bükülgen dalları pencereniñ camını tırnap-tırnap almaqtalar.
 Ebediy yeşil şımşır... diger çıplaq terekler suvuq yel altında titreyler, sınalar.
 Bu qaviy bedenli terek, öyle degil.
-Demirden yasalı gemiler suv üstünde yüzeler.
-Batmaylar.
+Demirden yasalı gemiler suv üstünde yüreler.
 Bunıñ bir kesegi bata.
 Tabiatnıñ cilvesi!
 
@@ -134,7 +136,6 @@ Kişi aqlı.
 Nezaket sıñırsız degil.
 Bunı añlamaq kerekim.
 Albu ki, men, qapunı açıp, tışqa közetkenimnen, kişini tanıdım.
-Tanığanımnı sezdirmedim.
 Men yalıñız onıñ özüni tanıdım.
 Maşina içindekilerni ilki körüşim.
 
@@ -150,7 +151,8 @@ Yüzü birden aqçıl renk aldı, maña yarı sevinçli, yarı kederli nazar ta�
 Meni unutmağansıñız!
 
 – Sizni unutmaqmı?
-Bu mümkün degil! – dedim men. – Çünki siz birinci ediñiz.
+Bu mümkün degil! – dedim men.
+– Çünki siz birinci ediñiz.
 Birinciler unutılmay.
 Rica etem, evge buyurıñız!
 
@@ -164,31 +166,32 @@ Mında işim, zanıma qalsa, tez bite qoymaycaq.
 
 – Afu etiñiz, ocam! – dedim men, – Selâmet mıtlaqa ketmek kerekmi?
 Evimizge kirip, bir filcan qavemizni içse, Nu-Tufanı qopacaqmı? – dep baqtım.
+
 Oca indemedi, güya sözlerimni eşitmedi.
 Mıyıqlı yigit maşinanı biraz artqa berdi, art köpçeklerini solğa aylandırdı, soñra küçlü surat ile demir çabaqlı qapu betke aydap ketti.
 Oña ne “bir filcan qave”, ne de eki ihtiyar kişi arasında olacaq qonuşma kerek degil edi.
 Selâmetniñ dünyası başqa.
 Selâmet gidrogeolog.
 O, Çarvaqnı qurğan.
-Şimdi bent divarlarını pekitüvniñ yeñi usulınen meşğul.
+Şimdi bent divarlarını pekitüvniñ yeñi usulınen meşğül.
 
-Men ocanıñ bağırına atıldım, o meni quçaqladı.
+Men ocanıñ bağrına atıldım, o meni quçaqladı.
 Men onıñ alını-evalını, o menimkini, soraştıq.
 Men, sevinip, onıñ arqasını eki qolumnen, eki yaqlap taptadım, o da menimkini.
 Men, şaşmalap, onıñ sağ qulağınıñ kenarından öptim, o mañlayını menim yanağıma tayap, kevdesinen köküsime sıyıqtı.
 Bu teşrifat çoqqa sürdi.
 Bitken soñ kişilik odağa kirip, oturdıq.
 
-– Sizni körüv menim içün büyük şeref, ocam! – dedim men samimiyetle. – Bu ziyaretiñizni, menim şahsiyetime köstergen yüksek itibarıñız dep bilmek kerekim.
+– Sizni körüv menim içün büyük şeref, ocam! – dedim men samimiyetle.
+– Bu ziyaretiñizni, menim şahsiyetime köstergen yüksek itibarıñız dep bilmek kerekim.
 Teşekkür sizge!
 Doğrusı, körüşip olurmız degen ümüdim yoq edi.
 Söyleñiz, muallim, bu yaqlarğa nasıl tüştiñiz?
 
 Musafir külümsiredi, sustı.
 Menim ayretli nidalarıma cevap bermege aşıqmadı.
-“Sabur et!
-Episi hususında tafsilâtlı izaat alırsıñ!” dep tüşüngen kibi sezildi.
-Müçelerini topladı, pekitti, evelâ içinde çalqanğan araretni, zeinindeki fikirlerni tertipke çekti, soñra şamdam üzerindeki çıraqlarnıñ lipildegen yarığını eslep, ayretle közetti, indemedi.
+“Sabır et! Episi hususında tafsilâtlı izaat alırsıñ!” dep tüşüngen kibi sezildi.
+Müçelerini topladı, pekitti, evelâ içinde çalqanğan araretni, zeinindeki fikirlerni tertipke çekti, soñra şamdan üzerindeki çıraqlarnıñ lipildegen yarığını eslep, ayretle közetti, indemedi.
 Asılında ev içinde iç bir şeyniñ maiyetine itibar bermedi.
 Menim sözlerimni de eşitmedi.
 O tüşündi.
@@ -196,7 +199,7 @@ O tüşündi.
 Hayli vaqıt böyle sükünet ve tüşünce içinde keçken soñ, musafir etli közqapaqlarını maña köterdi.
 
 – Barlığı-yoqluğı bellisiz adamnıñ ancaq bugün apansızdan kelüvi, elbet de... – ocanıñ lafı bu yerde üzüldi.
-O, boyunını ögge uzatıp, qaç defa yutqundı, soñra devam etti: – Elbet de, böyle ziyaret iç bir tasavurğa sığmay.
+O, boynunı ögge uzatıp, qaç defa yutqundı, soñra devam etti: – Elbet de, böyle ziyaret iç bir tasavurğa sığmay.
 Ama meni tanıycağıñızğa iç de emin degil edim.
 
 – Ümütsizden kelüviñizde, men, aksine, bir ilâ-ilik körem.
@@ -208,13 +211,14 @@ Bizge, yeñi akimiyet qurula başlağan devirde kelgen ediñiz, ocam!
 Pek rezaletli devir edi o yıllar!
 
 – Sizge... ebet!
-O vaqıtta epiñiz kiçkene çöçamiyler... ediñiz.
+O vaqıtta epiñiz kiçkene çоçamiyler... ediñiz.
 Kerçek, özüm de esli degil edim.
 Soñra siziñ köyni terk ettim.
 Şeerge, öz evimizge qaytıp keldim.
 Babamız yerindeki Arifmemet ağam darıldı.
 “Niçün keldiñ?
-Özüñe malüm, bizim keçinişimiz de pek ziynetli degil, – dedi maña. – Menim artqaç tamaq baqmağa alım yoq.” “Qayttım, çünki başqa çarem olmadı...” dedim men.
+Özüñe malüm, bizim keçinişimiz de pek ziynetli degil, – dedi maña. – Menim artqaç tamaq baqmağa alım yoq”.
+“Qayttım, çünki başqa çarem olmadı...” dedim men.
 O çoq tüşünip oturdı.
 “Kelmege – keldiñ... ket, Totayköyde oqu!” dedi, niayet.
 Men Arifmemet ağanıñ ögütini küttim.
@@ -227,14 +231,15 @@ Orta mektep direktorı oldım.
 Köyge nemselerniñ top-arabaları kelip kirgende mektepte derslerim devam etmekte edi.
 Siz meni, Mahuldürden ketti, başqa yerde debdebeli ayat sürdi belleydirsiñiz!
 Yoq!
-Muallimlik yer yerde bir.
+Muallimlik er yerde bir.
 
 Men ocanıñ çalıq, aqıllı sözlerini hoşnutlıqnen diñlemekte olıp, aqırından ayaqqa turdım, evde acayip cınıstan kimse yoqluğı sebebinden, özüm aşhanege çıqıp, qave pişirip ketirmek isteginen qapuğa doğruldım, oca niyetimni duyıp, meni toqtattı.
 
-– Zamet etmeñiz! – dedi maña. – Oturıñız, biraz qonuşayıq!
-Menim yarım künlük vaqıtım bar.
+– Zamet etmeñiz! – dedi maña.
+– Oturıñız, biraz qonuşayıq!
+Menim yarım künlük vaqtım bar.
 Gece poyezdinen Şahrihanğa qaytacağım. – Qatiyen razı olmadı.
-Meni yerime oturmağa mecbur etti.
+Meni yerime oturtmağa mecbur etti.
 Özü bir talay sustı.
 Sözü ne üzerinde üzülgenini eske ketirmek içün tüşündi... hatırlap olamadı.
 Men, sözü muallimlikniñ alı... üstünde bölüngenini hatırlattım.
@@ -242,6 +247,7 @@ Oca, niçün bilmem, lafını endi bu mevzuda devam etmek istemedi.
 Başındaki qalpağını çıqarıp, yanaşadaki oturğıç üstüne qoydı.
 Damarları kögerik, çökürli qolunen başını, mañlayından tutıp, yelkesine taba, soñra aksine, sıypadı.
 Qalpaqnı alıp, küçük şkaf üstüne qoymaq içün uzandım, oca qalpaqnı oturğıçı taqımınen çetke çekti.
+
 Aldırmadı. – Yoq!
 Yoq!
 Aci-güci!
@@ -268,7 +274,7 @@ Birazdan Fatma qave pişirip ketirdi.
 Oca ile ekimiz hoşnutlıqle içtik.
 Çünki men ilki ocamnı, musafir ise, ilki şakirdini körmekle, tasvirge kelmez alda memnün edik.
 Ocağa, masa üzerindeki almağa buyurmasını rica ettim, o teşekkür bildirdi, almağa bir defa bile toqunmadı.
-Onıñ beñizindeki ifade tosat-tosat deñişti, oturğan yerinde bazan bir yanbaşı üstünden tüşti, digeri üstüne mindi.
+Onıñ beñzindeki ifade tosat-tosat deñişti, oturğan yerinde bazan bir yanbaşı üstünden tüşti, digeri üstüne mindi.
 Közleri çereme bunarlı ve kergin baqtılar.
 Menden bir şeyler soraycaq, belki de bir şeyler üstünde davalaşacaq, ama cesaret etip olamağan kibi köründi.
 
@@ -284,16 +290,16 @@ Cenk meni pek ezdi, pek hırpaladı.
 Alâ onıñ serpindesi altındam.
 Yaralı ayağımnıñ ve sınıq qaburğamnıñ qaytavlı ağrılarınen çekişem.
 
-– Siziñ, ocam, bana ağızıñızdan bir türlü... ne deyim sizge, zevqlı sözçikler çıqtı.
+– Siziñ, ocam, bana ağzıñızdan bir türlü... ne deyim sizge, zevqlı sözçikler çıqtı.
 Çıqtımı... yoqsa, maña öyle eşitildimi?
 Lâkin, bilmeyim, men qulaqtan daa pek zayıf degilim.
 O sözçiklerden soñ tekrar yürekten uruldım.
 Hatirime Yaman Geçti deresi keldi.
-Burunıma kiyik otlarnıñ acayip qoqusı urdı.
+Burnuma kiyik otlarnıñ acayip qoqusı urdı.
 Siz: “aci-güci...” dediñiz!
 Niçün öyle dediñiz, ocam?
 
-Men eminim, bu ibare musafirniñ ağızından tesadufen çıqmadı.
+Men eminim, bu ibare musafirniñ ağzından tesadüfen çıqmadı.
 Olarnıñ, o sözlerniñ, efsaneviy manası bar.
 Ama, oca açıqtan-açıq izaat berüvden çekingen kibi sezildi.
 Yengilden yutqundı, köz qapaqlarını aşağı endirdi, hayli vaqıt ayaqlarınıñ uclarına baqıp susıp oturdı.
@@ -303,19 +309,18 @@ Men şay... özüm! – dedi oca, bir talaydan soñ, azaçıq tutuqlanıp.
 Sizni doquz yaşındasıñız belledim.
 Yañıldım.
 Ayıp etmeñiz, men kimerde o yıllardaki vaqialarnıñ özünen yaşayım, – oca yavaş-yavaş açıla başladı. – Siz Memed-Aliniñ qızınen bir ralede otura ediñiz.
-Teneffüsler vaqıtında Emine sizni “aci-güci mandalaç, acınıñ qızını al da qaç!” dep eriştire turğan.
+Teneffüsler vaqtında Emine sizni “aci-güci mandalaç, acınıñ qızını al da qaç!” dep eriştire turğan.
 Hatiriñizdemi?
 Siz bu sözlerni azetmey ediñiz.
-Bir defa, ders vaqıtında, qız qulağıñız altında gizliden: “aci-güci...” dep fısıldağanda...
+Bir defa, ders vaqtında, qız qulağıñız altında gizliden: “aci-güci...” dep fısıldağanda...
 Ebet, Emine öyle degende, siz açuvlandıñız, qıznı türttiñiz, rale üstündeki merekep şişesi yuvarlandı, qıznıñ üstüne merekep töküldi.
-Anteri bılaştı.
+Anteri bulaştı.
 Soñra Abdulla emcesi yetişip keldi, meni sögdi.
 Aşaladı.
 Erzaqtan marum etilecegimni ayttı.
 
 – Rica etem, sizge, ocam!
-Menimnen “siz” dep qonuşmañız! – dedim musafirge. – “Sen” deñiz!
-“Siz” deseñiz, pek azaplanam!
+Menimnen “siz” dep qonuşmañız! – dedim musafirge. – “Sen” deñiz! “Siz” deseñiz, pek azaplanam!
 
 Oca evelâ menim sözlerimniñ manasını añlamadı... añlağan soñ özüni sıqıntılı vaziyette is etti.
 Yüzü qızardı.
@@ -359,7 +364,7 @@ Ve pamuq zavodında içtimaiy hızmet!
 – Arifmemet oca sağmı?
 
 – Ağammı?
-Yoq! – musafir tutulıp-tutulıp nefes aldı. – Cenk vaqıtında ğayıp oldı.
+Yoq! – musafir tutulıp-tutulıp nefes aldı. – Cenk vaqtında ğayıp oldı.
 Evel Qara deñizde “İliç” gemisinde terciman edi.
 Bilseñiz kerek!
 
@@ -387,7 +392,7 @@ Tatamnıñ oğlu Bilâl... cenkte öldi.
 Cenk ocanıñ başına esapsız felâketler ketirgen.
 Eñ üyken ağası Amet de... birinci cian muarebesinden qaytıp kelmegen edi.
 Ocadan büyügi, yüksek qıyafetli Asannı Bağçasarayda daima eki atlı lelenka üstünde köre edim.
-Müessiselerniñ birinde hocalıq işlerinen meşğul edi.
+Müessiselerniñ birinde hocalıq işlerinen meşğül edi.
 Şimdi o da ayatta yoq.
 
 Ocanıñ doğmuşlarınıñ episiniñ taqdirlerini sorap bildim.
@@ -404,7 +409,7 @@ Cenk bitkeni çoq vaqıt oldı.
 Duşman ateşinen yaqılğan-yıqılğan şeerler ve köyler artıq yeñiden quruldı.
 Sağ-selâmet, yahut elsiz-ayaqsız, yarıcannen qaytıp kelip, evleriniñ qapuları ögünde toqtalıp, secde etken, bosağanı öpip, soñra içeri atlağan erkeklerniñ endi ölgeni – öldi, qalğanı – qaldı.
 Yaş qocalarından marum kelinler qartaydı.
-Bombalar ceenneminden tesadufen qurtulıp qalğan balalar östi-büyüdi... olarnıñ da balaları oldı.
+Bombalar ceenneminden tesadüfen qurtulıp qalğan balalar östi-büyüdi... olarnıñ da balaları oldı.
 Qartanalar torunlarına qartbabalarınıñ cesürliklerini ikâye eteler.
 Çölde unutılıp qalğan sınıq pülemötlarnı, top arabalarını topraq örtti, üzerlerini ot biyledi.
 Ama adamlarnıñ ağızlarından: “Elâk oldı”, “esir tüşti”, “kontslager...”, “gaz ocağı” sözleri alâ tüşmeyler.
@@ -420,7 +425,7 @@ Ruhiy muşaadelerge kelgende, ocanıñ yüregindeki yara alâ taze ekenini añla
 
 – Bilesiñizmi? – dedi maña musafirim. – Men cenkte ölgen adamlarımız hususında yanıqlı haberler çoq eşittim.
 Öyle haberler eşittim ki, cigerlerim telçe-telçe ola yazdılar.
-O sebeptep, ölgenlerden ziyade qalğanlar hususında tüşünmege qarar bergen edim.
+O sebepten, ölgenlerden ziyade qalğanlar hususında tüşünmege qarar bergen edim.
 Qararımnı şimdi özüm bozdım.
 
 – Yoq, oca!
@@ -439,9 +444,7 @@ Sağ qolu eki zeerli qurşun ile ağır yaralanğan.
 Onı Taşkentke ketirdim.
 Ükümet Yunusqa yaşamaq içün şeerniñ merkezinde kvartira ve yengil avtomobil berdi.
 O, bir şeyge ihtiyac sezmey yaşadı.
-“Sen baltanen yasalı ağaç ayaqnen yüresiñ.
-Ükümet saña zavodda yapılğan soyunı berdi.
-Onıñnen niçün yürmeysiñ?” dedim oña bir defa, evini ziyaret etken vaqıtımda.
+“Sen baltanen yasalı ağaç ayaqnen yüresiñ, ükümet saña zavodda yapılğan soyunı berdi, onıñnen niçün yürmeysiñ?” dedim oña bir defa, evini ziyaret etken vaqtımda.
 Yunus sözlerime ıncındı, asabiylendi.
 Men sezdim, onı ıncıtqan şey – menim sözlerim degil.
 Özüniñ müşkül vaziyeti edi.
@@ -449,18 +452,15 @@ Men sezdim, onı ıncıtqan şey – menim sözlerim degil.
 Onı taqmaq içün qasıqta yer olmaq kerek.
 Menimkinde yer yoq.
 Ayağım bütünley kesilip alınğan”.
-Ağam öyle degende, yüregim solqıldadı, közlerim yaşlandı.
+Ağam öyle degende, yüregim solquldadı, közlerim yaşlandı.
 Biraz vaqıt daa keçti, meni Yunusnıñ vaziyeti kene kederlendirdi.
 “Sen, ağa, az areket etesiñ!
 Ağaç ayaqnen serbest yürip olamaysıñ, – dedim Yunusqa. – O sebepten, semiresiñ.
 Semirmek kimse içün faydalı degil.
 Bare, qoltuq tayaqnen yürmege alış!
 Qoltuq tayaqlarnen yürmesi yengil!” Yunusnıñ maña kene canı ağırdı.
-“Qoltuq tayaqlarnen de yürip olamayım.
-Sağ qolum cansız kibi.
-Siñirleri ezilgen, qopqan.
-Bu – qol degil.
-Areketsiz sopa parçası.
+“Qoltuq tayaqlarnen de yürip olamayım, sağ qolum cansız kibi, siñirleri ezilgen, qopqan.
+Bu qol değil, аreketsiz sopa parçası.
 İnanmasañ, özüñ de baq... – O, egildi, sol elinen kölmegini çıqarıp, sağ omuzını maña çevirdi.
 Qoltuğı astında mavı renkli eki oyuq kördim...
 Yüregim sıqletlendi.
@@ -473,21 +473,22 @@ Yunus menden üç yaş büyük.
 Bir şeyler tüşüne.
 Men oña keder etmek istemeyim.
 Sükünet çoq devam etti.
+
 “Sen maña, bizim evge, siyrek kelesiñ! – dedi Yunus, niayet, – niçün öyle siyrek kelesiñ?” Men közlerimni aşağı doğrulttım, tüşüncege daldım.
 Niçün siyrek kelem?
 Bunı nasıl añlatırsıñ?
 “Vaqıt yetişmey, ağa!” dedim men.
-“Vaqıtım yetişmey, deysiñmi?
+“Vaqtım yetişmey, deysiñmi?
 Üsturtqa, Guzarğa ketip, qum sahralarındaki yerteşerler arasında aylarnen yüresiñ... yañ qaytıp keldiñ degende, bir daa yoq olıp ketesiñ!
-Buña vaqıtıñ yetişe de!
-Maña kelip alımnı soramaq içün vaqıtıñ yetişmeymi?” Ne dersiñ buña?
+Buña vaqtıñ yetişe de!
+Maña kelip alımnı soramaq içün vaqtıñ yetişmeymi?” Ne dersiñ buña?
 Bu, elbet de, doğmuşlar arasında daima sezilip kelgen öpkelenüv, öz kişiñni ziyaret içün “vaqıt yoqluğı”.
 “Niçün, ağa?
 Men tap seniñ degeniñ qadar, zekâsız degilim.
 Vaziyetiñni bilem, özüm de cenklerde oldım.
 Vaqıt ruhset etkende kelip ketem.
 Alıñnı-hatiriñni sorayım.
-Ama, sen talap etken kibi, er cuma ertesi saña kelmege... yoq, bunıñ içün imkânım yoq!” Yunus menimnen razı olmadı.
+Ama, sen talap etken kibi, er cumaertesi saña kelmege... yoq, bunıñ içün imkânım yoq!” Yunus menimnen razı olmadı.
 İtiraz etmek içün çımqındı-yutqundı... sustı.
 
 1982 senesi sentâbrniñ doquzıncı kününde Yunus vefat etti.
@@ -538,9 +539,8 @@ Oca sol yeñiniñ ucunı azaçıq yuqarı köterip, saatına közetti.
 
 – Qorqam... – dedi o. – Selâmet tezden Çarvaqta işlerini bitirip kelir, men de Taşkentke qaytmağa mecbur olurım.
 Siziñnen lafımız üzülip qalır.
-Yanar-yaqılarım.
 
-– Bizde qalırsıñız! – dedim men. – Laqırdı, içün zaruret büyük.
+– Bizde qalırsıñız! – dedim men. – Laqırdı içün zaruret büyük.
 Yarın sizni vokzalğa özüm ozğarırım.
 
 – Mümkün degil, – dedi Abdureşid oca. – Saba qızım meni Andijan vokzalında bekleycek.
@@ -550,16 +550,15 @@ Menim ilki ocam!
 Ve tam bir daimiyetten soñ bu körüşüv!
 Ne qadar hayriyetli vaqia!
 Böyle eyecanlı müitte tüşüncelerim çıbaldı... musafirimden sorap bilmek istegen fikirlerimniñ tertibi bozuldı.
-Balalıq çağımda zeinimde basılı qalğan izler şimdi açıldı, sınıfta ocanıñ bizge qara tahta üzerinde bor ile qıyışlı-qonğırlı, beyaz arifler yazdırğanı ve olarnı, o, ariflerni, büyük meşaqqat ile ecelep oquğanımız hatirime keldi.
+Balalıq çağımda zeinimde basılı qalğan izler şimdi açıldı, sınıfta ocanıñ bizge qara tahta üzerinde bor ile qıyışlı-qıñğırlı, beyaz arifler yazdırğanı ve olarnı, o, ariflerni, büyük meşaqqat ile ecelep oquğanımız hatirime keldi.
 
 – Bizim köyge qaysı yılda kelgen ediñiz, ocam? – dep soradım musafirden. – On sekizdemi?
 
 – Yoq.
 On sekizde köyüñiz almanlarnıñ qolunda edi.
 Meni soñundan ketirdiler.
-Sizde çoq olmadım.
 
-– Ebet, apansızdan ketip qaldıñız, ocam! – dedim oña, – men doquz yaşınpda edim.
+– Ebet, apansızdan ketip qaldıñız, ocam! – dedim oña, – men doquz yaşında edim.
 Doquz yaşındaki bala ne bile?
 Ne añlay?
 Siz kettiñiz.
@@ -569,7 +568,7 @@ Körmek istedim.
 Özüñiz şaatsıñız ki, men şimdi doquz yaşında degilim, – böyle diye, başımda bir top saçımnı tutıp kösterdim. – Bularnı köresiñizmi?
 Men alâ taaciplenem... siz, şeerli adam, bizim köyge nasıl etip tüştiñiz?
 Biz bunı sizden sorap-bilip olamadıq, çünki kiçkene edik.
-Kimer ocalar dersler vaqıtında öz ayatlarını ikâye eteler.
+Kimer ocalar dersler vaqtında öz ayatlarını ikâye eteler.
 Bu meraqlı.
 Siz bizlerni ep tahtağa çağıra ediñiz.
 
@@ -580,18 +579,18 @@ Men anda yalıñız meşaqqat degil, eyilik de kördim.
 Ve men, eski akimiyet memleketni şuralar idaresine aç, çıplaq, ğarip alda qaldırıp ketkenini unutmaq istemeyim.
 “Özüñiz aqqıñızda...” deysiñiz!
 Özüm aqqımda ne deyim sizge?
-O zamanda mende tercimen al yoq... on doquz yaşında, sanki bala edim.
+O zamanda mende tercimeiyal yoq... on doquz yaşında, sanki bala edim.
 Ama köyüñiz hususında hatirimde qalğan bazı adiseler tarihiy emiyetten marum degiller.
 Men özüm, Selâmet oğlu Abdureşid, bu şiddetli, furtunalı yeñi asırnıñ birinci yılında Bağçasarayda ruhaniy qorantada doğdım.
 Babam Selâmet efendi Arslan-ağa maallesindeki mektepniñ ocası edi.
 O, Cemiyet-i Hayriye yardımınen yeñi mektep binası yasatıp, özü şu mektepniñ müdiri oldı.
-Hatiriñizde olsun ki, soñundan şuralar akimiyeti devirinde medeniyet saasında belli-başlı erbaplar olıp yetişken Osman Zeki, Ümer İpçi, Yaqub ve Fevzi Musanifler, Üsein Penerci, Abdulla, Seit-Ümer, Yaqub Kürkçiler bu mektepte okudılar.
+Hatiriñizde olsun ki, soñundan şuralar akimiyeti devrinde medeniyet saasında belli-başlı erbaplar olıp yetişken Osman Zeki, Ümer İpçi, Yaqub ve Fevzi Musanifler, Üsein Penerci, Abdulla, Seit-Ümer, Yaqub Kürkçiler bu mektepte oqudılar.
 Yaqub Şakir-Ali mında muallimlerniñ birisi edi.
 Birinci cian muarebesi başlağan yılı babam vefat etti.
 O sebepten ailemizniñ vaziyeti ağırlaştı, men Salaçıqta halama kettim, onıñ evinde yaşadım.
 Eki yıl dayımnıñ baqqal tükânında kâyalıq yaptım.
 Evimizde işler tekaran çığırına mingen soñ, tekrar şeerniñ özüne qaytıp, Darülmualliminde oqudım.
-Yaz tatilleri vaqıtında ırğatlıq etip, aqça qazanıp, darülmualliminde oquvım içün yılda altmış kümüş töledim.
+Yaz tatilleri vaqtında ırğatlıq etip, aqça qazanıp, darülmualliminde oquvım içün yılda altmış kümüş töledim.
 
 1920 senesi noyabr 14-te şeer Vrangel askeriy küçlerinden azat etildi.
 Şuralar akimiyeti qurulğanı on altı kün degende, Mahuldür muallimi İsmail Aqqiy efendi Asan oğlu, şu köylü İbraim ağanıñ lelenkasına oturıp, ekisi oca qıdırıp Bağçasarayğa kelgenler.
@@ -609,24 +608,24 @@ Yaşım on doquzda.
 Menden oca olurmı?” dep tüşündim.
 Lâkin Yaya Naci şeerimizde pek müteber kişi, onıñ teklifine itiraz etmek mümkün degil.
 Yaya Naci ve Arifmemet ağam meni ayarta başladılar.
-“Padişa devirinde halqımız insanlıq uqquından marum edi.
+“Padişa devrinde halqımız insanlıq uquğından marum edi.
 Endi emekçi halqlar beklegen akimiyet keldi.
 Bizlerge oqumaq, insan olmaq içün uquq berdi, – dedi Bayburtlı, – fuqare köylü balalarını sen oqutmasañ, men oqutmasam, Arifmemet ağañ oqutmasa, kim oqutacaq?
 Tatar ebediyen cail qalacaqmı?
 Çoq tüşünmege acet yoq.
 Ket, köyde bir talay çalış!
-Biz bu mektepte, köy mektepleri içün acele sürette ocalar azırlav işinen meşğulmiz.
-Olar oquvnı bitirseler, çar-çapik volostlarğa ketecek, fuqare balalarını oqutacaqlar.
+Biz bu mektepte, köy mektepleri içün acele sürette ocalar azırlav işinen meşğülmiz.
+Olar oquvnı bitirseler, çar-çabik volostlarğa ketecek, fuqare balalarını oqutacaqlar.
 O vaqıtta, isteseñ, seni çağırtıp alırmız”.
 
 Yaya Nacide adamnı qandıruv qabiliyeti küçlü, çünki bilgiden qudretli edi.
-Arifmemet ağam da Yaya Naciniñ fikirine qoşuldı.
+Arifmemet ağam da Yaya Naciniñ fikrine qoşuldı.
 Ekevleşip meni ayarttılar.
 Razı oldım.
 Çünki ocalıqqa aves edim.
 Evge barıp, anam ile sağlıqlaştım.
 O, menim daa bala qıyafetime baqıp, coştı, ağlamsıradı.
-Evden çıqayatqanda qoluma ufaq boğça tuttırdı... “Ma, oğlum!
+Evden çıqayatqanda qoluma ufaq boğça tutturdı... “Ma, oğlum!
 Kölmek, çorap... yüzbez.
 Saña kerek olur!” dedi.
 Men lelenkağa oturıp, Mahuldürge kettim.
@@ -648,7 +647,7 @@ Biz lelenka üstündemiz.
 Üstümde urbam yufqa.
 Ayaqlarım üşüy... indemeyim.
 Betim, ğaliba, mos-mor.
-İbraim ağa (bu adamğa, qaza neticesinde bir közü zararlanğanı üçün, köyde Kör İbram dey ediler) yavaştan arqasına aylanıp baqa, menim alımnı seze.
+İbraim ağa (bu adamğa, qaza neticesinde bir közü zararlanğanı içün, köyde Kör İbram dey ediler) yavaştan arqasına aylanıp baqa, menim alımnı seze.
 “Atlar aqırın yüreler, sekir tüş yerge!
 Biraz cayav yür!” dey maña.
 Men, acemiyligim içün, İsmail efendiden utanıp, yerge tüşüvden red etem.
@@ -744,7 +743,7 @@ Yantıqlarnı aşadıq.
 Birer meşrebe de maqsıma içtik.
 
 İsmail efendi elli yaşlarında, yufqa, qara saqallı, yüksek adam.
-Maqsıma içken vaqıtımızda aydın, temiz közlerinen maña baqa berdi, külümsiredi.
+Maqsıma içken vaqtımızda aydın, temiz közlerinen maña baqa berdi, külümsiredi.
 
 – Men Arifmemet ile çoqtan tanışım, – dedi, niayet, – siziñ ağañız ekenini bilmey edim.
 Zıncırlıda onıñnen beraber oqudıq.
@@ -769,7 +768,7 @@ Memedaliniñ buhar degirmeni eki afta evelsi köylü boğdayınıñ pudundan eki
 Bu sözlerni ulu adam aytqan.
 Men olarnı qaydadır oqudım.
 Osman beyni akimiyetten marum etken soñ, mülkiyetinden de quru qaldırmaq kerek.
-Bu eki işni bir pereden yapmaq ğayet mürekkep.
+Bu eki işni bir kereden yapmaq ğayet mürekkep.
 
 Ğavr köpüri yanında oñ qolğa tik yol ayırıldı.
 Obalı-çuqurlı, enişli-yoquşlı...
@@ -807,7 +806,7 @@ Ne qadar?
 Nasıl?
 İstiqbal kösterecek!
 
-Tabiatnıñ mücizeliligine ayretlenip, baqıp turğan vaqıtımda İbram ağa lelenkanı yol boyu aşağı aydap ketti, soñra iri azbarğa kirdi, atlarnı tuvardı, ahırğa qapadı.
+Tabiatnıñ mücizeliligine ayretlenip, baqıp turğan vaqtımda İbram ağa lelenkanı yol boyu aşağı aydap ketti, soñra iri azbarğa kirdi, atlarnı tuvardı, ahırğa qapadı.
 Men episini kördim, eşittim.
 Ondan soñ taş basamaqlı tik merdiven boyu yolğa, menim yanıma çıqtı.
 
@@ -861,7 +860,7 @@ Peşkir.
 Köşede iri sandıq üstünde cıyılğan töşek, yurğan, yastıq.
 Pencerede perde.
 İbram ağa qaç kereler maña baqtı.
-Fikirimni bilmek istedi.
+Fikrimni bilmek istedi.
 Albu ki menim içün ne qadar uyğunlıq kerek?
 Başım üstünde dam, astımda töşek olsa, kâfi.
 Odanı taqdir ettim.
@@ -882,7 +881,7 @@ Qave pişirmek de kerekmey.
 
 İbram ağa indemedi.
 Azbar qapuğa doğru adımladı.
-Qapuğa yakıñlağan soñ maña işaret parmağını köterdi.
+Qapuğa yaqınlağan soñ maña işaret parmağını köterdi.
 Yanına bardım.
 
 – Şimdi ne işiñ bar? – dep soradı menden. – İsmail efendinen nasıl añlaştıñız?
@@ -917,7 +916,6 @@ Bu tertipke, umumen, riayet etile.
 Kimerde tertip bozula.
 Bala derske kelmey... demek ki, odun da ketirilmey.
 Derske bir kün on talebe kelmese, yigirmi odun yetişmey.
-Eki golland ocağınıñ biri yaqılmay.
 Soba yanında quru bedenli er kişi ve şeerlice kiyimli yaş qadın, ayaq üstünde turıp, İsmail efendi ile laqırdı etmekteler.
 İsmail efendi menim başımnı köre qaldı.
 
@@ -944,7 +942,7 @@ Endi onıñ yerinde siz işleyceksiñiz.
 Sizge, Abdureşid efendi, işni başından başlamaq faydalı olur.
 O sebepten birinci ve ekinci sınıflarnı sizge işanam.
 Olarnı oqutacaq ve terbiyeleyceksiñiz! – Böyle degende İsmail efendi sağ eliniñ işaret parmağını yuqarı köterdi. – Yeñi akimiyet, yani şuralar ruhunda terbiyeleyceksiñiz!
-Yaya efendi ve Safiye hanım bizde rus tili derslerinen meşğuller.
+Yaya efendi ve Safiye hanım bizde rus tili derslerinen meşğüller.
 Nasıl, Abdureşid efendi?
 Menim tevsiyem ile razısıñızmı?
 
@@ -962,7 +960,7 @@ Men sınıf defterini alıp (defterni özümnen almağa aqılım yetkenine soñu
 Ders hanege kirdik.
 Müdir, bizni ürmet ile ayaqqa qalqqan talebelerni, eliniñ areketinen yerlerine oturttı, meni olarğa taqdim etti.
 “Bugünden itibaren sizlerniñ, yani birinci ve ekinci sınıflarnıñ, ocası Abdureşid efendi... – dedi müdir.
-Talebeler derslerge vaqıtında kelip – vaqıtında ketmek, yeñi ocanı sevmek-saymaq, sözüni tutmaq kerekligini, til qaytarmaq, ders vaqıtında sınıftan çıqmaq, biri-birinen laqırdı etmek yasaq ekenini, nizamğa tabi olmağanlar ceza köreceklerini añlatıp, balalarnıñ ve menim işlerimizde muvafaqiyet istep, ders haneden çıqtı.
+Talebeler derslerge vaqıtında kelip – vaqtında ketmek, yeñi ocanı sevmek-saymaq, sözüni tutmaq kerekligini, til qaytarmaq, ders vaqtında sınıftan çıqmaq, biri-birinen laqırdı etmek yasaq ekenini, nizamğa tabi olmağanlar ceza köreceklerini añlatıp, balalarnıñ ve menim işlerimizde muvafaqiyet istep, ders haneden çıqtı.
 
 Müdir ketken soñ men yazı tahtası ögüne keldim, yüzümni talebelerge çevirip, sınıf defterini masa üzerine qoydım: “Selâm aleykim, qıymetli talebeler! – dedim balalarğa.
 Birinci ve ekinci sınıflarda talebelerge böyle muracaat, ocalıq ameliyatında körülgen şeymi, bilmeyim.
@@ -970,7 +968,7 @@ Maña: “birinci dersiñni böyle sözlernen başlarsıñ” dep kimse aytqanı
 Bu öz teşebbüsim sayesinde doğğan ilki ocalıq usulım.
 Talebeler menim selâmıma qarşılıq olaraq: “aleykim selâm, ürmetli muallimimiz Abdureşid efendi!” dep, bir ağızdan cevap berdiler.
 Yoq... doğrusını aytsam, episi bir ağızdan olıp çıqmadı.
-Talebelerniñ bir qısımı sözlerni ötkür, açıq-aydın söyledi, bir qısımınıñ davuşı tınıq, mecalsız eşitildi.
+Talebelerniñ bir qısımı sözlerni ötkür, açıq-aydın söyledi, bir qısmınıñ davuşı tınıq, mecalsız eşitildi.
 Nasıl da olsa, balalar menim kendilerine muracaatımnıñ asıl manasını doğru añlağanlarından ve, episi olmasa da, ekseriy sözlerni doğru ve açıq söylegenlerinden memnün qaldım.
 Lâkin balalar ocanıñ selâmına böyle nezaketli cevap berilmek kerekligini qaydan bildiler?
 Bunı olarğa kim ögretti? – Men sizge ana tilimizde oqumağa ve yazmağa ögretecegim.
@@ -983,8 +981,7 @@ Añladıñızmı?”
 
 Böyle etip, menim ocalıq faaliyetim başladı.
 Bana muallimler odasında İsmail efendi degeni kibi, menim ocalıq tecribem yoq, bu aqlı sözler.
-Ama zemskiy mektebiniñ müdiri Yaya Naci meni bu mektepke yollağanda: “fuqare köylü balalarını sen oqutmasañ, men oqutmasam.
-Arifmemet oqutmasa, kim oqutacaq?” degen edi.
+Ama zemskiy mektebiniñ müdiri Yaya Naci meni bu mektepke yollağanda: “fuqare köylü balalarını sen oqutmasañ, men oqutmasam, Arifmemet oqutmasa, kim oqutacaq?” degen edi.
 Zan etsem, onıñ sözleri de aqsız degil, aksine, pek qanuniy ediler.
 Men fuqare köylü balalarını oqutmaq içün keldim.
 Nasıl usullarnen oqutacağım?
