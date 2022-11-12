@@ -18,12 +18,14 @@ Dilâver kelir.
 
 – Ya Rabbi! – Şefiqa ardı kesilmez nidalar içinde közyaşlarını sildi. – Bu cefa ne içün?
 
-– Belki... – Zeverced bir şeyler daa tüşünip çıqardı ğaliba. – Belki dostlarınen beraber zavodqa ketkendir?
+– Belki... 
+– Zeverced bir şeyler daa tüşünip çıqardı ğaliba. 
+– Belki dostlarınen beraber zavodğa ketkendir?
 Maşina kelgen olsa... oturdı ketti daa!
 Aysa!
 Şübe yoq, o anda.
 Barıp, baqıp keleyim.
-Qızınıñ yeñi fikiri aqılğa yatqan şeymi degilmi, Çauş o hususta bir şey aytmadı, amma Zeverced azbar qapuğa yaqınlağanda, onıñ artından özü de ketti.
+Qızınıñ yañı fikri aqılğa yatqan şeymi degilmi, Çauş o hususta bir şey aytmadı, amma Zeverced azbar qapuğa yaqınlağanda, onıñ artından özü de ketti.
 Evde qalıp olamadı.
 
 Küçü yetmedi.
@@ -49,7 +51,8 @@ Onıñ küneşten baqır renk alğan yüzü ve külümsirer, iri közleri Şefiq
 Bala onıñ sözlerini añladımı añlamadımı, yenge farqına barmadı.
 Bu evde er kes tatarca laqırdı ete.
 Bala ise, ğaliba, añlamadı.
-Kadınnıñ közyaşından sılanğan yüzüne baqtı ve köz qapaqlarını sıq-sıq açıp yaptı. 
+Qadınnıñ közyaşından sılanğan yüzüne baqtı ve köz qapaqlarını sıq-sıq açıp yaptı.
+
 – Biz Potiden keldik, – dedi o, cesaretsiz alda ve arqasına aylanıp baqtı.
 Anda, qapunıñ o yaqında, terrasada, beyaz kölmekli adam turmaqta ve balağa parmaqları ile nasıldır işaretler etmekte edi.
 
@@ -65,9 +68,11 @@ Küneş şavleleri camlardan keçip, terrasanıñ içine tökülmekte ediler.
 Etrafqa baqındı.
 Mında da çım-çırt edi.
 
-– Kim edi o? – dep soradı yenge oğlançıqtan. – Eliñni kimge salladıñ?
+– Kim edi o? – dep soradı yenge oğlançıqtan.
+ – Eliñni kimge salladıñ?
 
-– Seröja emcege, – dep cevap berdi bala. – Biz beraber keldik.
+– Seröja emcege, – dep cevap berdi bala. 
+– Biz beraber keldik.
 
 – Seröja emcege?
 Kim o, Seröja emce? – Şefiqa taaciplendi.
@@ -106,7 +111,9 @@ Hayli vaqıttan soñ... dudaqlarını cibitken nasıldır suvuq suv Şefiqanıñ
 Közlerini açtı.
 Yanında Şemsnurnıñ eyecanlı çeresini kördi.
 
-– Sizge ne oldı, Şefiqa apte? – Qız sılaq yavlıqnen onıñ samaylarını sıypamaqta edi. – Ötimni patlata yazdıñız!
+– Sizge ne oldı, Şefiqa apte? 
+– Qız sılaq yavluqnen onıñ samaylarını sıypamaqta edi.
+– Ötümni patlata yazdıñız!
 
 Yenge özü de qorqtı.
 Başına esi kelgeninen, Şemsnurğa kiyik-kiyik közetti.
@@ -115,7 +122,7 @@ Başına esi kelgeninen, Şemsnurğa kiyik-kiyik közetti.
 Bu balağa baq!
 Köresiñmi onı?
 
-– Ebet?
+– Ebet.
 
 – Dilâverim... dey.
 Bu nasıl şey? – Şefiqa tekrar ağladı.
@@ -125,7 +132,7 @@ Kendini şefqatlı zan ettirmek istep, oña mulâyim nazar etti.
 
 – Men Dilâverim, – dedi bala tekrar. – Dilâver Çauşım.
 Niçün meni añlamaq istemeysiñiz?
-Neme taaciplenesiñiz?
+Nege taaciplenesiñiz?
 
 – Sen Dilâver Çauşnıñ oğlusıñmı?
 
@@ -136,7 +143,7 @@ Dilâverniñ oğlu.
 Öylemi?
 
 Bala sevinip, başını qaqıttı.
-“Çala-çala, ğaliba, uydıra başladıq!” dep tüşündi o.
+“Çala-çala, ğaliba, uydura başladıq!” dep tüşündi o.
 
 – Şemsnur, qızım, sen bir şey añladıñmi? – dep soradı Şefiqa yenge, alâ iñleyerek.
 
@@ -145,20 +152,27 @@ Bu yigit – siziñ torunıñız, – Şemsnur qartiyge tınç ve göñülsiz al
 Adı, babasınıñki kibi – Dilâver.
 
 – Torunım?
-Vay anam! – Şefiqa setten qalqtı, ezgelengen müçesini zar-zoruna idare etip, balağa doğruldı: – Oğlumnıñ oğlu... qana, közleriñe bir baqayım, qozuçığım... – quçaqladı, bağırına bastı. – Babañ kelmedimi, balaçığım?
+Vay anam! 
+– Şefiqa setten qalqtı, ezgelengen müçesini zar-zoruna idare etip, balağa doğruldı: 
+– Oğlumnıñ oğlu... qana, közleriñe bir baqayım, qozuçığım... – quçaqladı, bağırına bastı. 
+– Babañ kelmedimi, balaçığım?
 Niçün yalıñızsıñ?
 
-– Men yalıñız degilim, – quru, lâkin sıcaq qart eller arasında sıqılğan Dilâver, sevinçten ve saadetten zornen nefes alğanı alda, dedi: – Men Seröja emcenen keldim.
+– Men yalıñız degilim, – quru, lâkin sıcaq qart eller arasında sıqılğan Dilâver, sevinçten ve saadetten zornen nefes alğanı alda, dedi:
+ – Men Seröja emcenen keldim.
 Stantsiyada bizni qarşılap alacaqlar dedi, kimseni körmedik.
 
-– Kene Seröja emce!.. – Şefiqa bu çıbalıq vaqialar içinde şaşmalap, teren köküs keçirdi. – Qayda o, Seröja emce degeniñ?
+– Kene Seröja emce!.. 
+– Şefiqa bu çıbalıq vaqialar içinde şaşmalap, teren köküs keçirdi. 
+– Qayda o, Seröja emce degeniñ?
 O alicenap adam?
 
 – Sofa içinde edi.
 Soñ ketken...
 
 – Şemsnur, çap, qızım!
-Belki qapu ögündedir! – yenge musafirge öpkelendi. – O, qadar uzaq yoldan kelipte, evge kirmegeni!..
+Belki qapu ögündedir! – yenge musafirge öpkelendi. 
+– O, qadar uzaq yoldan kelipte, evge kirmegeni!..
 
 Şemsnur bağçağa çıqtı.
 Kimseni tapamağan soñ, yuvurıp, yolğa ketti.
@@ -166,7 +180,8 @@ Kimseni tapamağan soñ, yuvurıp, yolğa ketti.
 Mecul Seröja emce qıdırılğan arada, Şefiqa torunını tekrar quçaqladı, yüzünden öpti.
 
 – Menim qozuçığım!
-Torunçığım!.. – balanı ohşadı. – Babasınıñ özü.
+Torunçığım!.. – balanı ohşadı. 
+– Babasınıñ özü.
 Nasıl oldı da, birden tanıp olamadım?
 
 Şemsnur tüşkün alda qaytıp keldi.
@@ -175,19 +190,22 @@ Nasıl oldı da, birden tanıp olamadım?
 
 – Ey, Alla!
 Yolcu kişi, evge kirip, bir filcan qave içmedi.
-Vay, anaçığım! – Şefiqa ayılday-vayılday berdi. – Sen, oğulçığım, pek yorğundırsıñ.
-Soyun, yuvun. – Yenge musafirhanege kirdi, nağışlı yüzbez alıp çıqtı. – Bar, uluq astında yuvun!
+Vay, anaçığım! 
+– Şefiqa ayılday-vayılday berdi. 
+– Sen, oğulçığım, pek yorğundırsıñ.
+Soyun, yuvun. 
+– Yenge musafirhanege kirdi, nağışlı yüzbez alıp çıqtı. 
+– Bar, uluq astında yuvun!
 
 Şefiqa yenge, ğaliba, oğlunı unuttı.
 O taliy tarafından taqdim etilgen torunğa bütünley berildi.
 Sevingeninden, balanıñ etrafında aylana berdi, oña ne berecegini, ne ile erkeleycegini bilmedi.
-Kence Dilâver kölmegini çıqarıp, yuvunmağa tedariklenmekte oldı, Şefiqa sofra donatmağa tutındı.
+Kence Dilâver kölmegini çıqarıp, yuvunmağa tedariklenmekte oldı, Şefiqa sofra donatmağa tutundı.
 Zerdali, alma qoydı, büyük meşaqqat ile elde etilgen zeytünni çıqardı, keniş aileviy stolnıñ üstüni çeşit tarelkalar ve vazalar ile toldurdı.
 
 Bala, elinde yüzbez, bağçağa çıqtı.
 Pevrenk astına egilip, yuvuna başladı.
-Uzaq, tunçıq yoldan soñ, bu – bir hoş meşğuliyet edi.
-Torun yuvunır eken, Çauş ve Zeverced kelip kirdiler.
+Uzaq, tınçıq yoldan soñ, bu – bir hoş meşğuliyet edi, тorun yuvunır eken, Çauş ve Zeverced kelip kirdiler.
 Olar evde yat balanı kördi, amma taaciplenmediler.
 Çünki Şemsnur olarnı azbar qapu yanında rastketirip, er şeyni añlatqan:
 
@@ -195,7 +213,7 @@ Olar evde yat balanı kördi, amma taaciplenmediler.
 
 – Torun... menim torunım keldi, şaymı? – Çauş kün boyu çapqalap yorultqan saqat ayağını acımay, uluqqa yuvurdı.
 Onıñ yüregi küçlü urmaqta edi.
-Soñki saatlarda o qadar eyecanlandı ki, eski kederlerine aqılğa sığmaz yeñi, deşetli haberler kelip qoşula berdiler.
+Soñki saatlarda o qadar eyecanlandı ki, eski kederlerine aqılğa sığmaz yañı, deşetli haberler kelip qoşula berdiler.
 Torun...
 Mustafa taqdirniñ bu ediyesine azır degil edi, amma şimdi tüşünip oturmağa vaqıt yoq.
 Uluq başında fırqılday berip yuvunayatqan, yanıq tenli, araretli bala... o, kim?
@@ -207,9 +225,10 @@ Lâkin eyecan, şübe... bular qaydalardadır yoq olıp kettiler.
 Olarnıñ yerinde real ayat qaldı.
 Ögünde qanı canı ile doğmuş barlıq turmaqta.
 
-– Dilâver... – dedi Çauş titrek sesinen. – Oğlumnıñ oğlu!
+– Dilâver... – dedi Çauş titrek sesinen. 
+– Oğlumnıñ oğlu!
 
-Qonşu oda içinden Şefiqanıñ kederli davuşı çıqtı.
+Qomşu oda içinden Şefiqanıñ kederli davuşı çıqtı.
 O, artıq sofranı azırlağan, şimdi tekrar torunına taba kelmekte edi.
 
 – Oğlumnıñ oğlu... bu yahşı.
@@ -224,11 +243,12 @@ Kerçekten de, Dilâverniñ özü niçün yoq?
 
 Lâkin sözlerine pek facialı aenk bermedi.
 Şay... söz sırası ayta qoydı, soñ torunınıñ omuzındaki yüzbezni alıp, Şefiqağa uzattı.
-Zeverced üdür qıyamet keldi, Dilâverni quçaqladı, öpti... musafir ise miskin qozu kibi sustı.
+% Zeverced  keldi, Dilâverni quçaqladı, öpti... musafir ise miskin qozu kibi sustı.
 Qartanasınıñ sözleri diqqattan tüşip qaldılar.
 Dilâver olarnı güya eşitmedi.
 
-– Kence Dilâver... endi menim de oğlan qardaşım bar, – Zeverced samimiyetle küldi. – eşitesiñmi, Şemsnur?
+– Kence Dilâver... endi menim de oğlan qardaşım bar, – Zeverced samimiyetle küldi. 
+– Eşitesiñmi, Şemsnur?
 
 – Babañ qayda? – dep soradı Çauş tekrar.
 
@@ -239,20 +259,23 @@ Onıñ yoqluğı aqqında bir şey bilmeylermi aceba?” – dep taaciplendi kü
 
 Zeverced torunnıñ yüreginde nasıldır keder barlığını sezse kerek, onıñ duşüncesini böldi.
 
-– Ayaq üstünde turğanımız ne? – dedi o, etraftakilerge. – Kişi sım-sılaq, sürtünmege bile imkân bermeymiz.
+– Ayaq üstünde turğanımız ne? – dedi o, etraftakilerge. 
+– Kişi sım-sılaq, sürtünmege bile imkân bermeymiz.
 Oña kiyinmek kerek. – Qız Dilâverniñ elinden tutıp evge alıp ketti.
 
-– Yoq, sen sabır et! – dedi Şefiqa, qızına. – Men suallerime cevap eşitmek isteyim.
+– Yoq, sen sabır et! – dedi Şefiqa, qızına. 
+– Men suallerime cevap eşitmek isteyim.
 
 Amma yengeniñ sözleri pek yımşaq ve tınç çıqtılar, öyle yımşaq ve mulâyim çıqtılar ki, qız atta toqtalmağa bile acet körmedi.
 Toqtamağanı içün digerler de onıñ peşinden terrasağa doğruldılar.
 Çauş da artlarından ketti.
 
-Evge kirgen soñ, adetiy qalabalıq başladı: qadınlar bala içün urba qıdırdılar... elbette, kelişken şey birden tapalmadılar.
+Evge kirgen soñ, adetiy qalabalıq başlandı: qadınlar bala içün urba qıdırdılar... elbette, kelişken şey birden tapalmadılar.
 Ne kölmek, ne ştan.
 Tapalmağanları içün Şefiqa afaqanlandı.
 
-– Menim özümde bar, – dedi Dilâver, er kes çaresizlenip turğan arada, cebinden anahtarını çıqardı, çemodanını açmağa niyetlengende, qadınlar, sabır etalmay, balağa yardım içün çapıştılar.
+– Menim özümde bar, – dedi Dilâver. 
+Er kes çaresizlenip turğan arada, cebinden anahtarını çıqardı, çemodanını açmağa niyetlengende, qadınlar, sabır etalmay, balağa yardım içün çapıştılar.
 Birincisi Zeverced oldı.
 Bir daqiqa keçer keçmez, çemodan içindeki şeylerniñ episini çıqarıp, stol üzerine qoydı.
 Yeñsiz yipek kölmek, qısqa tüp don, üst ştan... episi mevcüt.
@@ -287,7 +310,8 @@ Sevinçten pervasızlana başlağan közlerinen baqtı.
 
 – Ne aytasıñız, qartbaba?
 
-“Men torunğa niçün hıtap ettim?” – dep tüşündi Çauş. – Bunda zaruret barmı edi?
+“Men torunğa niçün hıtap ettim?” – dep tüşündi Çauş. 
+– Bunda zaruret barmı edi?
 Yoq.
 Men balanıñ közlerini körmek istedim.
 Onıñ közlerinde – oğlumnı körmek istedim.”
@@ -297,7 +321,8 @@ Amma qadınlar, ev saibiniñ niyetini eda içün yol bermediler.
 Balanıñ eşyasını qarıştırayatqan Zevercedniñ közleri tesadüfen qalın defterge iliştiler.
 
 – E!
-Bizim Dilâver edepli bala eken, – dep qıçırdı o, – yaz vaqıtında bile derslerinen meşğul olmaq istey.
+Bizim Dilâver edepli bala eken, – dep qıçırdı o. 
+– Yaz vaqtında bile derslerinen meşğul olmaq istey.
 Yoqsa, küzde berilecek imtianıñ barmı?
 
 Yigit ıncınğan kibi baqtı.
@@ -309,7 +334,8 @@ Yigit ıncınğan kibi baqtı.
 – Anamnıñki...
 
 – Vay!
-Anasınıñki olsa, tursun... kerekmey, – dedi Şefiqa pervasız alda, lâkin bir talay vaqıt keçti, esini topladı, soñ kiyik davuş ile qıçırdı: – Anañ?..
+Anasınıñki olsa, tursun... kerekmey, – dedi Şefiqa pervasız alda, lâkin bir talay vaqıt keçti, esini topladı, soñ kiyik davuş ile qıçırdı: 
+– Anañ?..
 Sen ne deysiñ, oğlum?
 Anamnıñki... deysiñmi?
 Men bir şey añlamayım!
@@ -319,7 +345,6 @@ Bala da qartananı añlamadı.
 Başını aşağı egiltti.
 Sustı.
 
-Şefiqanıñ niçün fiğan kötergenini başqalar abaylamay qaldılar.
 
 – Ebet!
 Medeniy ailelerde adet öyle... – defterden Şemsnurnıñ özüniñ qalbinde raatsızlıq asıl olğanı sezilse de, başqalarnı tenbiyeley berdi, – birevniñ defterindeki şeyni kimse oqumay.
@@ -328,12 +353,15 @@ Bu ayıp esap etile.
 Şemsnurnıñ sözleri balanı ıncıttı.
 O çemodanını qapatıp, çetke sürip qoymaq istedi, soñ bu niyetten vazgeçti, özüniñ aqlı ekenini isbat içün inatlandı.
 
-– Defter başqasınıñ degil... – dedi Dilâver. – Anda babam aqqında yazılğan.
+– Defter başqasınıñ degil... – dedi Dilâver. 
+– Anda babam aqqında yazılğan.
 Menim aqqımda da.
 
-– Dilâver aqqında yazılğanmı? – Çauş atılıp turdı, – qana... oğlum aqqında ne denilgen.
+– Dilâver aqqında yazılğanmı? 
+– Çauş atılıp turdı, – qana... oğlum aqqında ne denilgen.
 
-– Qaydan bileyim? – dedi Zeverced, defterni tizleri üstünde sıqıp tutaraq, – Zeynepniñ qaydları... belki kündeliktir.
+– Qaydan bileyim? – dedi Zeverced, defterni tizleri üstünde sıqıp tutaraq. 
+– Zeynepniñ qaydları... belki kündeliktir.
 Onı oqumaq, kerçekten de, yasaq.
 
 – Niçün? – Çauş taaciplendi.
@@ -341,12 +369,14 @@ Onı oqumaq, kerçekten de, yasaq.
 – Kişiniñ sırı.
 Şahsiy mektüp kibi bir şey... añladıñızmı?
 
-– Kimge... mektüp? – Mustafa ağa kene añlamadı.
+– Kimge... mektüp? 
+Mustafa ağa kene añlamadı.
 
 – Öz-özüne... yüreginiñ telqini.
 
 – Bu – aqıldanelik... – Çauş açuvlandı.
-Çünki özü ömürinde kündelik tutqan adam degil ve onda iç bir vaqıt zaruret körmegen. – Men oğlum aqqında haber eşitmek isteyim.
+Çünki özü ömürinde kündelik tutqan adam degil ve onda iç bir vaqıt zaruret körmegen.
+– Men oğlum aqqında haber eşitmek isteyim.
 Başqa şeyniñ menim içün emiyeti yoq.
 
 Qart Mustafanıñ közleri Şefiqağa çevirildi, güya ondan imdat körmek istediler.
@@ -365,7 +395,8 @@ Küçük Dilâver bu işte yardımğa keldi.
 Men defterni ateş içinden çekip çıqardım.
 Diqqat etseñiz, cıldnıñ çetleri yanıq ekenini köreceksiñiz.
 
-– Ateşke bıraqılğan olsa, demek, defter endi elden ketken, – Çauş meseleni felsefiy quruntı ile al etti. – Biz, onı taptıq.
+– Ateşke bıraqılğan olsa, demek, defter endi elden ketken, – Çauş meseleni felsefiy quruntı ile al etti. 
+– Biz, onı taptıq.
 
 – E!
 Mesele öyle olıp çıqa, – dedi Zeverced.
@@ -406,11 +437,10 @@ Deñiz etrafta, közge körünir dairede, süküt edi.
 Güya cenk degen şey yoq ve Kefede körgen felâketimiz – bir hayal edi.
 Adamlarnıñ içlerine canları keldi, çerelerinde tebessüm sezildi.
 Biz, barıp tüşecek yerimizde ömürni nasıl qura bilecegimiz hususında tüşüne başladıq.
-Lâkin bu yürek raatlığı vaqıtından evel asıl oldı.
+Lâkin bu yürek raatlığı vaqtından evel asıl oldı.
 Nemse tayyareleri bulutlar artından quzğunlar kibi çıqıp, bizim gemi üzerine atıldılar.
 
 Avada telüke barlığı aqqında sirena ökürdi.
-Kögertege yaqın tüşken ilki bombalardan qozğalğan suvlar, töpeleri körünmez qayalar şekilinde, kök yüzüne köterildi, soñra tekrar aşağı endiler.
 
 Bu deşetli levhanı tasvir etmek qıyın.
 Baştan keçirmek ise – daa da müşkül.
@@ -421,7 +451,7 @@ Adamlardaki acizlikni aytıp añlatmaq mümkün degil.
 Kapitan – tecribeli deñizci – gemini ateş astından çıqarmaq içün neler yapmadı!?
 Kögertedeki toplar tayyarelerge ardı kesilmez ateşler açtılar.
 Lâkin küçler musaviy degil.
-Tezden geminiñ burun qısımına bomba tüşti.
+Tezden geminiñ burun qısmına bomba tüşti.
 Gemi, negedir barıp urunğan kibi, küçlü çalqandı, soñ geminiñ parlanıq qaburğası tutaşıp yandı.
 Yandı ve... çöke başladı.
 
@@ -432,10 +462,13 @@ Kögertege çıqmaq içün bir-birimizni basıp-ezip yuqarı çapamız.
 İmdat... degen sadalar, iñiltiler.
 
 Matroslar şlang ile yanğınnı söndürmege ıntılalar.
-Bu esnada kapitannıñ qattı emiri eşitile: – Qayıqlar suvğa endirilsin! – dep qıçıra o ekinci yardımcığa... ekinci yardımcı ölü.
+Bu esnada kapitannıñ qattı emri eşitile: 
+– Qayıqlar suvğa endirilsin! – dep qıçıra o ekinci yardımcığa... ekinci yardımcı ölü.
 Evelâ yaş balalı qadınlarnı qurtarmaq kerek.
 Lâkin qayıqlar suvğa tüşer-tüşmez, bombalar astında parça-kesek olalar.
-“Dağılıñız! – dep cekire kapitan, qayıqlarda dümen başındaki matroslarğa. – Bir yerde toplanıp turmañız!” Bomba patlavlarından, gemi etrafındaki suv qaynamaqta, eñ cesür deñizciler bile bu ateş yağması içinden çıqalmay çekişeler.
+“Dağılıñız! – dep cekire kapitan, qayıqlarda dümen başındaki matroslarğa. 
+– Bir yerde toplanıp turmañız!”
+Bomba patlavlarından, gemi etrafındaki suv qaynamaqta, eñ cesür deñizciler bile bu ateş yağması içinden çıqalmay çekişeler.
 Balalar deñiz astına ketmekte, analar ise olarnıñ artından özlerini suvğa atıp, elâk olmaqtalar.
 
 Men kögertede turdım.
@@ -443,7 +476,7 @@ Bombalar tüşüvi toqtar, matroslar belki ateşni söndürirler belledim.
 Qayıqqa minmege çarem yoq.
 Mingenim taqdirde de, onıñ özü qurtulış degil, çünki, bomba tüşken sayın qayıqlardan eser qalmay, adamlar deñiz astına keteler.
 
-Hatirimde qalğan eñ soñki şey – ip merdiven oldı.
+Hatrimde qalğan eñ soñki şey – ip merdiven oldı.
 Onıñ ile yuqarı, direkniñ töpesine tırmaştım.
 Gemi batmaqta.
 Men ep maçtanıñ töpesine köterilem.
@@ -463,8 +496,8 @@ Bir şeyler ayttı.
 Añlamadım.
 Bu hususta laqırdı etmek, ğaliba, mümkün degil eken.
 
-– Keçken şey, – dedi o, kederli davuş ile, soñ azaçıq külümsiregen oldı. – Siz tirisiñiz.
-Yarınki künni tüşünmek kerek.
+– Keçken şey, – dedi o, kederli davuş ile, soñ azaçıq külümsiregen oldı. 
+– Siz tirisiñiz, yarınki künni tüşünmek kerek.
 Tezden balañız olacaq.
 
 Qocam aqqında bir şey aytmadı.
@@ -481,8 +514,7 @@ Göspitalden çıqtım.
 Alıma-çulıma köre yaşap turam.
 Er kes öyle.
 Oñaytlı müit hususında tüşünmege acet yoq.
-Kişiler maña: cebe arqasına.
-Orta Asiyağa ket, deyler.
+Kişiler maña: cebe arqasına, Orta Asiyağa ket, deyler.
 Bir qararğa kelip olamayım.
 Dilâver aqqında bir şey bilmek ve, çare olsa, onı körmek isteyim.
 Mında nasıldır suv altı matrosları kelecek... deyler.
@@ -518,7 +550,7 @@ Yüregim bir şeyler duya.
 Bu Kazarov edi.
 Gece eki dane suv altı gemisi ekipajı kelecegini çeşit sözler ile añlattı.
 Dilâver aqqında laqırdı yoq.
-Amma menim aqılım yetti, o, bu ekipajlar içinde olmaq kerek. 
+Amma menim aqılım yetti, o, bu ekipajlar içinde olmaq kerek.
 Bütün kün koridorlarda dolanıp çıqtım.
 Aqşamnı bekledim.
 Vaqıtnı aşıqtırdım.
@@ -546,9 +578,11 @@ Cenkniñ deşetli künlerinde bile insanda bahtlı daqiqalar ola eken.
 Dilâver sailde üç kün bulunacağını ve bu müddet içinde meni özünden üç adım uzaqqa yibermeycegini ayttı.
 
 – Ya hızmet!
-Göspital?.. – dedim men. – Meni cezalarlar.
+Göspital?.. – dedim men. 
+– Meni cezalarlar.
 
-– Barsın, cezalasınlar, – dedi o. – Men seniñ yanıñda olacağım.
+– Barsın, cezalasınlar, – dedi o. 
+– Men seniñ yanıñda olacağım.
 
 Sade meseleni çezmek bu qadar küç eken.
 Qocamnı bekley edim.
@@ -559,7 +593,7 @@ Er alda, ketmege azırlandım.
 Baqsam, Dilâverniñ közlerinde qorqu ve arzu sezildi.
 Men keter edim.
 O bile.
-Lâkin üyken emşire keldi, göspital başlığınıñ emirini bildirdi.
+Lâkin üyken emşire keldi, göspital başlığınıñ emrini bildirdi.
 O, qocamnıñ kelgenini bilip, meni üç künge işten azat etken.
 Teşekkür!
 Böyle meşaqqatlı vaqıtta bir kişi digeriniñ alını añlay, oña yardım ete.
@@ -592,7 +626,7 @@ Lâkin mümkünmi?
 
 “Biz vedalaşmaymız.
 Yoq, vedalaşmaymız...
-Böyle şey aqılıña asıl da kelmesin...” Dilâver maña bu sözlerni qaç kereler tekrarladı.
+Böyle şey aqlıña asıl da kelmesin...” Dilâver maña bu sözlerni qaç kereler tekrarladı.
 Niçün tekrarladı aceba?
 
 1942 senesi, yanvar 12.
@@ -610,7 +644,8 @@ Musafirler ne hususta laqırdı eteceklerini bilmediler.
 Bağsız, mantıqsız qonuştılar.
 Soñ Kazarov taqdirniñ qışımlı ceetleri aqqında söz açtı.
 
-– Zeynep... ayatta er şey bizim istegenimiz kibi olmay, – dedi o. – Mında, dünyanıñ bu acayip köşesinde, sükünet.
+– Zeynep... ayatta er şey bizim istegenimiz kibi olmay, – dedi o. 
+– Mında, dünyanıñ bu acayip köşesinde, sükünet.
 Bir yerlerde cenk ketkenine, adamlar elâk olayatqanına inanacağıñ kelmey.
 Amma er kün bizim saadetimizni qorçalap, biñlernen adamlar ölmekteler.
 
@@ -619,7 +654,8 @@ Men eñ qorqunçlı haberge bile çıdaya bilir edim, amma Kazarov aşıqmadı..
 Qorqtı.
 Men yüklü edim.
 
-– Dilâverge ne oldı? – dep ayqırdım men. – Tez aytıñız.
+– Dilâverge ne oldı? – dep ayqırdım men. 
+– Tez aytıñız.
 
 Kazarov közqapaqlarını aşağı endirdi.
 
@@ -709,7 +745,7 @@ Dilâver onıñ içün, kerçekten de yeñiden doğdı.
 
 Birinci künlerde Çauş balağa baqa berdi.
 Ondan kim olıp çıqar eken dep hayallandı.
-Elbette, ciddiy bir neticege kelmek içün yigit daa yaş, lâkin insan, qart Mustafanıñ fikirince, ömüriniñ ilki daqiqalarından başlap bir şey içün tayin etile.
+Elbette, ciddiy bir neticege kelmek içün yigit daa yaş, lâkin insan, qart Mustafanıñ fikrince, ömrüniñ ilki daqiqalarından başlap bir şey içün tayin etile.
 On dört yaşındaki balanıñ ise ayatta yeri belli.
 Eger o yer daa belgilenmegen olsa, Çauş onı özü belgilemek kerek.
 
@@ -724,7 +760,7 @@ Ya adamlar?
 
 Balanıñ kelgeni üç afta oldı.
 Bu vaqıt içinde Çauş oña er şeyni kösterip yetiştirdi – şeerni de, onıñ civarını da, çöllerni de, bağçalarnı da, neer üstünde qurulğan, plotinanı da.
-Dilâver Sır Daryağa balıq tutmağa da barıp keldi.
+Dilâver Sırdaryağa balıq tutmağa da barıp keldi.
 Qartbabası bu zenaatqa – can sıqıcı iş dep baqa, torun ise öyle baqmay.
 Demek, bala tınçlıqnı ve sükünetni seve.
 Babası nasıl edi?
@@ -738,7 +774,8 @@ Kerçek, balıq tutmay, özü yalday... gemiler yasay, qayıqlar yürsete edi.
 Potideki kibi.
 Amma ufaqlar.
 
-– İşte, mesele qayda... – dep tüşündi Çauş. – Demek, balada babasınıñ qılıqları çoq.
+– İşte, mesele qayda... – dep tüşündi Çauş. 
+– Demek, balada babasınıñ qılıqları çoq.
 Lâkin bu – tanış ve alışıq adiseleri içün asret çeküv degilmi eken?
 Üyken Dilâver dalğalardan çoq hoşlanmaz... olardan çetlenüvni sever edi.
 
@@ -758,8 +795,8 @@ Onıñ özü adamnı davet ete: birevni tınç dülberlikke, digerni gürdeli ay
 – Demek, er alda, deñiz?..
 
 Gizlemek ne kerek, Çauş torunında öz oğlunı körmek istedi.
-Yazıq ki, bala babasını bilmey, onıñ sımasını yüreginde, qaldırmağan.
-Madamki ip üzülgen, Çauş onı bağlamağa tırışacaq.
+Yazıq ki, bala babasını bilmey, onıñ sımasını yüreginde qaldırmağan.
+Madamki yip üzülgen, Çauş onı bağlamağa tırışacaq.
 Tek oña keder etmesinler, balanı ondan almasınlar, balanıñ diqqatını boş şeylerge celp etmesinler.
 
 Lâkin celp ettiler.
@@ -792,13 +829,15 @@ Eki saniyeden soñ qapu içinde tögerek beti ve uzun mıyıqları köründi.
 – Çağırılmağan musafirni qabul etesiñizmi, Mustafa ağa? – yüksek, lâkin cesaretsiz sesnen qıçırdı Seit Osman.
 
 – Musafir olsun... – dedi Çauş.
-Onıñ davuşı da pek qattı çıqmadı. – Tek musafir olsun, törümiz daima boş!
+Onıñ davuşı da pek qattı çıqmadı. 
+– Tek musafir olsun, törümiz daima boş!
 
 Adam, ne sebepten kelse kelsin, musafirperverlik borcu ev saibinden nezaket talap ete.
 O sebepten Çauş ve Seit Osman bir-birleriniñ ellerini yahşı etip sıqtı ve külümsirediler.
 Kerçek, bu pek sevinçli çere ile yapılmadı, çünki ekisiniñ de çerelerinde kerginlik ve ihtiyat açıqtan açıq sezilmekte edi.
-Çauşnıñ baqışında: “Sen, qart şeytan!
-Saña daa ne kerek oldı! – degen sual saqlı edi. – Sen başqasınıñ evine boştan boşqa kelmezsiñ... men bilem!” Er alda, ev saibi musafirniñ sağlığı-selâmetliginen, yaqın ve uzaq doğmuşlarınıñ evalınen meraqlandı.
+Çauşnıñ baqışında: “Sen, qart şeytan, saña daa ne kerek oldı! – degen sual saqlı edi.
+– Sen başqasınıñ evine boştan boşqa kelmezsiñ... men bilem!”.
+Er alda, ev saibi musafirniñ sağlığı-selâmetliginen, yaqın ve uzaq doğmuşlarınıñ evalınen meraqlandı.
 Seit Osman da öyle yapqan soñ ava aqqında laf açıldı.
 Seit Osman, soñki dört kün içinde araret ziyade köterilgeni sebebinden, işlemege taqatı yetişmegeninden şikâyetlendi.
 Soñ, Ura Tepa bette yer tayğanı aqqında laf oldı.
@@ -809,19 +848,20 @@ Bu arada Dilâver kirip keldi.
 Musafirniñ çeresi birden şeñlenip ketti.
 O balanıñ saçlarını sıypadı.
 
-– Soñ, nasıl? – dedi oña Seit Osman, – Qartbabañlarda qalasıñmı?
+– Soñ, nasıl? – dedi oña Seit Osman, – qartbabañlarda qalasıñmı?
 
-Seit Osman balanıñ fikirini bilmege tırışuvı, Çauşnıñ ailesindeki yeñi vaziyet ile tafsilâtlı tanış ekeninden delâlet edi.
+Seit Osman balanıñ fikrini bilmege tırışuvı, Çauşnıñ ailesindeki yañı vaziyet ile tafsilâtlı tanış ekeninden delâlet edi.
 Lâkin bu episi degil.
-Albu ise qart, balanıñ ne vaqıt, nasıl poyezdnen kelgeninden ve üç aftadan beri vaqıtını qayda keçirgeninden de haberdar.
+Albu ise qart, balanıñ ne vaqıt, nasıl poyezdnen kelgeninden ve üç aftadan beri vaqtını qayda keçirgeninden de haberdar.
 
 – Qal mında, – dep israr etti musafir.
 Güya yigit Çauşnıñ evine degil de, onıñ evinde qonaq edi.
 
 – Bilmeyim, – dedi Dilâver ve omuzlarını qıstı.
-O qartbabasınıñ divardaki resimine diqqat ile közetmekte edi.
+O qartbabasınıñ divardaki resmine diqqat ile közetmekte edi.
 Qartbabası top yanında tura.
-Pogonları üstünde, üyken leytenant ekenligini kösterici üç küçük yıldız körünmekte. – Anamnı sağındım, – dedi bala.
+Pogonları üstünde, üyken leytenant ekenligini kösterici üç küçük yıldız körünmekte.
+ – Anamnı sağındım, – dedi bala.
 
 – Sağınğan olsañ, çağır... mında kelsin! – dedi Seit Osman.
 
@@ -829,13 +869,15 @@ Pogonları üstünde, üyken leytenant ekenligini kösterici üç küçük yıld
 
 Dilâver, bu laqırdı qartbabasınıñ yüregine yatmağanını sezgen soñ sustı, bir talaydan bağçağa çıqıp ketti.
 
-Çauş, çırayı bulutlı alında, Seit Osmanı sofrağa davet etti: bir şeyler etip, onıñ hatirini hoşlamaq kerek.
+Çauş, çırayı bulutlı alında, Seit Osmannı sofrağa davet etti: bir şeyler etip, onıñ hatirini hoşlamaq kerek.
 O sebepten qarşısına keçip oturdı.
 
-– Şa-ay... demek, bizim yaqlarğa kelip tüştiñiz, – dedi Mustafa suvuq nezaket ile. – Bu nasıl oldı?
+– Şa-ay... demek, bizim yaqlarğa kelip tüştiñiz, – dedi Mustafa suvuq nezaket ile. 
+– Bu nasıl oldı?
 
 – Nasıl oldı?
-Bunı eki söz ile añlatmaq küç, – Seit Osman gür qaşları astından Çauşqa qorqa-qorqa közetti. – Qolaysız vaqıtta keldim, ğaliba.
+Bunı eki söz ile añlatmaq küç, – Seit Osman gür qaşları astından Çauşqa qorqa-qorqa közetti. 
+– Qolaysız vaqıtta keldim, ğaliba.
 
 Şay dep, sözüni üzdi.
 Bekledi...
@@ -847,30 +889,34 @@ Lâkin Mustafa musafirniñ laqırdısına itibar bermedi.
 Bir talaydan soñ, stol üstünde asıl da yoq ötmek ufaqlarını cıyıştırğan oldı.
 Musafir, bunı sezip, teşebbüsni öz eline aldı.
 
-– Başıñızğa em sevinç, em keder tüşti... – dedi o, Çauşqa. – Sevinç, çünki torun peyda oldı, keder çünki oğluñız ebediyen ğayıp.
+– Başıñızğa em sevinç, em keder tüşti... – dedi o, Çauşqa.
+– Sevinç, çünki torun peyda oldı, keder çünki oğluñız ebediyen ğayıp.
 Ğayet mürekkep vaziyet, men añlayım...
 Er alda, keldim.
 
 Seit Osman bu sözlerni, elbette, qolay-qolay ayta qoymadı.
 
-– Şeriat qanunlarına közlerimni yumıp keldim... – dedi o, tekrar. – Bunı añlamaq kereksiñiz, Mustafa ağa!
+– Şeriat qanunlarına közlerimni yumıp keldim... – dedi o, tekrar.
+ – Bunı añlamaq kereksiñiz, Mustafa ağa!
 
 Bu inat adam ne istey?
 Keçmişteki vaqianı artıq unuttımı?
 Yoq, unutmadı...
-Er şey hatirinde.
+Er şey hatrinde.
 
 – Men balalarımıznıñ bahtı hususında aytam.
 
 İşte, mesele qaydı?
 Özü, evelkisi kibi, kin ve açuv ile qalğan, oğlunı ise, Çauşnıñ esabına bahtlı etmek istey... dep tüşündi ev saibi.
 
-– Balalarımıznıñ? – o, musafirniñ sözlerini añlamağan çıray ile baqtı. – Ne yapmaq kerek?
+– Balalarımıznıñ? – o, musafirniñ sözlerini añlamağan çıray ile baqtı. 
+– Ne yapmaq kerek?
 
 – Bizim oğlan, siziñ qız, bir yerde östiler... – dedi Seit Osman.
 
 – Bu ne vaqıt olğan şey? – dep soradı Çauş.
-Mañlayınıñ terisi qatmerlenip ketti. – Aqılımda yoq!
+Mañlayınıñ terisi qatmerlenip ketti. 
+– Aqlımda yoq!
 
 Çauşnıñ sözleri şefqatsız yañğıradılar.
 Musafir ev saibiniñ qalbinde açuvlı duyğular alâ saqlı ekenini sezdi.
@@ -878,13 +924,15 @@ Demek, er şey evelki alında qalğan, bu eki qoranta arasında barışıq ola b
 Lâkin keri çekilmek içün endi keç.
 Seit Osman mından, boş qollarınen qaytmaq içün kelgeni yoq.
 
-– Ta, balalıq çağlarında... – dedi Seit Osman ve içinden tüşündi: “Sen tirelmek isteysiñ, Mustafa!
+– Ta, balalıq çağlarında... – dedi Seit Osman ve içinden tüşündi: 
+“Sen tirelmek isteysiñ, Mustafa!
 Men öyle yapacağıñnı bile edim.
 Bile-bile keldim.
 Lâkin sen teslim olursıñ... men bilem.
 Men aşıqmayım.
 Sabır eterim”.
-Soñ ilâve etti: – Unutçaq adetiñiz bar eken... unutacaq olsaq, ekimiz de, episini unutayıq!
+Soñ ilâve etti: 
+– Unutçaq adetiñiz bar eken... unutacaq olsaq, ekimiz de, episini unutayıq!
 Men qarşı degilim.
 
 Onıñ, stulda otura-otura beli taldı ğaliba, yerge tüşip, kilim üstünde bağdaş qurıp oturdı.
@@ -897,15 +945,18 @@ Seit Osmannıñ ve Mustafanıñ öglerine qoydı.
 
 – Balalıq çağları aqqında laqırdı etmek kerekmey, – dedi Şefiqa, kimsege muracaat etmey, – eger laqırdı etilse...
 
-– Apaqay, sen sus! – Çauş qarısına sözüni bitirtmedi – Sabır et.
+– Apaqay, sen sus! – Çauş qarısına sözüni bitirtmedi.
+-Sabır et.
 Bu iş, ep bir, sensiz olmaycaq.
 
 Şefiqa çıqtı.
 O, şübesiz, bu müim laqırdı vaqıtında bulunmaq ve içindeki zafrannı Seit Osmanğa tökmek, istedi... iş bozuldı.
 
-– Men doquz yıl evelsi eviñizden kettim... – dedi Çauş, bölüngen laqırdığa qaytıp. – Niçün... bilesiñizmi?
+– Men doquz yıl evelsi eviñizden kettim... – dedi Çauş, bölüngen laqırdığa qaytıp.
+ – Niçün... bilesiñizmi?
 
-– Nasıl deyim sizge?.. – Seit Osman tamşandı. – Sebebi, elbette, olsa kerek.
+– Nasıl deyim sizge?.. – Seit Osman tamşandı. 
+– Sebebi, elbette, olsa kerek.
 
 – Sebebi – şu balalar!
 
@@ -914,7 +965,8 @@ Azbar azbardan yürip, kvartira qıdırdı.
 Böyle vaqıtta o, çayhanede Seit Osmannen körüşti.
 Laf-laftan çıqtı... ekisi de bir zavodda işlegenleri añlaşıldı – Seit Osman naqliyat bölüginde, Çauş ise zavod idaresinde.
 
-– Menim evim fena detal, – dedi Seit Osman. – Bir odamnı sizge bere bilem.
+– Menim evim fena detal, – dedi Seit Osman. 
+– Bir odamnı sizge bere bilem.
 İsteseñiz, yarın köçip keliñiz!
 
 Çauş imal etmedi.
@@ -948,14 +1000,16 @@ Incınğanından közlerinde yaşlar asıl oldılar.
 – Men degil, özüñ... delisiñ, – dep cekirdi Server.
 
 Zeverced ayrette qaldı.
-İri közleri aşağı endi, balçıqqa çomğan ayaqlarını ve bılaşqan anterini körgen soñ pek ökündi, çünki bunıñ içün anasından ceza çekecek edi.
+İri közleri aşağı endi, balçıqqa çomğan ayaqlarını ve bulaşqan anterini körgen soñ pek ökündi, çünki bunıñ içün anasından ceza çekecek edi.
 Qız özüni aqlamağa ıdırındı.
 
-– Baq buña! – dedi o, Serverge darılıp. – Er yerim çamur.
-Yeñi anterim...
+– Baq buña! – dedi o, Serverge darılıp. 
+– Er yerim çamur.
+Yañı anterim...
 
 – Ne?
-Anteriñ? – Server kibar ses ile qıçırdı. – Anteriñ degil, ayaqqaplar... ayaqlarıñdaki tuflâ kimniñki, bilesiñmi?
+Anteriñ? – Server kibar ses ile qıçırdı. 
+– Anteriñ degil, ayaqqaplar... ayaqlarıñdaki tuflâ kimniñki, bilesiñmi?
 
 – Menimki... kimniñ olacaq?
 
@@ -963,17 +1017,20 @@ Anteriñ? – Server kibar ses ile qıçırdı. – Anteriñ degil, ayaqqaplar..
 
 Server egildi, qıznıñ ayağına yapıştı.
 
-– Toqunma! – Zeverced oğlannı qaqıştırdı, üytekledi, – Edaye aptege aytırım!
+– Toqunma! – Zeverced oğlannı qaqıştırdı, üytekledi. 
+– Edaye aptege aytırım!
 
 Lâkin Server küçlü edi, qıznıñ ayağındaki tuflânı zornen çıqarıp aldı.
 
-– Birevniñ ayaqqaplarını kiygeni-kiygen, daa aleketine baq! – dedi Server kin ve açuv ile. – Azırğa duacılar...
+– Birevniñ ayaqqaplarını kiygeni-kiygen, daa aleketine baq! – dedi Server kin ve açuv ile. 
+– Azırğa duacılar...
 Bir şey körseñiz, deral siziñki olıp kete.
 
 Qız, bu sözlerniñ manasını añlamay, oğlanğa baqtı-baqtı, soñ – ağladı.
 Öyle ökünçli ağladı ki, Server qorqtı, tez-tez evge çaptı.
 
-– Seniñ ayaqqaplarıñ... – qız közyaşları tökerek, oğlannıñ artından qıçırdı. – Seniñ tuflâlarıñ sofada yatalar.
+– Seniñ ayaqqaplarıñ... – qız közyaşları tökerek, oğlannıñ artından qıçırdı. 
+– Seniñ tuflâlarıñ sofada yatalar.
 Sen – yalancısıñ!
 
 Köridorda bir çift tuflâ yatqanını Server özü de esledi, amma hatasını tanımaq istemedi, içeri kirip ketti.
@@ -990,7 +1047,8 @@ Böyle şeyni qafadan çıqarıp atmaq mümkünmi?
 
 Mustafa işten kelgen soñ, yenge oña episini ikâye etti.
 
-– Soñ, bunda ne bar? – Çauş omuzlarını qıstı. – Balalar... açuvlanmaq kerekmey.
+– Soñ, bunda ne bar? – Çauş omuzlarını qıstı. 
+– Balalar... açuvlanmaq kerekmey.
 
 Şefiqa qocası ile razı oldı.
 
@@ -1000,11 +1058,12 @@ Lâkin geceniñ bir maalinde, Çauş töşek içinde yatqanda, bu adise tekrar e
 
 – Edayeniñ laqırdıdan haberi barmı? – dep soradı o, qarısından.
 
-– Bar, – dedi Şefiqa, – Episini kördi.
+– Bar, – dedi Şefiqa.
+– Episini kördi.
 Amma bir sözçik aytmadı.
 
 İş ciddiyleşti.
-Anası yahut babası balanı tıymaq istemese, demek, onıñ fikirinen razılar, belki de oğulnıñ bu aqaretli areketlerini taqdirlegendirler?
+Anası yahut babası balanı tıymaq istemese, demek, onıñ fikrinen razılar, belki de oğlunıñ bu aqaretli areketlerini taqdirlegendirler?
 Belki oğlan Edayeniñ yahut Seit Osmannıñ sözlerini tekrarladı.
 
 Çauş bütün gece yuqlamadı.
@@ -1033,15 +1092,16 @@ Doquz yıl böyle.
 
 – Episiniñ sebebi – balalarımız, – dep tekrarladı Seit Osman, – lâkin siz, Mustafa ağa, aqlı degil ediñiz!
 
-– Men... aqlı degil edim? – Çauş oña közlerini tikledi. – Ya kim aqlı edi?
+– Men... aqlı degil edim? – Çauş oña közlerini tikledi. 
+– Ya kim aqlı edi?
 Sizmi?
 
 – Men özümni qabaatlı esap etmeyim, – dedi musafir.
 
 Seit Osmannıñ yüzsüzligi üdütlerni keçti.
-Çauş, musulman olmasa ve musafirperverlikniñ qaidelerine riayet etmese edi, Seit Osmannıñ terrasadaki ğıçıldavıq pötüklerini çoqtan eline tutturıp qapunı kösterir edi.
-Lâkin kaidelerge tabi olmaq kerek.
-Ondan da ğayrı, Mustafa bu işte kim qabaatlı ekenini o vaqıtta, asılından, bilalmağan edi.
+Çauş, musulman olmasa ve musafirperverlikniñ qaidelerine riayet etmese edi, Seit Osmannıñ terrasadaki ğıçıldavuq pötüklerini çoqtan eline tutturıp qapunı kösterir edi.
+Lâkin qaidelerge tabi olmaq kerek.
+Ondan da ğayrı, Mustafa bu işte kim qabaatlı ekenini o vaqıtta, asılından, bilâlmağan edi.
 
 – Kim qabaatlı? – Çauş mısqıllı ses ile soradı. – Sizge baqsañ – eçki qaşqırnı çaynap yutqan...
 
@@ -1051,13 +1111,16 @@ Lafnı kesmek istedi.
 Bu – yüzsüzlik degil, Çauşnıñ ailesi içün aqaret edi.
 Diqqat etiñiz: musafir ev saibiniñ namuslılığına şübelene.
 
-– Ola bilmey! – Çauş itiraz etti, – Eçki daima eçki, qaşqır ise – qaşqır.
+– Ola bilmey! – Çauş itiraz etti. 
+– Eçki daima eçki, qaşqır ise – qaşqır.
 
-– Barsın, öyle olsun... – Seit Osman laqırdını çevirmek istedi. – Bala degen şey neler yapmay?
+– Barsın, öyle olsun... – Seit Osman laqırdını çevirmek istedi. 
+– Bala degen şey neler yapmay?
 Oña ola, evni terk etmek kerekmey edi?
 Siz oqumış adamsıñız, menimnen açıqtan açıq laqırdı etmek kerek ediñiz.
 
-– Kimnen? – Mustafa ellerini eki yaqqa kerdi. – Azbarda can oğlu can körünmese?!
+– Kimnen? – Mustafa ellerini eki yaqqa kerdi. 
+– Azbarda can oğlu can körünmese?!
 
 – Men eki kün üç gece stantsiyada edim...
 Bizde yüklü vagonlar qazağa oğradılar, – dedi musafir, asıl da sıqılmayıp, – evge keldim, siz yoqsıñız.
@@ -1069,7 +1132,7 @@ Soñ onı azaçıq sançıp aldı.
 
 – Kederlendi?
 Men öyle şey sezmedim.
-Ebette, yoq şey bir vaqıt sezilmey.
+Elbette, yoq şey bir vaqıt sezilmey.
 
 – Özüñiz bilesiñiz, Edaye hasta.
 Men balanı qattı cezaladım.
@@ -1077,7 +1140,8 @@ Men balanı qattı cezaladım.
 
 – Onıñ içün, utanmayıp babasını menim evime yolladımı?
 
-– Ebet... doquz yıldan soñ. – Seit Osman külümsiredi, – şimdi oğlan Zevercedni seve.
+– Ebet... doquz yıldan soñ, – Seit Osman külümsiredi. 
+– Şimdi oğlan Zevercedni seve.
 
 Çauş açuvından tuyüldi, öksüre başladı.
 
@@ -1100,7 +1164,8 @@ Zeverced de Servernimi?
 – Ebet...
 Endi qaytıp kelgen soñ...
 
-– Qaydan qaytıp kelgen soñ? – dep soradı Çauş – Kim?
+– Qaydan qaytıp kelgen soñ? – dep soradı Çauş.
+ – Kim?
 
 – Oğlan...
 Moskvada oquy edi.
@@ -1111,9 +1176,11 @@ Aralarında bir şey bar...” degen edi Şefiqa.
 O vaqıtta Çauş inanmağan edi.
 Zevercedni – ilâiy qız dep bile edi.
 
-– Ne yapmalı? – dedi Çauş tüşkün alda. – Eger qız da sevse...
+– Ne yapmalı? – dedi Çauş tüşkün alda. 
+– Eger qız da sevse...
 
-– Ebet! – Musafir Çauşnıñ sözlerini iqrar etti. – Ekisi bir-birini...
+– Ebet! – musafir Çauşnıñ sözlerini iqrar etti. 
+– Ekisi bir-birini...
 
 Mustafa ayaqqa qalqtı.
 Lâkin oña şimdi yerde oturmaq kerek edi.
@@ -1125,7 +1192,8 @@ Qalqtı, qapunı açıp, Şefiqanı çağırdı.
 Şefiqa yengeniñ kederi aqayınıñkinden az degil edi.
 O, mecalsız alda kirdi, setke oturdı.
 
-– Niayet, men kerek oldımmı? – dep soradı yenge ve ağlamsıradı. – Zeverced daa bala.
+– Niayet, men kerek oldımmı? – dep soradı yenge ve ağlamsıradı. 
+– Zeverced daa bala.
 Oquvını bitirsin.
 Mustaqil fikir etmege ögrensin, o vaqıtta tüşünip baqayıq!
 
@@ -1189,11 +1257,12 @@ Dostunen sağlıqlaşqanda, öz adresini qaldıra, cenkten soñ mıtlaqa körü�
 Cenk bite.
 Seit Osman işke yerleşken ve ev tapqan soñ, tesadüfen Terziniñ ailesi ile körüşe, amma Kerim yoq.
 Budapeşt yanlarında elâk olğan.
-Qarısı da yoq, o qırqbeşincide ölgen.
+Qarısı da yoq, o qırq beşincide ölgen.
 Oğlu Server qalğan, alapçesi qart, zayıf qadınnen ömür keçirmekte.
 Oña balanı asramaq küç.
 Seit Osmannıñ yüregi yanıq ile tola.
-“Oğlannı maña beriñiz – dey o, yengege. – Dostumnıñ oğlu, menim oğlum olsun”.
+“Oğlannı maña beriñiz – dey o, yengege. 
+– Dostumnıñ oğlu, menim oğlum olsun”.
 Bedbaht qadın yalvartmay.
 Ah, çeke... ağlamsıray, balanı bere.
 Onıñ bir özüne bile yaşamaq qıyın.
@@ -1209,7 +1278,7 @@ Amma evlenmege de vaqıt.
 
 Seit Osman, elbette, alicenap iş yaptı.
 Lâkin Çauş oña, er alda, kendi içün soy-sop ola bilecek adam dep baqalmay.
-O, adamlarğa, niçündir, Dilâverniñ lâyıqatı noqtai nazardan baqa... öz oğlu kibimi, degilmi?
+O, adamlarğa, niçündir, Dilâverniñ lâyıqatı noqta-i nazardan baqa... öz oğlu kibimi, degilmi?
 Seit Osman bu ölçüni tanımay.
 Server balalığında, yigit şanına sığmaz şey yaptı.
 Lâkin o vaqıtta on dört yaşında edi.
@@ -1217,9 +1286,10 @@ Lâkin o vaqıtta on dört yaşında edi.
 Zeverced de pek qusursız degil.
 Oğlanğa sevgisini babasından gizlep kelgen.
 Niçün?
-Yoqsa, Çauş onıñ işançını sui-istemal ettimi?
+Yoqsa, Çauş onıñ işançını suistimal ettimi?
 
-– Men sizni aşıqtırmayım, – musafir Çauşnıñ tüz aqayatqan fikirini bozdı. – Vaqıt bar... tüşünip baqıñız.
+– Men sizni aşıqtırmayım, – musafir Çauşnıñ tüz aqayatqan fikirini bozdı. 
+– Vaqıt bar... tüşünip baqıñız.
 Ölçeñiz – biçiñiz!
 
 Vaqıt bar!
@@ -1231,7 +1301,8 @@ Demek, iş bitken.
 Bitkenmi aceba?
 
 – Men, elbette, añlayım, Zeverced dülber qız.
-Bu er keske malüm, – Seit Osman kene şorbacınıñ fikirini böldi. – Amma menim Serverim de osal yigitlerden degil.
+Bu er keske malüm, – Seit Osman kene şorbacınıñ fikrini böldi. 
+– Amma menim Serverim de osal yigitlerden degil.
 Şeer soqaqlarında, tar balaqlı, beyaz tikişli ştanlarda yanbaşlarını dırbaytıp yürüci, o uzun callılardan degil.
 Ebet, Mustafa!
 Olardan degil.
@@ -1243,9 +1314,11 @@ Seit Osman duşmannıñ evine birinci özü kelgenine ve aqlaşnı özü teklif 
 
 – Oturğaydıñız daa... – dedi Şefiqa. – Ne turdıñız?
 
-– Ebet! – Çauş qarısınıñ sözlerini taqdir etti. – Vaqıt bar...
+– Ebet! – Çauş qarısınıñ sözlerini taqdir etti. 
+– Vaqıt bar...
 
-– Vaqıt, elbet de, yoq degil... – musafir bosağa ögünde toqtaldı. – Amma maña aşıqmaq kerek...
+– Vaqıt, elbet de, yoq degil... – musafir bosağa ögünde toqtaldı. 
+– Amma maña aşıqmaq kerek...
 Sağ-selâmet oluñız!
 Vaqıt tapıp, siz de bizge bir keliñiz!
 Evimiz şimdi deñişti.
@@ -1258,7 +1331,8 @@ Sofada pötüklerini kiymege tedariklengende Şefiqa yengege çevirildi.
 
 Şefiqa beklenilmegen bu sualden şaşmaladı, köz qapaqlarını sıq-sıq oynattı, güya musafirge, güzel etip baqmaq içün nelerdir keder etmekte edi.
 
-– Bilmeyim... – dedi yenge, – Nasıldır Seröja...
+– Bilmeyim... – dedi yenge. 
+– Nasıldır Seröja...
 
 Seit Osman külümsiredi.
 Soñ etli köz qapaqlarını aşağı endirdi.
@@ -1290,10 +1364,12 @@ Bu musallat meseleni nasıl çezmeli?
 Seit Osmanğa ne cevap bermeli?
 O inat adam... elbette, bekler.
 
-– Apaqay, – dedi Çauş qarısına. – Maña baq!
+– Apaqay, – dedi Çauş qarısına. 
+– Maña baq!
 Doquz yıl evelsi olıp keçken vaqia, zanımca, qıznıñ kelecegine keder etmemek kerek.
 
-– Elbette... – Şefiqa başını ögge meil berip, eki kere qaqıttı. – Keçmişni unutayıq.
+– Elbette... – Şefiqa başını ögge meil berip, eki kere qaqıttı. 
+– Keçmişni unutayıq.
 Bizge mani olmasın.
 Söz menim, seniñ aqqıñda ketmey, qızımnıñ taliyi aqqında kete.
 
@@ -1301,13 +1377,16 @@ Söz menim, seniñ aqqıñda ketmey, qızımnıñ taliyi aqqında kete.
 Sen, qadın, ülemasıñ!
 Evelde men bunı nasıl etip sezmedim?
 
-– Aysa... özüñ laqırdı vaqıtında meni yanıñdan quva beresiñ... – Şefiqa bir sançıp aldı. – Sen daa çoq şeylerni sezmeysiñ...
+– Aysa... özüñ laqırdı vaqtında meni yanıñdan quva beresiñ... – Şefiqa bir sançıp aldı. 
+– Sen daa çoq şeylerni sezmeysiñ...
 
 – Çıqıp tur dedim.
-Quvmadım. – Çauş özüni aqlamaq istedi. – Sen zekkiysiñ, lâkin adaletsizsiñ.
-Biz, fikirimce, ayatımızda yaman yaşamadıq.
+Quvmadım, – Çauş özüni aqlamaq istedi. 
+– Sen zekkiysiñ, lâkin adaletsizsiñ.
+Biz, fikrimce, ayatımızda yaman yaşamadıq.
 
-– Barsın, qızım bahtlı olsun, – dedi yenge, qocasınıñ sözlerini eşitmegen olıp. – O Serverni seve.
+– Barsın, qızım bahtlı olsun, – dedi yenge, qocasınıñ sözlerini eşitmegen olıp. 
+– O Serverni seve.
 Şemsnurnıñ aytqanına köre, olar qaç yıllar evelsi bir-birine söz berişkenler.
 
 Çauşnıñ qaşları töpege tiklendiler.
@@ -1323,7 +1402,7 @@ Lâyıqat, mustaqiliyet qayda?
 – Barsın, evlensinler, – dedi Çauş ve, başını sağ tarafqa yantaytıp, üç defa siltedi.
 
 Ekisi de bir söz ile, qız aqqında qarar çıqardılar, lâkin bir sözni ekisi de özlerince çeşit-çeşit söylediler.
-Çauş bu sözni söyler eken, dudaqları asabiylenip, titrediler, yenge ise başındaki yavlığınıñ ucunen közlerindeki yaşlarnı sildi, ah çekti.
+Çauş bu sözni söyler eken, dudaqları asabiylenip, titrediler, yenge ise başındaki yavluğınıñ ucunen közlerindeki yaşlarnı sildi, ah çekti.
 
 Şu künden itibaren evde ömür deñişti.
 Tek Zeverced aqqında tüşünildi, er şey Zeverced içün yapıldı.
