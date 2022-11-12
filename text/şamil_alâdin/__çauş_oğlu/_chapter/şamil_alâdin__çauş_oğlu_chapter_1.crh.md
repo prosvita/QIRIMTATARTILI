@@ -27,12 +27,12 @@ Kündüz yuqlağan adeti yoq.
 Şay... sükünet içinde oturmağa... nelerdir hususında tüşünmege seve.
 Nelerni tüşüne aceba?
 Kim bilsin?!
-Belki özüniñ uzun ömürini, belki faniy dünyadaki keder ve işançnıñ başı ve niayeti ne yerde ekeninidir!..
+Belki özüniñ uzun ömrüni, belki faniy dünyadaki keder ve işançnıñ başı ve niayeti ne yerde ekeninidir!..
 Amma ömürniñ niayeti uzaq.
 Çauş, babası ve dedesi kibi, taqatlı.
 Kerçek, bir vaqıtta sarışın saçları şimdi ağarğanlar.
 Evi ve eşyası endi torunlarına adalğan.
-Keçken ve kelecek ömüri terazede çekilip, esaplanıp qoyulğan.
+Keçken ve kelecek ömrü terazede çekilip, esaplanıp qoyulğan.
 
 Bu evni Çauş öz elleri ile yasadı.
 Buña qani olmaq isteseñiz, başıñıznı köterip, tavanda, sofadaki qapu qasnağında ve pencere pervazlarında oyulğan örneklerge közetiñiz!
@@ -86,7 +86,6 @@ Soñ baba külümsiredi.
 Qızını tebessüm ile ozğardı.
 Zeverced tez-tez basamaqlardan aşağı enerek, bağça içinde asma yüzüm terekleri astında ğayıp oldı.
 
-Çauş hayli vaqıt qızınıñ pervasız adımlarına diñlenip, onıñ terekler arasında cazibeli yürüşini tasavur etip, ferahlanıp oturdı.
 
 Zeverced, şübesiz, dülber qız.
 Dülber ekenini er kes bile.
@@ -112,7 +111,7 @@ Sevinçni de.
 Kederni de.
 İnsan başını aşağı sarqıtıp yürmek kerekmey.
 Babam maña başımnı töpege köterip yürmekni ögretken edi.
-Men onıñ degeni kibi yapqan vaqıtımda anam maña darıla edi: başıñı kereginden ziyade, sebepsiz, töpege köteresiñ dey edi.
+Men onıñ degeni kibi yapqan vaqtımda anam maña darıla edi: başıñı kereginden ziyade, sebepsiz, töpege köteresiñ dey edi.
 Men, Zeverced, saña başıñnı nasıl tutmaq kerekligini ögretip oturmayım... aşağı egiltip yürmeseñ, oldı!
 
 Qart Mustafa kimerde öz-özünen, işte, böyle laqırdı ete edi.
@@ -141,7 +140,7 @@ Bağça içindeki soqaq boyu evge doğru yürüş etti.
 Çauşqa raatsızlıq keleyata.
 O, eleslenip, başını köterdi, deral adamnı körip, taaciplendi; çünki o, daima sevinç ketirici adam degil, kimerde onıñ kelüvi yürekni titremege de mecbur ete.
 Bosağa üstünde Asâ peyda oldı.
-Qonşunıñ qızı Asâ.
+Qomşunıñ qızı Asâ.
 Babası Nikolay... avtobazada mehanik.
 Lâkin ne qonşulıqnıñ, ne de avtobazada hızmet etüviniñ bunda emiyeti yoq.
 Asâ – poçtalyon, başlıcası bu.
@@ -167,8 +166,10 @@ O ise, közlerini azaçıq yuma berip, poçtalyonnıñ qoluna baqa.
 İndemey.
 
 – Sizni, Mustafa emce, añlamaq mümkün degil. – Asâ hihıldap küle.
-Öyle şeñ qız ki, közlerine er şey külkünçli, zevqlı olıp körüne. – Yuqlaydırsıñız belledim, albu ise ayınıq ekensiñiz... – Çauş qızğa da yuqsırap oturğan kibi körüngen.
-Qart adamnıñ tüşünceli vaziyeti yuquğa beñzey. – Oynañız!
+Öyle şeñ qız ki, közlerine er şey külkünçli, zevqlı olıp körüne.
+– Yuqlaydırsıñız belledim, albu ise ayınıq ekensiñiz... – Çauş qızğa da yuqsırap oturğan kibi körüngen.
+Qart adamnıñ tüşünceli vaziyeti yuquğa beñzey.
+ – Oynañız!
 Ebet, oynañız!
 Yoqsa, bir şey bermem.
 Ve aytmam.
@@ -177,7 +178,7 @@ Qana, tez oluñız!
 Oynamaq, bu şeñlenmek demek.
 Mustafa niçün şeñlensin?
 Konvertler içinde er vaqıt hayırlı haber olmay.
-Bir konvert Çauşnıñ hatirinden alâ çıqmay.
+Bir konvert Çauşnıñ hatrinden alâ çıqmay.
 Bare, iç bir şey kelmegeydi.
 Ey, Alla!
 
@@ -195,7 +196,7 @@ Sözleri üzülip-üzülip çıqmaqtalar.
 – Oğluñız... oğluñız keleyata.
 
 Qart Mustafanıñ fikirleri uyuğan ediler.
-Onı Asânıñ üzük, titrek sesleri birden uyanta bilirlermi?
+Onı Asânıñ üzük, titrek sesleri birden uyata bilirlermi?
 Ondan da ğayrı, Asânıñ sözleri asıl da kerçekmi?
 Olarğa nasıl inansın?
 
@@ -214,7 +215,7 @@ Güya, o iç de olmağan edi.
 
 – Men şaqa etmeyim, Mustafa emce? – dedi qız.
 Günasız, aydın közlerini qart Çauşnıñ közlerine doğrulttı.
-Qıznıñ baqışı ve “emce” sözüni ğurzufça aenkli etip aytuvı (çünki Asâ balalıqtan tatarlar arasında yaşamaqta ve qonşularınıñ tilinde söylene kelmekte edi) Çauşnı inanmağa, daa doğrusı – taaciplenmege mecbur etti.
+Qıznıñ baqışı ve “emce” sözüni ğurzufça aenkli etip aytuvı (çünki Asâ balalıqtan tatarlar arasında yaşamaqta ve qomşularınıñ tilinde söylene kelmekte edi) Çauşnı inanmağa, daa doğrusı – taaciplenmege mecbur etti.
 Amma közlerinde alâ şübe sezilmekte ve çeresi kene taş kibi areketsiz qalmaqta edi.
 O sebepten mulâyim davuş ile dedi: – Oğluñıznıñ adı Dilâver.
 Öyle demegenmi ediñiz?
@@ -224,9 +225,9 @@ Soñ?
 Bunı esime tüşürmek içün keldiñmi?
 
 – Yoq. – Asânıñ, yüzünde keder sezildi.
-Onda, elbet de, keçmişni hatırlatıp, Çauşnı qasevetlendirmek maqsadı yoq edi. – Men, Mustafa emce, yañlışa da bilem.
-Lâkin oğluñıznıñ adı Dilâver edi..
-degilmi?
+Onda, elbet de, keçmişni hatırlatıp, Çauşnı qasevetlendirmek maqsadı yoq edi.
+ – Men, Mustafa emce, yañlışa da bilem.
+Lâkin oğluñıznıñ adı Dilâver edi degilmi?
 
 – Öyle!
 Öyle! – Çauş asabiy davuşnen cevap berdi.
@@ -237,9 +238,8 @@ Konvert tutıp turğan elini degil, digerini...
 Mustafa ağa dört büklü kâğıtnı alıp açtı.
 O telegramma degen şeyni asıl da sevmey turğan.
 Çünki anda er şey qısqa ola.
-Er şey tesadüfiy, amansız. – Bu yerde imza etiñiz!
-
-Asâ qarındaşını uzattı, özü kene külümsiredi.
+Er şey tesadüfiy, amansız.
+– Bu yerde imza etiñiz! - Asâ qarındaşını uzattı, özü kene külümsiredi.
 Qız memnün.
 O aqlı çıqtı.
 Qartnı taaciplendirdi, qozğadı.
@@ -279,7 +279,7 @@ Amma onsuz bu kâğıt üstündeki böcek şekilli ariflerni bar da, oqu.
 Elini minder astına tıqtı, közlük yoq edi.
 Qalqtı, sağ ayağından aqsay-aqsay içeri odağa ketti.
 İşte, közlük – stol üstünde yata.
-Alel-acele burunı üstünde yerleştirdi.
+Alel-acele burnu üstünde yerleştirdi.
 Kene sofağa çıqıp, telegrammanı eline aldı.
 “Yigirmi üçünde Dilâver yolğa çıqtı.
 Poyezd otuz dört.
@@ -297,7 +297,8 @@ Lâkin bütünley degil.
 Çünki yürekte şübe qıbırdandı.
 Çauşnıñ ögünde “niçün?”, “niçün?” degen sözler sırağa tizilip turdılar.
 Bular ne demek ola?
-Ölüler qaytıp kele bilelermi? – dep kederlendi Mustafa ağa, – olarnıñ tirilgenlerini ve tekrar qırcıman yigitler olıp ketkenlerini bir-de-bir kimseler körgenmi? – dep taaciplendi Çauş oğlu, soñ ilâve etti: – Amma men körecegim, yahut aldavnıñ qurbanı olacağım.
+Ölüler qaytıp kele bilelermi? – dep kederlendi Mustafa ağa, – olarnıñ tirilgenlerini ve tekrar qırcıman yigitler olıp ketkenlerini bir-de-bir kimseler körgenmi? – dep taaciplendi Çauş oğlu, soñ ilâve etti: 
+– Amma men körecegim, yahut aldavnıñ qurbanı olacağım.
 Mecit aqaynıñ işi başqa türlü olğan edi.
 Bıltır oña telegramma kelgen edi.
 Buharadan.
@@ -305,8 +306,7 @@ Furuncı Nafe onı, aptesiniñ matem merasimine davet etken edi.
 Mecit ağanı, ğaripni, qasevet bastı.
 Er şeyni bıraqıp, qışnıñ ayazında cenazege ketti.
 Ketti... lâkin Nafeniñ oğlu Yaqubnıñ toyuna barıp tüşti.
-Bu telegrammadaki sözlerniñ neticesi de aks manada olıp çıqsa...
-Alla köstermesin.
+Bu telegrammadaki sözlerniñ neticesi de aks manada olıp çıqsa, Alla köstermesin.
 Men deli olurım.
 Mende yürek yorğun ve yufqa.
 Endi sancım tutıp başlay.
@@ -354,7 +354,6 @@ O-o!
 
 Lâkin qarısınıñ sesi onı taaciplendirmedi.
 Aksine, daa yengil çevirile başladı.
-Amma ellerini, niçündir, ziyade kermekte edi.
 Şefiqa basamaqlardan töpege çıqtı, bosağa üstünde toqtadı.
 Qocasınıñ şeñlenüvi onı evelâ sevindirdi, soñ kederlendirdi.
 
@@ -376,7 +375,7 @@ Kerçek, qocası – sebepsiz şeñlengen adam degil.
 Qaqınıp başlağan eken, demek, bir şey bar.
 E! Barsın, onıñ degeni olsun.
 Lâkin qocanıñ oynayyatqan oyunı ne?
-Ömürinde öyle oyun körgeni yoq.
+Ömründe öyle oyun körgeni yoq.
 Ya özü?
 Özü nasıl oynaycaq?
 Soñki sefer ne vaqıt oynağan edi?
@@ -386,7 +385,7 @@ Bundan soñ daa oynamaq sırası kelecekmi aceba?
 Şimdi qocası ile bir oynap, keçmişni... yaşlıqnı hatırlap alğanda ne ola?
 Böyle tüşünir eken, elleri öz başına köterilip ketkenlerini duymay qaldı.
 Soñ kerçekten oynap başladı.
-Olarnıñ... qadın-qocanıñ ömürinde böyle hoş ve mesut daqiqalar yaqında olmağan edi.
+Olarnıñ... qadın-qocanıñ ömründe böyle hoş ve mesut daqiqalar yaqında olmağan edi.
 Qart Mustafa şimdi oynar eken, özüniñ qaç yaşında ekenini unuttı.
 Er şeyni unuttı.
 
@@ -463,7 +462,8 @@ Yoldaşı ola bile.
 
 – Şübesiz, – yenge başını salladı.
 Lâkin qocasınıñ aytqanlarına inanmadı.
-O sebepten, meselege özü izaat berdi: – Dilâver biletni, poyezd köçip keteyatqan maalde alğandır.
+O sebepten, meselege özü izaat berdi:
+– Dilâver biletni, poyezd köçip keteyatqan maalde alğandır.
 Ebet, öyle olğandır.
 Telegramma yollamaqnı ise Serverge rica etkendir.
 
@@ -476,7 +476,7 @@ Añladıñmı, Şefiqa?
 Sağ-selâmet.
 
 Endi qart Çauşnıñ mücizege inanuvını kimse inkâr etalmaycaq.
-Dilâverni elâk del bildirgen kişi yañlışqan.
+Dilâverni elâk dep bildirgen kişi yañlışqan.
 Aşıqqan.
 Yaralı alında körip, ölü bellegen.
 Dilâver ise turıp ketken.
@@ -508,11 +508,14 @@ O, Server degeni, telegrammanıñ ahırında eki sözçik daa yazıp, bizni şü
 
 – Fena olmaz edi.
 Lâkin adamğa, alicenap hızmeti içün, öpkelenmek kerekmey.
-Belki Dilâver öyle istegendir! – Şefiqa yenge başqasınıñ oñaytsız areketini aqqa çıqarmağa tırıştı. – Bu onıñ idraki.
+Belki Dilâver öyle istegendir! 
+– Şefiqa yenge başqasınıñ oñaytsız areketini aqqa çıqarmağa tırıştı. 
+– Bu onıñ idraki.
 
 – İdraki... – Çauşnıñ çırayı küsti.
 O vaqianıñ tafsilâtını tüşüngen sayın, nasıldır, qolaysızlıqlar tapıp çıqara berdi.
-Özü asabiylendi. – Kim bile?
+Özü asabiylendi.
+– Kim bile?
 Belki seniñ aytqanıñ kibidir, apaqay! – o, qarısınıñ omuzını taptadı. – Belki, kerçekten de, Dilâverniñ idrakidir.
 Amma men bu gece yuqlap olamam.
 
@@ -524,7 +527,7 @@ Oğlan kelgen soñ er şey añlaşılır.
 Oğlumnıñ özü... menim Dilâverim nasıl eken?”
 
 Qafada kene müsibet fikir asıl oldı.
-Barıpta delme teşik olsa?
+Barıp ta delme teşik olsa?
 Telegrammanı arqadaşı berüviniñ sebebi de bunda degilmi eken?
 Taqdir degen şey pek daimiyetsiz.
 Lâkin Mustafa oğlunı bedbaht alında körmek istemey.
@@ -550,7 +553,8 @@ Zeynep güya tankçılar brigadasında arbiy emşire eken, Kubandaki cenklerde e
 Ölgen adamnı tiriltmek mümkünmi?
 Çauşlar kelinniñ ölümine inandılar.
 
-– Dilâver onı pek seve edi. – Şefiqa ağlamsıradı. – Kelse, ne dermiz?
+– Dilâver onı pek seve edi.– Şefiqa ağlamsıradı.
+ – Kelse, ne dermiz?
 
 – Aqiqatnı söylermiz.
 
@@ -560,7 +564,7 @@ O da, Dilâver kibi, Rusiyeniñ bir-de-bir şeerinde oturıp qalğan olsa? – Y
 – Sen taqdirden çoq şey isteysiñ, – dedi oña Çauş. – Onı darıltma.
 Hucur laqırdımıznı eşitip, bizni eñ soñki sevinçimizden merum ete qoymasın.
 
-– Ey, Tañrım! – yenge ellerini tönege köterdi, – Ana, balasını tiri körmek istey.
+– Ey, Tañrım! – yenge ellerini töpege köterdi, – Ana, balasını tiri körmek istey.
 Bu – günamı?
 
 – Yoq.
@@ -586,7 +590,8 @@ Qarısız, balasız!..
 
 Şefiqa başını tersine salladı.
 
-– Sen Dilâverni bilmeysiñ, – dedi oña. – Azaçıq işançı olsa, Zeynepni qıdırır, bütün ömüri bekler.
+– Sen Dilâverni bilmeysiñ, – dedi oña. 
+– Azaçıq işançı olsa, Zeynepni qıdırır, bütün ömüri bekler.
 Dilâver kim?
 Ondaki er şey Çauşnıñ özü.
 
@@ -597,31 +602,38 @@ Ellerini yanbaşlarına tirep, qocasınıñ qarşısında turdı.
 Oña ayat bağış etmedim, onı terbiyelemedim, öylemi?
 
 – E!
-E! – Çauş iddetlendi. – Pek aleketleme, qadın!
+E! – Çauş iddetlendi. 
+– Pek aleketleme, qadın!
 Sanki oğlannı sen asradıñ da, men Babuğan Yaylada gizlenip yürdim.
-Eger bilmek isteseñ... – lâkin o, qarısını darıltmaq istemedi, lafını kese qoydı.
+Eger bilmek isteseñ... 
+– Lâkin o, qarısını darıltmaq istemedi, lafını kese qoydı.
 
 – Ayt!
 Ayt!
-Soñuna qadar ayt! – yenge köz qapaqlarını tez-tez oynattı, beklep turdı. – Baltanı siltediñmi, pıtaqnı kes!
+Soñuna qadar ayt! – yenge köz qapaqlarını tez-tez oynattı, beklep turdı. 
+– Baltanı siltediñmi, pıtaqnı kes!
 Kesmey qaldırma!
 
-– A! – Çauş işaret parmağını köterdi. – Oğul öz işini özü çezer.
-Men, Zevercedke nasıl inansam, Dilâverge de öyle inanam.
+– A! – Çauş işaret parmağını köterdi. 
+– Oğul öz işini özü çezer.
+Men, Zevercedge nasıl inansam, Dilâverge de öyle inanam.
 
 Şefiqa ilekâr külkünen küldi.
 
 – Sizler... kontorada oturıp ne bilesiñiz?
 
-– Ya sizler? – Mustafa qulağını Şefiqağa yaqın ketirdi, – evde oturıp... neniñ başını teştiñiz?
+– Ya sizler? 
+– Mustafa qulağını Şefiqağa yaqın ketirdi, – evde oturıp... neniñ başını teştiñiz?
 
 Şefiqa yenge buña cevap bere bile edi.
 Bermek istemedi.
 
-– Baqayıq, – dedi o, bir talaydan soñ. – Belki Dilâverniñ yerine başqası evlenir.
+– Baqayıq, – dedi o, bir talaydan soñ. 
+– Belki Dilâverniñ yerine başqası evlenir.
 
 – Kim?
-Zevercedmi? – Mustafa qarısına şübeli-şübeli baqtı. – Oña toqunma!
+Zevercedmi? 
+– Mustafa qarısına şübeli-şübeli baqtı. – Oña toqunma!
 İnstitutnı bitirsin.
 
 – Qız seniñ içün pek tatlı e?
@@ -630,14 +642,17 @@ Lâkin aytqanlarına köre, Zeverced birevnen mektüpleşe eken.
 Moskvadamı, qaydadır, oquy, deyler.
 
 – Ne?
-Ne? – Çauş, biy çaqqan kibi, sıçrap ayaqqa qalqtı. – Sen çıldırdıñmı?
+Ne? – Çauş, biy çaqqan kibi, sıçrap ayaqqa qalqtı. 
+– Sen çıldırdıñmı?
 
-– Zevqlı şey... – dedi Şefiqa yenge. – Niçün men çıldıram?
+– Zevqlı şey... – dedi Şefiqa yenge. 
+– Niçün men çıldıram?
 
 Mustafa ağa eñsesini qaqıtıp aldı.
 Bu asabiylenüvden delâlet edi.
 
-– Maña bir filcan qave ber! – dedi o, qarısına. – Tez ol!
+– Maña bir filcan qave ber! – dedi o, qarısına. 
+– Tez ol!
 Başımnıñ ağrısı tuttı.
 
 Bir filcan qave!
@@ -671,7 +686,7 @@ Adam duşman üzerinden ğalip kelgen, anası-babası ve doğmuşları sağ-sel�
 Evine kelip yetmek içün on yıl yürmek kerek oldımı?
 
 Mustafanıñ özü göspitalni, cenk bitkenden eki ay soñ terk etti.
-Arqasında eşya çuvalı ile merdivenden aşağı tüşeyatqanı alâ hatirinde.
+Arqasında eşya çuvalı ile merdivenden aşağı tüşeyatqanı alâ hatrinde.
 Taqatı yoq.
 Yarası enüz qapalmağan.
 Sağ ayaqtan aqsamaqta.
@@ -695,7 +710,7 @@ Er alda, evge temiz yüreknen qaytıp keldi!
 
 Ordenleri ve medalleri sandıqta yatalar.
 Dostlarından ve doğmuşlarından kelgen mektüplernen bir yerde.
-Amma o, vaqıtta... göspitalden çıqqanda, olar Çauşnıñ köküsini yaraştırmaqta ediler.
+Amma o, vaqıtta... göspitalden çıqqanda, olar Çauşnıñ köksüni yaraştırmaqta ediler.
 Ğalip asker olmaq – güzel şey.
 
 Mustafa şu alında dostu Ebu-Bekir Matrabasnıñ evine sürip keldi.
@@ -721,12 +736,13 @@ Yüregini ne yeñgillendirdi, ne de raatlandırdı.
 Filcannıñ astında qoyu, qara telbe qaldı.
 Çauş filcannıñ içine diqqatnen baqtı.
 Güya bu hucur qara örnekler oña bir şeyler söylemek isteyler.
-Rametli anası... bu örneklerden añlay turğan.
+Rametli anası bu örneklerden añlay turğan.
 Keleyatqan adam kim?
 Niyeti ne?
 Edisini aytıp añlata turğan, Çauş añlamay.
 Amma filcannıñ içine baqıp, köküs keçirdi.
 Yüregi bir şeyler duydı.
 
-– Men endi yuqlap olamam, – dedi Çauş, tekrar, – Yoq.
+– Men endi yuqlap olamam, – dedi Çauş, tekrar. 
+– Yoq.
 Olacaq şey degil.
