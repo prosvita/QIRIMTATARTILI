@@ -22,9 +22,9 @@ BMŞ — baş mehanik şübesi.
 
 Keteyatqanda de yük maşinasınıñ, de develer kervanınıñ, de yüksek köpçekli arabanıñ, de traktornıñ keçip ketmeleri içün tosatta bir toqtalıp, yol bermek kerek ola.
 
-Soqaqlarda ve küçük aralıqlarda çeşit milletler tilinde laqırdı işitile.
+Soqaqlarda ve küçük aralıqlarda çeşit milletler tilinde laqırdı eşitile.
 Mavı renkli pamuqlı halat kiygen qart, pencerege baqıp, özbek tilinde laqırdı ete.
-Başlarında telpekleri eki kişi... biri yolnıñ bir çetinde, ekincisi diger çetinde toqtağan, bütün küçlerinen qıçı-rıp, qazah tilinde bir şeyler hususında iddalaşmaqtalar.
+Başlarında telpekleri eki kişi... biri yolnıñ bir çetinde, ekincisi diger çetinde toqtağan, bütün küçlerinen qıçırıp, qazah tilinde bir şeyler hususında iddalaşmaqtalar.
 Üstüne kök bıcaq, santraç ştan, eslicerek kişi yeñi evniñ sofası ögünde toqtağan, sarı plaşçlı yaş adamnı — yardımcısı olmalı — araretli italyan tınçıqtırmaqta.
 Bu, İtaliya proyekt işlerini eda etici, İsveçre firmasınıñ konsultantı.
 Lâkin, diqqat etiñiz!
@@ -33,20 +33,20 @@ O, kepkasını çıqarıp, bizge sallay.
 İrada yüzüni oña taba çevirip, deral toqtala.
 
 — Selâm aleyküm, İrada! — kişi özbekçe bir-şeyler daa ayta, soñ guruldep külerek, bizge doğru adımlay.
-İradanıñ hatirinden şarqnıñ nezaket qaideleri çıqtı.
+İradanıñ hatrinden şarqnıñ nezaket qaideleri çıqtı.
 Evelâ, al-hatır soraycağı yerde, birden hızmet hususında laqırdı başladı.
 
-— Mehanizmler shemasını divarğa tünevin asıp qoydıq,— dedi kişi — yataqhane çoqtan azır, tek... koyka yoq.
+— Mehanizmler shemasını divarğa tünevin asıp qoydıq, — dedi kişi — yataqhane çoqtan azır, tek... koyka yoq.
 
-Kişi sigarını bir-biri artından sıq-sıq içine çekti, tütünini burunından dumanlatıp çıqararaq, tüpçigini yerge bıraqtı, rezina çızmasınen üstüne basıp ezdi, elini evelâ İradağa, soñra maña uzattı.
+Kişi sigarını bir-biri artından sıq-sıq içine çekti, tütünini burnundan dumanlatıp çıqararaq, tüpçigini yerge bıraqtı, rezina çızmasınen üstüne basıp ezdi, elini evelâ İradağa, soñra maña uzattı.
 
 — Curayev! — dedi o ve eleslenip betime baqtı.
 
-— Bekirov! — dedi İrada,— putövka ile kelgen.
+— Bekirov! — dedi İrada, — putövka ile kelgen.
 Komsomol!
 Almazovda nijnik...
 
-— Gu-zel! — dedi Curayev, soza berip,— soñki vaqıtlarda komsomol az kele.
+— Güzel! — dedi Curayev, soza berip, — soñki vaqıtlarda komsomol az kele.
 Sen anda Merkeziy Komitette bu hususta bir-eki söz ayt.
 Menim adımdan...
 
@@ -54,23 +54,26 @@ Menim adımdan...
 Eleslenip baqtı.
 
 — Öz adımdan aytsam ne ola? 
+
 Curayev küldi.
 Tekrar ellerimizni sıqqan soñ, dedi:
 
 — Bir şey de...
-İsteseñiz, öz adıñızdan aytıñız,— lâkin İradanıñ ğururı azaçıq tırnalğanını sezdi.
+İsteseñiz, öz adıñızdan aytıñız, — lâkin İradanıñ ğururı azaçıq tırnalğanını sezdi.
 
 Biznen sağlıqlaşqanını unutıp, ellerini omuzlarımız üzerine qoyaraq, bizimnen beraber yol boyu cönedi:
 
 — Gece nasıl?
 Mücizesiz keçtimi?
 
-— Troslar üzüle berdiler,— dedi İrada. — Bu — bir.
+— Troslar üzüle berdiler, — dedi İrada. 
+— Bu — bir.
 Ondan soñ, elektrikler de baştaqlaşqan kibi körüneler.
 
 — Baba evden çıqsa, oğlu tavannı teşe eken.
-Tursunov ketkenden beri, energiya kerçekten de, az. — Curayev, sezilir-sezilmez külümsirep, İradanıñ yüzüne baqtı.
-Qız azaçıq qızardı, lâkin özüni tez-tez elge aldı,— amma qabaat troslarda degil.
+Tursunov ketkenden berli, energiya kerçekten de, az.
+— Curayev, sezilir-sezilmez külümsirep, İradanıñ yüzüne baqtı.
+Qız azaçıq qızardı, lâkin özüni tez-tez elge aldı, — amma qabaat troslarda degil.
 Yük ağır.
 Trosnıñ diametri küçük.
 
@@ -79,7 +82,8 @@ Qız meraqlandı.
 — Siz, Zakir Gulâmoviç, bunı öz tecribeñizge esaslanıp aytasıñızmı?
 
 — Onıñ emiyeti yoq.
-Sabır etmek kerek,— Curayev ellerini omuzlarımız üstünden alıp, yolnıñ çetine çıqtı. — Bu büyük sır.
+Sabır etmek kerek, — Curayev ellerini omuzlarımız üstünden alıp, yolnıñ çetine çıqtı.
+— Bu büyük sır.
 Men onı Agapovda araret uyantmaq içün yaptım.
 Yuqlay bere...
 Haberiñiz barmı?
@@ -91,8 +95,10 @@ Bu hususta men sizge qaç kere ayttım... unuttıñızmı?
 — Muqayt olunsa, elbette... çünki şimdi tros tapmaq pek küç.
 Bu maşinalar bizge Dneprden keldiler.
 Sen olarnı proyekt mücibi işletmek isteysiñ.
-Olacaq şeymi? — Curayev papiros yaqtı, bir talaydan soñ meni esine ketirip, cebinden ekinci papirosnı çıqarıp, indemey, maña uzattı.
-Özü İradadan soradı: — ekskavatorda işleysiñizmi?
+Olacaq şeymi? 
+— Curayev papiros yaqtı, bir talaydan soñ meni esine ketirip, cebinden ekinci papirosnı çıqarıp, indemey, maña uzattı.
+Özü İradadan soradı: 
+— ekskavatorda işleysiñizmi?
 
 — Yoq.
 
@@ -103,30 +109,31 @@ Lâkin... bu ceetten özümni pek küçlü is etmeyim.
 
 — Bu yeri fena.
 Evellerde injenerniñ elinden er şey kele edi.
-Plotina-nıñ divarı üstünde qol arabanen yüre, elinde mala, divarlarnı sılay, aqlay turğan.
+Plotinanıñ divarı üstünde qol arabanen yüre, elinde mala, divarlarnı sılay, aqlay turğan.
 Biz... yaş injenerler, olardan artta qalmaq kerekmizmi?
 
-— Qasvetlenmeñiz, Zakir Gulâmoviç! — dedi İrada,— episi qolumız-dan kelir.
+— Qasvetlenmeñiz, Zakir Gulâmoviç! — dedi İrada, — episi qolumızdan kelir.
 Tek vaqıt kerek.
 Keçken afta Baş İdarede meclis oldı.
 "Sen — ilki injenersiñ...— dedi maña Torizo — ilki injener özbek qadını!
 Bu — doğrumı?
 
-— Bilmeyim,— Curayev omuzlarını qıstı,— belki öyledir.
+— Bilmeyim, — Curayev omuzlarını qıstı, — belki öyledir.
 Lâkin siz — sovet injenerisiñiz.
-Tehnikanı egerlemek kereksiñiz! — o tez-tez yurdi, tuvar tezegi tütüni basqan kiçik aralıq içine kirip ketti. 
-Soñ biz Mansurovnen körüştik.
-O ayaqqap ustahanesi ögünde ümütsizden peyda oldı.
+Tehnikanı egerlemek kereksiñiz! — o tez-tez yürdi, tuvar tezegi tütüni basqan kiçik aralıq içine kirip ketti.
 
-— İradahan! — dedi o, qolunı köküsi üstüne qoyıp,— dershane azır.
+Soñ biz Mansurovnen körüştik.
+% O ayaqqap ustahanesi ögünde apansızdan peyda oldı.
+
+— İradahan! — dedi o, qolunı köksü üstüne qoyıp,— dershane azır.
 Sigizmund Genrihoviç de mında.
 Lâkin yataqhane içün koyka yoq ve yaqında olacaqqa beñzemey...— özü terenden köküs keçirdi.
 
-— Bunı, Abdulla Sadıqoviç, maña aytqanda ne fayda? — dedi İrada,— koyka tapıp berir belleysiñizmi?
+— Bunı, Abdulla Sadıqoviç, maña aytqanda ne fayda? — dedi İrada, — koyka tapıp berir belleysiñizmi?
 
 Men kenarda indemey turdım, eki injener arasındaki munasebetler parlaq olmağanına yazıqsındım.
 
-— Rica etem,— dedi Mansurov,— Anna Yakovlevnağa eki söz aytıñız...
+— Rica etem, — dedi Mansurov, — Anna Yakovlevnağa eki söz aytıñız...
 
 — Eki söz?
 Niçün?
@@ -142,35 +149,34 @@ Mansurov, yüksek tahta qapu ögünde toqtadı, ayağınen tepip, bir qanatını
 
 — Kirip köresiñizmi?
 
-Azbar içinde, töpesi tolnen örtüli evniñ ögünde yigirmi qadar yaş kişi turıp, mahorka içip, küneşke qızınmaqta edi.
+Azbar içinde, töpesi tolnen örtüli evniñ ögünde yigirmi qadar yaş kişi turıp, mahorka içip, küneşte qızınmaqta edi.
 Curayev, nasıl etken-nasıl etmegen, mında kelip yetken.
 Qara şlâpalı kişinen subet etmekte.
 
-Öyle adamlar barlar ki, tışqı körünişine baqıp, zenaatını tayn etmek mümkün.
-Lâkin Curayevniñ zenaatını tain etmek mümkün degil.
+Öyle adamlar barlar ki, tışqı körünişine baqıp, zenaatını tayin etmek mümkün.
+Lâkin Curayevniñ zenaatını tayin etmek mümkün degil.
 Otuz yaşında, baqır yüzlü, qıbırdavuq, quru kişi.
 Böyle adamlar işni sezdirmey, "ımpıs-tımpıs" yapa qoyalar.
 Kimer adamlar özleriniñ bılaşıq işlerini gizleyler.
 Curayev ise namuslı işlerini gizley.
-İşçilerniñ fikirlerini işitmek, söz kelimi, amam, aşhane, bala bağçası hususındaki fikirlerni toplap, tedqiq etip, dogru netice çıqarmaq... fena şeymi?
+İşçilerniñ fikirlerini eşitmek, söz kelimi, amam, aşhane, bala bağçası hususındaki fikirlerni toplap, tedqiq etip, dogru netice çıqarmaq... fena şeymi?
 
 Onıñ yerinde başqası olsa, yaqanı qurtarmaq içün deral bir şey işandırır, yalan patlatır, çıqar keter.
 Curayev... yoq!
-Onıñ özüne ait ameliy sözleri bar: "yahşı... körermiz!" — dep taşlay ve sen yanından ketkeniñ kibi, areket etip başlay, öz ibaresinen söylegende, adamlarnı, aqiqiy bolşeviklerni, amamğa... aşhanege, kommunhozğa qoya", eger zaruret olsa, kene şu yerlerge komsomollarnı "taşlay" ve daima bir şeyni talap ete:
-
-"yarın aqşamğa azır olsun!" Em, kerçekten de, yarın aqşam amamda kotöllar yaqılğan, suvu qaynağan ola, ondan yüzlerce kişiler yuvunıp, temizlenip çıqayatqan vaqıtta, kommunhoznı, yahut komendant Petâ emceni dünyada eñ hoş, eñ acaip sözlernen maqtay, amma Curayevni añğan kişi olmay.
+Onıñ özüne ait ameliy sözleri bar: "yahşı... körermiz!" — dep taşlay ve sen yanından ketkeniñ kibi, areket etip başlay, öz ibaresinen söylegende, adamlarnı, aqiqiy bolşeviklerni, amamğa... aşhanege, kommunhozğa qoya", eger zaruret olsa, kene şu yerlerge komsomollarnı "taşlay" ve daima bir şeyni talap ete: "yarın aqşamğa azır olsun!" 
+Em, kerçekten de, yarın aqşam amamda kotöllar yaqılğan, suvu qaynağan ola, ondan yüzlerce kişiler yuvunıp, temizlenip çıqayatqan vaqıtta, kommunhoznı, yahut komendant Petâ emceni dünyada eñ hoş, eñ acayip sözlernen maqtay, amma Curayevni añğan kişi olmay.
 Yalıñız amam meselesinde degil, er şeyde öyle.
 
 O Mansurovnen laqırdını qısqadan kese.
 
-— Maña baq! — dey oña Curayev,— Sen bolşeviksiñmi?
-Bolşevik olsañ, Leninniñ saat ustasınen etken laqırdısını hatiriñe ketir: "siz" dey o... añladıñmı?
+— Maña baq! — dey oña Curayev, — Sen bolşeviksiñmi?
+Bolşevik olsañ, Leninniñ saat ustasınen etken laqırdısını hatriñe ketir: "siz" dey o... añladıñmı?
 Lenin!
 O istegen kişisine: "sen" diye de bilir edi, lâkin "siz" dey edi.
 Aydı, cöne!
 Yarın aqşamğa iş yapılğan, azır olsun!
 
-Oña adı ve babasınıñ adını qoşıp,— Zakir Gulâmoviç, dep muracaat etseler, darıla: rica etem, menim adımnı öyle uzun etip aytmañız, dey.
+Oña adı ve babasınıñ adını qoşıp, — Zakir Gulâmoviç, dep muracaat etseler, darıla: rica etem, menim adımnı öyle uzun etip aytmañız, dey.
 
 Curayev bir qaç sene evel institut bitirgen.
 Endi eppi tecribeli injener.
@@ -180,7 +186,7 @@ Amma özüne ve kostümine baqqanda, buña kimse inanmaz.
 Yüksek boylu, süyekli kişi, üstünde qara kostüm.
 Yaqın kelgen soñ, ellerini kördim.
 Olarğa — temiz eller demek az, qarardan ziyade temiz...
-Yueyü, o qadar diqqatlı, o qadar muqayt tıraş olğan ki, temizligi ceetinden üner ola bilecek.
+Yüzü, o qadar diqqatlı, o qadar muqayt tıraş olğan ki, temizligi ceetinden üner ola bilecek.
 Küçük, süyrü saqalı ve qısqa mıyıqları pek cıynaqlı.
 Burunınıñ üstünde pensne.
 İnjener kimerde başını aşağı egiltip, közlüginiñ üstünden baqa.
@@ -190,16 +196,16 @@ Er kes kibi, o da mahorka içe, lâkin gazeta kâğıdından yasalğan sigarnı�
 Bu adam niçün mende böyle hucur... yoq, hucur degil, küçlü teessurat doğurdı?
 Bilmeyim.
 Özüni usta tutuvı içünmi eken?
-Böyle adamlar inqilâbdan evelki injenerler arasında çoq edi.
+Böyle adamlar inqilâptan evelki injenerler arasında çoq edi.
 Bu, Mansurovnıñ aytqan injeneri — Sigizmund Genrihoviç olmalı, dep tüşündim.
 Men yañılmağanım.
 
-İrada Hazar Kendke barmaq içün çıqqan vaqıtta, ekskavatorcılar mektebindeki ilki derske kirerim dep tüşünmegen.
+İrada Hazar Kendge barmaq içün çıqqan vaqıtta, ekskavatorcılar mektebindeki ilki derske kirerim dep tüşünmegen.
 O, zanıma qalsa, yalıñız Komsomol Merkeziy Komitetiniñ tehnikanı menimsev hususındaki tebliğat kâğıtlarını taqdim etip çıqmaq istedi.
 Lâkin endi çıqıp ketmek qolaysız keldi.
-Qart injener yavaştan bıcağınıñ ögüni çezip, jiletiniñ cebinden saatini çıqardı.
+Qart injener yavaştan bıcağınıñ ögüni çezip, jiletiniñ cebinden saatını çıqardı.
 
-— Vaqıt!..— dedi o,— başlamağa vaqıt, dostlar!
+— Vaqıt!..— dedi o, — başlamağa vaqıt, dostlar!
 
 Kursantlar, basamaqlarnı gürsüldete, berip, sınıfqa doğruldılar.
 
@@ -208,19 +214,21 @@ Kursantlar, basamaqlarnı gürsüldete, berip, sınıfqa doğruldılar.
 Nasıl?
 Kiresiñizmi?
 
-Kirem! — dedim men. — Bu faydalı şey...— Ekimiz olarnıñ artından yurdik.
+Kirem! — dedim men. 
+— Bu faydalı şey...
+— Ekimiz olarnıñ artından yürdik.
 Bizim artımızdan Sigizmund Genrihoviç, Mansurov ve Curayev kelip, ögdeki kürsülerge oturdılar.
-Ders başlanmazdan evel ayaqqa turıp, şimdilik soba yaqmaq içün odun yoqluğı sebebinden, sınıfta fufaykanen oturmaq mümkün ekenligini, lâkin qalpaqlarını çıqaruv zarurlığını ders vaqıtında tütün içmek yasaq etilgenini bildirdi.
-Bundan soñ, Mansurov şu sözlerni ayttı: tezden parkqa yeñi ekskavatorlar kelecek.
+Ders başlanmazdan evel ayaqqa turıp, şimdilik soba yaqmaq içün odun yoqluğı sebebinden, sınıfta fufaykanen oturmaq mümkün ekenligini, lâkin qalpaqlarını çıqaruv zarurlığını ders vaqtında tütün içmek yasaq etilgenini bildirdi.
+Bundan soñ, Mansurov şu sözlerni ayttı: tezden parkqa yañı ekskavatorlar kelecek.
 Olarnıñ üstünde eski ekskavotorlarnıñ maşinistleri çalışacaqlar.
-Yardımcılar — üyken nijniklerden tain etilecek.
-Amma yeñi ekskasator-larnıñ nijnikleri — bunı, mektepni bitirgen, bilgili adamlar olmaq kerekler.
+Yardımcılar — üyken nijniklerden tayin etilecek.
+Amma yañı ekskasatorlarnıñ nijnikleri — bunı, mektepni bitirgen, bilgili adamlar olmaq kerekler.
 
 Mansurov sözüni bitirgen soñ:
 
 Söz injener Sigizmund Genrihoviç Menjevetskiyge berile,— dedi.
 
-Qart injener, güya tışarıdan işitilgen davuşqa diñlenip turğanı alda, bir şeyden abdırağan kibi, başını silkitip aldı, evde eñ alışıq adamınen qonuşır kibi, sözge başladı:
+Qart injener, güya tışarıdan eşitilgen davuşqa diñlenip turğanı alda, bir şeyden abdırağan kibi, başını silkitip aldı, evde eñ alışıq adamınen qonuşır kibi, sözge başladı:
 
 — Menim dostlarım! — dedi o, — Tân-Şan dağlarınıñ töpesinden aşağı çoq suvlar aqıp tüşmekteler.
 Olardan bir qaç danesiniñ birleşüvi neticesinde Çar-Çaq asıl ola.
@@ -228,26 +236,28 @@ Taşkent vadisi bu suvlarnen ğıdalana.
 Çar-Çaqtan ayırılıp kanal bir çoq arıqlarğa daa bölüne.
 Şeerlerniñ er bir soqağında, azbarında arıq bar, lâkin er kes, suv yetişmey, dep şikâyetlene.
 Suv çoq, amma tabiat suvnı doğru taqsim etmege bilmey.
-Yılnıñ bir mevsiminde suv çoq, diger mevsiminde az. — Böyle degen soñ injener pensnesini çıqarıp, yavluğınen sürtti ve tekrar taqqan soñ, qollarını arqasına qoyıp, parmaqlarını bir-birine tirkedi. — Tabiatqa yardım etmelimiz,— dedi Menjevetskiy — yalıñız suvnı cıyuvda degil, onı turbinalarnı areketke ketirüvge de mecbur etmelimiz! — soñ sağ elini pencere betke siltedi,— yalıda, töpesi yanıq çinarnı, elbet de, körgendirsiñiz...
+Yılnıñ bir mevsiminde suv çoq, diger mevsiminde az. 
+— Böyle degen soñ injener pensnesini çıqarıp, yavluğınen sürtti ve tekrar taqqan soñ, qollarını arqasına qoyıp, parmaqlarını bir-birine tirkedi.
+— Tabiatqa yardım etmelimiz, — dedi Menjevetskiy — yalıñız suvnı cıyuvda degil, onı turbinalarnı areketke ketirüvge de mecbur etmelimiz! — soñ sağ elini pencere betke siltedi, — yalıda, töpesi yanıq çinarnı, elbet de, körgendirsiñiz...
 Biz Çar-Çaqnıñ dağlar arasında iñildep, quturıp aqayatqan bu yerinde, tar boğaz içinde, plotina quracaqmız.
 Plotina suvnıñ seviyesini yuqarı köterecek.
 Kötergen soñ suv özenden çıqıp, çöllerge ketecek.
 Plotinadan balaban suv tıynağı asıl olacaq.
-Suv eski yolunen degil, betonnen örtüli yeñi yolnen ketecek.
+Suv eski yolunen degil, betonnen örtüli yañı yolnen ketecek.
 Bu derivatsion kanal boyunda eki gidroelektrostantsiya qurulacaq.
 Olar azotlı kübreler çıqarıcı zavodlarğa elektrik küçü berecekler.
 Zavodlarnıñ mahsul çıqarmaları içün yalıñız ava ve suv kerek olacaq.
-Azotlı kübreler pamuq çöllerinde yollanılacaqlar.
+Azotlı kübreler pamuq çöllerine yollanılacaqlar.
 Tasavur etesiñizmi?
 Zavodlar ükümetten iç bir tonna ham mal almaycaq, lâkin biñlernen tonna azotlı kübre yasap çıqaracaqlar.
 
 Yanaşamda oturğan İrada gizliden qulağıma:
 
-— O Donbassta çalışa edi, — dedi, — anda, belki işitkendirsiñiz, şahtalar protsessi olğan.
+— O Donbassta çalışa edi, — dedi, — anda, belki eşitkendirsiñiz, şahtalar protsessi olğan.
 Sigizmund Genrihoviç ziyankâr injenerlerni qorçalağan.
 Soñra... şahtanı terk etmege mecbur olğan.
 Mında da işke almaq istemediler.
-Er alda, özüñiz bilesiñiz... şübeli şahs.
+Er alda, özüñiz bilesiñiz... şübeli şahıs.
 Kimni qorçalap çıqqan?
 Bir tüşünip baqıñız!
 Ziyankâr injenerlerni.
@@ -260,12 +270,12 @@ Menjevetskiy, umumen, hucur adam.
 Alâ evlengeni yoq... bekâr!
 İdarede çalışqan qızlar aytalar: kölmegini özü krahmallap, özü ütülep kiye eken.
 Amma büyük mütehassıs.
-Altın qafası bar. —
-İrada elini tersine siltedi,—
+Altın qafası bar. 
+— İrada elini tersine siltedi, —
 Dünyada çeşit adamlar bar... ne deysiñiz?
 
 Men indemedim.
-Ağızımdan bir söz çıqqan olsa, kişiler bizge baqacaq ediler.
+Ağzımdan bir söz çıqqan olsa, kişiler bizge baqacaq ediler.
 Başımnı sallay berdim, fikirim ise başqa yerlerde edi.
 Soñ, lektsiya diñleyatqan adamlarğa baqtım: olar kimler?
 Lektsiyanı öyle diqqatnen diñlemekteler ki, nefes alğanda, keder etmeyimmi eken, dep saqınalar.
@@ -282,12 +292,12 @@ Menjevetskiy Çar-Çaq qurucılığınıñ elverişli ceetlerini isbatqa keçti.
 Sade tilnen aytqanda, memleketimizde er bir adam on altışar metr basma ve modepalam artqaç olacaq, yani er kesniñ altışar kölmegi olacaq.
 Altı kölmek!
 Qaysımızda altı kölmek bar?
-Kimer kişide eki, kimersinde  üç.
+Kimer kişide eki, kimersinde üç.
 Amma bunda — birden altı kölmek...
 
 Kiriş sözünden soñ Sigizmund Genrihoviç proekt üstünde toqtaldı.
 Yuqarı ve aşağı byef, istiqamet, plotina, ökçe ne demek ekeni hususında izaat berdi.
-Müim shemalarnı añlatqanda bazan tahtağa kişi çağırdı.
+Müim shemalarnı añlatqanda bazen tahtağa kişi çağırdı.
 Men özümniñ kursant olmağanıma bazanıp, ğaflet oturdım.
 Fikirim uzaqlarda — Kazatin, Jmerinka, Fastov şeerleriniñ etraflarındaki çamlı dağlarda dolanmaqta edi.
 Lâkin bu qadar adam arasında injener meni begengen...
@@ -295,27 +305,29 @@ Begengenmi?
 Yoqsa, hayalsırağanımnı sezgenmi?
 Tahtağa davet etti.
 
-Men, şporlı çızmalarımnen polnı gürsüldete berip, ortağa çıqtım.
+Men, şporlu çızmalarımnen polnı gürsüldete berip, ortağa çıqtım.
 
 — Söyleñiz: aşağı byef ne demek?
-Yuqarı byef ne demek? — Sigizmund Genrihoviç böyle degende, avuçınıñ birini yuqarı, digerini aşağı qoyıp körsetti.
+Yuqarı byef ne demek? 
+— Sigizmund Genrihoviç böyle degende, avuçınıñ birini yuqarı, digerini aşağı qoyıp körsetti.
 
-— Yuqarı ve aşağı ufqiy çizgiler arasında suvnıñ seviyesindeki farq,— dedim men.
-Onıñ bana aytıp keçkeni aqılımda edi.
+— Yuqarı ve aşağı ufqiy çizgiler arasında suvnıñ seviyesindeki farq, — dedim men.
+Onıñ maña aytıp keçkeni aqlımda edi.
 
 Menjevetskiy menim cevabımdan memnün qaldı.
 Men qaytıp, yerime oturayatqanda, "cesür kazak" dep taşladı.
 İrada şeñ davuşnen küldi.
-Vu arada Mansurov partorgnıñ yeñinden yavaşçıqtan silkitip, közlerinen meni körsetti.
+Vu arada Mansurov partorgnıñ yañından yavaşçıqtan silkitip, közlerinen meni körsetti.
 Soñ ekisi de külümsirediler.
 İrada olarnıñ bir-birlerine köz qıpqanlarını eslep, qaşlarını tüyümledi, hayli vaqıt indemey, açuvlı oturdı.
 Menim ise bu arada hatrime, niçündir, Elpide keldi.
 Tüşüncege daldım.
 
-Bir daa qulaqlarıma derenden Menjevetskiyniñ sesi keldi.
+Bir daa qulaqlarıma terenden Menjevetskiyniñ sesi keldi.
 
 — Sizden sorayım!
-İşitesiñizmi, kavaleriya? — Dep şaşmaladım.
+ Eşitesiñizmi, kavaleriya?
+— Dep şaşmaladım.
 Közlerim sağğa-solğa aylandılar.
 Zornen esimni topladım.
 
@@ -325,21 +337,23 @@ Bu hususta şimdiçik aytıp keçtim.
 Men fikrimni toplaycaq olıp tırışqan arada kursantlar külüştiler.
 
 — Bulutlar içinde ediñiz, öylemi? — dedi injener,— olucı şey. 
+
 Dersten soñ, İrada meni yer patlatıcılar idaresine alıp ketti.
 Onı tapmaq qolay degil eken.
-Qışlaqnıñ civarında bağçanıñ ortasında cayuvdan büyük çadır... içinde qızarıp turğan çöyün ocaq. —
-Biz onı qışlaq soqaqlarında qıdırıp yurdik,— Müdirniñ kabineti, buhgalteriya, teminat bölügi — episi bir yerde.
+Qışlaqnıñ civarında bağçanıñ ortasında cayuvdan büyük çadır... içinde qızarıp turğan çöyün ocaq. 
+— Biz onı qışlaq soqaqlarında qıdırıp yürdik.
+— Müdirniñ kabineti, buhgalteriya, teminat bölügi — episi bir yerde.
 Menim içeride oturacağım kelmedi.
 Çıqtım.
-İrada müdirnen davağa tutındı, eki saatten ziyade iddalaştı.
-Episini işittim.
+İrada müdirnen davağa tutundı, eki saattan ziyade iddalaştı.
+Episini eşittim.
 
-Bağça içinde, ağızımda sigarım — tütün içmege mında ögrenip başladım — dolanğanda, öz-özüme taaciplendim: İrada meni mında niçün ketirdi aceba?
+Bağça içinde, ağzımda sigarım — tütün içmege mında ögrenip başladım — dolanğanda, öz-özüme taaciplendim: İrada meni mında niçün ketirdi aceba?
 
 ...O vaqıtta İrada maña fıqırdavuq qız olıp körüngen... onda yürekni hoşlandırıcı şey tapmağan edim.
-Yanına kelgende zecanlanmay, atta onı sevmey edim.
+Yanına kelgende eyecanlanmay, atta onı sevmey edim.
 Soñundan... apansızdan sevdim.
-Sevgen soñ, qalbimde toplanıp qalğan keder, sevinç, öpke, eecan — episi birden areketke keldi.
+Sevgen soñ, qalbimde toplanıp qalğan keder, sevinç, öpke, eyecan — episi birden areketke keldi.
 
 Niçün sevgenimni añlatmaq qıyın.
 Maña öyle kele ki, o vaqıtlarda İrada, ğaliba, azaçıq oğlan balağa beñzey edi.
@@ -350,7 +364,7 @@ Qızlar saçlarını burdırıp, yüzlerini pudralap, dudaqlarını boyap... yah
 Şeerlerde komsomollar — erler ve qızlar — yung-şturm kostümleri kiyip, portupeyli quşaq bağlap keze turğanlar.
 
 İradanıñ tabiatında böyle cerânlarnıñ tesiri... oğlan adetleri bar edi.
-O, zevqlı adise körse — mıtlaqa külecek, kederli şeyge rast-kelse, közlerinden yaş kelgence azaplanacaq.
+O, zevqlı adise körse — mıtlaqa külecek, kederli şeyge rastkelse, közlerinden yaş kelgence azaplanacaq.
 Öyle alışqan.
 Kimerde esli-başlı olıp körünmege istey, ziy-çuv laqırdı eteyatqan yerinde birden susa, çırayını sıta ve yasama — ciddiy davuşnen laqırdı ete.
 "Sevimli oğlançıq" deyim men şimdi, o devirdeki İradanı hatırlap, özüm ise Seyyareniñ dülber çeresine köz etem...
@@ -359,7 +373,7 @@ Moda hususında laqırdı çıqsa, epimizni bastıra, lâkin onda, er alda, İra
 
 Oğlançıq... lâkin, duyğu degen şeyni saqlamaq mümkün degil oğlançıqmı?
 Qızçıqmı?
-İnsan isleri bunı tez tain ete.
+İnsan isleri bunı tez tayin ete.
 
 İradada, insannı kendine çekici hususiyetlerden biri daa — onıñ namuslı, vicdanlı oluvı ve memleketniñ alicenap ğayelerine sadıqlığı.
 Bu alâmetler onda daima birinci yerni işğal ete ediler.
@@ -367,16 +381,19 @@ Bu alâmetler onda daima birinci yerni işğal ete ediler.
 ...Qız çadırdan çıqqan maalde qışlaqnıñ soqaqları üzerine qaranlıq ene başlağan edi.
 İradanıñ yüzü maña pek yorğun köründi.
 
-— Bekirov, bu ne? — dep qıçırdı o. — Böyle keç oldımı?
+— Bekirov, bu ne? — dep qıçırdı o. 
+— Böyle keç oldımı?
 Aşıqmaq kerek, sklad qapalır.
 
 Sklad bağçadan uzaqta, qışlaqnıñ diger çetinde edi.
 Çaptıq.
-Eski, uslupsız binağa kelip yetkende ekimizniñ de talağımız şişken edi.
+Eski, üslüpsiz binağa kelip yetkende ekimizniñ de talağımız şişken edi.
 İrada qart Kostâğa narâdnı uzattı.
 
-— Nafile zamet...— dedi o, kâğıtnı İradağa qaytarıp berdi. — Keç oldı.
-Maşinañız qayda? — dep soradı soñ, — Arqañızğa alıp keteceksiñizmi?
+— Nafile zamet...— dedi o, kâğıtnı İradağa qaytarıp berdi. 
+— Keç oldı.
+Maşinañız qayda? — dep soradı soñ.
+— Arqañızğa alıp keteceksiñizmi?
 
 — Maşina?
 Raatsız olmañız!
@@ -387,17 +404,19 @@ Skladçınıñ elleri taqatsız, közleri zayıf ekenliginden, yazuv-çızuv uza
 Men qaldım.
 Narâd mücibi, rolikler, demir qamutlar, elektrik şnurı qabul etip aldım.
 
-— Yap-yaş qız, amma nezaketni bilmey, — dedi Kostâ emce. — Sklad qapalı deyim, vira içeri soqula.
+— Yap-yaş qız, amma nezaketni bilmey, — dedi Kostâ emce. 
+— Sklad qapalı deyim, vira içeri soqula.
 Kündüz kommunhoz maşinasınen kelip alıp ketse ne ola?
 Er şeyni özü bilgeni kibi yapa.
-Ne bitmegen klub oldı... skladçı öpkelenip toqtağan soñ, közlerini maña tikledi. — Sen kimsiñ?
+Ne bitmegen klub oldı... skladçı öpkelenip toqtağan soñ, közlerini maña tikledi.
+— Sen kimsiñ?
 Ekspeditormı?
 
 — Yoq, men nijnikim!
 
 — Nijnik?..
 Şadmanovanıñ malayı.
-Öylemi? — lampadnı eline alıp, skladnıñ töründeki taş basamaqlarğa doğurıldı.
+Öylemi? — lampadnı eline alıp, skladnıñ töründeki taş basamaqlarğa doğruldı.
 Men onıñ peşinden kettim.
 Podvalda qaranlıq.
 Köridorda oba-töpe üstünden atlap, keñ odağa kirdik.
@@ -409,6 +428,7 @@ E!
 Yagma yoq! — dep qıçırdı Kostâ emce.
 Çuvallarğa toqunma!
 Añladıñmı? 
+
 Men taaciplendim.
 
 — Niçün?
@@ -428,30 +448,32 @@ Kladovkacı tsementni çekip, defterge yazdı, men töpege taşladım.
 Eppiy vaqıt keçti.
 Podvalnıñ içinde toz-duman köterildi.
 Nefes almanıñ çaresi olmadı.
-Skladçı tozğa boñayğan soñ, attı-tuttı, sögüne-sögüne çıqıp ketti.
+Skladcı tozğa boñayğan soñ, attı-tuttı, sögüne-sögüne çıqıp ketti.
 Taş merdivenlerden yuqarı köterileyatqanda:
 
-— Özüñ toldır, özüñ çek!
+— Özüñ toldur, özüñ çek!
 Jurnalğa da özüñ yaz! — dep cekirdi, soñ qapu tars etip örtüldi.
 
-Tışarıda maşina davuşı işitildi.
+Tışarıda maşina davuşı eşitildi.
 Azbarğa çıqtım.
 Şoför, elleri uzun kişi, üstümdeki arbiy urbanıñ toz ile örtüngenini eslep, elimdeki brezentni qaqıp aldı, podvalğa tüşip ketti.
 Maşina yanında dolanğan İrada, menim kölgemni kördi.
 
-— Halat kiydiñizmi? — dedi maña ciddiy sesnen ve cevabımnı beklemey, ilâve etti: — Aqıllı iş yapqansıñız!
+— Halat kiydiñizmi? — dedi maña ciddiy sesnen ve cevabımnı beklemey, ilâve etti: 
+— Aqıllı iş yapqansıñız!
 
-Skladçı küldi, indemedi.
+Skladcı küldi, indemedi.
 
 — Halat?
-Nasıl halat? — taaciplenip qıçırdım, soñ dudağımnı tişledim: — Ebet.
+Nasıl halat? — taaciplenip qıçırdım, soñ dudağımnı tişledim: 
+— Ebet.
 Halat kiydim! — dedim.
 
-Geceniñ bey vaqıtında tsementni ve diger mallarnı maşinağa yüklep, Sotsialist şeerçikke keldik.
+Geceniñ bey vaqtında tsementni ve diger mallarnı maşinağa yüklep, Sotsialist şeerçikke keldik.
 Aşhane yanından keçeyatqanda İrada maşinanı toqtattı.
 Kabinadan yerge tüşti.
 
-— Episini klub qaravulına teslim etiñiz,— dedi o maña,— muqayt oluñız, tsement açıq avada qalmasın!
+— Episini klub qaravulına teslim etiñiz, — dedi o maña, — muqayt oluñız, tsement açıq avada qalmasın!
 Yarın aqşam ve gece smenalarınıñ komsomolları klub qurucılığına çıqacaqlar.
 Ekskavatorcılardan başqa...
 Añlaşıldımı?
@@ -463,7 +485,8 @@ O injenerler içün qurulğan evlerniñ arasındaki qaranlıq aralıq boyu ketti
 Men mallarnı teslim etip, barakqa qayttım.
 
 "Sizni çoq zametke qoydım, afu etiñiz...
-Geceñiz hayır, Cevdet!" Bu sözler İradanıñ ağızından çıqtımı?
+Geceñiz hayır, Cevdet!" 
+Bu sözler İradanıñ ağzından çıqtımı?
 Tevbe!
 Men oña yalıñız familiyamnı aytqan edim, adımnı qaydan bildi?
 Sus, Cevdet!
