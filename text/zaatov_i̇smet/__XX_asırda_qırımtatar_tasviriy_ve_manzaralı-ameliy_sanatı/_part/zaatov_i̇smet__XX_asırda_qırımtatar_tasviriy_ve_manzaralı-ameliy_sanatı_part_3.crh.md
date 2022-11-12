@@ -1579,5 +1579,3 @@ Yuqarıda qayd etilgen sebeplerge köre, bir sıra ressamlar icadınıñ talili 
 Materialnıñ sıñırlanuvı ya da professionalizm seviyesi yeterlik derecede olmağanı sebebinden, icatları mahsus tedqiqat mevzusı ola bilmeycek ressamlar aqqında yalıñız qısqa malümatlar berildi.
 
 Ömür bir yerde turmay, icatları yañı inkişaf basqıçına adım atqan ustalar Qırımğa qaytalar; ressamlarnıñ yañı nesili öseyata, bundan itibaren mezkür işni etraflı, dep saymaq mümkün degil, müellif öz tedqiqatı ve başlağan mevzusınıñ devamı olacağına ümüt ete.
-
- 
