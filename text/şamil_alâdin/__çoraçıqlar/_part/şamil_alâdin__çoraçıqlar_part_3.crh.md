@@ -5,8 +5,8 @@ Tanış aenkmi? – dep soradı, yırlap bitirgen soñ.
 
 – Mustafa beyniñ qoruvı Köbekniñ teknesi artında, Qartal qaya bette, – dedi Saabe apte. – Yavuz türk Lütfi... o vaqıtta Acı Üseinniñ dünyalarğa berilmez, dülberlerniñ dülberi, peri kibi qızınıñ canına yetti.
 
-– Hayriyet! – dedim men, taaciplenip. –
-O ne vaqıt ve nasıl oldı?
+– Hayriyet! – dedim men, taaciplenip.
+ –O ne vaqıt ve nasıl oldı?
 
 – Nasıl oldı?
 Foti Salada Kâzim türkniñ Lütfi degen oğlu bar edi.
@@ -26,9 +26,9 @@ Lütfi ögey ana ile qız arasındaki munasebetlerniñ fenalığını duya.
 Köydeki bir cadı ile Naqiyege esapsız aqçalar yollay, qıznı hırsızlap alıp ketmek içün yardım etmesi hususında añlaşalar.
 
 Qaranlıq bir gecede, köy ealisi uyquda ekende, Lütfi ve eki dostu atlarğa minip, keleler.
-Naqiye qıznı aldap, kiyindirip – quşandırıp, qıymetli bezenmelerini taqtırıp, azbarğa alıp çıqa, yabaniy kişiler, qızğa fikirlerini toplap, azbarda ne olayatqanını abaylamağa fursat bermey, qapqaç etip, atqa qoya, alıp qaçalar.
+Naqiye qıznı aldap, kiyindirip-quşandırıp, qıymetli bezenmelerini taqtırıp, azbarğa alıp çıqa, yabaniy kişiler, qızğa fikirlerini toplap, azbarda ne olayatqanını abaylamağa fursat bermey, qapqaç etip, atqa qoya, alıp qaçalar.
 Naqiye azbarda bir talay indemey tura, atlılar evden uzaqlaşqan soñ: imdat! – diye ayqırıp başlay.
-Qolum-qomşu, geceniñ bey vaqıtında bu kiyik davuşnı eşitip, evlerinden yuvurıp çıqa, Acı-Üseinniñ azbarında toplanalar.
+Qolum-qomşu, geceniñ bey vaqtında bu kiyik davuşnı eşitip, evlerinden yuvurıp çıqa, Acı-Üseinniñ azbarında toplanalar.
 “Ne oldı, Naqiye?” – dep soraylar ondan.
 “Evimizni aydutlar bastı, Haticemizni alıp qaçtılar!” dep cevap bere Naqiye, özü üdür-qıyamet ağlay.
 Adamlar ayretke keleler.
@@ -55,7 +55,7 @@ Altı köylü atlar üstünde köyniñ şimal civarında, qomşu köylerde dolan
 Acı-Üsein, qızınıñ hırsızlanğanını bilgen soñ esini coyıp, yatıp qala.
 
 Mahuldürli avcı İsmail ertesi künü dağda tavşan peşinden yürgende, Mustafa beyniñ qoruvı içinde Acı-Üseinniñ qızınıñ cesedine rastkele.
-Üstünde paalı anter, qulaqlarında altın küpeler, boyunında altın gerdanlıq, qolunda altın bilezlik, belinde ibrışım quşaq.
+Üstünde paalı anter, qulaqlarında altın küpeler, boynunda altın gerdanlıq, qolunda altın bilezlik, belinde ibrişim quşaq.
 Evden nasıl çıqqan olsa, o bezenmeler ile... qanlar içinde yatmaqta.
 
 Avcı İsmail Acı-Üseinniñ evine kelip, bu kederli haberni bildire.
@@ -81,13 +81,12 @@ Eñ oñaytlı yer – dügünler.
 Davulğa çoqmar tüşken, qadeler-qadelerge urulğan, közler bunarlanğan soñ, er kes qızışa, köylü gençler ile bey oğulları arasında nezaketli subet başlay, bir talay vaqıt keçken soñ, sofra üzerindeki çanaq-çölmek, şişeler avada oynaylar... o, vaqıtta köylü yigitler bey oğulçıqlarınıñ bedenlerinde teren-teren örnekler yasap yibereler.
 
 Köyümizde añlaşılmağan meseleler çoq.
-Söz kelimi, buhar degirmeniniñ çarqları alâ çorbacınıñ menfaatına dönmekteler.
-Bağçalardaki mahsulatnıñ keliri çorbacınıñ cebine tolmaqta.
+Söz kelimi, buhar degirmeniniñ çarqları alâ şorbacınıñ menfaatına dönmekteler.
+Bağçalardaki mahsulatnıñ keliri şorbacınıñ cebine tolmaqta.
 Starsanıñ Yaqubı ise Qızıl ordu içün köyümizde eki sığır tapıp olamay, aç köylüniñ soñki tanasını tutıp almaq peşinde.
 Bu doğrumı, Abdureşid muallim?
 
-– “Tanasını tutıp almaq...”
-Sizge bu haberni kim ayttı?
+– “Tanasını tutıp almaq...” Sizge bu haberni kim ayttı?
 
 – Kim ayttı-ayttı... yerniñ de qulağı bar.
 
@@ -101,11 +100,12 @@ Er işniñ tertibi bar!
 
 Bundan soñra menim sesim çıqmadı.
 Saabe apteniñ laqırdısı da kesildi.
-Ve, çoqqa barmay, burunından, aralıq pencerede sızğırğan yel kibi, devamlı ince davuş çıqqanı eşitildi.
+Ve, çoqqa barmay, burnundan, aralıq pencerede sızğırğan yel kibi, devamlı ince davuş çıqqanı eşitildi.
 
 Menim uyqum qaçtı.
 “Saabe apte özü kim?
-Adiy köylü qadınmı? – dep tüşündim, niçün bilmem. – Öyle olsa, bu zekiylik oña qaydan kelgen?” Biraz vaqıt daa keçken soñ, Saabe apte hatirimden çıqtı, öz taqdirimni tüşündim.
+Adiy köylü qadınmı? – dep tüşündim, niçün bilmem. – Öyle olsa, bu zekiylik oña qaydan kelgen?”
+ Biraz vaqıt daa keçken soñ, Saabe apte hatirimden çıqtı, öz taqdirimni tüşündim.
 Mahuldürge kelgenim eppi vaqıt oldı.
 Qayda köz taşlasam, suvanlıq, yoqsullıq.
 Maña, mında kelmege razılıq bermezden evel, yahşı tüşünip baqmaq kerek degilmi edi aceba?
@@ -143,7 +143,7 @@ Soñra tekrarlaymız.
 – Yoq.
 Namaz qıluvnı da ögretem.
 
-“Hucur şey... – dep tüşündim men. – Ariflerni bilmey, Qurannı nasıl oqumaq mümkün!” Saabe menim fikirimni bilgen kibi:
+“Hucur şey... – dep tüşündim men. – Ariflerni bilmey, Qurannı nasıl oqumaq mümkün!” Saabe menim fikrimni bilgen kibi:
 
 – Bunda iç mürekkep şey yoq, – dedi maña. – İsteseñiz, sizge de ögreteyim!
 
@@ -160,7 +160,8 @@ O, tünevinki aşnı soba üstünde qızıdırıp, ögüme qoydı, men aşadım.
 Saabe aptege de buyurmasını teklif ettim, o istemedi.
 “Yañçıq aşadım... toqım”, dedi.
 Er alda, aştan oña da qaldırdım.
-“Belki menimnen yüz-yüzge oturıp aşamağa çekinedir, men yoq vaqıtta qapınsın!” Özüm mektepke cönedim.
+“Belki menimnen yüz-yüzge oturıp aşamağa çekinedir, men yoq vaqıtta qapınsın!”
+Özüm mektepke cönedim.
 
 Saabe apteniñ evi köyniñ kündoğuşında, arqası Bağatır poçta yoluna çıqa.
 Şimdi martnıñ soñki aftası.
@@ -205,8 +206,7 @@ Maña anda muvaqqat buhgalter ol deyler.
 
 – Mahuldürden Bağatırğa qatnapmı?
 
-– Ebet!
-Öyle!
+– Ebet! Öyle!
 
 – Bizim köyde kooperativ açılmaycaqmı?
 
@@ -223,7 +223,7 @@ Binası da donatılıp bitmek üzre.
 O, asıl da, yeñi akimiyetten yalıñız hayırlı işler beklemekte.
 
 Bu esnada içeri Safiye ocapçe kirdi.
-Çeresiniñ aydınlığından sezildi ki, yeñiliqlerniñ episinden haberdar.
+Çeresiniñ aydınlığından sezildi ki, yeñiliklerniñ episinden haberdar.
 O, paltosınıñ sadeflerini çezmekte oldı, derske çañ qaqıldı.
 Men sınıf defterini alıp, ocalar odasından çıqtım.
 Sofa özü keñ ve uzun.
@@ -260,13 +260,12 @@ Dülger başqa ustalarnıñkine beñzemegen eki qatlı, uzun bıçqınen tahtala
 Men derske kirdim.
 Talebeler, er vaqıttaki kibi, meni, ayaqqa qalquvnen qarşılap aldılar.
 Birinci sınıf endi elifbeni ögrendi.
-Men tahta üzerinde: “Yaşasın şuralar akimiyeti!
-Yaşasın Lenin!” dep yazdım.
+Men tahta üzerinde: “Yaşasın şuralar akimiyeti!Yaşasın Lenin!” dep yazdım.
 Bu sözlerni birinci sınıf talebelerine defterlerinde yazmaqnı vazife etip berdim.
 Açıq-aydın ve dülber ariflernen temiz yazmaq kerekligini añlattım.
 Soñra, ekinci sınıfnen meşğul oldım.
-Talebelerge oquv kitabını açmaqnı rica ettim, olar çantalarından kitapnı çıqarıp, açqan soñ: “Qana, Emine!
-Sen oqu! – dedim Memed-Aliniñ qızına, kitaptaki ilekâr tilki masalını kösterdim.
+Talebelerge oquv kitabını açmaqnı rica ettim, olar çantalarından kitapnı çıqarıp, açqan soñ:
+ “Qana, Emine! Sen oqu! – dedim Memed-Aliniñ qızına, kitaptaki iylekâr tilki masalını kösterdim.
 
 Oca bu yerde ikâyesini toqtatıp, maña küler yüzle baqtı.
 “Bu tarih hatiriñizdemi?” dep soradı menden.
@@ -277,9 +276,7 @@ Emineniñ babası türk, anası ukrainalı.
 Emine anasına beñzey.
 Sınıfta talebeler rus tilinde laqırdı etmege bilmeyler, Emine bile.
 Özü de siziñnen bir ralede otura, ekiñiz de doquzar yaşında ediñiz.
-Emine sizge sataşmağa seve turğan: “Aci-güci, mandalaç!
-Acınıñ qızını al da – qaç!” dep eriştire edi sizni.
-
+Emine sizge sataşmağa seve turğan: “Aci-güci, mandalaç!Acınıñ qızını al da – qaç!” dep eriştire edi sizni.
 Bir defa bu sözlerniñ manası ne ekenini soradım.
 Emine aytıp olamadı.
 Laqırdımız keç baar vaqıtında edi.
@@ -295,13 +292,12 @@ Oqup bitirgence qız yoruldı, qızardı, terledi.
 “Saña, Emine, evde qıraitni çoqça oqumaq kerek, – dedim oña, – laqırdıñ güzel, oquvıñ ukrain aenkinde olıp çıqa”.
 
 Aynı masalnı o künü sizge de oquttım.
-Başından güzel oqup keldiñiz, “...çayırda Sefer-Ali aqay, leskeri omuzında, çalığa yaqınlağanda, içinden tilki çıqtı, duv-babam, qaçtı.
-Sefer-Ali çalınıñ pıtaqlarını açtı, ne körsün?
+Başından güzel oqup keldiñiz, “...çayırda Sefer-Ali aqay, leskeri omuzında, çalığa yaqınlağanda, içinden tilki çıqtı, duv-babam, qaçtı. 
+Sefer-Ali çalnıñ pıtaqlarını açtı,ne körsün?
 Tilki evden ketirilgen üylelik yemek boğçasını yırtqan, içindeki aşnı yalap qoyğan”.
 Bu yerde... “duv-babam”, niçündir, siziñ oşuñızğa ketti: “şırq etip külip yiberdiñiz!
 Külgende, oquğan satırlarıñıznı ğayıp ettiñiz.
 Olarnı qıdırıp tapqan soñ fikirleriñizni birden toplap olamadıñız.
-Böyle etip, çığırdan çıqqanıñızğa, ğaliba, özüñiz de tarsıqtıñız.
 Bu arada Emine qulağıñız tübünde yavaştan: “Aci-güci... saña ne oldı?
 Duv babam dep... olamaysıñmı?” diye pısırdadı.
 Siz qızıştıñız, omuzıñıznen qıznı türttiñiz, qız çetke qaqılğanda, tirsegi rale üstündeki merekep şişesine tiydi, şişe yıqıldı, tığırıp qıznıñ tizleri üstüne tüşti.
@@ -310,12 +306,13 @@ Emine pek ıncındı, ağlay-ağlay, dersten çıqıp ketti.
 Men qızğa bir şey aytıp olamadım.
 Toqtatmağa da ıntılmadım.
 Emine aqıllı, güzel qızçıq.
-Dülgerniñ kence oğlu da... – oca maña ilekârane külümsiredi, yüzü qızardı. – Ebet!
+Dülgerniñ kence oğlu da... – oca maña iylekârane külümsiredi, yüzü qızardı. – Ebet!
 Dülgerniñ kence oğlu da sınıfta osal talebelerden degil edi.
 Ekiñizni de darıltmaq istemedim.
 Ama Emine – Memed-Ali beyniñ qızı.
 Onı aqaretlegen kişini cezasız qaldırmaq mümkün degil.
-Men özümni sizge pek açuvlı köstermek içün, atta qulağıñızdan tutıp, eki kere burdım, qulağıñız qıp-qırmızı olğanını sezgen soñ, sizni acıdım, lâkin özüm: “Sen ne yaptıñ? – dep cekirdim üstüñizge. – Birinci kere kiyip kelgen yeñi anterini harapladıñ!
+Men özümni sizge pek açuvlı köstermek içün, atta qulağıñızdan tutıp, eki kere burdım, qulağıñız qıp-qırmızı olğanını sezgen soñ, sizni acıdım, lâkin özüm:
+“Sen ne yaptıñ? – dep cekirdim üstüñizge. – Birinci kere kiyip kelgen yeñi anterini harapladıñ!
 Ayıp degilmi saña!”
 
 – Ya oña... – dediñiz siz, inatlanıp, – Eminege ayıp degilmi?
@@ -348,7 +345,6 @@ Aprel keldi.
 Yağmur bir qaç kereler sepelegen oldı, topraqnıñ terenligine siñip olamadı.
 Küneş yerni qızdırdı.
 Ekinler bir qarış köterildiler.
-
 Yalı boyu ealisi açlıq çeke degen haber eşitildi.
 Çoqqa barmay köyde, yüksek dağlardan, Autka boğazından keçip kelgen yüzlernen yalıboylu erkekler ve qadınlar peyda oldılar, olar ev-evden yürip, omuzlarındaki boğçalarından ştan, kölmek, palto, kamzol, çekmen çıqarıp, bir saan unğa, boğdayğa, yarım çavdar ekmegine, bir oqqa kepekke deñişip, buña da şükürler etip, evlerine qayta ediler.
 Yalıboylularnıñ kelip ketüvleri çoqqa sürmedi, çünki erzaq tezden bizim köyniñ ealisinde de bitti ve açlıq yalıñız Yalı boyunda degil, bizim köylerge de keldi, o, çoqtan-çoq kişilerni köyniñ aşağısında poçta yol çetindeki mezarlıqqa alıp ketti.
@@ -424,7 +420,6 @@ Bereket beklegen ealiniñ ümütleri elâk oldı.
 Soñra küz keldi.
 Accı yeller esip, azğın köylülerni titretti.
 Kit-kite teriler süyeklerge yapıştı.
-İçekler incerdi.
 Adamlarnı er yerde ecel taqip etti.
 Ep poçta yol betke... mezarlıqqa süyrekledi.
 
@@ -456,7 +451,8 @@ Anda kimse körünmedi.
 – Bari ağa evdemi?
 
 – Yoq! – dedi Müntea apte, – tañda turdı, qısqa tüfegini omuzına aldı, ap-aç çıqıp ketti.
-Galasnoyda işi bar eken. – Men Müntea apteniñ lafını evelâ añlamadım, biraz tüşüngen soñ farqına bardım.
+Galasnoyda işi bar eken.
+– Men Müntea apteniñ lafını evelâ añlamadım, biraz tüşüngen soñ farqına bardım.
 Mahuldür qartiyleri zevqlılar.
 Başqa tildeki sözlerni özlerince aytmasalar, iç olmay.
 Müntea yeñge, aqiqatta, volost idaresinde... demek istedi.
@@ -465,7 +461,8 @@ Volost idaresi Dut bağçanıñ aşağısında köpürniñ arqasında.
 – Alâdin ağa da yoqmı?
 
 – Bar!
-Niçün olmasın? – Müntea apte, içeri buyurmamnı rica etti, özü azbarğa çıqtı, kilerniñ artında ğayıp oldı.
+Niçün olmasın?
+ – Müntea apte, içeri buyurmamnı rica etti, özü azbarğa çıqtı, kilerniñ artında ğayıp oldı.
 Bağçada dülgerni qıdırmağa ketti, ğaliba.
 Men içeri kirdim, sofada abdestlik yanında turdım.
 Eki qatlı ev.
@@ -473,7 +470,7 @@ Aşağıdaki odalarnıñ divarları taştan qalanılğan.
 Ekinci qat... çitnen örülip, içten ve tıştan sıvalğan, aqlanğan.
 Qışta yuqarı odalarda suvuq olsa kerek.
 Dülger özü ve Müntea apte birinci qatta yaşaylar.
-Birinde özleri, digerinde boğday ve un anbarı, qamur teknesi, baqır legen ve saire edavat buluna.
+Birinde özleri, digerinde boğday ve un anbarı, hamur teknesi, baqır legen ve saire edavat buluna.
 Evniñ tübü sarı balçıqnen sılavlı.
 Birinci qat odalarına mağaz denile.
 Oğullar... – bu siz ve Yunus, ekiñiz olasıñız, çünki Bari Mahuldürde çoq körünmey, Abdulmein ise Nasvernde yaşay edi, – oğullar qış gecesinde ekinci qatta küçük oda içinde bir qalın yorğan astında ekisi bastırılıp yatalar, ekinci qatnıñ diger odalarında alma, armut, yüvez, aqlap, qızılçıq, fındıq, ceviz tutula.
@@ -531,8 +528,7 @@ Alâdin aqay özü becerikli adam olmasa edi, ailesi belki, yalıñız Abdulmein
 Dülger dağlarda, qırlarda yürdi, türlü kiyik meyva cıydı, eskencede şıra sıqtı, petmez qaynattı, artqaçını mısırboğday ununa deñişti, öyle etip, dört tamaqnı yaşattı.
 
 Eminim ki, bu çareler de aileni amansız zevaldan qurtarıp olamaz edi.
-Bir kün eviñizge bir adam kele, – men o vaqıtta endi köyüñizden ketken edim.
-Bu vaqianı maña, sekiz yıldan soñ, Bağçasarayda han azbarında körüşkende, Bari ağa özü söyledi. – Kelgen adam İsmail Aqqiy efendi eken.
+Bir kün eviñizge bir adam kele, – men o vaqıtta endi köyüñizden ketken edim.Bu vaqianı maña, sekiz yıldan soñ, Bağçasarayda han azbarında körüşkende, Bari ağa özü söyledi. – Kelgen adam İsmail Aqqiy efendi eken.
 Muallim, kiler içinde ev hızmetinen meşğul Müntea apteniñ yanaşasındaki kürsüge otura.
 
 – Sizge müim rica ile keldim, – dey oña, – ecnebiy memleketten açlarğa yardım içün kelgen undan cemaatqa ekmek pişirmek, yani künde üç kere hamur basıp, mindirmek, üç defa peçni yaqıp qızdırmaq, siziñ iri peç içine üç defa ekmek qoyıp pişirmek zarur.
@@ -582,7 +578,8 @@ Bir yıllıq emegiñiz bir çuval çavdar ettimi?
 Ustanıñ sualini tasdıqlap, başımnı ögge qaqıtmağa utandım, ögüme baqtım... sustım.
 
 – Balalarımıznı oqutasıñız, talim-terbiye beresiñiz.
-Bizler, köylüler hızmetiñizden ğayet memnünmiz! – dedi dülger, bir talay indemey oturdı, soñra: – Bir çuval çavdar... – dep tekrarladı, menim sözlerimni. – Ocalarnı böyle aqaretlemek mümkünmi?
+Bizler, köylüler hızmetiñizden ğayet memnünmiz! – dedi dülger, bir talay indemey oturdı, soñra:
+ – Bir çuval çavdar... – dep tekrarladı, menim sözlerimni. – Ocalarnı böyle aqaretlemek mümkünmi?
 
 – Afu etiñiz!
 Bir oqqa hamsa da berildi.
@@ -608,7 +605,7 @@ Müntea apte alel-acele yerinden turıp, qapuğa çaptı, lâkin zembelek tışt
 Mümine babañnıñ qız qardaşı... siziñ alapçeñiz! – dedi.
 Abdureşid oca, maña muracaat ile, – hoş çereli yüksek qadın.
 Küçücik çağında babasınıñ tütün tarlasında işlep, bu köydeki ayatnıñ şefqatına ve hışımına alışqan.
-İslâm bayğa qocağa çıqqan soñ dört oğlan ve dört qız doğurğan, böyle iri aile saibiligi devirinde, şübesiz, üç atlı faytonğa oturıp, bir defamı, ekimi, Ay Petriden keçip, Yalı boyu şeerlerni ziyaret etip kelgen, ama özüniñ keçmişini unutıp, yüksek variyetli ömürge tekmil berilip, baylıqtan ferah körmegen, köyniñ özünde evel-ezelden ükümran ayatnıñ qaidelerinen yaşap kelgen.
+İslâm bayğa qocağa çıqqan soñ dört oğlan ve dört qız doğurğan, böyle iri aile saibiligi devrinde, şübesiz, üç atlı faytonğa oturıp, bir defamı, ekimi, Ay Petriden keçip, Yalı boyu şeerlerni ziyaret etip kelgen, ama özüniñ keçmişini unutıp, yüksek variyetli ömürge tekmil berilip, baylıqtan ferah körmegen, köyniñ özünde evel-ezelden ükümran ayatnıñ qaidelerinen yaşap kelgen.
 
 Kimerde Mümineniñ hatirine soyu-sopu tüşe.
 Ağası Alâdinden, aptesi Zeideden başqa, doğmuş kişileri yoqluğı sebebinden, bu evge silâğa kelüvni unutmay.
@@ -620,8 +617,8 @@ Lâkin Mümine oña öz eviniñ penceresinden baqmay, dereniñ sol yalısındaki
 Bu seferdeki ziyaretinde Mümine apte maña rastkeldi.
 Yüz-yüzge körüşüvimizge o, sevingen kibi duyuldı.
 Mümine apte kelgen soñ men evge qaytmaq içün ayaqqa turdım, sağlıqlaşıp, çıqmaq istedim, Mümine apte ketkenime razı olmadı.
-“Oturıñız, muallim efendi! – dedi maña yüksek nezaketle. – Dünyada nasıl yeñilikler bar, aytıñız!
-Biz de diñleyik!”
+“Oturıñız, muallim efendi! – dedi maña yüksek nezaketle.
+ – Dünyada nasıl yeñilikler bar, aytıñız!Biz de diñleyik!”
 
 Elbet de, evge bir musafir kelgende, digeriniñ deral çıqıp ketüvi, medeniyetniñ yüksekliginden delâlet degil.
 Bunıñ farqına barmaq mümkün.
@@ -637,7 +634,8 @@ Dülger, ayatqa daima ayınıq alda közetmege bilgen qız qardaşınıñ yüzü
 
 – Nasıl atışuvlar?
 Kimniñ ğırtlağına...? – dep soradı dülger. – Men er kün dağdam.
-Anda tenalıq... atışuv yoq.
+Anda tenalıq...
+ atışuv yoq.
 
 – Tenalıq... dağdamı? – Mümine taaciplendi. – Eali dağdan qaça...
 Er bir çalı içinde başkeser saqlı dey!
@@ -667,7 +665,6 @@ O, ağasını, asıl da, çoq meselelerde añlap olamay.
 “Ya Rabbi!
 Men ağamdan ne qıdıram?
 O maña nasıl teselli bere bilecek? – dep tüşündi şimdi de. – Oraza tutmağan, camige ayda-yılda hatanen bir barğan adam, maña ne yardım etecek?
-Onıñ beklegeni böyle akimiyet edi.
 “Qutu yuvarlandı, qapağını buldı”.
 Oğlu üç yıl padişa ordusında almanğa qarşı uruştı.
 Dördünci yılı bolşevik olıp keldi.
@@ -676,7 +673,7 @@ Aytmağa kelemi?
 Omuzında daima kesik tüfek, qolunda brezent çanta.
 Men ağam dep... böyle oğulnıñ babasından aqiqat bilmek içün keldim”.
 
-– Atışuvlarğa tezden acet qalmaycaq, – dedi dülger. – Öyle körüne.
+– Atışuvlarğa tezden acet qalmaycaq, – dedi dülger. 
 Şura ükümeti keldi mından bir yaqqa ketmeycek.
 Atışuvlarnıñ endi faydası yoq.
 
@@ -685,7 +682,7 @@ Atışuvlarnıñ endi faydası yoq.
 Qız qardaşınıñ soñki sözlerine cevap bermedi.
 Bermek istemedi.
 İslâm pomeşçik degil.
-Qoşarlarda qışlağan, otarlarda otlağan yüzlep, biñlep atları, qoyunları, sığırları yoq.
+Qoşarlarda qışlağan, otarlarda otlağan yüzler, biñler atları, qoyunları, sığırları yoq.
 Bir qaç tütün tarlası, meyva bağçası, tütün aranı... işte, bütün mülkiyeti!
 Dağlıq-taşlıq içindeki bu küçük köyde İslâmğa, elbet de, bay deyler, çünki oña fuqare demek mümkün degil. – Niçün indemeysiñiz, ağa? – dep qıçırdı Mümine, ağlamsırap. – Sizden sorayım: bizim alımız ne olacaq?
 
@@ -709,8 +706,7 @@ O, şura ükümeti degilmi?
 Belki volost idaresine bizim içün eki ağız söz aytır!
 
 – Yoq! – dedi dülger. – Bari onı yapmaz.
-Qolundan kelse bile yapmaz.
-Eali de yaptırmaz!
+Qolundan kelse bile yapmaz.Eali de yaptırmaz!
 
 Dülgerge qız qardaşı ile böyle kederli mevzuda laqırdı etmek ğayet müşkül edi.
 O sebepten, özüniñ daimiy yerinden qalqıp, azbarğa çıqtı, kiler saçağı tübündeki tapşan üstüne oturdı, başını eki avuçı arasına alıp, tüşüncege daldı.
@@ -737,8 +733,7 @@ Ağañnıñ sözlerine ıncınma!
 O, biraz tik mezep... lâkin qalpten temiz.
 Seni seve, seniñ içün qasevetlene.
 
-– Siziñ acizlenüviñiz yersiz, – dedim men Mümine aptege. – Şura idaresi bu küngece ne fuqareniñ, ne de zenginniñ şahsiyetine toqunmadı.
-Kimseniñ elinden mülküni çekip almadı.
+– Siziñ acizlenüviñiz yersiz, – dedim men Mümine aptege. – Şura idaresi bu küngece ne fuqareniñ, ne de zenginniñ şahsiyetine toqunmadı.Kimseniñ elinden mülküni çekip almadı.
 Mal-mülk saipligi, zanıma qalsa, vaqıtı ile qanun mücibi al olunacaq!
 
 – Ya, balam, ortalıqtaki bu zorbalıqnı körmeysiñmi? – dedi Mümine apte, – Alan-alannı, tutan-tutannı!
@@ -753,9 +748,7 @@ Siz eki akimiyetniñ işlerini biri-birinen qarıştırmañız!
 Kerçek, kimerde anda-mında tüfek patlay... buña devlet almaşuvı, yani inqilâp deyler.
 
 Mümine apte menim soñki sözlerimni eşitmegen kibi, indemey sofağa çıqtı.
-Tapşan üstünde Alâdin ağa yoq edi.
-Musafir maramasınen yüzüniñ bir yaqını örtkeni alda, taşlı, eniş azbar boyu yürip, araba qapudan çıqtı, soñra tar soqaqnen dere betke endi.
-Bent ep quturmaqta edi.
+Tapşan üstünde Alâdin ağa yoq edi. Musafir maramasınen yüzüniñ bir yaqını örtkeni alda, taşlı, eniş azbar boyu yürip, araba qapudan çıqtı, soñra tar soqaqnen dere betke endi. Bent ep quturmaqta edi.
 
 Köyniñ şarqında, Bağatırğa ketken eniş aralıqnıñ qarşısında Abdulla baynıñ eki qatlı evi tura.
 Ast ve üst sofaları camlı.
@@ -788,8 +781,7 @@ Deycegim, Abdulla özü bay degil, o, şura akimiyetiniñ birinci aylarında kö
 “Bizge, oturıp, vaziyetimiz hususında ciddiy laqırdı etmek... ve bir qararğa kelmek kerek, – dedi bir kün Bayraşevskiy ocalar odasında, – mektepteki bu al oquv degil”.
 
 Ertesi künü müdirimiz İsmail Aqqiy, Bağatırğa, köy şurasına ketti, anda Yaqub Haybullayevnen körüşken.
-Mektepteki vaziyetni añlatqan.
-Haybullayev oquv muvaqqat olaraq toqtatılsın degen.
+Mektepteki vaziyetni añlatqan.Haybullayev oquv muvaqqat olaraq toqtatılsın degen.
 İsmail efendiniñ fikirine razı olğan.
 Öylece, 1922 senesi fevralniñ on ekinci kününde İsmail efendi, Yaya oca, Safiye ocapçe ve men, dördümiz, ocalar odasında sıcaq soba etrafındaki kürsüler üstünde oturıp, köy şurasınıñ qararınen tanış oldıq.
 Onı doğru tedbir dep tanıdıq.
@@ -802,9 +794,7 @@ Bir daa maña bu köyde ocalıq etmek munasip olacaqmı, bilmeyim.
 Muallim çıdap olamadı, davuş çıqarmay ağladı.
 Menim de közlerim yaşlandılar.
 Çünki balalarnı bu vaziyette taşlap ketmek menim içün qıyın oldığı kibi, İsmail efendiden, bu aqıllı ve merametli adamdan, ayırılmaq da qolay degil edi.
-Yaya oca ve Safiye ocapçe...
-Ah!
-Olar menim añım, idrakim ediler.
+Yaya oca ve Safiye ocapçe...Ah!Olar menim añım, idrakim ediler.
 
 – Ocalığım böyle başladı, – dedi Abdureşid oca, davuşını biraz alçaltıp. – Ve böyle de bite yazdı.
 Mektep qapusına kilit asılğan soñ men cayav qırq çaqırım yol yürip, şeerge evimizge qaytıp keldim.
@@ -851,7 +841,7 @@ Eali ekmekke, yemekke toydı.
 Açlıq zulumından qurtuldı.
 Bağlarda-bağçalarda bülbuller sayradı.
 Dereniñ suvu nomay oldı.
-Köyniñ içinde nazik dağ çiçekleri qoqudı.
+Köyniñ içinde nazik dağ çeçekleri qoqudı.
 
 Bir defa poçtacı Kazariadi üç-dört müür ile sırlı konvert ketirdi.
 İçindeki mektüpte Yaya Bayraşevskiy merkeziy şeerge yüksek maarif hızmetine çağırılmaqta edi.
@@ -880,49 +870,6 @@ Temaşadan soñ köy mektebiniñ talebeleri şiirler oquylar.
 Böyle aqşamlarnıñ birinde, hatirimde, köy qızlarından Zeyneb İbraimova ve Ayşe Aqmollayeva “Ketme, balam, ayıptır!” eserini sanağa çıqıp oqudılar.
 Zeyneb ana oldı, Ayşe qızı.
 
-Ana: Şeytan evi mektep degen egerek,
-
-Özü de tap Aqmescitte, köyümizge pek erek!
-
-Asıl, canım, qız balağa oquv-yazuv ne kerek?
-
-Otur evde, qur tezyañnı, ketenlerni ağartıp.
-
-Aytqanımdan çıqma, balam, halqqa yüzüñ qızartıp.
-
-Saña baqsaq, sen oquvnı beñzetesiñ süretke,
-
-Zemane dey, sağlamlıq dey, tırmaşasıñ terekke.
-
-Bizler seni nişanladıq pek zengin bir erkekke,
-
-Ah, aq Tañrım, buzuldı da qızlarımız, erimiz,
-
-Yarın ahret kününde yoq bizim yatar yerimiz.
-
-Qız: Ah, esirlik deviriniñ qul-qurbanı, anayım!
-
-Siziñ içün ceennemde otlarğa men yanayım!
-
-Yañlışasız, aldanasız, hucur laflar aytasız!
-
-Zemaneni añlamaysız, yüz yıl artqa qaytasız!
-
-Bezdiresiz sizler meni şu nişanlav sözümen,
-
-Menligimni satacaqsız üç-beş arşın bezimen.
-
-Ketme, balam, dep aytasız, asla kimniñ yüzümen?
-
-Men ketermen, aytıñ, babam maña potük tez alsın!
-
-Mında alğan eski bilgim özü içün mal olsun!
-
-Ey, anayım!
-Oqumağa ketecekmen-ketecek!
-
-Bu Qırımnı bir top çiçek etecekmen-etecek!
-
 Oquyıcı gençlik, tatil bitip, köyden şeer mekteplerine qaytqan soñ, bediiy aqşamlarnı köylülerniñ özleri de yaptılar.
 Olarnıñ temaşaları, ekseriyetle, mektep azbarında, açıq avada, yüksekçe yerde ola edi.
 Tütün sırıqlarını biri-birine bağlap, çatqı yasap, töpesini brezentnen örteler, büyük sana olıp çıqa.
@@ -949,8 +896,7 @@ Mında yazılğan: tapqan uva, aram ola!
 Teri ketirgen adam mollanıñ sözlerini añlamay.
 “Nasıl dediñiz, molla azretleri?” dep qaytarıp soray.
 Molla sözlerini tekrarlay: “Tapqan uva – aram ola.
-İmam uva – elâl ola!” Quranda açıq-aydın yazılğan!” “Demek, tapılğan kilim maña aram, sizge elâlmı?” Mollanıñ: “E!
-A!” – degen davuşları çıqa.
+İmam uva – elâl ola!” Quranda açıq-aydın yazılğan!” “Demek, tapılğan kilim maña aram, sizge elâlmı?” Mollanıñ: “E! A!” – degen davuşları çıqa.
 Kişi kilimni mollağa qaldırıp, narazı alda, çıqıp kete.
 
 Seyirci cemaat etini ğayıp etecek qadar hahıldap küldi.
@@ -1033,7 +979,7 @@ Baqtı-baqtı, közlerine inanmadı.
 Yanına çapıp bardım, quçaqladım, farığan çeresinden, ağarğan saçlarından öptim.
 “Sevimli ana!
 Men sizni pek sağındım!”, – dedim oña.
-“Menim, balam! – dedi anam. – Men de seni pek sağındım!
+“Menim balam! – dedi anam. – Men de seni pek sağındım!
 Bugün saba filcannıñ tübündeki telbege baqtım... uzaq yolda köründiñ!”
 
 Men kederlendim.
@@ -1062,7 +1008,7 @@ Yürtü kolhozğa keçti degilmi?
 Men qasevetlendim.
 Bugün Süyren poyezdinen ketmek kerekim.
 Süyren stantsiyası köyge yigirmi beş çaqırım.
-Kökköz avtobusını qaçırsam, işim tesadufiy lelenkağa qalacaq.
+Kökköz avtobusını qaçırsam, işim tesadüfiy lelenkağa qalacaq.
 
 – Maña mıtlaqa ketmek kerek, – dedim men, anamnıñ közlerinde telâş sezildi.
 
@@ -1071,12 +1017,10 @@ Kökköz avtobusını qaçırsam, işim tesadufiy lelenkağa qalacaq.
 – Mümkün degil, ana!
 
 O, qomşu odağa kirdi, eppi vaqıt davuşı çıqmadı, bir talaydan soñ:
-
 – Evelâ aşa toy!
-Soñ ket! – dep qıçırdı qapusı yapıq oda içinden. – Meni ıncıtma!
-Ya Rabbi!
+Soñ ket! – dep qıçırdı qapusı yapıq oda içinden. – Meni ıncıtma! Ya Rabbi!
 Oqumağa ketkenlerniñ episi seniñ kibimi aceba?
-Olarnıñ anaları da, menim kibi, daima asret ve qasevet içindelermi? – o, ep yüregindeki kederi, sevgisi hususında söyledi... ama babam ile ekisi qaranlıq köterilip qaranlıq engence, belni doğrultmay çayırda çalışqanları, ayatlarınıñ ağırlığı aqqında ağızından söz çıqmadı.
+Olarnıñ anaları da, menim kibi, daima asret ve qasevet içindelermi? – o, ep yüregindeki kederi, sevgisi hususında söyledi... ama babam ile ekisi qaranlıq köterilip qaranlıq engence, belni doğrultmay çayırda çalışqanları, ayatlarınıñ ağırlığı aqqında ağzından söz çıqmadı.
 
 Ne dersiñ?
 Analar er vaqıt aqlılar!
@@ -1121,13 +1065,10 @@ Ceennem azabı!
 
 – Bu yerniñ toprağı küçlü, – dedi babam. – Baarde mında bostan saçacağım.
 Seniñ aytqan yerleriñ kolhoznıñ ihtiyarında.
-
 – Sürülmegen, saçılmağan yerlermi? – dedim men. – Domuz-tamır biylegen.
 Bu nasıl kolhoz yerleri?
-
 – Adam yetişmey, – dedi babam, – yaşlıq ep şeerlerge avmaqta, köyde yaşamaq istemey.
 Qartlar ise ep eksilmekteler.
-
 Yerge qaranlıq tüşe başlağanda, babama özümniñ işimni añlattım.
 “Maña şimdi ketmek kerek...” dedim.
 
@@ -1183,7 +1124,7 @@ Sıcaq suv barmı?
 Qayda?” dep soradım.
 “Sıcaq suv... yoq! – dedi o, – tapacaqsıñ!”
 
-Bugün, ocam, siziñ ilki muallimlik ve menim talebelik devirimizni eske tüşürdik.
+Bugün, ocam, siziñ ilki muallimlik ve menim talebelik devrimizni eske tüşürdik.
 Hatirim ğayet hoş.
 Men, bunıñle beraber, o yıllarda köyümizde şura akimiyetini samimiy sevgi ile qabul etip, onıñ ebediyen yaşaması içün yüksek ğayret köstergen cesür ve fedakâr köydeşlerimniñ hatiresi ögünde aşağı pek egilip secde etem.
 Ulu Vatan cenki vaqıtında almanlar Yaqub Haybullayevni, şura qurucılığı erbabı ekenligi içün, atqanlar.
@@ -1221,10 +1162,9 @@ Oturıp, yoruldı, ğaliba!
 Çünki özü ğayet qıbırdavuq adam.
 Oña ev içinde yarım kün bulunmaq, elbet de, qolay iş degil.
 
-– Siz Mahuldürni eñ mesuliyetli ve ağır vaziyetinde kördiñiz, – dedim men ocağa, – o sebepten, köyümiz hususında fikiriñiz pek sisli olmalı!
+– Siz Mahuldürni eñ mesuliyetli ve ağır vaziyetinde kördiñiz, – dedim men ocağa, – o sebepten, köyümiz hususında fikriñiz pek sisli olmalı!
 
-– Yoq!
-aksine... – dedi o, – fikirim pek açıq ve muayyen.
+– Yoq! aksine... – dedi o, – fikirim pek açıq ve muayyen.
 
 – Köy aqqında subetimiz bitmek üzre.
 Musaadeñizle bir müteber yer aqqında daa eki söz ilâve etmek isteyim.
@@ -1241,7 +1181,7 @@ Mında qızlar ve yigitler biri-birleri ile körüşe, yaqından tanış ola, ö
 Bu yerde çift yaş yüreklerniñ körüşüvi, sevgi ateşi içinde çarpınuvı bir kün degil, bir ay degil, kimerde yıllarnen devam ete.
 Köyde yaş nesil doğa, öse-büyüy.
 Çoraçıqlarğa kelip keticilerniñ erkânı yavaş-yavaş deñişe, lâkin er bir yigit özüniñ kelecekteki qıraliçasını bu yerde rastketire ve yüregindeki muqaddes sözlerni oña bu yerde izar ete.
-Er bir eyecanlı iş, nazik maumele, taze duyğu bu yerde başlay, soñra o nazik isler köyde gürültili dügünlerle bite.
+Er bir eyecanlı iş, nazik muаmele, taze duyğu bu yerde başlay, soñra o nazik isler köyde gürültili dügünlerle bite.
 Çoraçıqlarğa ise, bileklerinde gügümleri yeñi nesiller ep keleler-keteler.
 
 Çoraçıqlar – köyniñ yüregi ve vicdanı.
@@ -1249,7 +1189,6 @@ Lâkin tek Çoraçıqlar degil.
 Bağçalar!
 Tütün tarlaları!
 Yañçıq çalınğan piçenniñ ve yanayatqan quru yapraqlarnıñ qoqusı.
-Miyrada otlağan taylar!
 Özen boyunda melegen qozular!
 Bular menim içün ne demek, bilesiñizmi, ocam?
 Keç küz kününde siziñle körüşüvimizden ğayet memnünim.
@@ -1290,5 +1229,5 @@ Tayaqnıñ özü cennetten çıqqan, – dedim men, lâkin boğazıma bir şey t
 Asıl da ağırmağan edi, ocam!
 
 Dümen başındaki yigit laqırdı ne üstünde ekenini añladı.
-Ağızını açmay, küldi... çünki dudaqları arasında sigarı tütemekte edi.
+Ağzını açmay, küldi... çünki dudaqları arasında sigarı tütemekte edi.
 Maşinanı biraz arqağa berdi, asfaltke çıqqan soñ, demir çabaqlı qapu betke toz qoparıp ketti.
