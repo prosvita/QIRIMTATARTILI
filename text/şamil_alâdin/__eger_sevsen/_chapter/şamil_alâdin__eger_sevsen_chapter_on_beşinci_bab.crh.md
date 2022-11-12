@@ -39,7 +39,8 @@ Maşinistler: Toqtabayevniñ inatlığı... deyler.
 Yazuv-çızuv yeri, meclisler zalı degil.
 Qızındıñmı, açıl!" degenini işitken edim.
 
-— Yoq, yoq, Abdulla Sadıkoviç.— Kene İradanıñ davuşı...— Bassaraba, siz aytqan kibi, çıqımsız degil, oña yardım etmek kerek.
+— Yoq, yoq, Abdulla Sadıkoviç.— Kene İradanıñ davuşı...
+— Bassaraba, siz aytqan kibi, çıqımsız degil, oña yardım etmek kerek.
 Siz özüñiz...
 
 — Men?
@@ -50,7 +51,8 @@ Eger maşinist çalışmağa bilmese, kursqa ketsin, oqusın!
 Kerçek, anavı... ne edi şu?
 Bekirov!..— menim adımnı aselet çoqçıp-qazğalap oturdı,— o da maşinist olmaq istey.
 
-— İstese, ne?— dedi Toqtabayev.— Kimden eksikligi bar?
+— İstese, ne?— dedi Toqtabayev.
+— Kimden eksikligi bar?
 Sen tez Bassarabanı çağır, laqırdı etip baqayıq!
 Yardım kerek olsa, özüm yardım eterim.
 İnsannıñ taqdirini böyle, ayaq üstünde, al etmek olmaz.
@@ -122,7 +124,8 @@ Yuqlay edim.
 Niçün?
 Birevniñ laqırdısını diñlemek... bir şeyler uydurıp-çıqarıp, özüñizni aqlamaq içünmi?— qapunı şart urıp, tışarı çıqıp ketti.
 
-— Demek, öpüştiñiz!..— Mansurovnıñ qalın, uzun qaşları ekişer yerden sınıp-sınıp keterek, areketsiz qaldılar.— Çoq aşağı insan ekensiñ!
+— Demek, öpüştiñiz!..— Mansurovnıñ qalın, uzun qaşları ekişer yerden sınıp-sınıp keterek, areketsiz qaldılar.
+— Çoq aşağı insan ekensiñ!
 
 Şırh etip yerge tükürdi.
 O da çıqıp ketti.
@@ -211,7 +214,7 @@ Partiyalı ekenligiñiz içün afu isteysiñizmi?
 
 — Men partiyalı adamım, Sigizmund Genrihoviç, ve işiñizge partiya közünen baqmaq isteyim.
 Yüregiñiz temiz, men bilem.
-Künü kelir, partiya sizge beñzer eski, tecribeli mütehassıslar hususında öz fikirini söyler.
+Künü kelir, partiya sizge beñzer eski, tecribeli mütehassıslar hususında öz fikrini söyler.
 
 — Söylermi?
 
@@ -266,7 +269,8 @@ Demek, suvdan kene qurtulalmaycaqmız,
 — Niçün mümkün olmasın?
 Mümkün...
 
-— Sen buña inanmaysıñmı?— Toqtabayev meseleni añlatıp başladı.— Men mında ilki sefer kelgende, özenniñ yüksek yalısında eski arıq kördim.
+— Sen buña inanmaysıñmı?— Toqtabayev meseleni añlatıp başladı.
+— Men mında ilki sefer kelgende, özenniñ yüksek yalısında eski arıq kördim.
 Oña suv nasıl çıqqandır deysiñ?
 Elektrik motornenmi?
 O vaqıtta elektrik motornı kimse tüşünde körmegen.
@@ -289,12 +293,13 @@ Yerniñ astından suvnıñ sağır uvuldısı işitildi.
 Eki yerden topraqnı qazıp baqtıq — qaydan çıqqanını körmek istedik, lâkin truba qalın... suvnı köralmadıq.
 
 — Toqta sen!— dedi Toqtabayev.
-Aqılına bir şeyler tüşkenge beñzedi.— Gece smenasında kovşnıñ tişleri beton trubağa ilişti, degen ediñ.
+Aqılına bir şeyler tüşkenge beñzedi.
+— Gece smenasında kovşnıñ tişleri beton trubağa ilişti, degen ediñ.
 Aqılıñdamı, Bassaraba?
 Kovşnıñ köpürçigi ve eki tişi sındı.
 
 — Bilem, o beton degil, taş eken,— dedi Bassaraba.
-Çaqmaq taş.
+Çaqmaqtaş.
 Kovş vastasınen eki lâpek taşnı birden köterip aldım, tübünden quyu çıqtı.
 Ekskavatornı arqağa cılıştırğanda, itimal, yerniñ astı — büyük qobadır, batıp ketermiz dep qorqtım.
 Lâkin qoba yoq edi.
@@ -315,7 +320,7 @@ Eski kanalnıñ etrafındaki topraq, er alda, boş eken.
 
 Bu arada Mansurov meni köre qaldı. 
 — İşke!
-İşke!
+- İşke!
 Tez!— dep qıçırdı o, qırmızı köz qapaqlarını oynatıp,— özüñizge alâqası yoq işke qarışmañız.
 
 Kişiler oña taaciplenip baqtılar.
@@ -342,7 +347,7 @@ Yüksek topraq yığını üstünde turğan ekskavatornıñ yelquvanı kök yüz
 
 — Ey!
 Kazak!
-Saña ne oldı?— degen davuş işittim.
+Saña ne oldı? — degen davuş işittim.
 Başımnı köterdim, Arhipka,— biz seni bekleymiz...— o çirkin davuşnen küldi.
 
 Ekskavator çalışmay, tura.
@@ -350,7 +355,7 @@ Maşinistniñ kabinası boş.
 Yaqın keldim.
 Topraq yığını artından Kandıba ve Almazov çıqtılar.
 
-— Niçün keçiktiñ?— dep soradı menden Almazov,— işlerniñ sıqlet ekenini bilmeysiñmi?
+— Niçün keçiktiñ? — dep soradı menden Almazov,— işlerniñ sıqlet ekenini bilmeysiñmi?
 
 Men indemedim.
 Kovşqa köz ettim.
@@ -360,7 +365,7 @@ Tros avada sallanıp tura.
 — Çekil... men çıqayım,— dedi Kandıba,— bugün çalışmasaq, grafik harap olacaq.
 Agapovdan ayıp.
 
-— Bana aytmadımmı?— Almazov ziyade eecanlı edi,— suvuq yel sılaq yelquvannıñ üstüni buzlatqan.
+— Bana aytmadımmı? — Almazov ziyade eecanlı edi,— suvuq yel sılaq yelquvannıñ üstüni buzlatqan.
 Töpege çıqmaq kerek... çünki tros valikten tayıp, boltnıñ ucuna asılıp qalğan.
 Tünevin yahşı maylanmağanğa beñzey, lâkin...
 
@@ -369,16 +374,17 @@ Rezina çızmalarnen buz üstüne basmaqnıñ çaresi yoq.
 Er kes areketsiz, indemey baqıp turmaqta.
 Kabinağa kirip, çızmalarımnı çıqardım, çılğavlarnı ayaqlarıma sarıp, tobuqlarımdan yuqarısını telnen bağladım, fufaykamnı dögmelep, çilengir anahtarını, kiçik çöküçni ceblerime tıqıştırdım, may qutusını qoltuğıma qısıp, yelquvanğa tırmaşa başladım.
 Men bugün er türlü hızmetke azırım.
-Ayğa uç deseler, bir sözsiz uçacağım.
+Ayğa uç deseler, bir sözsüz uçacağım.
 Tek ayğa degil, eñ uzaq seyyarege bile... köpek-mışıq, sıçavul qıdırıp oturmaq kerekmey.
 
 Yelquvannıñ ortasına yetken edim, qulağıma aşağıdan Almazovnıñ sesi keldi.
 
 — Tüş?
-Tez tüş!— dep qıçırdı o.
+Tez tüş! — dep qıçırdı o.
 Men elimni salladım: "selâm!" Soñ yoluma devam ettim.
 Kelgenimniñ ilk künü Hristofor töpede valikni maylayyatqanını körgende —"bir şey degil..." dep tüşüngen edim.
 Elbet de... aşağıdan baqsañ, öyle.
+
 
 — Tüş, deyim saña!
 İşitesiñmi?— Almazov kene qıçırdı.
@@ -392,11 +398,11 @@ Söz sırası aytıp keçeyim.
 Men bir defa, çelüskin epopeyasınıñ iştirakçisi İbraim Fakidovdan: "Nasıl!
 Buz deryasında geminiñ batuvı deşetli edimi?" — dep soradım.
 O hucur etip, küldi: "Deşetli?
-Öyle degeni ne?— dep taaciplendi,— eger qorqunç manasında olsa, böyle deşet gemige mingen ilki künümizde başlağan ve biz onı ilki künümizde aqıldan çıqarıp atqan edik.
+Öyle degeni ne? — dep taaciplendi,— eger qorqunç manasında olsa, böyle deşet gemige mingen ilki künümizde başlağan ve biz onı ilki künümizde aqıldan çıqarıp atqan edik.
 Lâkin biz Neapolge degil, Şimaliy qutupqa keteyatqanımıznı bile edik...
 İşittiñizmi?"
 
-Töpege köterilir ekenim, aşağı baqmamağa tırıştım çünki ...kim bile?
+Töpege köterilir ekenim, aşağı baqmamağa tırıştım çünki... kim bile?
 Şu vaqıtqa qadar öyle oldı-böyle oldı, maña Çar-Çaqnıñ buzları arasında, ister-istemez, bir qaç kereler yuvunmaq kerek oldı.
 Bu sefer belki uçmaq sırası kelir!
 Yuvunmalardan soñ sağ qala bildim, lâkin bunıñ töpesinden uçsam...— çünki yelquvan pek yüksek,— ne olacağını alla bilsin.
@@ -436,8 +442,8 @@ Bilegimni demir arasına keçirip, ellerime sıcaq nefesnen üfüre başladım.
 Daa üfürdim... avuçımnı açıp-yapıp baqtım.
 
 Öz-özüme vazifeler berdim.
-Biraz vaqıt keçken soñ olarnıñ icrasını teşkerdim.—"Güzel tur, sen yelquvan üstündesiñ.
-Ayaqlarıñ tüpsiz dünyağa asılıp turalar.
+Biraz vaqıt keçken soñ olarnıñ icrasını teşkerdim.— "Güzel tur, sen yelquvan üstündesiñ.
+Ayaqlarıñ tüpsüz dünyağa asılıp turalar.
 Qollarıña küçlüce üfür, küçlüce!
 Baq, işaret parmağıñ işten çıqayata!
 Aydı, qıbırdatıp baq!
@@ -463,7 +469,7 @@ Men mında gimnastika içün çıqtımmı?
 Bunıñ içün aşağıda yer azlıq ettimi?
 Ellerim qızdılar."
 
-Öz-özümnen laqırdı ete berdim, Aşağı baqmadım.
+Öz-özümnen laqırdı ete berdim, аşağı baqmadım.
 Balçıqlı may parçalarını urıp tüşürmek içün köçerniñ etrafını qırıp temizledim.
 Valik qıbırdağan kibi oldı.
 Çöküçnen eki-üç defa urdım.
@@ -525,12 +531,12 @@ Maşina bugünki kibi, ritmnen iç bir vaqıt çalışmağan edi.
 Dört saatten soñ onı artqa cılıştırdıq.
 Almazov meni töpege, özüniñ yanına çağırdı.
 
-— Kel, otur!— dedi o maña, rıçagnı kösterip,— ögren!
+— Kel, otur! — dedi o maña, rıçagnı kösterip,— ögren!
 Tezden mektepni bitireceksiñ!
 
 Onıñ yengil, sabırlı çalışayatqanını körip, suqlandım.
 Kovş de topraq yığını üstüne qapaqlana, de aşağı tüşe, de töpege çıqa.
-Kovşqa, yığın üstünde toqtalmağa imkân bermey, aman yelquvannı sağ tarafqa aylandıra, kovş kene çuqur içinde ğaip olıp kete.
+Kovşqa, yığın üstünde toqtalmağa imkân bermey, aman yelquvannı sağ tarafqa aylandıra, kovş kene çuqur içinde ğayıp olıp kete.
 Sılaq topraqnı kovş içinden boşatmaq qıyın, lâkin hızmet ustadan qorqa, deyler.
 Kovş yuqarı keteyatqanda içindeki topraq avadaki sarsıntı neticesinde divarlarından ayrıla, kovş yığın üstüne qapaqlanğan vaqıtta tökülmesi qolaylaşa.
 Bu protsesske tsikl... bir tsikl deyler.
@@ -540,7 +546,8 @@ Beş yuzmi?
 Maşinanı men de böyle usta idare ete bilsem...
 Almazov qafamdaki fikirlerni oqudımı, ne yaptı?
 
-— Sabır et, sen de ögrenirsiñ!— dedi maña ve rıçaglar başından turdı:— Otur!
+— Sabır et, sen de ögrenirsiñ!— dedi maña ve rıçaglar başından turdı:
+— Otur!
 
 Bir saatten soñ İrada peyda oldı.
 Ne vaqıt ketken edi?
@@ -549,7 +556,8 @@ Topraq yığınınıñ ziyade yükselip çıqqanını körgen soñ, Almazovnıñ
 
 — Bu tek menim işim degil,— dedi Andrey Zaharoviç,— Bekirov de çalıştı.
 
-— Bekirov?— İrada inamsızlıqnen külümsiredi.— Cevdet rıçag başında oturıp olamı?
+— Bekirov?— İrada inamsızlıqnen külümsiredi.
+— Cevdet rıçag başında oturıp olamı?
 
 — Yoq, oturalmay...— dedim men yüksek, sert davuşnen,— eki adam, eki omuzından tutıp tura.
 Tutmasalar, yıqılıp kete.
@@ -569,13 +577,13 @@ Bekirov arqadaşnı da mümkün.
 
 İrada ketken soñ, Andrey Zaharoviç maña köz qıptı.
 
-— Ne qadar büyük resmiyet... kördiñmi?— dedi o,—
-"Bekirov arqadaş"... halq komissarı. —
+— Ne qadar büyük resmiyet... kördiñmi?— dedi o,—"Bekirov arqadaş"... halq komissarı. 
 Soñ davuşını küçültip, menden soradı: — Qavğa ettiñizmi? 
 — Öyle oldı!
 
 — Kerekmey, Cevdet!
-Qavğa etmek kerekmey!— Almazov terenden köküs keçirdi.— Tünevin men de özümniñkinen qıçırıştım.
+Qavğa etmek kerekmey!— Almazov terenden köküs keçirdi.
+— Tünevin men de özümniñkinen qıçırıştım.
 Şimdi peşman etem.
 Bala bağçasına işke kireyata.
 Anda dört mürebbiye bar.
@@ -633,9 +641,9 @@ Sağındım sizni.
 Eppi vaqıt susıp oturdım.
 O, bir-birinen bağı yoq, dadsız sözlernen, nasıldır, hucur bir tarihnı ikâye etti, qaç defa haqıldap küldi.
 Sabira hala çette turıp, bizni seyir etti.
-Açuvından çatlayazdı.
 
-— Öşek darqatıp yüresiñiz, öylemi?— dep soradım men Yekaterina Vasilyevnadan.— Bunı ne maqsadnen yapasıñız?
+— Öşek darqatıp yüresiñiz, öylemi?— dep soradım men Yekaterina Vasilyevnadan.
+— Bunı ne maqsadnen yapasıñız?
 
 — Nasıl öşek?
 Sizni begengenimni başqalardan gizlemek kerekimmi?
@@ -653,20 +661,25 @@ Sizni sevem.
 Amma ne ola bilecek... aytıp olamayım.
 Siziñ kibi tülenlerni qozğay bermege sevem.
 Adamlarnıñ alıñız tabiatça bir-birine aks soyları birleşe ekenler.
-Lâkin ebediy degil...— O bir şeyler daa aytmağa tedariklengende, Mansurov kirip keldi, bizim stolımızğa oturdı.
+Lâkin ebediy degil...
+— O bir şeyler daa aytmağa tedariklengende, Mansurov kirip keldi, bizim stolımızğa oturdı.
 
 — Seni beklep olamaycağım,— dedi o qarısına,— bare aşhanede aşap keteyim.
 Zaten sabalıq aşnı daima mında aşap kete bersem ne?
 
 — Pek güzel...— dedi Yekaterina Vasilyevna.
-Yerinden sıçrap turdı, elindeki savutnı tars etip kürsü üstüne qoydı.— Mına sabalıq yemegiñ bunıñ içinde!— dedi o,— üyleligiñ de bunda!
+Yerinden sıçrap turdı, elindeki savutnı tars etip kürsü üstüne qoydı.
+
+— Mına sabalıq yemegiñ bunıñ içinde!— dedi o,— üyleligiñ de bunda!
 Rica etem,— o quturıp başladı.
-Eki-üç adım ögge, eki-üç adım artqa yurdi, soñ: — Sağlıqnen qal, Cevdet!— dedi maña,— er kün smenadan soñ mında kelip aşaysıñmı?
+Eki-üç adım ögge, eki-üç adım artqa yurdi, soñ:
+
+— Sağlıqnen qal, Cevdet!— dedi maña,— er kün smenadan soñ mında kelip aşaysıñmı?
 
 Men cevap bermedim.
-"Yoq, Riginada..." deycek oldım, erindim.
 
-Mansurov aş savutını eline alıp, qarısınıñ peşinden ketti, Maña aylanıp bile baqmadı.
+Mansurov aş savutını eline alıp, qarısınıñ peşinden ketti.
+Maña aylanıp bile baqmadı.
 
 Gece ekskavatornıñ yelquvanı üstünden tüşeyatqan maalimde İradanıñ maña baqıp turğan telâşlı közleri hatirime keldi.
 O, ğaliba, maña bir şeyler söylemek istedi... söyleyalmadı.
