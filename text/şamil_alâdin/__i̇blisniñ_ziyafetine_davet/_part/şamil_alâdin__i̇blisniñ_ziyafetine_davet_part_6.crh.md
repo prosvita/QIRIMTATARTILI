@@ -510,8 +510,7 @@ Azbarğa çıqmaq içün qapu betke çevirilgende, Qaramanovnı eslep, ayre
 – Va-ay!
 İbraim oca! – dedi Acire...
 Qaramanov ile çoqtan aşna kibi.
-%
-%
+
  – Ayıp etmeñiz!
 Evge kirgen şorbacınıñ tek özüdir, belledim.
 Hoş keldiñiz!
