@@ -642,7 +642,6 @@ Eppi vaqıt susıp oturdım.
 O, bir-birinen bağı yoq, dadsız sözlernen, nasıldır, hucur bir tarihnı ikâye etti, qaç defa haqıldap küldi.
 Sabira hala çette turıp, bizni seyir etti.
 
-
 — Öşek darqatıp yüresiñiz, öylemi?— dep soradım men Yekaterina Vasilyevnadan.
 — Bunı ne maqsadnen yapasıñız?
 
@@ -678,7 +677,6 @@ Eki-üç adım ögge, eki-üç adım artqa yurdi, soñ:
 — Sağlıqnen qal, Cevdet!— dedi maña,— er kün smenadan soñ mında kelip aşaysıñmı?
 
 Men cevap bermedim.
-%
 
 Mansurov aş savutını eline alıp, qarısınıñ peşinden ketti.
 Maña aylanıp bile baqmadı.
