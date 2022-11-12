@@ -225,7 +225,6 @@ O, İsmail efendiniñ musafiri, yarın Foti Sala vadiysindeki köylerge ketec
 Çünki böyle mulâazalar içün darülfununda başı eppi belâlarğa qalğan edi.
 Ama bu yerde İsmail efendiniñ soñki sözleri onı subetke küçük ilâve yapmağa mecbur etti.
 
-
 – Bilgi, medeniyet... bular, zülmetten qurtulmaq içün pek az degilmi? – dep taşladı, – ondan başqa, İsmail efendi, siz cealetni, medeniyetsizlikni yalıñız musulmanlarda köresiñiz!
 Niçün, qıymetli muallim?
 Rusiyede bütün milletler aynı vaziyette... kerçek, olarnıñ zenginleri de bar, fuqareleri de!
@@ -378,8 +377,6 @@ Men ne diye bilir edim?
 Yalıñız şunı ki, Gasprinskiy aqqında bir fikirge kelmek içün, onıñ yaşağan ve işlegen devrindeki devlet qurumını teren sürette ögrenmek kerek.
 O sayede İsmail muallimni añlamaq mümkün.
 
-%
-
 İsmail Gasprinskiy, rus tilinde yazğan ilki maqalesinde özüniñ siyasiy tüşüncelerini ğayet aydın ve açıq sürette ifade ete.
 Dey ki, dünya boyunca seyaatlarım vaqtında yaptığı muşaedelerim neticesinde, boysundırılğan, umumen, yabaniy qabilege, başqa iç bir halq, bizim üyken qardaşlarımız – ruslar kibi merametli ve temizqalpli munasebet köstermey.
 Rus adamı çeşit halqlarnı öz sadeligi, diqqatlılığı ve qanındaki rus tabiatına has insaniyetligi sayesinde özüne celp etip, çeşit halqlar ile qolay añlaşa ve olarğa tez alışa.
@@ -422,10 +419,7 @@ Maña inanalarmı, bilmeyim, er alda, özlerini maña inanğan kişiler eti
 Men gazetamda maarifatnı memleketniñ, yani Rusiyeniñ umumiy menfaatları ile sıqiy bağlı surette qoymaq istegende, özümde iç bir türlü fena fikir yoqluğına din-qardaşlarımnı qandırmaq pek küç oldı.
 Bilesiñizmi ne yaptılar?
 Meni halqıma ve islâm dinine munafıqlıqta qabaatladılar.
-%
 
-%
-%
 “Men – rusım, aynı zamanda, musulman ve tatar olıp qalam” dedim, çünki menim fikirimce, Rusiye musulmanlarınıñ menfaatı umumrusiye menfaatı ile sıqiy bağlı edi.
 
 – Söyleñiz, Gasprinskiy efendi, siz tatarsıñızmı? – dep soradı Sergey Filippov.
@@ -445,20 +439,5 @@ Men bu zaruretni öz gazetamda etraflıca teşviqat etem ve eminim ki, bu ğa
 
 Ama “İsmail Mustafa oğlunın, soyadı, yani familiyası – Gaspralı edi.
 Adiy tatar familiyası.
-%
-%
-%
-%
-%
-%
-%
-%
-%
 
-%
-
-%
-
-%
-%
 Gasprinskiy bu satırlarnı “Terciman”nıñ 1884 senesi sekizinci yanvar sanında yazdı.
