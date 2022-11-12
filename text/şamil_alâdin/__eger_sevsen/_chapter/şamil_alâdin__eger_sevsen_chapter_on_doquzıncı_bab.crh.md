@@ -7,28 +7,28 @@ Bunı, tek iş saatlerini arttıruv yolunen elde etmek mümkün degil: smena kel
 Başqa şey yoq.
 Taze bir şeyler tüşünip çıqarmaq kerek.
 Nijniklerniñ ve maşinistlerniñ ayrı-ayrı olıp keçken muşaverelerinde bu hususta laqırdılar oldı.
-İrada er kün iş vaqıtında bizge kelip, hronometrajnı eksiltip kete edi.
-Aqibeti, tenefüssiz çalışmağa qarar berdik.
+İrada er kün iş vaqtında bizge kelip, hronometrajnı eksiltip kete edi.
+Aqibeti, teneffüssiz çalışmağa qarar berdik.
 Bizge aşhaneden lağman, ürük qoşafı ve çay ketireler.
 Bir çanaq lağmannı aşap bitirmek içün üç daqiqa vaqıt kerek, lâkin üç daqiqa içinde meşrebe içindeki çay suvıp qala, çünki aşhaneden ketirile.
 Cepke bir qaç kesek ötmek qoyıp, soñundan aşamağa da mümkün.
 Qısqası, üylelik tenefüs beş daqiqadan çoqqa barmay.
-Biz birinci künlerde yeñi plan normalarını toldıramadıq.
-Elbette, üylelik tenefüs vaqıtında çalışqanda eppi işler yapa bildik, lâkin bu, tessüf ki, eppiy işler... edi.
+Biz birinci künlerde yeñi plan normalarını tolduramadıq.
+Elbette, üylelik teneffüs vaqtında çalışqanda eppi işler yapa bildik, lâkin bu, teessüf ki, eppiy işler... edi.
 
 Bassaraba aqşamları barakta körüşkende "işler yahşı..." dep taşlay, men bala kibi sevine edim.
 
 — Güzel... şimdi epimizniñ maşşallamız bar...— dey edi Bassaraba.
 
 Bu sözler bizni qanaatlendire bile edimi?
-Vaqıtnı saatlergece degil, saniyelergece iq-tisad etmek kerek.
-Maşinanı öyle idare etmeli ki, tsikllarnıñ mıqdarı arta bersin.
+Vaqıtnı saatlergece degil, saniyelergece iqtisad etmek kerek.
+Maşinanı öyle idare etmeli ki, tsikllarnıñ miqdarı arta bersin.
 İş tsiklları ğayet adiy areketlerden ibaret — kovşnı yerge tüşürip, töpege köterüv, içindeki topraqnı yığın üstüne yahut platformağa töküv.
 Bu operatsiyanı yarım daqiqada yapmaq mümkün.
 İş topraqnıñ keyfiyetine, kanalnıñ terenligine, elektrik küçüniñ berilüvine bağlı.
 Biz bunı, Bassaraba aytmasa da, bilemiz.
 Lâkin o ne dese, episine emiyet beremiz.
-Soñki devirde, vaqıtnı iqtisad etüvge ait kim ne söylese, episine diqqat etemiz.
+Soñki devirde, vaqıtnı iqtisat etüvge ait kim ne söylese, episine diqqat etemiz.
 Eger adam-aqıllı bir usul tüşünip çıqarmasaq, kanalnı müddetinde bitiralmaycaqmız.
 
 Karim endi barakta siyrek körüne.
@@ -37,20 +37,20 @@ Qatnaması küç.
 İster-istemez bizden köçip ketmek kerek oldı.
 Tumboçkasında şeyleri qalğan.
 Kimerde kirip çıqa.
-Bir smenada çalışamız, lâkin er kes öz işinen meşğul.
+Bir smenada çalışamız, lâkin er kes öz işinen meşğül.
 
 Karimniñ işleri, aytılacaq kibi, parlaq degil.
-O da üylelik tenefüs vaqıtında çalışa, lâkin maşinası bir qaç kere qazalandı, motorı küydi, kompressorı bozuldı — qısqası, saatlerce toqtap turdı.
+O da üylelik teneffüs vaqtında çalışa, lâkin maşinası bir qaç kere qazalandı, motorı küydi, kompressorı bozuldı — qısqası, saatlerce toqtap turdı.
 
 Mansurov bizge kelse, aşagıdan elini köterip, ekskavatornı toqtata: er bir daqiqanı, er saniyeni iqtisad etmek kerekligini añlata.
-Amma bu printsipni añlatmaq içün özü er tosatında yarım saat vaqıtımıznı ala.
+Amma bu printsipni añlatmaq içün özü er tosatında yarım saat vaqtımıznı ala.
 
-— Başqasına... başqasına aytıñız!— dey Almazov,— bizge izzat kerekmey!
+— Başqasına... başqasına aytıñız! — dey Almazov,— bizge izzat kerekmey!
 
 Mansurov vaqıtnı iqtisad içün maşinistlerni tenbiley.
 Yardım?
 Yardım yoq.
-Saqalı öskün, özü azğın-tozğın bizim Toqtabayev, üç maşinistni öz kefaletine alıp, üç smena vaqıtında maşinanı toqtavsız işletüvni ve vaqıtnı iqtisad etüvni ögretti.
+Saqalı öskün, özü azğın-tozğın bizim Toqtabayev, üç maşinistni öz kefaletine alıp, üç smena vaqıtında maşinanı toqtavsız işletüvni ve vaqıtnı iqtisat etüvni ögretti.
 
 Bir kere Karim barakqa keldi.
 Er kesniñ elini aldı, Nikolaynıñ krovatı üstüne oturdı, epimizni közden keçirgen soñ tınç davuşnen dedi:
@@ -61,7 +61,7 @@ Kanalnı, Sergo istegen müddet içinde bitirmek mümkün.
 — Ne taptıñ?
 
 — Mümkün!
-Mümkün...— dep tekrarladı Karim,— yakında tüşünip taptım.
+Mümkün...— dep tekrarladı Karim,— yaqında tüşünip taptım.
 Eki saat evelsi.
 
 O cebinden bir tabaq kâğıt çıqarıp stol üstüne qoydı.
@@ -73,14 +73,15 @@ Tros yahşı olsa, üzülmez...
 Bizdeki troslar niçün üzüle bereler?
 Kovş taşqa iliştimi, üzülip kete.
 Amma bazı ekskavatorlarda tros bir yıl içinde bir kere üzülmey.
-Men rıçagnı tutqanda, kovşnıñ ne vaziyette ekenini, avuçımnıñ sarsın-tısından duyam.
-Tros ayaq damarı kibi tartılıp qaldımı, demek, bir şeyge ilişti. — O Nikolaynıñ yüzüne cılp etip baqtı: — öyle degilmi?
+Men rıçagnı tutqanda, kovşnıñ ne vaziyette ekenini, avuçımnıñ sarsıntısından duyam.
+Tros ayaq damarı kibi tartılıp qaldımı, demek, bir şeyge ilişti.
+ O, Nikolaynıñ yüzüne cılp etip baqtı: — öyle degilmi?
 
 Soñ er kes öz bilgenini ayttı.
 Ğala-ğula köçti.
 Elbette, bu, işni çabikletmek içün yapılğan şey.
 Sade, açıq ve er keske añlayışlı iş.
-Bu vaqıtqa qadar aqılımızğa kelmegeni… taacipli şey!?
+Bu vaqıtqa qadar aqlımızğa kelmegeni… taacipli şey!?
 Lâkin böyle büyük kovş qayda?
 Bizdeki kovşnı büyültmek mümkünmi?
 
@@ -93,7 +94,7 @@ Közleriniñ astında mos-mor daireler.
 
 — Komsomol komitetiniñ meclisine Tursunov arqadaşnı da davet ettim,— dedi İrada ve Tursunovqa köz etip, azaçıq külümsiredi.
 O da kulümsiredi,— olar...
-Curayev ve Tursunov ciddiy işnen meşğuller.
+Curayev ve Tursunov ciddiy işnen meşğüller.
 Elektrik stantsiyası donatmasınıñ montajı ve başqa acele vazifeler... lâkin konstruktsiya meselesinde bizge yardım eteceklerine şübe yoq.
 
 "Nasıl konstruktsiya?
@@ -101,7 +102,7 @@ Buña Tursunovnıñ ne alâqası bar?" — dep tüşündim men.
 Soñ Curayev keldi.
 O Taşkentke telefon etken.
 Komsomol Merkeziy Komiteti Çar-Çaq komsomollarınıñ teklifini tadbiq işini öz şefligine alğan.
-Yeñi kovşnıñ çatqısı azır olğan soñ, zavodda acele surette böyle on dane kovş yasatıp barmekni işandırğan.
+Yeñi kovşnıñ çatqısı azır olğan soñ, zavodda acele surette böyle on dane kovş yasatıp bermekni işandırğan.
 
 Karimniñ adiy fikiri onlarca, yüzlerce injenerlerniñ, tehniklerniñ, proyektçilerniñ ve, niayet, işçilerniñ miylerini qozğadı.
 
@@ -132,13 +133,13 @@ Vızıldap kene aşağı tüşti.
 Tüşti degence, töpege köterildi ve keniş qulaçnen topraq yığını betke aylandı.
 İnjenerlerden biri saatke baqıp turğan eken.
 
-— Altmış eki!— dep qıçırdı.
+— Altmış eki! — dep qıçırdı.
 
 Bütün bu tsikl altmış eki saniyede eda etilgen.
 Er kes saatine baqtı.
-Tsikl ketken sayın az vaq-ıtta eda etile berdi.
+Tsikl ketken sayın az vaqıtta eda etile berdi.
 
-— Endi elli dört saniye!— dep qıçırdı Curayev.
+— Endi elli dört saniye! — dep qıçırdı Curayev.
 
 — Elli eki!
 
@@ -157,7 +158,8 @@ O saatke baqmay, lâkin bir tsikl tamam qırq beş saniye içinde olıp çıqa, 
 
 İşten soñ Karim bizge, barakqa keldi.
 
-— Başlağanda pek qorqtım...— dedi maña. — Bir özüm olsam, bir şey degil, körmediñizmi?
+— Başlağanda pek qorqtım...— dedi maña.
+— Bir özüm olsam, bir şey degil, körmediñizmi?
 Ne qadar adam baqıp turdı?
 Yelquvan yerinden qıbırdağanda tros üzülip, kovş yerge tüşip ketken olsa...?!
 Ne olur edi?
@@ -181,7 +183,7 @@ Meseleni yerastı kanalı mürekkeplendirdi.
 
 Bir defa Mansurovdan:
 
-— Aylanma kanal tezden bitecek, yerastı kanalı ne olacaq?— dep soradım.
+— Aylanma kanal tezden bitecek, yerastı kanalı ne olacaq? — dep soradım.
 
 — Yer üstü kanalıñıznı qaza beriñiz,— dedi maña.
 "Bugün ekskavatorlar başlığınıñ keyfi yoq..." dep tüşündim.
@@ -204,7 +206,7 @@ Bir kün bizim ekskavatornıñ yanında qadalıp turdı-turdı, maña hucur-hucu
 Men öz işimnen meşğul edim.
 Bizge lağman ketirdiler Onıñnen oturıp aşadıq, miyıqlarını sileyatqanda maña:
 
-— Maddeñiz fena degil eken, Bekirov!— dep taşladı ve azaçıq külümsiredi.
+— Maddeñiz fena degil eken, Bekirov! — dep taşladı ve azaçıq külümsiredi.
 Azaçıq...
 
 Sözleriniñ manasını añlamadım.
@@ -220,25 +222,27 @@ Men stol başında Zoşçenkonı oquy edim.
 Mansurov baraknı közden keçirdi, niçündir, memnün qaldı.
 Soñ menim elimdeki kitapnı alıp, adını oqup baqtı, külümsiredi.
 
-— Yahşı yaza,— dep taşladı. — Bürokratlarnıñ canını yaqtı.
+— Yahşı yaza,— dep taşladı.
+— Bürokratlarnıñ canını yaqtı.
 
 Men Zoşçenkonı oquğanda, avtor bürokratizmnen küreşe bellemey edim.
 Oquması zevqlı kele edi.
 
-— İşleriñ nasıl?— dep soradı menden Abdulla Sadıkoviç.
+— İşleriñ nasıl? — dep soradı menden Abdulla Sadıkoviç.
 
-— Sırasında,— dedim men. — Lâkin, afu etesiñiz, epimizni alâ yerastı kanalı meraqlandır-maqta.
+— Sırasında,— dedim men.
+— Lâkin, afu etesiñiz, epimizni alâ yerastı kanalı meraqlandırmaqta.
 O qalıp ketecekmi?
 
 — Niçün?
-Şimdi onıñnen oğraşmağa vaqıtımız yoq.
+Şimdi onıñnen oğraşmağa vaqtımız yoq.
 Plotina bitsin...
 Soñ belki onı tedqiq etmek mümkün olur.
 Şimdi bizge bir şey belli degil.
-Belli yeri şu ki, kanal — siz özüñiz de kördiñiz — dört köşe truba şekilinde.
+Belli yeri şu ki, kanal — siz özüñiz de kördiñiz — dörtköşe truba şeklinde.
 Diametri bir buçuq metr; Hazar-Kend betten kelip, Çar-Çaq yalısı boyu yüre, aylanma kanalnıñ astından bir qaç yerde keçe ve plotina uçastkasında özenge barıp çıqa.
 
-— Onı kim qurğan?— dep soradım men.
+— Onı kim qurğan? — dep soradım men.
 
 — Emiyeti yoq,— dep cevap berdi Mansurov. — Asaratiqacılar oğraşsınlar.
 
@@ -249,7 +253,7 @@ Onı nasıl toqtatmaq mümkün?
 Biz — ekskavatorcılarmız... añladıñmı?
 Aylanma kanalnı nasıl qazıp kelgen olsaq, öyle devam etecekmiz,— dedi Mansurov,— yapılğan iş yapılğan.
 
-— Kanal İskanderniñ devirinden qalğan, deyler.
+— Kanal İskanderniñ devrinden qalğan, deyler.
 Doğrumı?
 
 Mansurov özüniñ şayna da tar közlerini qısıp, maña tiklenip baqtı.
@@ -258,14 +262,14 @@ O açuvlandı, dudaqlarını salındırdı.
 
 — İskander?
 Olmaycaq şey.
-Kanal, fikirimce, ind eserlerniñ qollarınen yasalğan,— soñra maña pek yaqın kelip, qulağıma yavaştan dedi: — Doğrusını söyle, dostım, arañızda bir şeyler oldımı?
+Kanal, fikrimce, ind eserlerniñ qollarınen yasalğan,— soñra maña pek yaqın kelip, qulağıma yavaştan dedi:
+— Doğrusını söyle, dostım, arañızda bir şeyler oldımı?
 
 Öyle degeni de ne edi... bilmeyim.
 
 — Ne olmaq kerek edi?
 
-— Anda...
-Taşkentte?
+— Anda...Taşkentte?
 
 — Abdulla Sadıqoviç, siz mesül rebersiñiz,— dedim oña,— aip degilmi?
 Men sizge yemin ettim...
@@ -273,7 +277,7 @@ Men sizge yemin ettim...
 — Kerçekmi?
 
 — Yalan aytmağa ne acet?
-Zembilni alıp ket dedi Alıp kettim.
+Zembilni alıp ket dedi. Alıp kettim.
 Özü yanağımdan şap etip öpti.
 Teşekkür yerine... dedi.
 Soñ borşç berdi.
@@ -297,5 +301,5 @@ Seniñ aytqanlarıña, doğrusını aytsam, başta inana qoymadım.
 Niçün inanmadıñız?
 
 — Çünki seniñ İradañ deli!
-Özüñ de aqıldan pek bay degilsin!
+Özüñ de aqıldan pek bay degilsiñ!
 Oña bularnı añlatmaq kerek ediñ...
