@@ -191,7 +191,7 @@ Mende ekinci nomer pek pasravlay...— dey o,— kene faza yoq.
 Menim elimni sıqtı, selâmlaştı, bir şey soramadı.
 
 — Suv meselesini tez-tez bitirmek kerek! — dedi yalıñız, soñ tulumbanıñ yanına keldi.
- — Şlangnı doğurt! — dep cekirdi Hristoforğa.
+— Şlangnı doğurt! — dep cekirdi Hristoforğa.
 — Nikolay qayda?
 
 — Muftalarnı deñiştirmege ketti,— dedi Hristofor ve eleslenip maña baqtı, soñ yavaştan:
