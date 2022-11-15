@@ -51,23 +51,23 @@ Bazı plotinalarnıñ kevdeleri taşnen de örtüle bile.
 Amma mında, Çar-Çaqta, öyle yapmaq istemediler.
 Suv yuqarıda tar boğazdan çıqıp, aşağı çapqılğanda, ögünde ne bar — ne yoq, episini, hususan büyük taşlarnı, süyreklep alıp kete.
 Proyektte: "Çar-Çaq özüniñ astında, terenliginde yetmiş santimetr qalınlığındaki taşlarnı yuvarlatıp aqa" dep yazılğan.
-Demek, taşlarnıñ qalınlığı bir metrge yakın.
-Suv taşqını vaqıtında bu taşlar tek suvnıñ astından degil, gidrotehniklerniñ degenleri kibi, "asılı vaziyette" bile areket eteler.
+Demek, taşlarnıñ qalınlığı bir metrge yaqın.
+Suv taşqını vaqtında bu taşlar tek suvnıñ astından degil, gidrotehniklerniñ degenleri kibi, "asılı vaziyette" bile areket eteler.
 Demek, olar toqtamay-talmay plotinanıñ bedenine urunıp, onı ezgelep turacaqlar.
-Onıñ içün, divarlarnı qavi qılıfnen ortmek kerek.
-Böyle taş bombardumanına beton çıdap olamay.
+Onıñ içün, divarlarnı qaviy qılıfnen örtmek kerek.
+Böyle taş bombardımanına beton çıdap olamay.
 Bir proyekt bar.
 İtalyan gidrotehniklerniñ konsultatsiyası altında tertip etilgen.
-Plotinanıñ suv astındaki qısımını çöyünnen ortmekni teklif ete.
-Amma çöyün ve çelikniñ er bir kilogrammı hususiy devlet isabına alınğan, çünki çöyün yetişmey.
+Plotinanıñ suv astındaki qısmını çöyünnen örtmekni teklif ete.
+Amma çöyün ve çelikniñ er bir kilogrammı hususiy devlet esabına alınğan, çünki çöyün yetişmey.
 
-Şay etip, plotina divarlarınıñ aşağı qısımını örtüv işi toqtap qaldı.
-Curayev onı mer-mernen qaplanılmasını teklif etti.
+Şay etip, plotina divarlarınıñ aşağı qısmını örtüv işi toqtap qaldı.
+Curayev onı mermernen qaplanılmasını teklif etti.
 Mermer ocağı ise dağda...
-Baş Dugümden yigirmi beş kilometr uzaqta.
+Baş Dügümden yigirmi beş kilometr uzaqta.
 %
 Özen boyunda yaşağan ealiniñ bütün nesilleri şu vaqıtqa qadar onıñ taşından ev qurıp kelgenler.
-Curayev karyerni körgeni yoq, amma onıñ aqqında çoq işitken.
+Curayev karyerni körgeni yoq, amma onıñ aqqında çoq eşitken.
 
 Teklifi gazetada basılğan soñ, eki sual doğdı.
 Birincisi — mermer plotinağa nasıl ketirilecek?
@@ -77,11 +77,11 @@ Karyerde, aqiqaten, plotinağa kelişikli mermer tapılacaqmı?
 Tursunov Curayevnen beraber Torizoğa ketti.
 Oña proyektniñ maqsadını bildirdi ve karyerge, tecribeli injenerniñ reberligi altında, komissiya yollanılıp, mermerniñ keyfiyeti teşkerilmesine razılıq aldı.
 Bundan soñ Tursunov özüniñ istegeni kibi areket etüv imkânına nail oldı.
-Evelâ, komissiyağa reber Sigizmund Genrihoviçni tain etti.
+Evelâ, komissiyağa reber Sigizmund Genrihoviçni tayin etti.
 
 Gazetada Curayevniñ teklifi aqqında basılğan maqale: "İnjener Curayevniñ teklifi muzakere etildi ve Çar-Çaq qurucılığınıñ başlığı Torizo tarafından doğru tanıldı" — sözlerinen bite edi.
 
-Biz maqaleni oqudıq, lâkin onıñ maña ve Raşidke munasebeti bardır dep tüşünmedik.
+Biz maqaleni oqudıq, lâkin onıñ maña ve Raşidge munasebeti bardır dep tüşünmedik.
 
 Tañ maalinde penceremiz qaqıldı.
 Alel-acele turdıq, kiyindik, tışarı çıqayatqanda, Raşidniñ yeñi stol üstündeki çaynikke ilişti, çaynik yuvarlanıp tsement polğa tüşti.
