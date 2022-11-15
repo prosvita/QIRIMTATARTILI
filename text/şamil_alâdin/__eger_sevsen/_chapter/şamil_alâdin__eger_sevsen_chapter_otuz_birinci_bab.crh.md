@@ -100,12 +100,12 @@ Zalnıñ içi zindan qaranlıq edi.
 Raşid elektrikni burdı, lampa yanmadı.
 Bozulğan.
 Kuhnânıñ penceresinden tar yarıq yolağı çıqıp, zalnıñ ortasına urmaqta...
-Stolımıznı yarıq yolağına çekip, oturdıq.
+Stolumıznı yarıq yolağına çekip, oturdıq.
 Sabira hala bizge zapekanka pişirgen.
 Soñ sıcaq ürük qoşafı berdi.
 Biz itiraz etmedik.
 Ürük, şükürler olsun... çoq.
-Aşağan soñ ellerimzge dörter qutu balıq konservası, birer qatalaq kolbasa ve birer dane de çavdar ötmegi tuttırdı.
+Aşağan soñ ellerimzge dörter qutu balıq konservası, birer qatalaq kolbasa ve birer dane de çavdar ötmegi tutturdı.
 
 — Yolluq! — dedi hala ve sol közüni azaçıq qısa berip, maña: — İrada içün raatsızlanam! — dep taşladı.
 — Yol pek sarp.
@@ -113,7 +113,7 @@ Dağ başındaki keçitte qar teren, deyler.
 Nasıl keçersiñiz, bilmeyim.
 Yalvaram, Cevdet, onıñ yanından ayırılma!
 
-Raşid, yüzüne baqqanda, qafası bu arada başqa tüşüncenen tolu kibi körünse de, halanıñ aytqanlarını işitti.
+Raşid, yüzüne baqqanda, qafası bu arada başqa tüşüncenen tolu kibi körünse de, halanıñ aytqanlarını eşitti.
 
 — Yalvarıp oturmaq ne kerek? — dedi o halağa,— şay da yapışıp qalır...
 
@@ -134,15 +134,16 @@ Soñ esime yaşçik tüşti,— tünevin siz...— dep başlağan edim, injener 
 — Ol-may-caq...
 Añlaşıldımı?
 Onıñ içindeki zaruriy aletlerni rükzaqqa aldım.
-— Soñ terseyip soradı: — dostıñız qayda ketti?
+— Soñ terseyip soradı: — dostuñız qayda ketti?
 
 — Haberim yoq.
 
-— Barıñız... injener Şadmanovanı tapıp keliñiz! — Ve qatıy davuşnen ilâve etti. — Onı da yarım kün beklep oturmayıq!
-
+— Barıñız... injener Şadmanovanı tapıp keliñiz! — ve qatiy davuşnen ilâve etti. 
+— Onı da yarım kün beklep oturmayıq!
 Teneke qalay içindeki ürüklerni parmaqlarımnen tez-tez çıqarıp, qapqan soñ, aşhaneden çıqtım.
 "E! — dedim men öz-özüme,— qartqa bugün ne oldı?
-Niçün böyle tutarlı?" Lâkin zeinim bu fikirden deral qurtulıp, İradağa keçti.
+Niçün böyle tutarlı?" 
+Lâkin zeinim bu fikirden deral qurtulıp, İradağa keçti.
 "Qart aqlı... qayda o?
 İrada?" dep tüşündim men.
 Arqamda kimniñdir sıq-sıq nefes alğanını sezip, çevirildim.
@@ -164,11 +165,11 @@ Qapu ögünde Menjevetskiy peyda oldı.
 — Raşid keleyata! — dedi Curayev.
 Soñ ilâve etti. — Siz, Sigizmund Genrihoviç, yigitler içün raatsızlanmañız!
 
-— Ya, vaqıt? — o, sol yeñini yuqarı çekip, Curayevke saatini kösterdi.
+— Ya, vaqıt? — o, sol yeñini yuqarı çekip, Curayevge saatini kösterdi.
 — Yol qarlı...
 Aqşamğace barıp yetalmamız.
 Tez ol!
-Tez! — dep qıçırdı Raşidke.
+Tez! — dep qıçırdı Raşidge.
 
 Men Raşid ile aşhanege kirdim.
 Erzağımıznı rükzaklarımızğa tıqıştırdıq.
