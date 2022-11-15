@@ -302,13 +302,16 @@ Dögmeleyim — sıcaq ola, çezem — suvuq.
 
 — Öyle olsa, rükzagıñıznı maña beriñiz!
 
-— Sağ oluñız! — kene itiraz etti,— Rükzak maña keder etmey.
+— Sağ oluñız! — kene itiraz etti,
+— Rükzak maña keder etmey.
 
-Arqadan Raşidniñ akim sesi işitildi.
+Arqadan Raşidniñ akim sesi eşitildi.
 
-— Rükzaknı Cevdetke beriñiz! — dedi Raşid,— bizge reberlik tarafından yüksek uquqlar berildi... yolda ekende ekiñiz de bizge tabiy olmağa borcılısıñız.
+— Rükzaknı Cevdetke beriñiz! — dedi Raşid,— bizge reberlik tarafından yüksek uquqlar berildi... yolda ekende ekiñiz de bizge tabiy olmağa borclusıñız.
 Ondan da başqa arqañızda yük olmasa, yürmesi yengil olur.
-Cevdet ise...— o, gizliden, maña köz qıptı. — Siziñ yüküñizni biraz taşısın... savap qazanır. — İradanıñ ögüne çıqtı, yolunı kestirdi, qıznıñ omuzlarındaki qayışlarnı çeze başladı. — E!
+Cevdet ise...— o, gizliden, maña köz qıptı, — siziñ yüküñizni biraz taşısın... savap qazanır.
+— İradanıñ ögüne çıqtı, yolunı kestirdi, qıznıñ omuzlarındaki qayışlarnı çeze başladı.
+— E!
 Mında, qardaş, beş pud şey bar.
 Ma, Cevdet!
 Avcılığıñ yetti.
@@ -316,8 +319,8 @@ Avcılığıñ yetti.
 Demek, böyle... bu yerge qadar tüfekni köterip keldim, endi ekinci rükzaknı da sıqınacağım.
 Bizim dost daqiqada bir qurnazlıq tüşünip çıqarmaqta.
 
-Sigizmund Genrihoviç laqırdımıznı işitti, amma toqtamadı, yürüv ritmini bozmaq istemedi.
-Onı bu özen boyu yuqarı, yüksek qayalar arasındaki tar keçitlerge doğru tarif etilmez quvvet çekip alıp ketmekte edi.
+Sigizmund Genrihoviç laqırdımıznı eşitti, amma toqtamadı, yürüv ritmini bozmaq istemedi.
+Onı bu özen boyu yuqarı, yüksek qayalar arasındaki tar keçitlerge doğru tarif etilmez quvet çekip alıp ketmekte edi.
 
 Vadiniñ üstüne qaranlıq çökeyatqanda küçük qışlaqqa keldik.
 Qadınlar yüksek qaya astındaki çoqraqtan savutlarına arınçıq, büllür suv toldırmaqta ediler.
@@ -340,12 +343,12 @@ Betindeki teriniñ qatmerleri tekrar cıyıldılar.
 Çayhaneci qollarını eki yaqqa açıp, Sigizmund Genrihoviçke doğru yuvurdı.
 Quçaqlaştılar.
 Al-ah-val sorağan, bala-çağanıñ selâmetligi bilingen soñ eki beraderniñ eslerine biz de tüştik.
-Qadır aka bizimnen qoşnud körüşti, içeri kirip oturmamıznı rica etti.
+Qadır aka bizimnen qoşnut körüşti, içeri kirip oturmamıznı rica etti.
 
 — Apaqay nasıl? — dep soradı ondan Menjevetskiy.
 
 — Güzel.
-Siziñ kelgeniñizni işitse, pek sevinir!
+Siziñ kelgeniñizni eşitse, pek sevinir!
 Yuqarı qışlaqqa, babasına ketti. 
 Menjevetskiy külümsiredi.
 
@@ -354,15 +357,15 @@ Menjevetskiy külümsiredi.
 — Yahşı.
 Sizni çoq soray.
 
-— O künden beri... aqılıñızdamı?
+— O künden berli... aqılıñızdamı?
 Körüşkenimiz yoq!
 
-— Ebet, ebet, o künden beri...
+— Ebet, ebet, o künden berli...
 
 — Sizde olmağanım da eppi vaqıt... doquz yıl.
 
 — Siz keçen sefer kelip ketken soñ, apaqaynıñ babası bizge keldi.
-Kelgeniñizni işitken.
+Kelgeniñizni eşitken.
 Canı pek ağırdı.
 "Bizge kelmedi... demek, biysinmedi!" dep kederlendi.
 
@@ -371,7 +374,7 @@ Canı pek ağırdı.
 — Ebet, öyle dedi.
 Amma endi sizge canı ağırmay.
 
-...Doquz sene evelsi Menjevetskiy Çar-Çaq boyunda keçirilgen ilmiy-tedqiqat işlerine iştirak etken edi.
+...Doquz sene evelsi Menjevetskiy Çar-Çaq boyunda keçirilgen ilmiy-tedqiqat işlerinde iştirak etken edi.
 İşler bitken soñ o vaqıtta daa sağlam ve yaşça Sigizmund Genrihoviç bir qaç vaqıtlarda qırlarda dolanmaq istedi.
 Küz maali edi, apansızdan yağmur yağdı, bir qaç saat içinde yolnıñ sarp yerlerinde sel köpürlerni alıp ketti, yolnıñ kimer qısımları uçurımdan aşağı tayıp, özenge tüştiler.
 Yollar tüzetilgenge qadar bir qaç künler beklemek kerek oldı.
@@ -391,7 +394,7 @@ Dehqanlarnıñ ekserisi, şübesiz, injenerniñ küçüni arttırılğan alda ta
 O yeri öyle!
 Lâkin Sigizmund Genrihoviç, er alda, zayıf adamlardan degil edi.
 Qısqası, ealide Menjevetskiy hususında ğayrı-tabiy fikir doğdı ve çoq vaqıtlar yaşadı.
-Soñ — undan bu fikir apansızdan ekige bölündi.
+Soñ — ondan bu fikir apansızdan ekige bölündi.
 Esli-başlı dehqanlarda injener hususında fena fikir asıl oldı, yaşlar ise onıñ tarafında qaldılar.
 
 ...Bir kün Sigizmund Genrihoviç yuqarı qışlaqqa ketken.
