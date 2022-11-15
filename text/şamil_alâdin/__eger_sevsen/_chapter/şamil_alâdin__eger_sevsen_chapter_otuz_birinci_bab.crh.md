@@ -1,14 +1,14 @@
 ## Otuz birinci bab — Çayhanada gecelev. Qadır aka
 
-Bana degenim kibi, endi ekskavator aqqında laqırdı az işitile.
+% Degenim kibi, endi ekskavator aqqında laqırdı az eşitile.
 Kotlovanda ekskavatornen yapılacaq bir aftalıq iş qaldı.
 Ondan soñ plotina etrafında ekskavatorlarnı körmek qıyın olacaq.
 Belki biz de derivatsion kanalğa köçermiz.
 
-Baş Dugümde eki aydan beri basma gazeta çıqmaqta.
+Baş Dügümde eki aydan berli basma gazeta çıqmaqta.
 Birinci satırı "beton"... sözünen başlay, soñki satırları "beton"... sözünen biteler.
 Beton... beton, beton!
-Betoncılarnıñ deviri keldi.
+Betoncılarnıñ devri keldi.
 
 Künlerniñ birinde gazetada Curayevniñ maqalesi basıldı.
 O şimdi beton laboratoriyasınıñ başlığı.
@@ -18,15 +18,15 @@ Divarlarnıñ kevdesini doğurtmaq qıyın ola.
 
 Curayev, doğrusını söylegende, plotinanıñ şorbacısı.
 
-Onıñ emirine binaen, zavodnıñ işi toqtatıla, Tursunov atıp-tutıp, açuvlanıp kele, baqsa — Curayev aqlı.
+Onıñ emrine binaen, zavodnıñ işi toqtatıla, Tursunov atıp-tutıp, açuvlanıp kele, baqsa — Curayev aqlı.
 
-İlki künlerde Curayevke çalışmaq, aqiqaten, qıyın oldı.
+İlki künlerde Curayevge çalışmaq, aqiqaten, qıyın oldı.
 Soñundan Tursunov da, smena injenerleri de, desâtnikler de, episi alıştılar.
 Curayev bir şeyni: başqadan yapıñ dedimi, demek, başqadan yapmaq kerek!
-Eger o, söz kelimi, telefonnen beton zavodı nevbetçisine, beton yüklü motovoznı keri qaytaram, dedimi, Curayevke yalvaruvnıñ, onıñnen dava etüvniñ faydası yoq.
+Eger o, söz kelimi, telefonnen beton zavodı nevbetçisine, beton yüklü motovoznı keri qaytaram, dedimi, Curayevge yalvaruvnıñ, onıñnen dava etüvniñ faydası yoq.
 Betonnı keri qabul etip, keyfiyetli yasamaq kerek.
 Ne qadar tez yapılsa, o qadar yahşı, çünki Curayev yalıñız fena mal çıqaruvnı yasaq etmek ve toqtatmaq degil, kerekkende öz hadimlerini de aydaştırmay qalmay.
-Bazan laborant qızlar yuvurıp kele, Curayevke saatlarnen yalvarıp-yalqarıp turalar:
+Bazen laborant qızlar yuvurıp kele, Curayevge saatlarnen yalvarıp-yalqarıp turalar:
 
 — Zakir Gulâmoviç, canıñızdan aylanayıq!
 Qabul etiñiz, qum pek güzel...— deyler,— tek retsept mücibi tekarançıq yetişmey qaldı.
@@ -43,9 +43,9 @@ Bu, elbette, epimizge malüm.
 Adeti üzre, Curayev böyle izaat berip başlağanda, bazılarınıñ canları sıqıla: barsın, siziñ aytqanıñız olsun! — dey qoyalar.
 
 Curayevniñ maqalesi basılğan vaqıtta plotinanıñ kevdesi endi yuqarı bayağı köterilgen edi.
-Qurucılarnıñ ve proyektçilerniñ ögünde — plotinanıñ divarlarını bir şeynen qaplamaq fikiri doğdı.
-Beton kevdeniñ asttaki qısımını suvdan qorçalamaq, onı maden yahud taş qılıfnen ortmek kerek.
-Kerçek, divarnı hususiy betonnen de qaplamaq mümkün... o vaqıtta tsementniñ kıalınlığı üç metr olmağa borclı.
+Qurucılarnıñ ve proyektçilerniñ ögünde — plotinanıñ divarlarını bir şeynen qaplamaq fikri doğdı.
+Beton kevdeniñ asttaki qısmını suvdan qorçalamaq, onı maden yahud taş qılıfnen örtmek kerek.
+Kerçek, divarnı hususiy betonnen de qaplamaq mümkün... o vaqıtta tsementniñ qalınlığı üç metr olmağa borclu.
 Bazı plotinalarnıñ kevdeleri taşnen de örtüle bile.
 
 Amma mında, Çar-Çaqta, öyle yapmaq istemediler.
