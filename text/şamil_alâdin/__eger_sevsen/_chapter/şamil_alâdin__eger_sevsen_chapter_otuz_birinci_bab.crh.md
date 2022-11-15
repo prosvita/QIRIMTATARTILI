@@ -212,15 +212,18 @@ Sabanıñ kök dumanı içinde susqan şeerçikniñ damları üstünden yükseli
 
 — Tez qaytıp keliñiz! — dedi bizge.
 
-— Qısmet olsa...— dedi Menjevetskiy, yürüşini devam etti,— dağlarda böten vaqıt ğaip etüvde ne mana?
-— Bu sözlerden soñ, o toqtaldı, Curayevke aylandı: — Meseleni menim aytqanım kibi al etermiz!
+— Qısmet olsa...— dedi Menjevetskiy, yürüşini devam etti,
+— dağlarda böten vaqıt ğayıp etüvde ne mana?
+— Bu sözlerden soñ, o toqtaldı, Curayevge aylandı: 
+— Meseleni menim aytqanım kibi al etermiz!
 Öyle degilmi?
 
 Curayev özüniñ razı ekenligini körsetip, başını salladı.
 
-— Tüfekni qaydan taptıñ? — dep soradım men Raşidden. — Dızman şey...
-
-— Yaramayını elge tutmaymız,— kibirli cevap berdi o,— qartnıñ aşıqqanına baq!
+— Tüfekni qaydan taptıñ? — dep soradım men Raşidden. 
+— Dızman şey...
+— Yaramayını elge tutmaymız,— kibirli cevap berdi o,
+— qartnıñ aşıqqanına baq!
 Zevqlı adam!
 Niçün ketemiz?
 Sorap añladıñmı?
@@ -228,7 +231,7 @@ Sorap añladıñmı?
 — Yoq.
 
 — Ne sırıñız bar şu? — dep qıçırdı İrada,— bu ne bitmegen pısırdı?
-Tezce yuriñiz!
+Tezce yüriñiz!
 
 Adımlarnı sıqlaştırdıq.
 Qırnıñ töpesine çıqqan soñ Menjevetskiy toqtadı, elindeki tayağını qarğa sapladı.
@@ -237,7 +240,8 @@ Qırnıñ töpesine çıqqan soñ Menjevetskiy toqtadı, elindeki tayağını qa
 Bizge endi aşağı, Çar-Çaq yalısına tüşmek kerek.
 Bu yerler, İrina Şadmanovna, sizge tanış olsalar kerek!
 
-— Teessüf... tanış degiller! — dep cevap berdi İrada. — Hazar-Kendden yuqarı keçmedim.
+— Teessüf... tanış degiller! — dep cevap berdi İrada. 
+— Hazar-Kendden yuqarı keçmedim.
 
 — Öylemi?
 Men, bilesiñizmi, qaç yıllar evelsi bu yerlerde ilmiy-tedqiqat işlerinen meşğul olğan edim,— dedi qart injener,— mında er bir çalı maña tanış.
