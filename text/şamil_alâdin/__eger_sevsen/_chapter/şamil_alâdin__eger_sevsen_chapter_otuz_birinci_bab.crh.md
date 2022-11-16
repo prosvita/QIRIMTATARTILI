@@ -528,7 +528,7 @@ Sigizmund Genrihoviç, niayet, bizge ekspeditsiyanıñ maqsadını añlattı.
 Yanaşamızdaki qartlar ise mermer ocağı hususında meraqlı şeyler söylediler.
 Bir vaqia Sigizmund Genrihoviçni pek meraqlandırdı.
 
-Qışlaqnıñ yuqarısında qadim vaqıtlardan beri plotina tura.
+Qışlaqnıñ yuqarısında qadim vaqıtlardan berli plotina tura.
 Onı baba ve dedeler selnen küreş içün qurğanlar.
 Taşnı şu mermer ocağından ketirgenler.
 Plotina uzaq yıllar devamında taş ve sel taşqını taziqı altında bulunsa da, bu maalgece bozulğanı yoq.
@@ -537,7 +537,7 @@ Menjevetskiy bu sözlerge yapıştı.
 Olardan ilmiy hulâsa yaptı.
 Plotina ve mermer hususında keç maalge qadar laqırdı etip oturdıq.
 
-Geceniñ bir vaqıtında Qadır aka bizge büyük yorğanlar ve yastıqlar ketirdi.
+Geceniñ bir vaqtında Qadır aka bizge büyük yorğanlar ve yastıqlar ketirdi.
 Men ve Raşid — ekimiz cennet yatağı buldıq.
 Qadır aka İradağa özüniñ küçük sıcaq odasını berdi.
 Menjevetskiyni evine alıp ketti.
@@ -545,18 +545,18 @@ Laqırdı etip toymağanlar.
 
 Çayhanede üç kişi qaldıq.
 İrada çoq vaqıt bizimnen beraber oturıp, laqırdı etti.
-Geceniñ bir vaqıtında Raşidniñ kirpikleri bir-birlerine yapışa ve özü esney başladı.
+Geceniñ bir vaqtında Raşidniñ kirpikleri bir-birlerine yapışa ve özü esney başladı.
 İrada turdı, bizge hayırlı gece istep, öz odasına kirdi.
 Qapusını qapattı degende, biz yorğan astına soquldıq — deral yuqlap qalğanmız.
 
 Altı sene keçken soñ men cebede bir şeyge pek taaciplendim.
-Qışta Luga şeerine ücümge ketkende epimiz sarımsaq kibi tendirist edik, amma ataka bitken soñ bütün rotamıznen yerge, qar üstüne yıqılıp, yuqlap qaldıq.
+Qışta Luga şeerine ücümge ketkende epimiz sarımsaq kibi tendürist edik, amma ataka bitken soñ bütün rotamıznen yerge, qar üstüne yıqılıp, yuqlap qaldıq.
 Bir kere degil, böyle al cenkte çoq ola edi.
 
-Saba Qadır akağa teşekkür ayttıq, saglıqlaşıp, yolğa çıqtıq.
+Saba Qadır akağa teşekkür ayttıq, sağlıqlaşıp, yolğa çıqtıq.
 
 Evelâ, kelgen yolumıznen bir az artqa qayttıq, soñ qaya-taşlar üstünde qurulğan köpürden keçip, qarnen örtüli alçaq terekler arasından tik qırğa tırmaşa başladıq.
-Qarnıñ üstü buzlı.
+Qarnıñ üstü buzlu.
 Keteyatqanda teşile, ayaqlarımız terenge kirip kete, zornen çekip çıqara, tekrar cöneymiz.
 Bizge pek qıyın degil, İrada içün qolaysız.
 Potikleriniñ qonuçları keñ, qar içine kirgen soñ ayaqlarını yuqarı kötergende, potikleri qarnıñ astında ilişip qala, egilip olarnı çekip çıqarmaq kerek ola.
@@ -569,7 +569,7 @@ Raşidniñ ayaqlarında rezina çızmalar... qarğa batmay, lâkin er adımda ta
 Ayaq üstünde turalmay.
 Menim ayağımda arbiy çızmalar.
 %
-Qar usttande turalmayım, adım sayın qar teşile, saplanıp qalam.
+Qar üstünde turalmayım, adım sayın qar teşile, saplanıp qalam.
 Tizden qar içinde yürem.
 Kimerde qarnıñ üstüne çıqam... çıqtım degende kene qar astına tüşip ketem.
 Sigizmund Genrihoviç lıja potikleri kiygen.
@@ -581,7 +581,7 @@ Tezce yürmek kerek.
 Ya İrada?
 Onı eki yaqtan tuttıq.
 Üçümiz beraber bir qaç adım atqan edik, süründik, başlı-ayaqlı aşağı yuvarlanıp kettik.
-Men çuqur içine tığırıp keteyatqanda, yuqarıda İradanıñ kiyik sesini işittim.
+Men çuqur içine tığırıp keteyatqanda, yuqarıda İradanıñ kiyik sesini уşittim.
 Çalığa yapışıp, özümni toqtattım.
 Soñ çızmamnıñ ökçesinen urıp, qar üstünde ayağımnı iliştirmege yuva yasadım.
 Ayaqqa turdım.
