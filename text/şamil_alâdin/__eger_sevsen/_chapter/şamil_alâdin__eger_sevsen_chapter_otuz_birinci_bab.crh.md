@@ -403,11 +403,11 @@ Yuqarı qışlaq dep, qışlaqnıñ qır üstündeki maallesine aytıla.
 Yuqarı maallege yalıdaki tar soqaqnen çıqıla.
 Soqaqnıñ astında, aşağıda Çar-Çaq quturıp aqmaqta.
 
-İnjener bu manzaranı seyir etip, hoşnud alda yavaş-yavaş kete eken, ögde kiyik davuşlar işitilgen.
+İnjener bu manzaranı seyir etip, hoşnut alda yavaş-yavaş kete eken, ögde kiyik davuşlar eşitilgen.
 Bir qaç adım ileri yürgen... anteri parça-kesek, başı yaralı yaş qıznıñ yuvurıp keleyatqanını ve artından bir sürü adam üdür-qıyamet çaparaq, bed-baht qıznı taşnen köteklemekte ekenini körgen.
 
 Menjevetskiy soqaqnıñ çetine çekilgen, qız keçip ketken.
-Birazdan soñ, injenerniñ aqılına: bu adamlarnı toqtatmaq kerek, degen fikir kelgen.
+Birazdan soñ, injenerniñ aqlına: bu adamlarnı toqtatmaq kerek, degen fikir kelgen.
 Toqtatmaq ise pek qıyın degil eken.
 Egilip yerden büyük taş alğan, töpege kötergen, çoq tüşünip turmay, ögge, soqaq boyu aşağı yuvarlatıp yibergen, soñ egilip yerden digerini alğan.
 Aşağıdaki adamlar abdırap, toqtağanlar.
@@ -431,7 +431,7 @@ Sevgi degen şey, ne yerde, kimde olsa-olsun, daima bir-birine beñzegeninden, S
 "...öyle ola o: yigit ile qız elâk ola, lâkin yürekleriniñ degenini yapalar" — dep bitirgen.
 
 Menjevetskiy bu tarihnı olarğa çoq vaqıt añlatıp turğan.
-Men şimdi qıznı qorçalamasam, soñundan adamlar maña lânet oqurlar degen, çünki er erkek kişi qadınnı qorçalamağa borclı, quvetli kişi — zayıf kişini mudafaa etmek kerek.
+Men şimdi qıznı qorçalamasam, soñundan adamlar maña lânet oqurlar degen, çünki er erkek kişi qadınnı qorçalamağa borclu, quvetli kişi — zayıf kişini mudafaa etmek kerek.
 Qadın ise erkekten zayıf.
 Kişiler razı olmağan, dava etkenler.
 Qıznıñ babası injenerniñ üstüne atılğan.
@@ -442,15 +442,15 @@ Menjevetskiy kelinniñ babasını üç saat ayartıp turğan, qandıralmağan.
 Bu, Qadır öz sevgilisini atnıñ arqasına qoyıp, rayon merkezine alıp ketmesi içün yeterlik vaqıt olğan.
 Qıznıñ artından kimse quvıp ketmegen, çünki baba, aqibeti, Menjevetskiyniñ şartlarını qabul etken.
 
-Qışlaq kişileriniñ fikiri, böyle etip, ekige bölüngen.
-Bir qısımı Menjevetskiy yahşı yaptı degen, diger qısımı onı qabaatlap çıqqan.
-Soñ vaqıt adamlarnı uzlaştırğan.
+Qışlaq kişileriniñ fikri, böyle etip, ekige bölüngen.
+Bir qısımı Menjevetskiy yahşı yaptı degen, diger qısmı onı qabaatlap çıqqan.
+Soñ vaqıt adamlarnı uzaqlaştırğan.
 Gürdeli toy... çalğı-çağana, çoq seneler devam etken duşmanlıqnı bitirgen.
 
 — Qartnıñ açuvı keçip ketken olsa yahşı,— dedi Menjevetskiy,— çünki özü yahşı kişi.
 Sağlığı nasıl?
 
-— Şükür allağa,— dep cevap berdi Qadır aka,— bir şeyge şikâyet etme.
+— Şükür Allağa,— dep cevap berdi Qadır aka,— bir şeyge şikâyet etmey.
 Yoluñız qaysı tarafqa?
 
 — Aqın-Sayğa! — dedi injener.
@@ -458,9 +458,9 @@ Yoluñız qaysı tarafqa?
 
 — Böyle, keç maaldemi?
 
-— Sabadan beri kelemiz.
+— Sabadan berli kelemiz.
 Yol pek osal.
-Aşıqtım...
+Aşıqtım ...
 Tez-tez sizni körmek istedim.
 
 Sigizmund Genrihoviçniñ yel boyu bizge: tez-tez! — dep zıqarlay bergeniniñ sebebi bu eken.
@@ -473,7 +473,7 @@ Raatlanıñız! — dedi Qadır aka, elinen çayhane betke işaret etip,— uzaq
 Samovar turğan dolapnıñ yanında Qadır akanıñ yañçıq peçten çıqarğan samsaları tütep turalar.
 Eski kiyiz töşevli tahtanıñ töründe bir qaç adam çay içip, pite aşamaqtalar.
 Qart kişilerniñ başlarında çalmalar bar.
-Üç kişi taqiyeleri üstünden qulaqlarına yavlıq bağlağanlar.
+Üç kişi taqiyeleri üstünden qulaqlarına yavluq bağlağanlar.
 Qalğanlarnıñ başlarında qazaq telpekleri.
 Samsalar olarnıñ sımarışı eken.
 Bizni de sıyladılar.
@@ -481,7 +481,7 @@ Bizni de sıyladılar.
 Arqalarımızdaki yüklerimizni tahta üstüne bıraqtıq, paltolarımıznı çıqardıq.
 Qadır aka bizge kök çay berdi.
 Böyle çaynı çoqtan içmegen edik.
-Lâkin çoqtan beri de böyle etip yorulmağan edik.
+Lâkin çoqtan berli de böyle etip yorulmağan edik.
 İrada ocaqqa yaqın oturdı.
 O, yolda keleyatqanda em üşüdi, em qızdı.
 Şimdi bedeni yiberilmekte edi.
@@ -489,7 +489,7 @@ Pialağa sıcaq çay qoyıp, oña berdim.
 
 — E!
 Alicenap rıtsar sevgili hanımınıñ canını qurtarayata! — Sigizmund Genrihoviç klassik edebiyattan tuttırdı.
-Men qulaq asmadım, çünki bugün yol boyunda onıñ bu ibarelerini işitip, bezdim.
+Men qulaq asmadım, çünki bugün yol boyunda onıñ bu ibarelerini eşitip, bezdim.
 Lomonosovnı, Derjavinni...
 Şekspirni oquğan eken.
 Biz ne?
