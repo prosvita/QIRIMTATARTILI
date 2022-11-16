@@ -225,17 +225,18 @@ Zan etsem, siziñkilerniñ arasında öylesi yoq.
 — Hayır, İrina Şadmanovna, olar eliñizdeki kök mermerniñ özü.
 Neva yalısında töşelgen mermer de böyle!
 
-— Maña, niçündir, bular başqa olıp körüneler,— dedi İrada,— er alde, ondan da bir qaç kesek alıñız!
+— Maña, niçündir, bular başqa olıp körüneler,— dedi İrada,— er alda, ondan da bir qaç kesek alıñız!
 
 Men injenerniñ elindeki çöküçni alıp, oyuq qaya yanına bardım.
 Adam başı qadar mermer qopardım, keseklerge bölgen soñ, İradağa ketirdim.
 
-— Diqqat etiñiz,— dedi o Menjevetskiyge,— gülguli degil, lâkin beyaz da degil, kök de... yeşilce kele.
+— Diqqat etiñiz,— dedi o Menjevetskiyge,— gülgüli degil, lâkin beyaz da degil, kök de... yeşilce kele.
 Bizde öyle cıns yoq.
 
-— Ya miqdar, kölem ceetinden nasıl? — Menjevetskiy külümsiredi. — Bizim iş içün yeterlikmi?
+— Ya miqdar, kölem ceetinden nasıl? — Menjevetskiy külümsiredi. 
+— Bizim iş içün yeterlikmi?
 
-Mermer bu yerde çoq... adsız-isapsız miqdarda.
+Mermer bu yerde çoq... adsız-esapsız miqdarda.
 Amma belâlı ceeti bar.
 Onı aşağı, Hoca-Kend yoluna nasıl tüşürmeli?
 
@@ -244,17 +245,17 @@ Soñ aşağı tik yol yasap, lebödka vastasınen tüşürmek mümkün.
 Bu fikir, elbette, tafsilâtlı izaat talap ete, lâkin böyle tik bayırdan aşağı yol yasamaqta iç mana yoq.
 Yolnı Hazar-Kendden, tahminen, sekiz kilometr uzaqqa qurıp başlamaq kerek.
 
-Eki kün zarfında İrada eppi tüzeldi, atta qobadan tışarı çıqıp da yurdi.
+Eki kün zarfında İrada eppi tüzeldi, atta qobadan tışarı çıqıp da yürdi.
 Oña terek pıtaqlarından qoltuq tayaqlar yasap berdik.
 Kesme mermer taşlarğa yaqınlamaq istedi.
 Eki qolundan tutıp, onı sırımğa yaqın ketirdik.
-Menjevetskiyniñ fikiri doğru ekenine qaniy olmaq içün çeşit cıns taşlarğa tiklenip baqa berdi, niayet, eki-üç soy taş daa alıp, sumkasına qoydı.
+Menjevetskiyniñ fikri doğru ekenine qaniy olmaq içün çeşit cıns taşlarğa tiklenip baqa berdi, niayet, eki-üç soy taş daa alıp, sumkasına qoydı.
 Menjevetskiy bu çılçıqlıqnı seze qoysa, şübesiz, darılacaq edi.
 
 — Bularnı özüm içün aldım,— dedi o, qart injenerge.
 Lâkin Sigizmund Genrihoviç, özüniñ ibaresinen aytqanda, "yaşlıq inamsızlığına" darılmadı.
 
-Evge qaytqanda, Menjevetskiy Raşidke hususiy vazife berdi: qala keçidinden sağ qolğa, süyri qaya astındaki dere betke yürip, yol qurucılığı içün kelişikli yer baqmasını rica etti.
+Evge qaytqanda, Menjevetskiy Raşidge hususiy vazife berdi: qala keçidinden sağ qolğa, süyri qaya astındaki dere betke yürip, yol qurucılığı içün kelişikli yer baqmasını rica etti.
 Tapsañ, maña aytırsıñ, dedi.
 Biz Qadırnıñ çayhanesinde olurmız.
 
