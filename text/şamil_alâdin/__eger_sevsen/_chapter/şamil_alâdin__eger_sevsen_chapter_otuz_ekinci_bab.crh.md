@@ -259,7 +259,7 @@ Evge qaytqanda, Menjevetskiy Raşidge hususiy vazife berdi: qala keçidinden sa�
 Tapsañ, maña aytırsıñ, dedi.
 Biz Qadırnıñ çayhanesinde olurmız.
 
-Tek Menjevetskiy degil, epimiz bu bayırdan aşağı araba yahud maşina yolu quruv derdine mübtelâ oldıq.
+Tek Menjevetskiy degil, epimiz bu bayırdan aşağı araba yahud maşina yolu quruv derdine müptelâ oldıq.
 Raşid yol içün yer tapqanını gece tüşünde eki kere kördi.
 Men ve İrada tüşümizde yol tapqanımıznı birer kere kördik.
 Sigizmund Genrihoviç —başqa... o, yuqu vaqtında, tüş körmey eken.
@@ -291,11 +291,11 @@ Başı... canlı isbat.
 
 — Qorqmadıñızmı? — dedi İrada.
 
-— Korqmağa ne bar?
+— Qorqmağa ne bar?
 Bütün işni bu özü yaptı...— tüfekni kösterdi.
 
 — Ümüt etmegen edim,— dedim men, şaqanen.
-Raşid küstü.
+Raşid küsti.
 
 — Bunı maña birev bağışladı belleysiñmi?
 
@@ -319,7 +319,7 @@ Biz qaşqırnıñ başını ve terisini Qadır akağa bağışladıq.
 — Em tapılmaz. — Sigizmund Genrihoviç Raşidni ruhlandırdı,— bunı men evelden bile edim.
 Bizim alğan nümünelerimizni laboratoriya tedqiq etsin... soñ baqarmız.
 
-— Siz Sigizmund Genrihoviç, qaladan aşağı mermer tüşürmek mümkün degil deysiñiz.
+— Siz Sigizmund Genrihoviç, qaleden aşağı mermer tüşürmek mümkün degil deysiñiz.
 Ya andaki izler?
 
 — Nasıl izler?
@@ -330,14 +330,14 @@ O yolnen mermer taşılmağanmı eken?
 — Belli degil.
 Belki mermer... belki de odun taşığandırlar.
 
-— Qalağa yol yasamaq mümkün,— dedi Raşid.
-Soñ öz sözleriniñ qatıyliginden özü qorqıp, ilâve etti: — lâkin mütehassıslar da kelip körsinler!
+— Qalege yol yasamaq mümkün,— dedi Raşid.
+Soñ öz sözleriniñ qatiyliginden özü qorqıp, ilâve etti: — lâkin mütehassıslar da kelip körsinler!
 
 — Qayda? — dep soradı Menjevetskiy.
 
 — Meni Palvanqaya astındaki derege yolladıñız.
 Barıp baqtım.
-Qala içinden tışqa suv aqmaqta.
+Qale içinden tışqa suv aqmaqta.
 
 — Suv?
 O da qaydan kelgen?
@@ -362,7 +362,7 @@ Niçün öyle?
 Menmi? — qart injener yüreksiz külümsiredi,— yañlışasıñız, Cevdet!
 Mende bu işke azaçıq suvuqlıq olsa, bu qayalarğa tırmaşıp yürmez edim.
 
-— Öyle eken, yol tapuvnı niçün Raşidke avale ettiñiz?
+— Öyle eken, yol tapuvnı niçün Raşidge avale ettiñiz?
 Özüñiz ketip qıdırmadıñız?
 
 — Raşid yaş.
