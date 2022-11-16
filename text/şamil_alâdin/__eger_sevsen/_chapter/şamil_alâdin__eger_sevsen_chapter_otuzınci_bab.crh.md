@@ -300,7 +300,7 @@ Közleriñiz alaq-bulaq!
 Tekarançıq attıq,— dedi Raşid.
 
 — Samogon...
-Ar-ram şey eken!..
+Aram şey eken!..
 
 Basit soyunıp yattı.
 Raşid çaynikten qalayğa suvuq çay qoydı, afön patlatam dep, basıp içti.
@@ -314,24 +314,26 @@ Basit hırıldadı.
 
 Biz böyle yaşadıq.
 Dostluqnı muafaza ettik, kimerde sevgi aqqında qonuştıq, türkü ayttıq ve... yuqladıq.
-Kotlovanda işler ağır qıbırdağanda sıtıq çıraynen yurdik, işler çığırına mingende — çerelerimiz küldi.
-Böyle muabbet studentlerde, soldatlarda, geologlarda ola.
+Kotlovanda işler ağır qıbırdağanda sıtıq çıraynen yürdik, işler çığırına mingende — çerelerimiz küldi.
+Böyle muabbet studentler de, soldatlar da, geologlar da ola.
 Biz ziyadesinen soldatlarğa beñzey edik.
-Geceniñ bey vaqıtında bizni uyantıp, Çar-Çaqnıñ birde-bir tirseginde ökeli dalğalar içinde yüz bergen qazanı yoq etmek, yahut bir yalıdan diger yalığa parovoz keçirmek içün bizni çağıracaqlarını bile, lâkin bu işlerden iç qaçınmay edik.
+Geceniñ bey vaqtında bizni uyatıp, Çar-Çaqnıñ birde-bir tirseginde ökeli dalğalar içinde yüz bergen qazanı yoq etmek, yahut bir yalıdan diger yalığa parovoz keçirmek içün bizni çağıracaqlarını bile, lâkin bu işlerden iç qaçınmay edik.
 Biz — ekskavatorcılarmız, bu iş — bizge ait,— bu — ait degil, demey edik.
 Kimerde, iş ayatımız içün havflı olsa bile... kete edik.
 Çar-Çaq qurucılığınıñ romantikası öyle edi.
 
-Bugün... yarı gece maalinde barakqa Tursunovnıñ küryeri keldi.
+Bugün... yarı gece maalinde barakqa Tursunovnıñ kuryeri keldi.
 
-— Raşid Mahkamov ve Cevdet Bekirov,— dedi qadın. — Tez!
+— Raşid Mahkamov ve Cevdet Bekirov,— dedi qadın. 
+— Tez!
 
-— Daa ne oldı? — Raşid yuqusını açalmay mıdırdandı. — Sel tüştimi?
+— Daa ne oldı? — Raşid yuqusını açalmay mıdırdandı. 
+— Sel tüştimi?
 
-Qırq yaşlarında, iri suyekli Zina yeñge ögümizge çıqtı, qaranlıq gecede, balçıqqa ve oba-çuqurğa qulaq asmay, acele-acele ketti.
+Qırq yaşlarında, iri süyekli Zina yeñge ögümizge çıqtı, qaranlıq gecede, balçıqqa ve oba-çuqurğa qulaq asmay, acele-acele ketti.
 Biz onıñ peşinden yuvurdıq.
 
-İdarege kirgen soñ ekimizniñ qollarımızdan tutıp, qaranlıq köridor boyu yürsetti, naçalnik-niñ qabulhanesine kirgen soñ Zina yeñge aralıq qapunıñ yanına barıp, içerige:
+İdarege kirgen soñ ekimizniñ qollarımızdan tutıp, qaranlıq köridor boyu yürsetti, naçalnikniñ qabulhanesine kirgen soñ Zina yeñge aralıq qapunıñ yanına barıp, içerige:
 
 — Vahid Samatoviç, ketirdim!..— dep qıçırdı.
 
@@ -346,17 +348,17 @@ Mahorka tütüni içinde olarnı zornen seçtik.
 Afu etiñiz, lâkin siziñnen aqıl tanışmasak olmaycaq.
 Yarın saba erte Hoca-Kend deresine çıqmaq kerek!
 Mından, tahminen, yigirmi beş kilometr uzaqta... dağda.
-Bu, ne deycekmiz oña... küçük ekspeditsiyanıñ reberi injener Menjevetskiy tain etile.
+Bu, ne deycekmiz oña... küçük ekspeditsiyanıñ reberi injener Menjevetskiy tayin etile.
 Yardımcısı injener Şadmanova.
 
 O gizliden menim közlerime baqtı, azaçıq da külümsirep aldı.
 Men episini sezdim.
 
-— Mansurovqa eki kişi tapuv vazifesi avale etildi.
+— Mansurovğa eki kişi tapuv vazifesi avale etildi.
 Almazov siziñ ekiñizni tevsiye etken.
 Şadmanovanıñ haberi yoq, lâkin hızmet.
 ...Siz, ekiñiz, olarnen ketecek ve işlerine yardım eteceksiñiz.
-İnjenerler karyerde zaruriy tedqiqatlarnı yapadajq, siz olarnıñ yanında olacaqsıñız.
+İnjenerler karyerde zaruriy tedqiqatlarnı yapacaq, siz olarnıñ yanında olacaqsıñız.
 Yük, men bellesem, aytılacaq qadar büyük olmaz... nasıl, Sigizmund Genrihoviç?
 Olmasa kerek, öyle degilmi?
 
@@ -369,11 +371,13 @@ Soñ baqarmız!
 — Cayav ketilecek.
 Er itimalğa qarşı yanıñızğa silâ alıñız!
 
-— Mesele añlaşıldımı? — dep soradı Tursunov ve ayaqqa turdı. — Seferniñ muvafaqiyetli bitüvi sizge bağlı!
+— Mesele añlaşıldımı? — dep soradı Tursunov ve ayaqqa turdı. 
+— Seferniñ muvafaqiyetli bitüvi sizge bağlı!
 
 Bu sözlerni diñlegende zeinimde Vahid Tursunov hususında alicenap isler uyandılar.
-"Onıñ yerine men olğan olsam, böyle şey yapa bilirmi edim?" — dep soradım özüm özümden, soñ: ebet, yapa bilir edim!" dep cevap berdim.
-Yüzüne baqtım: o, menim közlerimni körgende, özü aqqındaki fikirimni bildi.
+"Onıñ yerine men olğan olsam, böyle şey yapa bilirmi edim?" — dep soradım özüm özümden, soñ: 
+ebet, yapa bilir edim!" dep cevap berdim.
+Yüzüne baqtım: o, menim közlerimni körgende, özü aqqındaki fikrimni bildi.
 "Bu adamda irade ve alicenaplıq küçlü eken" dep tüşüneyata edim:
 
 — Sualleriñiz olmasa, cöneñiz! — Tursunov yerinden köçti, laqırdı bitkenini bildirdi.
@@ -411,9 +415,9 @@ Yaşçikler çeşit türlü olalar.
 Maña böyle kezinti kerekmey.
 
 — Silâ?
-Silânı qaydan alacaqmız? — dedim men, Raşidni işitmegen oldım.
+Silânı qaydan alacaqmız? — dedim men, Raşidni eşitmegen oldım.
 
-— Tüfekni men tapayım,— dedi menim dostım,— yaşçik ise sende olsun.
+— Tüfekni men tapayım,— dedi menim dostum,— yaşçik ise sende olsun.
 Razısıñmı?
 
 — Razım!
