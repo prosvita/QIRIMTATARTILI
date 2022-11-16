@@ -115,7 +115,7 @@ Tezden kotlovanda beton qoymağa yer tapılmaycaq!
 Aramızda mesafe büyük.
 Bu qadar teren uçastkada negiz qoymaq ve divar qalamaq içün çoq vaqıt kerek.
 
-Aylanma kanal qazğan vaqıtımızda ekskavator işleri — eñ esas, eñ yetekçi zenaat yesap etile edi, şimdi eñ müim zenaat — beton qoyuv.
+Aylanma kanal qazğan vaqtımızda ekskavator işleri — eñ esas, eñ yetekçi zenaat esap etile edi, şimdi eñ müim zenaat — beton qoyuv.
 Ekskavatorcı degen ad kişiler arasında endi az işitilip başlay.
 
 Beton zavodınen plotina arasında toqtamay poezd qatnay.
@@ -144,13 +144,14 @@ Raşid ve Basit çay içeyata ediler.
 
 — Seni! — burunı ile maña işaret etti.
 Biz yoq vaqıtta Valâ Sinitskaya kelip ketken.
-Menim aqqımda yeñi haber işitken...
+Menim aqqımda yañı haber eşitken...
 Curayev güya menim, Mansurovnıñ muavini tayin etilmemni teklif etken.
 
 — Bizim köyde buña üfürtme, deyler...— dedim men.
 
 — Üfürtme?
-Niçün üfürtme olsun? — dedi Nikolay, açuvlanıp,— maşinanı yahşı bilesiñ.Ondan soñ... men, reberler arasında bizim qardaştan da bir adam olğanını çoqtan istey edim.
+Niçün üfürtme olsun? — dedi Nikolay, açuvlanıp,— maşinanı yahşı bilesiñ.
+Ondan soñ... men, reberler arasında bizim qardaştan da bir adam olğanını çoqtan istey edim.
 
 — Zan etsem, reberler arasında bizim qardaştan bir adam barlığı çoqtan...— dedi Raşid,— Sinitskaya şimdi Tursunovnıñ qabulhanesinde sekretar.
 Bu yetrlik degilmi?
@@ -194,7 +195,8 @@ Men de oña başqa şey hususında cevap berem,— dedi Nikolay.
 — Mesele çezildi.
 Bundan soñ aramızda qara mışıq keçmeycekke beñzey.
 
-— Öyle ise, senden yahşı naçalnik olur...— Kandıba zornen küldi,— ya Tursunov?
+— Öyle ise, senden yahşı naçalnik olur...
+— Kandıba zornen küldi,— ya Tursunov?
 O endi büyük adam.
 Bu hususta tüşünip baqtıñmı?
 
