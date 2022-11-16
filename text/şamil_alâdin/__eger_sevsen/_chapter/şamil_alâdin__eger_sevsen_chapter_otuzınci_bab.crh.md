@@ -211,10 +211,10 @@ Kene Hristofornen ekimiz qalacaqmız.
 Bizni unuta başladıñ, Cevdet!
 Yalıñız İra hususında tüşünesiñ.
 Dostluğımız sarsıldı.
-Qorqam, onı tezden ğaip etecekmiz.
-Men ömürimde çoq şey kördim, çoq şey bilem.
+Qorqam, onı tezden ğayıp etecekmiz.
+Men ömrümde çoq şey kördim, çoq şey bilem.
 Dostlarsız saña ve sensiz dostlarğa yaşamaq qıyın olur.
-Kişiniñ yolunda dostı olğanı kibi, duşmanı da bar... duşman birden bitip ketmey.
+Kişiniñ yolunda dostu olğanı kibi, duşmanı da bar... duşman birden bitip ketmey.
 
 — Arhipka?!
 Alâ teslim olmadımı?
@@ -230,8 +230,10 @@ Arhipka da onıñnen beraber, em yuqsıramay!
 Onıñ beti endi bayağı tögereklengen ve evelki boyanı qabul etken: omuzınıñ ağrısı içün siyrek şikâyetlenmekte.
 
 — Sizge ne oldı?
-Yüzleriñiz ekşigen! — o ocaq yanında toqtaldı, tez-tez soyuna başladı. — çamurğa lânet olsun!
-E! Qavğa ettiñizmi, ne yaptıñız şu?!
+Yüzleriñiz ekşigen! — o ocaq yanında toqtaldı, tez-tez soyuna başladı. 
+— çamurğa lânet olsun!
+E! 
+Qavğa ettiñizmi, ne yaptıñız şu?!
 Doğru yolnen keleyim dedim, suvğa battım.
 Çızmamnıñ içi toldı.
 Ne indemeysiñiz?
@@ -243,7 +245,7 @@ Bizge mal bölüşmek qaldımı?
 Sizden sorayım.
 Alla belâñıznı bersin... niçün indemeysiñiz? — Hristofor kerçekten açuvlanıp qıçırdı, ayağınen kürsüni tepip attırdı, tekrar cekirdi,— men böyle tüşkünlikke çıdayalmayım!
 
-— Hristofor! — dedi Nikolay saburlı davuşnen,— çoq öküre berme!
+— Hristofor! — dedi Nikolay sabırlı davuşnen,— çoq öküre berme!
 Şimdi vaqıtı degil.
 Ondan da başqa, biz sağır degilmiz.
 Söyle, bizden ne isteysiñ?
@@ -252,7 +254,7 @@ Sen qapudan kirgende, ayaqqa turıp tişlerimizni sırıtmaq kerekmizmi?
 Duranidi başını aşağı sarqıttı.
 Nikolaynıñ sualine cevap bermedi.
 
-— Karimni kördim,— dedi o, birazdan soñ,— gidromonitorlarnıñ maşinasınen bardım...— soñ, Raşidke çevirilip, eleslenip baqtı,— seni de kördim!
+— Karimni kördim,— dedi o, birazdan soñ,— gidromonitorlarnıñ maşinasınen bardım...— soñ, Raşidge çevirilip, eleslenip baqtı,— seni de kördim!
 Basitnen beraber ediñiz.
 
 — Bizge qulaq asma! — dedi Raşid.
@@ -260,17 +262,19 @@ Basitnen beraber ediñiz.
 
 — Karim nasıl? — dep soradı Kandıba.
 
-Hristofor yoq közündeki qara bagnı tüzetti ve bar közüni eki-üç kere lipildetip aldı.
+Hristofor yoq közündeki qara bağnı tüzetti ve bar közüni eki-üç kere lipildetip aldı.
 
 — Oña kvartira bergenler.
 Sizge pek darıla... kelmeyler imansızlar, dey.
 
-— Darıla!? — Nikolay taaciplendi. — Biz ne yapamız?
+— Darıla!? — Nikolay taaciplendi. 
+— Biz ne yapamız?
 Restoranlarda keyflenip yüremizmi?
-Ya siz? — O Basitke hucur-hucur baqtı.
+Ya siz? — o Basitke hucur-hucur baqtı.
 — Bu çamurda anda ne işiñiz bar edi?
 
-— Bizni çağırdılar! — dedi Basit. — Öz başımızğa çapqanımız yoq.
+— Bizni çağırdılar! — dedi Basit. 
+— Öz başımızğa çapqanımız yoq.
 
 — Kimge kerek oldıñız?
 
@@ -280,11 +284,13 @@ Ya siz? — O Basitke hucur-hucur baqtı.
 
 — Kişi,— dep cevap berdi Raşid.
 
-— Sevgi meselesi...— dep ilâve etti Basit. — Biz ekimiz... ne deyim saña, kiyevler olıp bardıq.
+— Sevgi meselesi...— dep ilâve etti Basit. 
+— Biz ekimiz... ne deyim saña, kiyevler olıp bardıq.
 
 — Kim evlenmek istey?
 
-— Raşid,— dedi Basit. — Kim olacaq?
+— Raşid,— dedi Basit. 
+— Kim olacaq?
 
 — Soñ?
 Yahşı sıyladımı?
