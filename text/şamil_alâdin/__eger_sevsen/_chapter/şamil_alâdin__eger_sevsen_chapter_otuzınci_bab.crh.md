@@ -1,7 +1,7 @@
 ## Otuzınci bab — Zina yenge bizni çağıra
 
 Vaqıt tez keçmekte.
-Er kün dünya qadar yeñi vaqia.
+Er kün dünya qadar yañı vaqia.
 Barakqa kelseñ: onı bitirdik, bunı başladıq,— laqırdısı.
 Torizo keldi, Tursunov ketti...
 Ay keçe, artıña aylanıp baqsañ, güya bir türlü deñişme yoq.
@@ -13,38 +13,39 @@ Kendimizniñ bir qaç ay, evelsi kim olğanımıznı ve şimdi kim ekenimizni, a
 
 Emek hususında çeşit atalar sözleri bar.
 Atalarımız aqıllı adamlar olğan ve alicenap sözler söylegenler.
-Men felsefelik satmaq istemeyim, lâkin, er alde, emek çeşit türlü ola, dep tüşünem.
-Bir çeşidi para qazanmaq, keçinmek içün, diger çeşidi yüksek hızmet içün.
+Men felsefelik satmaq istemeyim, lâkin, er alda, emek çeşit türlü ola, dep tüşünem.
+Bir çeşiti para qazanmaq, keçinmek içün, diger çeşiti yüksek hızmet içün.
 Kimerde adamnı çalıştırmaq içün türlü usullar qullanmaq kerek ola.
 
 Bizim emegimiz... qurucılıqta çalışayatqan kişilerniñ emegi yalıñız para içün degil, yahud mecburiy emek degil.
 Ne?
-Para qazanmaq... dedimmi?
+Para qazanmaq... dediñmi?
 Bizim qazanğan paramız yemekke, tütünge, yahud bir qaç şişe raqığa, İskander magazininde ordernen berilgen basma kölmekke zornen yetişe.
 Biz para qazanuv aqqında tüşünmey, para toplamağa tırışmaymız.
 Qafamızda tek qurucılıq vazifeleri turalar.
 Biz özenni kendimizge itaat ettirmek ve avadan mineral kübre yasamaq isteymiz.
 Bu — Orta Asiya içün, er birimiz içün büyük iş.
-Yüreklerimiz bu işniñ alicenap ğayeleri ve romantikasınen beraber urmaqta; men umumiy maqsad deyim, amma o — er birimizniñ kendi maqsadı.
+Yüreklerimiz bu işniñ alicenap ğayeleri ve romantikasınen beraber urmaqta; men umumiy maqsat deyim, amma o — er birimizniñ kendi maqsadı.
 Umumiy ğayemizniñ tantanası bundan ibaret.
 O, areket etici büyük quvetke çevirilerek, bu qurucılıqta toplanğan çeşit taqdirli, çeşit nazarlı, çeşit adetli adamlarnı umumiy istekke ve ilhamğa tabi büyük bir kollektivge qoşulmağa sebepçi oldı.
 
 Şimdi, aradan yigirmi beş sene keçken soñ, men o vaqialarnı kâğıt üzerinde yazayatqan vaqıtımda, er bir areketimizni tüşünip baqam ve qıymet kesem.
-Ne Andrey Almazov, ne Karim Yoldaşev, ne Mihail Bassaraba — iç birimiz entuziazm aqqında laqırdı etkenimiz ve tüşüngenimiz yoq; kimerde bizni gazetada entuziastlar... dep yazsalar, biz diger, biñlerce kişiler kibi, memnuniyetsiz alda çıraylarımıznı sıta ve mırıldana edik: "Bizden entuziast olamı?
+Ne Andrey Almazov, ne Karim Yoldaşev, ne Mihail Bassaraba — iç birimiz entuziazm aqqında laqırdı etkenimiz ve tüşüngenimiz yoq; kimerde bizni gazetada entuziastlar... dep yazsalar, biz diger, biñlerce kişiler kibi, memnüniyetsiz alda çıraylarımıznı sıta ve mırıldana edik: "Bizden entuziast olamı?
 Çalışamız... plannı eda etemiz.
 Başqa şey yoq!" Çar-Çaqta böyle adamlar çalıştılar.
 Çar-Çaq böyle adamlarnı doğurdı ve terbiyeledi.
 
 ...Vaqıt tez keçmekte, dedim men.
-Biz endiAlmazovqa ekskavator parkını qabul etmesini teklif etkenlerini unuttıq.
-Aylanma kanal bitken soñ Mansurov Baş Dugümden ketmek içün ariza bergenini işittik.
+Biz endi Almazovğa ekskavator parkını qabul etmesini teklif etkenlerini unuttıq.
+Aylanma kanal bitken soñ Mansurov Baş Dügümden ketmek içün ariza bergenini eşittik.
 Bu vaqia bizni çoq meraqlandırdı.
-"Özü ketmek isteymi, yoqsa ketmege mecburmı?" Özü...
+"Özü ketmek isteymi, yoqsa ketmege mecburmı?" 
+Özü...
 Özü ketmek istey.
-O, Yekaterina Vasilyevnanıñ facialı elâkinden soñ, çoq iprandı, çoq deñişti.
+O, Yekaterina Vasilyevnanıñ facialı elâkından soñ, çoq iprandı, çoq deñişti.
 Vadim Semönoviç oña özünde, tehnika bölüginde, injener-konsultant vazifesini teklif etken.
 Bilmeyim...
-Tursunov Almazovnı öz kabinetine çağırıp, yeñi vazife hususında laqırdı etken vaqıtta, Andrey Zaharoviç, ınq-şınq degen, çeşit sebepler tapqan, qısqası, red etken.
+Tursunov Almazovnı öz kabinetine çağırıp, yañı vazife hususında laqırdı etken vaqıtta, Andrey Zaharoviç, ınq-şınq degen, çeşit sebepler tapqan, qısqası, red etken.
 Ondan soñ Tursunov tutqan, Almazovnıñ ekskavator parkı başlığı vazifesine tayin etilüvi hususında şart dep emir imzalağan.
 Ondan soñ Andrey Zaharoviç qatiyetlik körsetti.
 Curayevniñ adına "protest" yazdı.
@@ -57,7 +58,7 @@ Almazovnı qandırmaq mümkün olmadı.
 
 Ekskavator parkınıñ başlığı vazifesinde kene Mansurov qaldı.
 
-Çoqqa barmay, derivatsion kanal içün yeñi ekskavatorlar keldi.
+Çoqqa barmay, derivatsion kanal içün yañı ekskavatorlar keldi.
 Maşinistler kene yetişmedi.
 İrada bu munasebetnen elverişli usul tüşünip çıqardı.
 Er ekskavatorda üçer maşinist degil de... birer maşinist olsun, dedi.
@@ -67,8 +68,8 @@ Evel er ekskavatorda üç maşinist, üç yardımcı çalışa edi.
 Yardımcınıñ vazifesi — maşina bölügi işine ve köpçekler astındaki demir yol qurucılığına köz-qulaq olmaq edi.
 Kimerde yardımcı maşinistniñ yerinde çalışa, kimerde nijniklerge yardım ete.
 
-Şimdi bir maşinist er üç smenada üçer saat çalışmağa borclı.
-Bu saatler içinde yardımcı, mehanizmni maylav ve teşkerüv işini eda etip yetiştire ve qalğan vaqıtında maşinist vazifesini yapa.
+Şimdi bir maşinist er üç smenada üçer saat çalışmağa borclu.
+Bu saatler içinde yardımcı, mehanizmni maylav ve teşkerüv işini eda etip yetiştire ve qalğan vaqtında maşinist vazifesini yapa.
 
 Almazovnıñ yardımcıları Raşid Mahkamov, Nikolay Kandıba ve men — üçümiz oldıq.
 Basit Ataqulov ve eki yaş yigit Mihail Bassarabanıñ yardımcıları...
