@@ -399,7 +399,7 @@ Lâkin aynı bir şeyni tekrarlay berüv qıyın eken, yoruldım.
 
 Yarım kün böyle keçti.
 Üyle maalinde men bir çaynik çay ve eki piala alıp İradanıñ odasına kirdim.
-Üç künden beri meni qıynağan sözni aytmaq içün özümde, niayet, cesaret is ettim.
+Üç künden berli meni qıynağan sözni aytmaq içün özümde, niayet, cesaret is ettim.
 
 — İrada,— dedim men, onıñ ögünde qol qavuşıp,— yanıñızda eki can saqlayıcı olğanına baqmadan, qazalandıñız.
 Men bunıñ içün pek kederlenem.
@@ -436,7 +436,7 @@ Mında... bizim baraklardan uzaqta, qışlaq çayhanesi içinde bilmek isteyim.
 
 — Meni terk ete bilecegiñizden!
 
-— Menimi?
+— Menmi?
 Onıñ sebebi ne ola bilecek?
 
 — Bilmeyim.
@@ -480,7 +480,7 @@ Bir talaydan soñ meni quçaqladı.
 "Sevimli Cevdet! — dedi o,— men sizni iç bir vaqıt terk etmeycegim".
 
 Çayhaneniñ qapusı açıldı.
-Qadır akanıñ sesi işitildi.
+Qadır akanıñ sesi eşitildi.
 Men çaynik ve eki pialanı alıp çıqtım.
 
 ...Aqşam üstü eki at yekili araba keldi.
@@ -515,4 +515,4 @@ Meni Volgostroyğa çağıra.
 — Nasıl cevap berdiñiz?
 
 — "...Men razım, lâkin Cevdet Çar-Çaqnı terk etecegi kelmey.
-Men ise Cevdetni terk etmege quvetim yetişmey, çünki onı pek sevem!" dep yazdım.
+Menim ise Cevdetni terk etmege quvetim yetişmey, çünki onı pek sevem!" dep yazdım.
