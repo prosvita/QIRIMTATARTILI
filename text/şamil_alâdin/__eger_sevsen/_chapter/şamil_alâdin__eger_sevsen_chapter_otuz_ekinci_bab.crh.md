@@ -4,10 +4,11 @@
 Çeresi ap-aq, közleri aralıq, lâkin areketsiz-cansızlar.
 Yoq, cansız degiller...
 İşte, lipildedi, açıldılar — soñki defa olaraq maña baqtılar.
-Dudaqları: "elvida, qıymetli Cevdetim! — dep fısıldadılar. — Men seniñ olmaq istedim... olalmadım!" Bitti!
+Dudaqları: "elvida, qıymetli Cevdetim! — dep fısıldadılar. — Men seniñ olmaq istedim... olalmadım!" 
+Bitti!
 Endi bu dünyanen sağlıqlaştı.
 Menim elimdeki endi İrada degil, sessiz-soluqsız, suvuq cesed.
-Onıñ sağ olması içün öz ömürimni telef eter edim.
+Onıñ sağ olması içün öz ömrümni telef eter edim.
 Amma endi faydası yoq.
 İradasız yaşamaq menim içün manasız şey.
 Şimdi bildim.
@@ -53,19 +54,19 @@ Qannı unutmaqmı?..
 İçinde beyaz yavluq olacaq...
 
 Men qarnen onıñ yüzüni sürttim.
-Qolumdaki qar qip-qırmızı oldı.
+Qolumdaki qar qıp-qırmızı oldı.
 Soñ sumkanı açtım.
 İrada onıñ içinden beyaz yavluq aldı.
 
 — Bu işten qaysıñız añlaysıñız?
-Bağlañız...— İradanıñ ağızından bu sözler yalvarğan kibi çıqtılar,— maña üstümdeki urba keder ete.
+Bağlañız...— İradanıñ ağzından bu sözler yalvarğan kibi çıqtılar,— maña üstümdeki urba keder ete.
 
 Elimni uzatqan edim, Sigizmund Genrihoviç yavlıqnı çekip aldı, yaranı bağlay başladı.
 Men kördim,— yara — havflı degil edi.
 
 İradanı eki yaqtan qoltuqlap aldıq.
 Bir adım attıq... qız fiğan qopardı.
-Esini coya-yazdı.
+Esini coyayazdı.
 Toqtadıq.
 
 — İrada!
@@ -92,7 +93,7 @@ Qıznıñ bu vaziyeti bizden ziyade Sigizmund Genrihoviçni kederlendirgeni sezi
 Qalsaq, sabağa qadar epimiz buzlarmız.
 İrina Şadmanovnanı Qadırğa alıp keteyik!
 
-— Yoq! — dedi İrada, qatiyetle,— aqılıñızğa bile ketirmeñiz!
+— Yoq! — dedi İrada, qatiyetle,— aqlıñızğa bile ketirmeñiz!
 
 — Öyle olsa, ne yapmalı?
 
