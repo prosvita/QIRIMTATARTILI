@@ -105,7 +105,7 @@ Sizni qışlaqqa alıp keteyik.
 Raatlanıñız.
 Qaytqanda körüşirmiz.
 
-— Üç adam meni köterip yürecekmi? — o, eecanğa keldi,— Bu qadar yol yürgen, bu qadar yükseklikke çıqqan soñmı?
+— Üç adam meni köterip yürecekmi? — o, eyecanğa keldi,— Bu qadar yol yürgen, bu qadar yükseklikke çıqqan soñmı?
 Raşid!
 Menim elimden tutıñız!
 
@@ -116,7 +116,7 @@ Ekimiz kene qoltuqtarına kirdik.
 
 — Bu niçün kerek oldı? — injener eleslendi. — Endi az qaldı.
 Çatlaq qayanı köresiñmi?
-— O, qala şekilinde yükselip turğan çıplaq sırımnı kösterdi.
+— O, qale şeklinde yükselip turğan çıplaq sırımnı kösterdi.
 Aramızdaki mesafe bir kilometrden çoq degil edi.
 
 — Töpesine çıqsaq oldı.
@@ -132,10 +132,10 @@ Hatrine bir şey keldi, ğaliba,— eki yüz qadar adım daa yuqarı yürsek, qa
 İra aytqanı kibi, yuqarı areket etip baqayıq!
 
 Çoq muzakere etip turmağa vaqıt yoq edi.
-Raşidnen ekimiz İradanı qapqaç etip aldıq, bir-birine bitişik ellerimiz üstüne oturtıp, yuqarı cılışa başladıq.
+Raşidnen ekimiz İradanı qapqaç etip aldıq, bir-birine bitişik ellerimiz üstüne oturtıp, yuqarı calışa başladıq.
 Raşid qar astına ketkende, men qarnıñ üstünde qalam, men batsam, İradanı o, qavi tuta.
 Menjevetskiy bizni arttan tayağınıñ ucunen üytep kele... evelki kibi, ögden yürmey.
-Kimerde dördimiz birden qarğa kömülip ketken vaqıtlarımız da ola.
+Kimerde dörtümiz birden qarğa kömülip ketken vaqıtlarımız da ola.
 Öyle vaqıtta İrada ayağınıñ ağrısını yeñmek içün dudaqlarını tişley.
 Men sezem.
 
@@ -147,7 +147,7 @@ Añlaşıla, kimlerdir, mermer taşığanlar.
 
 Mında, deñiz seviyesinden eki biñ metr yüksekligindeki keniş qullede, çalılar arasında kök taş divarlar közge çarpmaqtalar.
 Güya bir vaqıtta yer yarılğan, içinden şingen ateş çıqqan, soñ çetke yayılıp, buzlap taş alında qatıp qalğan.
-Qayanıñ çevre-çeti yanar dağ qunisini añdırmaqta.
+Qayanıñ çevre-çeti yanardağ qunisini añdırmaqta.
 
 Mında, bizden evel kişiler bulunğanlar.
 Bulunğanlar degil, yaşağanlar bile.
@@ -173,7 +173,8 @@ Yemekten soñ o İradanıñ yarası ile meşğul oldı, tizi şişip çıqqan.
 
 — Pek güzel! — Sigizmund Genrihoviçniñ davuşı doktor sesine beñzedi.
 — Başımnı kestirem... bu sınıq degil.
-Adiy pertilüv. — İradanıñ çeresi, kerginlikten, ap-aq oldı, dudaqlarını ep tişlemekte edi,— hasta, qasevet etmeñiz!
+Adiy pertilüv. 
+— İradanıñ çeresi, kerginlikten, ap-aq oldı, dudaqlarını ep tişlemekte edi,— hasta, qasevet etmeñiz!
 Episi keçip-keter,— injener şaqalaşa berdi niayet, teşkerüviniñ ahırında: — qattı şeynen bağlap, tınç yatmaq kerek,— dedi.
 
 Biz odundan uzun ve qalın yarçıqlar yasadıq.
@@ -185,7 +186,7 @@ Bundan soñ kök taşlarğa doğruldıq.
 Bundan adamlar bizden evel az emek sarf etmegenler.
 Qalın taş tabaqalarını kesip, yerge avdarğan, büyük kesekler qoparıp alğanlar.
 
-Sigizmund Genrihoviç elinde çöküçi, taştan-taşqa avuştı, bir kesekni diger keseknen qiyas etti, anda bir kesek, mında diger kesek parlap bermemizni buyurdı, er birini büyültici cam vastasınen teşkerdi, niayet, yumruq büyüklikte yigirmi beş-otuz kesek mermer taş saylap aldı.
+Sigizmund Genrihoviç elinde çöküçi, taştan-taşqa avuştı, bir kesekni diger keseknen qıyas etti, anda bir kesek, mında diger kesek parlap bermemizni buyurdı, er birini büyültici cam vastasınen teşkerdi, niayet, yumruq büyüklikte yigirmi beş-otuz kesek mermer taş saylap aldı.
 
 — Bunıñ özü kâfiy...— dedi o, İradağa muracaat etip,— nasıl, İrina Şadmanovna?
 Ayaq yatıştımı?
@@ -194,7 +195,7 @@ Ayaq yatıştımı?
 — Siz?
 
 — Mına baqıñız! — oña nümünelerni kösterdi.
-— Bu yerde, qaya töpesinde, elbette, onıñ hasiyetini tain etmek qıyın, o laboratoriyanıñ işi... lâkin terkibinde çaqmaq taşnıñ nisbeten, çoqluğı körünip tura.
+— Bu yerde, qaya töpesinde, elbette, onıñ hasiyetini tayin etmek qıyın, o laboratoriyanıñ işi... lâkin terkibinde çaqmaq taşnıñ nisbeten, çoqluğı körünip tura.
 Curayev aqlı eken.
 Bu beneklerni bu bürtüklerni köresiñizmi?
 Biotit...
