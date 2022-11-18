@@ -100,10 +100,10 @@ Bir defa "Moskva" musafirhanesinde, kene nomerde rastkeliştik.
 Aqşam Tursunov stol başında pek çoq oturdı, özüniñ nutquna azırlandı.
 Kremlde energetiklerniñ umum ittifaq muşaveresi keçmekte edi.
 
-— Bir qaç sene içinde yapılğan işni beş daqiqada aytıp añlatmaq kerek, haberiñ barmı? — dedi Tursunov,— eki daqiqa içinde, kelecekteki büyük işler aqqında söylemege borclısıñ.
-Er sözni isapqa almağa mecbursıñ.
+% — Bir qaç sene içinde yapılğan işni beş daqiqada aytıp añlatmaq kerek, haberiñ barmı? — dedi Tursunov,— eki daqiqa içinde, kelecekteki büyük işler aqqında söylemek kereksiñ.
+Er sözni esapqa almağa mecbursıñ.
 
-Men Tursunovnıñ nutqını büyük sabırsızlıqnen bekledim.
+Men Tursunovnıñ nutqunı büyük sabırsızlıqnen bekledim.
 O aqşam meclisiniñ soñunda sözge çıqtı.
 Zalda oturğanlarnıñ episi yorğun edi.
 Tursunovğa söz berilgende, oña kimse qulaq asmadı.
@@ -112,26 +112,26 @@ Büyük Kreml zalındaki bu minber epimizge tanış.
 
 Tursunov laqırdı etip başlağan edi, kişiler eleslendi, közlerini minberge tiklediler.
 
-Tursunovnıñ nutqı meraqlı tizilgen edi: bütün raqamlarda ve yekünlerde yerli şarait isapqa alınğan.
+Tursunovnıñ nutqu meraqlı tizilgen edi: bütün raqamlarda ve yekünlerde yerli şarait esapqa alınğan.
 O yüksek Tân-Şañ etegindeki Çar-Çaq özeni ve onıñ boyundaki tar boğazlar hususında ayttı.
 Bu özen boyunda endi on altı gidroelektrostantsiya qurulğan.
 Dört stantsiya daa qurulacaq.
 Tek Çar-Çaqtamı?
-Vahş boyundaki Nurekte büyük gidroelektrostantsiya qurmaq mümkün.
+
 Kuybışev stantsiyasından da küçlü...
 Bunda suv eki yüz metr yükseklikke köterilecek ve plotina seksen qatlı ev yüksekliginde olacaq.
-Yüksek qayalar arasında granitli yalılar patlatılacaq, ucuz elektrik küçü elde etilecek: bir kilovatt elektrik küçü içün bir kapikniñ beşte bir qısımı sarf etilecek.
-Stantsiyalarnı progressiv usullar ve yeñi tehnika vastasınen tez ve ucuz qurmaq kerek.
-Kömür, gaz ve atom energiyasınen çalışıcı araret stantsiyaları quruv demek — yeñi topraqlarnı, çöllerni ve sahralarnı elektrik ve suvnen temin etüv demek, yeñi şeerler, yeñi sovhozlar meydanğa ketirüv demek.
-Orta Asiya ve Qazahstanda energetik alqasını birleştirüv demek.
+Yüksek qayalar arasında granitli yalılar patlatılacaq, ucuz elektrik küçü elde etilecek: bir kilovatt elektrik küçü içün bir kapikniñ beşte bir qısmı sarf etilecek.
+Stantsiyalarnı progressiv usullar ve yañı tehnika vastasınen tez ve ucuz qurmaq kerek.
+Kömür, gaz ve atom energiyasınen çalışıcı araret stantsiyaları quruv demek — yañı topraqlarnı, çöllerni ve sahralarnı elektrik ve suvnen temin etüv demek, yañı şeerler, yañı sovhozlar meydanğa ketirüv demek.
+Orta Asiya ve Qazahistanda energetik alqasını birleştirüv demek.
 
-Tursunov öz nutqınen bütün auditoriyanı elge aldı.
-Prezidiumda oturğan Ministrler Soveti Reisi, közlerinen Tursunovğa işaret etip, bir şeyler qayd etip aldı, başını aşağı egiltip, omuzınen mikrofon trubkasını çetke çekti: onıñ aytqanını yalıñız Tursunov ve prezidium işitti.
+Tursunov öz nutqunen bütün auditoriyanı elge aldı.
+Prezidiumda oturğan Ministrler Soveti Reisi, közlerinen Tursunovğa işaret etip, bir şeyler qayd etip aldı, başını aşağı egiltip, omuzınen mikrofon trubkasını çetke çekti: onıñ aytqanını yalıñız Tursunov ve prezidium eşitti.
 
 Men Tursunovnıñ söylegen fikirlerini bir tüşünip baqmaq istedim.
-Belki, iş elektrostantsiyalarnıñ qayda, ne vaqıt ve nasıl qudrette qurulacağında degil de, Tursunovnıñ nutqında tasvir etilgen işler — memleketimizdeki devlet qurumı hassiyetleriniñ üstünligindedir, degen neticege keldim.
+Belki, iş elektrostantsiyalarnıñ qayda, ne vaqıt ve nasıl qudrette qurulacağında degil de, Tursunovnıñ nutqunda tasvir etilgen işler — memleketimizdeki devlet qurumı hassiyetleriniñ üstünligindedir, degen neticege keldim.
 
-Men onıñ nutqında soñ asıl olğan umumiy teessuratnı özüne söylegende:
+Men onıñ nutqunda soñ asıl olğan umumiy teessuratnı özüne söylegende:
 
 — Kerçek aytasıñmı? — dedi maña, taaciplenip.
 Çırayı ciddiy ve tüşünceli körüniş aldı.
@@ -139,18 +139,18 @@ Men onıñ nutqında soñ asıl olğan umumiy teessuratnı özüne söylegende:
 Bilmeyim.
 — O devlet plan idaresi hadimlerinen energetika problemaları aqqında laqırdı etmek endi qolay olur dep tüşündi, ğaliba.
 
-Tursunovnıñ bütün tüşüncesi yarınki kün aqqında, yarın olacaq işlerniñ yeñi proyektlerini qorçalav aqqında, yeñi qurucılıqlar aqqında edi.
+Tursunovnıñ bütün tüşüncesi yarınki kün aqqında, yarın olacaq işlerniñ yañı proyektlerini qorçalav aqqında, yañı qurucılıqlar aqqında edi.
 
-Biz yeñi istisal komandirleri terbiyelep çıqardıq, deymiz.
+Biz yañı istisal komandirlerini terbiyelep çıqardıq, deymiz.
 Doğru, terbiyelep çıqardıq.
 Böyleleri bizde, kerçekten de, çoq.
 
-Olarnı Turkstanda sanayınıñ inkişaf deviri doğurdı.
+Olarnı Turkstanda sanayınıñ inkişaf devri doğurdı.
 
 Tursunov özü aqqında söylep olamay, külümsirey bere.
 "Evellerde adamlar zevqlı ola ediler..." dey, laqırdı şunıñnen bitip kete.
 
-O babasınen qışlaqtan ilkide Taşkentke kelgende ondört yaşında eken.
+O babasınen qışlaqtan ilkide Taşkentke kelgende on dört yaşında eken.
 Taşkent endi qızıl gvardiyalı, işçi, proletar şeeri olğan.
 Teessurat büyük, lâkin eñ küçlü teessurat doğurğan şey tramvay oldı.
 Babası — qışlaq demircisi, oğlu ne sorasa, episine cevap berdi.
@@ -159,12 +159,12 @@ Bütün iş direklerde, dedi o.
 Direkler çoqlar... onıñ içün tramvay bir direkten diger direkke yüre bere.
 Tramvay niçün telge asılı?
 Belli mesele.
-Elektrik küçü degen şçey bar.
+Elektrik küçü degen şey bar.
 O adamnı öldüre bile... tramvaynı ise çekip alıp kete.
 Babası demirci... elektrik küçü ne ekenini bile: "tramvay yolu boyunda turğan direkke parmaqnen toqunsañ — öldürir!
 Vahid babasınıñ sözlerine inandı: elektrik direklerine toqunmağa qorqtı.
 
-Amma qalbinde, er alde, şübe qaldı.
+Amma qalbinde, er alda, şübe qaldı.
 Bir defa, Vahid qorqunı yeñip, parmağınen elektrik diregine tiyip baqtı.
 Ölmedi.
 
@@ -174,7 +174,7 @@ Onı evelâ mektepke, soñra rabfakqa yollağanlar.
 Onda tehnikağa meyil barmı-yoqmı?
 Kimse sorap oturğanı yoq.
 
-Bir defa elektrik stantsiyasında turbina podşipnigi aşalıp, bozılğanı hatirimde.
+Bir defa elektrik stantsiyasında turbina podşipnigi aşalıp, bozulğanı hatrimde.
 Qıdırdılar-qıdırdılar, sebebini tapalmadılar.
 Qaç kereler açıp, podşipnikni baqtıq, bir türlü defekt yoq.
 Tursunov er bir detalni teşkerdi, sürtti, az qaldı, tilinen yalayyazdı: faydası olmadı.
