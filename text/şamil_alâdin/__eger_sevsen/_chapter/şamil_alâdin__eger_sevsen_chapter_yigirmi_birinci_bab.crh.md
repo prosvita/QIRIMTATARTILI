@@ -2,23 +2,23 @@
 
 Dört kün, dört gece keçti.
 Buzlu avalarda, daa qızıp yetişmegen töşeklerimizni terk etip, dumanlı uçurımlar astında sırımlarnı ep patlata ve bayırlarnı-qırlarnı qaza, yıqamız.
-Quşlıq maalinde işni bitirip, yorğun ayaqlarımıznı zar-zorına süyreklep, barakqa qaytıp kelgende, uçurımlar astında diger smena kişileriniñ davuşları yañğıraylar.
+Quşluq maalinde işni bitirip, yorğun ayaqlarımıznı zar-zorına süyreklep, barakqa qaytıp kelgende, uçurımlar astında diger smena kişileriniñ davuşları yañğıraylar.
 
-Aylanma kanalnıñ aşağı qısımında çalışqan maşinistler işlerini bitirdi, ekskavatorlarını uzaqqa alıp ketmek içün endi demir yol yasaylar.
-Demir yolnıñ proyektini idaredeki konstruktorlıq bürosı tertip etti, proyekt içün materialnı geologlar ve topograflar azırladılar, relsler qoyılacaq topraqnı tedqiq ettiler.
+Aylanma kanalnıñ aşağı qısmında çalışqan maşinistler işlerini bitirdi, ekskavatorlarını uzaqqa alıp ketmek içün endi demir yol yasaylar.
+Demir yolnıñ proektini idaredeki konstruktorlıq bürosı tertip etti, proekt içün materialnı geologlar ve topograflar azırladılar, relsler qoyulacaq topraqnı tedqiq ettiler.
 Yol dos-doğru kotlovannıñ içine barıp tüşecek.
-Kişilerniñ ağızından bu söz endi sıq işitile başlay.
+Kişilerniñ ağzından bu söz endi sıq işitile başlay.
 Kotlovan!
-O eki yüksek qayanıñ ağızında olacaq.
+O eki yüksek qayanıñ ağzında olacaq.
 Lâkin suvnıñ aqıntısı musaade etecekmi?
 Aylanma kanal bitken ve oña suv yiberilgen soñ bilinecek.
 
-Ekskavatorımız tar topraq yolağı üstünde çoñqayıp qaldı... bir yaqta aylanma kanalnıñ ağızı, diger yaqta — Çar-Çaq.
+Ekskavatorımız tar topraq yolağı üstünde çoñqayıp qaldı... bir yaqta aylanma kanalnıñ ağzı, diger yaqta — Çar-Çaq.
 Sağ tarafta özen iñley, sol tarafta teren aylanma kanal sozulıp yata.
 Eki kovş topraq alınsa, Çar-Çaqnıñ suvu kanalğa aqacaq.
 
 Soñki künlerde epimiz Curayevniñ smenasında çalışamız.
-Men onıñ tabiatında yeñi hususiyetler taptım.
+Men onıñ tabiatında yañı hususiyetler taptım.
 Smena vaqtında bizim maşinamızğa kelip, uzaqta topraq yığını üstünde turıp, işniñ ketişatına köz ete, kabinağa minerek, yelquvannıñ areketini teşkere, soñ maña sezdirmey, tüşip kete.
 İrada maşinanıñ vaziyetini Almazovdan sorap bile turğan, Curayev özü kelip teşkere.
 
@@ -28,16 +28,16 @@ Curayev plotina içün bloklar azırlayıcı armaturcılarnıñ yanından ketmey
 İrada — çevik ve talapkâr.
 İşten küç acımay.
 Plan tolmadı degen şeyni bilmey.
-Amma soñki künlerde, Curayevniñ smenasında çalışqan vaqıtımızda biz, Basit degeni kibi, reberimiz erkek kişi ekenini sezip turdıq.
+Amma soñki künlerde, Curayevniñ smenasında çalışqan vaqtımızda biz, Basit degeni kibi, reberimiz erkek kişi ekenini sezip turdıq.
 Bunı aytıp añlatmaq qıyın.
 Karnakeryan kelip ventilâtornı, motornı teşkere, Nikolayğa bir şeyler aytıp kete.
 Keteyatqanda menden: "Curayev daa kelgeni yoqmı?" dep soray.
 Curayev kelgen soñ, aynı şu motornı ve ventilâtornı teşkerip, montörlarnıñ defterine nasıldır qaydlar yazıp qoya.
 
-İşleyatqan vaqtımızda topraq içinden balaban taş çıqsa, yer patlatıcılar özleri kelip patlatıp keteler.
+İşleyatqan vaqtmızda topraq içinden balaban taş çıqsa, yer patlatıcılar özleri kelip patlatıp keteler.
 Curayev olarnı qıdırıp yürmey.
 Soñra taşlarnı yer patlatıcılarnıñ yardımı sayesinde platformağa yükley, motovoz kelip olarnı, taşkeser tezyalar ustahanesine alıp kete.
-İş vaqıtında terekler, çalılar rastkelse, dülgerler kelip, olarnı kese, soñra kommunhoznıñ arabası peyda ola.
+İş vaqtında terekler, çalılar rastkelse, dülgerler kelip, olarnı kese, soñra kommunhoznıñ arabası peyda ola.
 Bu terekler furun yahut aşhana içün kerekler.
 Adamlar bu işlerniñ episini özleri yapalar, olarnıñ başları üstünde turğan kişi yoq.
 
@@ -55,14 +55,14 @@ Men onı töpege çağırmaq içün yerge tüştim.
 — Bitti,— dedim men.
 — Kanal bitti!
 
-Tünevin gece men rıçag başında oturğanda: "Barıp ta kanal yarın geceniñ bir vaqıtında bitse, Kandıba, kim bile, nasıl deşetli sadalar çıqarır?.." dep tüşüngen edim.
+Tünevin gece men rıçag başında oturğanda: "Barıp ta kanal yarın geceniñ bir vaqtında bitse, Kandıba, kim bile, nasıl deşetli sadalar çıqarır?.." dep tüşüngen edim.
 Endi bitti... kimse indemedi.
 
 — Bitken olsa, motorlar niçün işleyler?
 
 — A-a — men ayretke keldim,— unutqanım... 
 Maşina bölügine kirip, rubilnikni çıqardım.
-Gurulti toqtalğan soñ Bassaraba ve Kandıba uyandılar. 
+Gürülti toqtalğan soñ Bassaraba ve Kandıba uyandılar.
 — Bittimi?!
 
 — Bitti.
@@ -72,9 +72,11 @@ Gurulti toqtalğan soñ Bassaraba ve Kandıba uyandılar.
 Bu arada topraq yığını üstünde adam peyda oldı.
 
 — Ne toqtadıñız?
-Tros qoptımı?— Karimniñ mısqıllı davuşı işitildi.
+Tros qoptımı?— Karimniñ mısqıllı davuşı eşitildi.
 
-— Kene tros... ne yapmalı bilmem…— Kandıba ilekârlıqqa ilekârlıqnen cevap berdi. — Belâ.
+— Kene tros... 
+ne yapmalı bilmem…— Kandıba ilekârlıqqa ilekârlıqnen cevap berdi. 
+— Belâ.
 Ya siz?
 Çalışasıñızmı?
 
@@ -85,17 +87,17 @@ Ya siz?
 — Elektrik küçü yoq.
 
 Karimniñ maşinası bütün gece işlep çıqtı.
-Biz işittik.
+Biz eşittik.
 Şimdi elektrik küçü yoq eken...
 Ekskavatornıñ töpesine çıqıp Ayıq-Burun betke baqtım.
 %
 Ekskavatornıñ saçağında çıraq yanmaqta.
 Aşağı tüştim.
 
-— Maşinañız bozıq, öylemi?— dedim men ve Karimniñ o yaqqa, bu yaqqa aylana bergen közlerine baqtım.
+— Maşinañız bozuq, öylemi?— dedim men ve Karimniñ o yaqqa, bu yaqqa aylana bergen közlerine baqtım.
 
 — E!— dedi Karim,— çalışalmadıq. 
-Lâkin böyle teatr levhası köstermek içün ne onda, ne mende istidad yoq edi.
+Lâkin böyle teatr levhası köstermek içün ne onda, ne mende istidat yoq edi.
 Ekimiz de şah-şahetip küldik.
 Başta Karim küldi.
 
