@@ -311,14 +311,14 @@ Stantsiyada adamlar toplandılar.
 Bu aylanma kanal bitirilüvi munasebetinen yapılğan bayramğa beñzedi.
 Bir ay içinde stantsiyanıñ montajını bitirmek, qolay şey degil.
 
-Er kes eecanğa keldi. 
+Er kes eyecanğa keldi.
 — Tursunov yoq, yazıqlar olsun...— dedi Anna Yakovlevna.
 Er kes oñaytsızlıq is etti.
-Güya Tursunovqa qarşı ediler.
+Güya Tursunovğa qarşı ediler.
 Lâkin oñaytsızlıq çoqqa barmadı.
 Köçegarlar bütün küçlerini qoyıp çalıştılar.
 Kişiler suvnıñ sıcaqlıq derecesine özleri qani olmaq istediler.
-Vaqıt keçti, köçegarlar çalışa berdiler, lâkin buharnıñ taziyqı yavaş köterilmekte edi.
+Vaqıt keçti, köçegarlar çalışa berdiler, lâkin buharnıñ tazyığı yavaş köterilmekte edi.
 Eki saat keçti.
 Adamlar beklep bezdi, yoruldı, aqibeti, dağıla başladılar.
 Stantsiyada Krasnânskaya, Curayev, İrada ve diger — bir qaç adam qaldılar.
@@ -367,13 +367,13 @@ Baş idareden mında maşinanen yarım saatte kelmek mümkün.
 — Şadmanova!
 Tez, beton zavodına çapıñız! — dedi Krasnânskaya ökeli alda,— Torizonıñ kvartirasına telefon etiñiz, ne oldı-ne qaldı, biliñiz!
 
-Ondan soñ Curayevke bir şeyler attı.
+Ondan soñ Curayevge bir şeyler ayttı.
 Curaev indemedi.
 
 — İç bir yaqqa çapmam,— dedi İrada,— men mında turacağım.
 
 Bir qaç daqiqa daa keçti.
-Köçegarlar, Krasnânskayanıñ emirine binaen, ocaqlarnı yaquvnı toqtattılar.
+Köçegarlar, Krasnânskayanıñ emrine binaen, ocaqlarnı yaquvnı toqtattılar.
 Nevbetçi elektrik azbarğa çıqtı.
 Adamlar indemey, bir-birine baqıştılar.
 Bir talaydan soñ, elektrik kene stantsiyanıñ qapusına doğruldı.
@@ -405,7 +405,7 @@ Kişiler hah-hah etip küldiler.
 Öyle de olmaq kerek. — Soñ nevbetçi elektriknen: — Ne?
 Ateşni söndürdiñizmi? — dep soradı ve, cevapnı beklemey, turbinanıñ yanına barıp, diñlenip turdı.
 
-Onıñ Krasnânskaya ve Curayevnen laqırdı etmege ve adiseni añlatmağa vaqıtı yoq edi.
+Onıñ Krasnânskaya ve Curayevnen laqırdı etmege ve adiseni añlatmağa vaqtı yoq edi.
 
 Aqşam elektrik yarığı tekrar söndi.
 Bir şey daa olsa kerek...
@@ -430,7 +430,7 @@ Curayev menim yüzüme tiklenip baqtı, zeinimde ne barlığını deral bildi.
 
 — Emiyeti yoq,— dedi o, külümsirep,— stantsiya açıldımı?
 Açıldı.
-Ğalib adamnı makeme etmeyler.
+Ğalip adamnı makeme etmeyler.
 
 — Niçün? — dedi Tursunov,— qabaatlı olsam, cezam berilsin.
 Qarşılığım yoq.
