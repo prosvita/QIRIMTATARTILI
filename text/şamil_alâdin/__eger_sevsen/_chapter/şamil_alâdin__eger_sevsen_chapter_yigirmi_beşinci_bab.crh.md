@@ -1,8 +1,8 @@
-## Yigirmi beşinci bab — Musairhanede
+## Yigirmi beşinci bab — Musafirhanede
 
-Oquğan kitaplarımnıñ qaramanlarını hatirime ketirem.
+Oquğan kitaplarımnıñ qaramanlarını hatrime ketirem.
 Olar menim ayatımda teren izler qaldırdılar.
-İslaat yılları Rusiyesiniñ ömürini tasavur etmek kerek olsa, Konstantin Levinni eske tüşürmek mümkün.
+İslaat yılları Rusiyesiniñ ömrüni tasavur etmek kerek olsa, Konstantin Levinni eske tüşürmek mümkün.
 Birinci cian muarebesi Grigoriy Melehov simasında temsil etilgen.
 Vatandaş cenki seneleri Pavel Korçagin, sovet ükümetiniñ tamır atqan deviri Semön Davıdov vastası ile kösterilgen.
 Bu adamlarnıñ yüzlerinde devirler aks olunğanlar.
