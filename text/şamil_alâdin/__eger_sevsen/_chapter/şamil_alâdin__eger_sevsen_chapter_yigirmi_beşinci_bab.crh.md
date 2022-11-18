@@ -7,14 +7,14 @@ Birinci cian muarebesi Grigoriy Melehov simasında temsil etilgen.
 Vatandaş cenki seneleri Pavel Korçagin, sovet ükümetiniñ tamır atqan deviri Semön Davıdov vastası ile kösterilgen.
 Bu adamlarnıñ yüzlerinde devirler aks olunğanlar.
 
-Vahid Tursunovnıñ ayatını da Şarq adamınıñ, Asiya adamınıñ, ösümini aks etici devir isap etmek mümkün.
+Vahid Tursunovnıñ ayatını da Şarq adamınıñ, Asiya adamınıñ, ösümini aks etici devir esap etmek mümkün.
 Men eminim ki, Tursunov bu satırlarnı oqusa: "Siz, qıymetli Cevdet, biraz alıp qaçqansıñız...— der.
 — Men devir olğanım ne?
 Olsam bile, maña beñzegenler azmı?"
 
 Onıñ çalarıp başlağan gür saçlarını ve külüp turğan tınç çeresini hatırlayım.
 Hızmetteki cıynaqsız, büyük kabineti pencere yanındaki tahta, bütün bir divarnı qaplağan memleket haritası... onıñ üstünde al-azırki vaziyetni ve kelecekni körsetici bayraçıqlar.
-Köşede avtomatik telefon stantsiyası — kiçkene rıçagnı bursañ, Orta Asiyada istegen elektrostantsiyañnen, istegen energetik qurucılığıñnen laqırdı etmek mümkün.
+Köşede avtomatik telefon stantsiyası — kiçkene rıçagnı bursañ, Orta Asiyada istegen elektrostantsiyanen, istegen energetik qurucılığınen laqırdı etmek mümkün.
 
 Tursunov çoq deñişmegen.
 Evelkisi kibi işkir ve nezaketli.
@@ -40,7 +40,7 @@ Munaqaşada men de bulundım.
 Zayıf inkişaf etken memleketlerdeki özen suvlarınıñ energetika işlerine hızmet ettirilmesini teklif ettim.
 Bunıñ Asiya ve Afrika memleketlerinde ömürge keçirilmesi mümkün tanıldı.
 
-Menim nutqımdan soñ Avropadaki büyük firma prezidentlerinden biri yerinden turdı ve maña sual bermek içün ruhset istedi.
+Menim nutqumdan soñ Avropadaki büyük firma prezidentlerinden biri yerinden turdı ve maña sual bermek içün ruhset istedi.
 Suali zevqlı edi:
 
 "Biz, sovet energetikleri, neft vastasınen çalışıcı araret elektrostantsiyaları qurulışına qarşı degilmizmi?
@@ -54,7 +54,7 @@ Neft çoq çıqarılğan yerde energiya az olmaq kerekmi?"
 Prezident, taşçıqnıñ öz bostanına atılğanını añladı.
 Müstemlekeciler az berip, çoq almağa seveler.
 
-Zalda elçırpmaları işitildi.
+Zalda elçırpmaları eşitildi.
 
 — Sen onıñ çırayını körgen olsañ...— dedi Tursunov, aqşam evge kelgen soñ.
 — Çiy canerik çaynayyatqan kibi edi.
@@ -65,11 +65,13 @@ Niçün birden Asiya ve Afrikanıñ elektrikleştirilüvi içün raatsızlandı?
 Qazanlarnı menim neftimnen qızdırıñız.
 Men — merametli emcem... tek maña toqunmañız!" — Tursunov odanıñ içinde keniş adımlarnen yürmekte ve qıçırıp-qıçırıp böyle muzakere etmekte edi.
 
-— Prezident bizim fikirimizge de razı olur.
-Ebet, ebet, körersiñ! — Tursunov bala kibi, şaqıldap küldi.
+— Prezident bizim fikrimizge de razı olur.
+Ebet, ebet, körersiñ! 
+— Tursunov bala kibi, şaqıldap küldi.
 — Bir vaqıtlarda ressamlar olarnı başlarında tsilindrleri, şişman kişiler etip körsete ediler.
 Şimdi başqa... şimdi olar: "Biz ruslarnıñ tarafdarlarımız" — deyler.
-— Ruslar acaip yigitler..." Bu efendiler, biz birevge tehnikiy ve iqtisadiy yardım köstergen vaqıtımızda niyetimiz fenalıq degilligini bileler.
+— Ruslar acayip yigitler..." 
+Bu efendiler, biz birevge tehnikiy ve iqtisadiy yardım köstergen vaqtımızda niyetimiz fenalıq degilligini bileler.
 Özleriniñ qurnaz yardımlarını da bizim şiar astında tadbiq etmek isteyler.
 İş bundan ibaret.
 
@@ -77,25 +79,25 @@ Tursunov laqırdı etkende, özüni unuta, meseleni büyük terenliginen muzaker
 
 Biz daima iş hususında laqırdı ettik.
 O İradanı iç bir defa soramadı.
-Belki onı, Çar-Çaqtan ketkeninden beri iç körmegendir.
+Belki onı, Çar-Çaqtan ketkeninden berli iç körmegendir.
 İtimal, syezdlerde, sessiyalarda körüşip alğandırlar.
 
 Lâkin bir defa bir adise olıp keçti.
 Bu adise Tursunovnıñ bu ceetten de nasıl adam ekenini körsetti.
-Respublika gazetalarnıñ birinde İradanıñ sureti ve Aliy Sovet sessiyasında söylegen nutqı derc etilgen edi.
-Gazetanı Tursunovnıñ stolı üstünde kördim.
-İradanıñ sureti gazetanıñ içine qoyılğan ayrı saifesinde basılğan ve bu saife gazetalarnıñ eñ üstünde bulunmaqta edi.
+Respublika gazetalarnıñ birinde İradanıñ sureti ve Aliy Sovet sessiyasında söylegen nutqu derc etilgen edi.
+Gazetanı Tursunovnıñ stolu üstünde kördim.
+İradanıñ sureti gazetanıñ içine qoyulğan ayrı saifesinde basılğan ve bu saife gazetalarnıñ eñ üstünde bulunmaqta edi.
 Tursunov menim oña köz etip alğanımnı esledi, maña sezdirmey, gazetanı alıp, stolnıñ orta çekmecesine tıqtı: bu — menim şahsiy işim... degen manada.
 Bir qaç daqiqa indemey turdıq.
 Bu vaqıt içinde biz sanki çoq şeyler hususında: İrada aqqında, sevginiñ qıyınlıqları, qartlıq çağında bile unutılmağan yaşlıq duyğuları hususında laf etip aldıq.
 Soñ men ondan bir şeyler soradım.
 O cevap berdi, amma çar-çabik lafnı deñiştirdi, başqa şey hususında söz açtı.
-Ekimiz de, bu olıp keçken şey hususında daa çoq vaqıtlar tüşünip yurdik.
+Ekimiz de, bu olıp keçken şey hususında daa çoq vaqıtlar tüşünip yürdik.
 
-Biz siyrek körüşe edik, lâkin er alde körüşe edik...
+Biz siyrek körüşe edik, lâkin er alda körüşe edik...
 Ayat kimerde bizni bir-birimiznen toquştırmağa unutmay edi.
 Bir defa "Moskva" musafirhanesinde, kene nomerde rastkeliştik.
-Aqşam Tursunov stol başında pek çoq oturdı, özüniñ nutqına azırlandı.
+Aqşam Tursunov stol başında pek çoq oturdı, özüniñ nutquna azırlandı.
 Kremlde energetiklerniñ umum ittifaq muşaveresi keçmekte edi.
 
 — Bir qaç sene içinde yapılğan işni beş daqiqada aytıp añlatmaq kerek, haberiñ barmı? — dedi Tursunov,— eki daqiqa içinde, kelecekteki büyük işler aqqında söylemege borclısıñ.
