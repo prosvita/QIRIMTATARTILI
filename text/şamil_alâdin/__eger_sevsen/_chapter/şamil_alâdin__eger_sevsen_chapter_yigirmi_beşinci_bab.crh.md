@@ -200,12 +200,12 @@ Bir kün çölde küçlü yel elektrik diregini urıp yıqtı.
 Ekskavatorlarda iş toqtadı.
 Tulumbalarnıñ motorları tındı.
 Baş Dugümde ayat sustı.
-Baraklarnıñ içinde, soqurlar kibi, ellerimizni ögge uzatıp, qorqa-qorqa yurdik.
+Baraklarnıñ içinde, soqurlar kibi, ellerimizni ögge uzatıp, qorqa-qorqa yürdik.
 Yarıq tek eki evde bar edi.
 Aşhanede ve "Mavı qaya"da.
 Sabira hala ve Toqtabayev kerosin lampaları yaqqanlar.
 Bassaraba konserva qutusından, ukrainalılarnıñ kaganets degen çırağını yasadı.
-Bu, inqlâbdan evel bizim köylerde ola turğan... qandil dey turğanlar.
+Bu, inqlâptan evel bizim köylerde ola turğan... qandil dey turğanlar.
 Maşina mayında yanğan fitil, tek tütey, yarığı az çıqa edi.
 
 Soñundan haberimiz oldı...
@@ -213,7 +213,7 @@ Tursunov öz adamlarını alıp, direk yıqılğan yerge ketken, elektrik büros
 Baş Dugümde bir gece, bir kün iş toqtap turdı.
 
 Amma daima böyle yaşamaq mümkün degil.
-Yüksek voltlı tel yekâne elektrik yolu isap etilse, o başqa mesele.
+Yüksek voltlı tel yekâne elektrik yolu esap etilse, o başqa mesele.
 Şimdi öz çöyün qazanlarımız ve turbogeneratorlarımız bar.
 Olarnı çabik-çabik işke qoymaq kerek.
 
@@ -224,15 +224,15 @@ Endi bayağı ipranğan.
 
 — Tez-tez!
 Binanı qurıp, montajını bitirmek kerek.
-Çöyün qazanlar astındaki ocaqlar ve sal-qınlandıruv sisteması tüzetilmekte.
+Çöyün qazanlar astındaki ocaqlar ve salqınlandıruv sisteması tüzetilmekte.
 Diger ceetten, çöyün qazanlar öz negizleri üzerine yerleştirilmekte ve üstlerine demir qazanlar tizilmekte.
 
 Tez, tez, tez!
 Tursunov özüniñ küçük ustahanesini donata bere.
-Amma, asıl da, zavod qurmak kerek.
+Amma, asıl da, zavod qurmaq kerek.
 Bir soy detallerni Taşkentke, başqalarını merkeziy mehanika ustahanelerine alıp ketmek kerek ola.
 Nege yapışsañ — küç ve vaqıt talap ete.
-Elli adam çalışması kerek yerde yüz kişi türtüne, lâkin bu yüz adam tapılmağan vaqıtta, Petâ emce talağı qatıp, solıqlap, terlep baraklarğa yuvurıp kele, terden bunarlanğan közlügini çıqarıp, yaqından körmez közlerini aqayta:
+Elli adam çalışması kerek yerde yüz kişi türtüne, lâkin bu yüz adam tapılmağan vaqıtta, Petâ emce talağı qatıp, soluqlap, terlep baraklarğa yuvurıp kele, terden bunarlanğan közlügini çıqarıp, yaqından körmez közlerini aqayta:
 
 — Kim bar mında? — dep qıçıra o,— tez, Tursunovğa cöneñiz!
 
@@ -242,7 +242,7 @@ Tursunov endi familiya degil, parol olıp qaldı.
 
 Kimerde:
 
-— Şimdi Tursunovda çöyün qırşav meselesi güzel, lâkin ğıda berici tulumba bir şeyge ilişe bere...— degen davuşlar da işitile.
+— Şimdi Tursunovda çöyün qırşav meselesi güzel, lâkin ğıda berici tulumba bir şeyge ilişe bere...— degen davuşlar da eşitile.
 
 Niayet, qazanlar ve ocaqlar turğan oda donatılıp bitirildi.
 Maşinalar bölüginde buhar turbinası ve generator yerleştirildi.
@@ -250,13 +250,14 @@ Taqsimat şçitiniñ montajı bitti.
 
 Stantsiyanıñ işke başlav müddeti yaqınlaştı.
 Tezden qazanlar yaqılacaq, öz stantsiyamız küç berecek.
-Soñki künlerde çeşit adamlardan Tursunov hususında çeşit laqırdılar işittim.
+Soñki künlerde çeşit adamlardan Tursunov hususında çeşit laqırdılar eşittim.
 
 — Tünevin Tursunovda qazannı yaqmaq istediler,— dedi Hristofor,— lâkin yaqtırmadı!
 
 — Niçün yaqtırmadı? — Raşid taaciplendi.
 
-— İtiyat tulumba yetişmegen,— dep cevap ber-di Hristofor ve devam etti: — hucur adam.
+— İtiyat tulumba yetişmegen,— dep cevap ber-di Hristofor ve devam etti: 
+— hucur adam.
 Bütün maşinanı itiyat qısımlarnen temin etmek mümkünmi?
 
 Ondan soñ, men "Mavı qaya"da İradanıñ telâşqa kelgenini kördim.
@@ -274,13 +275,13 @@ Baş Dugümde er kes Tursunovnıñ inatlığını ayta.
 Tula divarlı yüksek bina... muvaqqat araret elektrik stantsiyası... onıñ ögünde tikenli tel qorası artında transformatordan çıqqan taqsimat elektrik yollarınıñ montajı kete.
 Bir qaç saatten soñ, stantsiyanı işke tüşürmek mümkün.
 Ocaqlarnı yaqmaq içün kömür ketirildi.
-Belki, er alde, ocaqlarnı yaqmaq mümkündir?
+Belki, er alda, ocaqlarnı yaqmaq mümkündir?
 Yoq, Tursunov razı degil.
 Niçün?
 İşte, niçün.
 
 Balaban çöyünniñ içinde... bu, elbette, bütün manasınen çöyün degil, çöyün adlandırılğan araret bakı...
-Deycegim, onıñ içinde suv qaynatıla, bundan asıl olğan buhar yigirmi atmosfera taziyqı altında turbinağa yiberile.
+Deycegim, onıñ içinde suv qaynatıla, bundan asıl olğan buhar yigirmi atmosfera tazğı altında turbinağa yiberile.
 Turbina aylana.
 Aylanayatqan turbina generatornı aylandıra.
 Neticede, mehanikadan asıl olğan küç elektrik energiyasına çevirile.
@@ -289,14 +290,14 @@ Amma... buhar çoq sarf oluna.
 Onı da yapqan tulumba.
 Sınsa, suv çöyünge tüşmey.
 Etrafı ateşnen qaplı çöyünniñ divarları tez qıza.
-Çöyün patlaya, butün stantsiya donatması harap ola bile.
+Çöyün patlay, butün stantsiya donatması harap ola bile.
 Söz kelimi, patlav olmadı.
 Ep bir stantsiyanıñ işi toqtaycaq, ister-istemez, yeñi tulumba kerek.
 
 Tursunovqa: tulumba bozulğan kibi olsa, ateşni söndürmek mümkün, dediler.
 Ateşni söndürmek de qolay şey degil, dedi Tursunov.
 Ateşni suvnen söndürmek mümkün degil, çünki araret birden deñişse, qırşavlar qopar, üst qat dağılıp keter.
-Tursunov, sözünden qaytmadı: stantsiyanı yeñi tulumba ketirilgen soñ işletirmiz!
+Tursunov, sözünden qaytmadı: stantsiyanı yañı tulumba ketirilgen soñ işletirmiz!
 
 Şu künü Tursunov tulumba qıdırıp, Taşkentke ketti.
 Gecesi ruzgâr kene elektrik direklerini üytep yıqtı.
