@@ -105,7 +105,8 @@ Onıñ ekskavatorı özenniñ yalısında tura, astında Çar-Çaq uvulday.
 Ayıq-Burun artıq dünyada yoq.
 Andrey Zaharoviç rıçag başında, sigar içmekte.
 
-— Bizimki azır,— dedi o, külümsirep,— siziñki?
+— Bizimki azır,— dedi o, külümsirep,
+— siziñki?
 
 — Biz gece çalışmadıq,— dedi Nikolay,— yarıq olmadı.
 Yarıq olğan soñ, tros üzüldi.
@@ -122,7 +123,8 @@ Ne toplandıñız?— dep qıçırdı o, uzaqtan.
 
 — Qayda ediñ, İra?— dedi Almazov,— dört künden berli kimsege körünmediñ!
 
-— Sizge kerek oldımmı?— bizge şübeli-şübeli baqtı,— Curayev yanıñızda, Toqtabayev daima telefon başında.
+— Sizge kerek oldımmı?— bizge şübeli-şübeli baqtı,
+— Curayev yanıñızda, Toqtabayev daima telefon başında.
 Sizge daa ne kerek?
 
 — Bilem.
@@ -144,11 +146,12 @@ Bir özüm çalıştım.
 — Bir şeyden haberiñiz yoq,— dedi İrada, kögertege çıqqan soñ,— men sizge geceleri üç defa kelip kettim.
 Kimsege körünmedim.
 Curayev: "maña işanmay, kelip teşkerip yüre" beller dep saqındım.
-Gizliden kelem, yığınnıñ artında pusup, çalışqanıñıznı baqıp turam.
+Gizliden kelem, yığınnıñ artında pısıp, çalışqanıñıznı baqıp turam.
 Yaş ekskavatorcılarnen işlemek qolay degil.
 Sergeyev ağır adam.
 Sizde... yardımcıñız..?
-Kerçek, endi yardımcıñız degil, ekinci maşinist... nasıl?— Bu endi maña ait edi,— onı, ğaliba, qarardan ziyade maqtadıñız!— İrada, şay der eken, gizliden maña koz etip aldı.
+Kerçek, endi yardımcıñız degil, ekinci maşinist... nasıl?
+— Bu endi maña ait edi,— onı, ğaliba, qarardan ziyade maqtadıñız!— İrada, şay der eken, gizliden maña koz etip aldı.
 
 — Güzel...— dedi Almazov,— maşinistlerniñ episi onıñ kibi çalışsa... umumen, bu soñki künlerde kişiler büyük reberler olıp kettiler.
 Bunı bir qayd etmek kerek edi.
@@ -183,7 +186,8 @@ Keyfi yerinde edi.
 
 — Bundan nasıl haberiñiz oldı? — dep soradım men.
 
-— Curayev ayttı,— dedi Mavlân aka,— plotinada körüştik.
+— Curayev ayttı,— dedi Mavlân aka,
+— plotinada körüştik.
 Şadmanovanı tapıp, sizge yollamamnı rica etti.
 
 Evge kelgen soñ epimiz koykalar üstüne yıqıldıq.
