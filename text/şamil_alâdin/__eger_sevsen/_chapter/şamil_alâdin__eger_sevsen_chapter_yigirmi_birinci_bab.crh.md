@@ -306,7 +306,7 @@ Böyle sevgi olamı?
 Kerçek, siz erkekler içün bunıñ farqı yoq, özüñiz sevseñiz oldı.
 Yekaterina Vasilyevna seni seve.
 Men bilem.
-Ber, biraz palov daa qoyayım!
+Ber, biraz plov daa qoyayım!
 
 Sabira hala bugün menim ile niçün bu qadar nezaketli..?
 %
@@ -317,17 +317,19 @@ Soñundan episini añladım.
 Sabira halanıñ bu felsefesi menim ögümde İradanıñ itibarını kötermek içün eken.
 Lâkin bu meselede bizim aramızda pek çoq añlaşamamazlıqlar oldı.
 Sabira hala ilki devirde maña, İrada içün lâyıq kişi degil, dep baqa edi.
-Bugün ise qadınlar aqqında mıtlaqa fikirimni işitmek istedi.
-Ve işitti.
+Bugün ise qadınlar aqqında mıtlaqa fikrimni eşitmek istedi.
+Ve eşitti.
 
 — Sabira hala!
 Men Yekaterina Vasilyevnañıznı iç bir vaqıt sevmedim ve sevmeycegim.
-Özüne aytıñız, onıñ maña kerekligi yoq,— dedim men, soñ aciz göñülnen ilâve ettim:— Menim hayalım — İrada.
+Özüne aytıñız, onıñ maña kerekligi yoq,— dedim men, soñ aciz göñülnen ilâve ettim:
+— Menim hayalım — İrada.
 O da meni sevmey...
 
 Sabira hala maña inanmay-inanmay baqtı, lâkin inandı.
 
-— Öylemi?— dedi o. — Men bir baqışta siziñ, erkeklerniñ, yürekleriñizde ne barlığını bilem.
+— Öylemi?— dedi o. 
+— Men bir baqışta siziñ, erkeklerniñ, yürekleriñizde ne barlığını bilem.
 İçiñizni-bağrıñıznı körem.
 Men İrada içün raatsızlanam.
 Daa qoyıp bereyimmi?
@@ -343,7 +345,7 @@ Aşayımmı eken?— dep tüşündim men.
 — Lâkin Katânıñ aytqanlarına inandı qoydı belleme!
 Siz erkekler...
 
-Kene palov ketirecekmi ne, dep qorqtım.
+Kene plov ketirecekmi ne, dep qorqtım.
 Yoq, Sabira hala endi, ğaliba, istegen şeyleriniñ episini sorap bilgen ve aytıp bitirgen edi.
 Yanaşamda biraz daa turğan soñ, kuhnâğa kirdi.
 Men barakqa qayttım.
