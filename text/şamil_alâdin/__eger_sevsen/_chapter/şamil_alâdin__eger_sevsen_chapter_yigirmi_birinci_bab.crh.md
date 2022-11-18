@@ -199,13 +199,13 @@ Endi beş...
 — Bugün aşhanede, acarlar aytqanı kibi, palevezeli plâv olmaq kerek...— dedi Nikolay, rezina çızmalarını çıqarayatqanda.
 — Men yuqlaycağım.
 
-— Palevezesini bilmeyim,— dedi Raşid,— lâkin palov pişirgenler.
+— Palevezesini bilmeyim,— dedi Raşid,— lâkin plov pişirgenler.
 
 — Men yuqlamaycağım... kezecegim,— dedim men, amma içimden: "belki yolda İradanı rastketiririm" dep tüşündim.
 
 — Kezecek...— bu Ataqulovnıñ oşına ketti,— oña ne deyler?
 Sen aşhanağa bar!
-Sabira halağa ayt, bizge ekişer çanaq palov qaldırsın!
+Sabira halağa ayt, bizge ekişer çanaq plov qaldırsın!
 Kanalnı bitirgen bizmiz.
 
 — Menim işim bar, Basit!
@@ -219,7 +219,7 @@ Yolda öz başıma dolanıp bezgen soñ, ister-istemez, aşhanege doğruldım.
 Sabira hala qapunı açtı.
 
 — Otur!— dedi maña,— şimdi aş ketiririm! 
-Stol üstünde, kerçekten de, palov peyda oldı.
+Stol üstünde, kerçekten de, plov peyda oldı.
 Semiz etnen qave renkte pişirilgen.
 İçinde pişik sarımsaq başları.
 
@@ -245,10 +245,10 @@ Maña bir danesi kâfi.
 Yekaterina Vasilyevna öz derdini maña kelip töke... ağlana.
 Ber çanağıñnı, daa qoyayım!
 
-Sabira hala tekaran palov daa qoyıp ketirdi.
-Bu sefer eti çoq, semiz ve palovnıñ özü yağlı... birinci çanaq öyle degil edi.
+Sabira hala tekaran plov daa qoyıp ketirdi.
+Bu sefer eti çoq, semiz ve plovnıñ özü yağlı... birinci çanaq öyle degil edi.
 
-— ...Kele, ağlana otura,— o sözini devam etti,— men elbette, bu laqırdılarnı bir sebepsiz... bedava diñlemeyim.
+— ...Kele, ağlana otura,— o sözüni devam etti,— men elbette, bu laqırdılarnı bir sebepsiz... bedava diñlemeyim.
 Laqırdı etmek isteysiñmi, menimnen beraber çalış!
 Qazanlarnı yuv, qartop arçı, diñlerim...
 Ya Valka?
@@ -256,13 +256,13 @@ Ya Valka?
 Kim ekenini aytmay.
 Özü er ay yañısını qabul ete, dep tüşüngen edim.
 Albu ise başqa türlü eken.
-İçkeni doğru, lâkin Nikolay oña: içme dese, ağızına ölgence bir damla raqı almaycaqqa beñzey.
+İçkeni doğru, lâkin Nikolay oña: içme dese, ağzına ölgence bir damla raqı almaycaqqa beñzey.
 Onı sıylaylar.
 Bilesiñmi kim?
-Dostı Rahil.
+Dostu Rahil.
 Rahil aqıllı qız.
 Amma — başqa.
-Ömürinde oyle çoq şeyler körgen ki, tasavur etmek qıyın.
+Ömründe oyle çoq şeyler körgen ki, tasavur etmek qıyın.
 O da sevginen çekişe.
 Sevgi olsa, qadın güzel körüne.
 Qadın sevgisiz yaşayalmay.
@@ -291,7 +291,7 @@ Menim közlerim er şeyni köre.
 İndemeseñ, başıña minecek.
 Seniñ artıñdan keze.
 Evini-barqını bıraqıp, peşiñden Solomon adalarına ketecek.
-Siziñ nesilni pek seve, lâkin seniñnen ayrıca isap kesmek istey.
+Siziñ nesilni pek seve, lâkin seniñnen ayrıca esap kesmek istey.
 O saña pek inana.
 Bir fena ceeti — çalışmay, erkeklerniñ başlarını aylandırıp yüre.
 Amma özü güzel şeyçik.
