@@ -5,12 +5,12 @@ Kimerde tulumba stantsiyasında, kimerde ekskavatorda çalıştıq, kimerde uça
 Menim içün,— tek menim içünmi, aceba? — aylanma kanalnı bitireyatqanda yüreklerimizni biylegen araretni ğayıp etmek yazıq.
 Şimdi, güya kökten yerge endik.
 Bunı sezgen tek men degilim.
-Quvetler yeñi qısımlarğa bölüneyatqanını ve bir-eki künden soñ iş kene qızışıp ketecegini er kes bilse de, bu yeñi künler — insannı göñülden tüşürici künler oldı.
+Quvetler yañı qısımlarğa bölüneyatqanını ve bir-eki künden soñ iş kene qızışıp ketecegini er kes bilse de, bu yañı künler — insannı göñülden tüşürici künler oldı.
 Böyle künlerniñ birinde komsomol komiteti gidrostantsiyağa kezinti teşkil etti.
 
 Biz epimiz bile edik: plotina qurulğan soñ büyük göl asıl olacaq ve suv ondan derivatsion kanal boyu ketecek; on doquz kilometr uzunlığındaki derivatsion kanalnıñ suvu yetmiş metr yuqarı köterilecek, turbinalarnı aylandıracaq.
 Kombinat avanıñ özünden azotlı kübreler yasap çıqaracaq.
-Biz bu yaazariyeni yahşı ezberledik.
+Biz bu nazariyeni yahşı ezberledik.
 Menjevetskiy Hazar-Kenddo bizni oqutqanda bunı daqiqada bir ayta turğan.
 
 Gidrostantsiya qurulayatqan yerge kelgende, öz evimizge qaytıp kelgen kibi oldı.
@@ -19,16 +19,16 @@ Aynı şu baraklar, aynı şu kotlovan, atta kanal bile bizim aylanma kanalğa b
 Lâkin episi derivatsion kanal boyunda olayatqan iş.
 Kotlovan, gidroelektrostantsiya binasınıñ negizini qurmaq içün.
 
-Yerli komsomollar, tecribe alışıp-berişüv aqşamı teşkil etecekleri yerde, bizni klubqa alıp keldiler.
+Yerli komsomollar, tecribe alışıp-berişüv aqşamı teşkil etecekleri yerde, bizni klubğa alıp keldiler.
 İradanıñ planı çul tutmadı.
 Bizge kinofilm körsettiler: "Çapayev" ve "Qara konvert".
 "Çapayev" şimdi istisaldan çıqtı "Qara konvert" ise... on sekiz yıldan soñ, tekrar peyda olğan eski film...
 Garri Pil.
 
-Keteyatqan vaqıtta İrada, meni körmegen olıp, sustı, klubqa kelgen soñ, men onıñ diqqatına saip olmağa tırıştım.
+Keteyatqan vaqıtta İrada, meni körmegen olıp, sustı, klubğa kelgen soñ, men onıñ diqqatına saip olmağa tırıştım.
 
-— Acaip saray,— dedim oña.
-Bizim klubımız alâ azır olmağanı içün şay dedim.
+— Acayip saray,— dedim oña.
+Bizim klubumız alâ azır olmağanı içün şay dedim.
 İrada menim sözüme qulaq asmadı.
 
 Kinofilmler körsetilip bitirilgen soñ, men yüksek davuşnen:
@@ -66,12 +66,12 @@ Mındaki aşçı bizim Sabira haladan ziyade talapkâr olmalı.
 Aşap bitirgen soñ tecribe alışıp-berişüv başladı.
 Lâkin yemekten ve kinodan soñ kimseniñ laqırdı etecegi kelmedi.
 İrada ve Karim sözge çıqtılar.
-Karim özüniñ keşf etken yeñi kovşı ve onıñ montajı hususında ikâye etti.
+Karim özüniñ keşf etken yañı kovşı ve onıñ montajı hususında ikâye etti.
 Bunı er kes begendi, çünki söylegen şeyleri ameliy işten alınğan deliller edi.
 Karim onı zevqlı etip... kişilerni küldüre-küldüre ayttı.
 Bitirgen soñ devamlı surette el çırptılar.
 Soñ İrada çıqıp, bizim ve olarnıñ ekskavatorcıları arasındaki musabaqa muqavelesini oqudı.
-Muqavele mücibi, olar tezden bizim işlerni kelip teşkermege borclı ediler.
+Muqavele mücibi, olar tezden bizim işlerni kelip teşkermege borclu ediler.
 
 Meclisniñ soñunda epimiz "Bizni urmaq, urmaq istedi, bizni urmağa ıntıldılar..." türküsini söyledik.
 
@@ -80,13 +80,13 @@ Bizim ekskavator, taşlap ketken yerimizde degil, bayağı uzaqta edi.
 Maşinistniñ rusheti olmadan, ekskavatorğa toqunmaq mümkün degil.
 Almazov pek açuvlandı, attı-tuttı, kompressornı teşkerip, birde-bir sınıq şey tapmaq içün kabinağa kirdi.
 Lâkin maşina elektrik ağından üzülgen edi.
-Soñundan añladıq: bu Mansurovnıñ emiri mücibi yapılğan.
+Soñundan añladıq: bu Mansurovnıñ emri mücibi yapılğan.
 O şpallarnı tizdirip, bizim maşinanı kotlovandan uzaqça yerge aydatıp taşlatqan.
 
 Bunı evelce yapmaq mümkün degilmi edi?
 Maşinanı çetke çekmek zarureti doğğan eken, niçün Almazovnı çağırmadı?
 Evde divarnı azaçıq tıqıldatqan olsa, yetecek edi.
-Soñki vaqıtlarda Abdulla Sadıkoviç kotlovanda sıqça buluna, ğaliba, yeñi naçalnikniñ közüne körünmek istey.
+Soñki vaqıtlarda Abdulla Sadıkoviç kotlovanda sıqça buluna, ğaliba, yañı naçalnikniñ közüne körünmek istey.
 Kotlovanğa kele, yapılıp bitirilmegen bir iş tapıp, adamlarnı ızğıştıra.
 
 %
