@@ -405,14 +405,14 @@ Men bu tarihnı şimdi... bu daqiqası bitirmek isteyim... bu yerde, bu çinarn�
 Añladıñızmı.
 Cevdet?
 Ne evelleri, ne şimdi, meni Tursunovnen bağlağan şey olmadı.
-İşittiñizmi?
+Eşittiñizmi?
 
 Tursunov iş böyle meyil olacağını bilmey edi.
 Ayrette qaldı.
 
 — Siz, İrada, ruzgâr kibisiñiz. — dedi o.
-Ağızındaki papirosını çıqarıp, çetke attı, yeñisini yaqtı,— külünçli şey!
-Ekimiz arasındaki munasebetni üçünci kişiniñ iştirakinen muakeme eteyatasıñız... bir tüşünip baqtıñızmı?
+Ağzındaki papirosını çıqarıp, çetke attı, yeñisini yaqtı,— külünçli şey!
+Ekimiz arasındaki munasebetni üçünci kişiniñ iştiraginen muakeme eteyatasıñız... bir tüşünip baqtıñızmı?
 Dünyada ırız-edep degen şey bar...
 Bekirov kim?
 Adiy nijnik.
@@ -443,7 +443,8 @@ Evde Nikolay ve Karim çay içmekte ediler.
 
 — Yazıqlar olsun...— dedi Nikolay, köküs keçirip,— soñuna qadar bir yerde olmaycaqmız.
 
-— Yalıñız bir çare bar,— dedim men,— Karimge sıq-sıq musafirlikke barıp turacaqmız.
+— Yalıñız bir çare bar,— dedim men,
+— Karimge sıq-sıq musafirlikke barıp turacaqmız.
 Dostnı unutmaq olmay.
 
 — Dostnı ebet... lâkin ketken-kete, aqibet, unutıla,— dedi Nikolay,— çare yoq, Cevdet, bizge de Batumğa ketmek kerek.
@@ -464,7 +465,7 @@ Miyiñ endi boş.
 
 Men çinar tübünde olıp keçken vaqianı söyledim.
 Ondan soñ barakta oturalmadım.
-Yüregimni öyle eecan bastı ki, Kandıbanıñ laqırdısı qulağıma kirmedi.
+Yüregimni öyle eyecan bastı ki, Kandıbanıñ laqırdısı qulağıma kirmedi.
 
 — Nikolay,— dedim men.
 — Şimdi maña bir şey söyleme.
@@ -474,15 +475,15 @@ Başımda esim yoq.
 Harabe.
 Bağça boyu qırğa doğru cönedim.
 Çalılar arasında gizlengen tar soqaqqa çıqqan soñ çapa-çapa kettim.
-Artıma-ögüme bakmadım.
-Çoq kettim... uçurımnıñ kenarında, aylanmada ayaq davuşları işittim.
+Artıma-ögüme baqmadım.
+Çoq kettim... uçurımnıñ kenarında, aylanmada ayaq davuşları eşittim.
 Soñra adam kölgesini esledim.
 Oña körünmemek içün toqtaldım, adam da toqtaldı.
 
 — Kimsiñiz? — dep qıçırdı qadın.
 — Ne kerek?
 
-Bir qaç adım ileri yurdim.
+Bir qaç adım ileri yürdim.
 Ögümde idareniñ pollarını yuvucı Manzura apa turmaqta edi.
 
 — Sensiñmi, Cevdet? — dep soradı. 
