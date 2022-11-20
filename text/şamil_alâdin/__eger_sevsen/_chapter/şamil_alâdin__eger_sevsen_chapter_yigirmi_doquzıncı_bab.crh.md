@@ -626,7 +626,7 @@ Omuzlarımnı qısıp aldım,— menim tek bir qabaatım bar: sizni sevem...
 
 — Siz?
 Meni?
-Cevdet, meni sevesiñizmi? — qıznıñ, eecandan, davuşı titredi... laqırdını devam etalmay, sustı.
+Cevdet, meni sevesiñizmi? — qıznıñ, eyecandan, davuşı titredi... laqırdını devam etalmay, sustı.
 Soñ qomşu odağa çıqtı.
 Özüm de qalqtım.
 Pencere ögüne keldim.
@@ -634,7 +634,7 @@ Pencere ögüne keldim.
 Hayli vaqıttan soñ İrada peyda oldı.
 — Çinar tübünde olğan laqırdıdan soñ evge keldim,— o laqırdısını devam etti,— öküngenimden, ağladım.
 Men ağladım... bunı sizge aytayatam, Cevdet!
-— Şay degende İrada tahta üstündeki küçük yastıkñı çekip aldı, astındaki narlar tığırıp, yerge tüşip kettiler.
+— Şay degende İrada tahta üstündeki küçük yastıqñı çekip aldı, astındaki narlar tığırıp, yerge tüşip kettiler.
 Qız ayrette qaldı.
 
 — Bu ne?
@@ -655,7 +655,7 @@ Ayat içinde Sabira halanen toquştıq.
 
 — Oturıñız, Cevdet!
 Ne turdıñız? — dedi o.
-Davuşı mulâyim ve alicenap edi,— acaip qoşaf ketirdim.
+Davuşı mulâyim ve alicenap edi,— acayip qoşaf ketirdim.
 Özüme pişirgen edim.
 
 — Sağ oluñız, Sabira hala! — dedim men,— endi pek keç.
@@ -666,7 +666,7 @@ yavaştan, özü közleriniñ qıyığından halağa baqtı — gece ep bir böl
 İradağa red etmek mümkünmi?
 Qaldım.
 
-Geceniñ bey vaqıtında üçümiz oturıp qoşaf içtik.
+Geceniñ bey vaqtında üçümiz oturıp qoşaf içtik.
 Soñ Sabira hala ketip yattı.
 Bizim İrada ile subetimiz uzadı...
 Barakqa saba qaytıp keldim.
