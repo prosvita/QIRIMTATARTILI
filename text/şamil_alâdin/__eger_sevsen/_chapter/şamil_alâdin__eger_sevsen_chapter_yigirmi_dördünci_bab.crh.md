@@ -4,13 +4,13 @@ Saba keç uyandım.
 Pol üstünde küneş şavleleri örnekler yasağanlar.
 Evni şeñlendirgenler.
 Turdım... biraz kerildim-sozuldım, vucudımda tükenmez quvet is ettim.
-Qurucılıqnıñ birinci deviri bitti.
+Qurucılıqnıñ birinci devri bitti.
 Ekincisi başlamaqta...
 Soñ fikirlerim keçmiş ömür etrafında aylana başladılar.
 Keçmiş ömür hususında yatqan yeriñde tüşünmek oñaytlı.
 Tekrar koyka üstüne uzandım.
 
-Komsomol Merkeziy Komiteti sekretarınıñ kabineti hatirime keldi.
+Komsomol Merkeziy Komiteti sekretarınıñ kabineti hatrime keldi.
 Anda şimdi de öyle qalabalıq ekenmi?
 İsrail Artıkov defterine menim familiyamnı yazıp qoyğan edi.
 O defter endi tolğanmı eken?
@@ -24,13 +24,13 @@ Kişi evelâ öz taqdiri hususında tüşünmek kerek.
 Arhipka...
 Muşuq bizim ailege ne yapa bilecek?
 
-Sabira hala ile olğan laqırdımız şimdi hatirime keldi.
+Sabira hala ile olğan laqırdımız şimdi hatrime keldi.
 Hala maña niçün sataşa bere, bilmeyim.
 İradanen munasebetni yañı tüzettim degende keldi, bozdı-taşladı.
 Men bilem, hala meni begenmey.
 İradanen körüşkenimni istemey.
 Niçün?
-Men qızğa aqran degilim, Sabira halanıñ fikirince, İradanıñ aqranı Tursunov.
+Men qızğa aqran degilim, Sabira halanıñ fikrince, İradanıñ aqranı Tursunov.
 Ebet!
 Sabira hala öz İradasınıñ bahtlı olğanını istey.
 Onıñ içün qıznı daima menden muafaza etip kelmekte.
@@ -42,9 +42,9 @@ Belki asıl da bilmeydir?
 Men İradağa nişanlanğan, bunı er kes bilgen soñ, qısqası, olacaq şey olğan soñ, siz, Sabira hala, menimnen ne qadar nazlı ve nezaketli olıp ketken ediñiz, esiñizdemi?
 "İrada sizsiz, siz de İradasız yaşap olamaycaqsıñız..." degen ediñiz.
 
-İradanıñ hatiri içün maña, İradadan yahşı muamele körsete ediñiz.
-İradanıñ hatiri içün bizim evimizni, bizim ekimizni ve, birinci nevbette, balalarımıznı terbiye etüvni öz üzeriñizge aldıñız!
-Men Volgo-Donda Tsımlâ plotinası qurğanda, İrada otpusk vaqıtında maña kelgen: balalar evde, Sabira halasınen beraber qaldılar, degen edi.
+İradanıñ hatri içün maña, İradadan yahşı muamele körsete ediñiz.
+İradanıñ hatri içün bizim evimizni, bizim ekimizni ve, birinci nevbette, balalarımıznı terbiye etüvni öz üzeriñizge aldıñız!
+Men Volgo-Donda Tsımlâ plotinası qurğanda, İrada otpusk vaqtında maña kelgen: balalar evde, Sabira halasınen beraber qaldılar, degen edi.
 
 Yazıq ki, kişi, soñundan başına ne kelecegini bilmey.
 Bilgen olsam, Sabira halağa açuvlanmaz edim.
@@ -55,14 +55,14 @@ Lâkin Sabira hala çoq yaşağan, çoq körgen qadın.
 İrada?
 Gece onı qayda, niçün çağırdılar?
 Barıp da, başqa uçastkağa avuştırsalar?
-Çünki şimdi bütün smena injenerlerine yeñi uçastkalar berilecek.
+Çünki şimdi bütün smena injenerlerine yañı uçastkalar berilecek.
 Yarın plotina qurucılığı başlay.
 Barıp da, men İradanıñ uçastkasına tüşmesem?...
 
 Mümkün degil.
 İrada meni seve.
 Tünevin men onıñ evine kirgende, çeresinde ne qadar dülber ğurur ve sevinç sezildi...
-Belki men İrada hususındaki fikirimde yañlışadırım?
+Belki men İrada hususındaki fikrimde yañlışadırım?
 Belki o da başqa qızlar kibidir?!
 Ne olsa-olsun, men onıñ içün ateşke ve suvğa kirmege azırım.
 Niçün?
@@ -71,10 +71,10 @@ Ne olğan o qadar?
 Bunı aytıp añlatmaq mümkün degil.
 İradanı başqa yerge avuştırsalar, men de avuşırım.
 O qayda olsa, men de anda olurım.
-Men onı... onıñ güzel közlerini, ince, sınıq qaşlarını, yengil ve keskin areketlerini er kün körip, onıñ yımşaq sesini işitip turmaq isteyim.
+Men onı... onıñ güzel közlerini, ince, sınıq qaşlarını, yengil ve keskin areketlerini er kün körip, onıñ yımşaq sesini eşitip turmaq isteyim.
 Kimselerge beñzemez İrada daima közümniñ ögünde olmaq kerek.
 
-...Atta şimdi, aradan çoq seneler keçken soñ... stol başında oturıp, İrada hususında bu satırlarnı yazayatqan vaqıtımda bile yüregimde onıñ içün kene saf isler uyanmaqtalar.
+...Atta şimdi, aradan çoq seneler keçken soñ... stol başında oturıp, İrada hususında bu satırlarnı yazayatqan vaqtımda bile yüregimde onıñ içün kene saf isler uyanmaqtalar.
 Niçün?
 Onıñ dülberligi ve cazibeli areketleri içünmi?
 Yoq!
@@ -85,15 +85,15 @@ Dülberlik — İrada demek.
 
 Men İradanı iç bir vaqıt Elpide ile qıyas etkenim yoq.
 Eger o vaqıtta...
-Batumda qalbimde çırpınğan şey sevgi isap etilgen olsa, demek, sevginiñ çeşit soyları ola eken.
+Batumda qalbimde çırpınğan şey sevgi esap etilgen olsa, demek, sevginiñ çeşit soyları ola eken.
 Demek, sevgi iç bir vaqıt tekrarlanmay eken.
-Elpide sevginenkun-cülikniñ arasındaki sıñırnı bilmey edi.
+Elpide sevginen küncülikniñ arasındaki sıñırnı bilmey edi.
 Men onıñnen bir afta bulundım.
 Bu vaqıt içinde o, meni biñ defa künledi, meni sevgeni içün biñ defa yemin etti.
 Bu — suniy duyğu degil, aqiqiy, küçlü, samimiy is edi.
 Belki öyle bir vaqıt kelir — o kelmedi, lâkin, kele bilir edi — men Batumdan ketmez, qart Duranidiniñ evinde qalır edim.
-Men şimdi koyka üstünde yatqanım alda, çıtırman yüzüm tereklerinen tolu azbarnı ve ağızında uzun çubuğı, qapu ögünde tapçan üstünde oturğan qart Duranidiniñ özüni tasavur etem.
-O daima başını aşağı egiltip otura, daima yuqsırağan kibi körüne, lâkin diqqatnen baqılsa, çubuq tütegeni sezile, demek Duranidi yuqlamay, bir şeyler hususında tüşüne edi.
+Men şimdi koyka üstünde yatqanım alda, çıtırman yüzüm tereklerinen tolu azbarnı ve ağzında uzun çubuğı, qapu ögünde tapçan üstünde oturğan qart Duranidiniñ özüni tasavur etem.
+O daima başını aşağı egiltip otura, daima yuqusırağan kibi körüne, lâkin diqqatnen baqılsa, çubuq tütegeni sezile, demek Duranidi yuqlamay, bir şeyler hususında tüşüne edi.
 Men bu azbarda özümni de yahşı tasavur etem.
 Asma yüzüm terekleri tübünde topçan üstünde qart, stol başında Elpide ile men, soñ Hristofor — oturamız...
 Bularnıñ episi ola bilir edi?
