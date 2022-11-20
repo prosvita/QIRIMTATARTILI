@@ -501,12 +501,12 @@ Pek ağır.
 — Beriñiz maña! — dedim men.
 Çuvalnı arqama urdım... kettik.
 
-Hazar-Kendke kirgen soñ özen yalısına tüştik.
+Hazar-Kendge kirgen soñ özen yalısına tüştik.
 Mında onıñ qulbesi bar edi.
 
 Çuvalnı topraq pol üstüne qoyğan soñ çıqmağa niyetlendim.
 
-— Otur, balam! — dedi qartiy. — Bir piala çay iç!
+— Otur, balam! — dedi qartiy, — bir piala çay iç!
 
 — Sağ oluñız!
 Men aşıqam.
@@ -519,7 +519,7 @@ Men aşıqam.
 — Barakta adam hasta.
 
 Manzura apa meni toqtatmaq mümkün olmaycağını añladı.
-Tez-tez çuvalnıñ ağızını açtı, içinden eki büyük nar çıqarıp, ellerimniñ içlerine tıqtı.
+Tez-tez çuvalnıñ ağzını açtı, içinden eki büyük nar çıqarıp, ellerimniñ içlerine tıqtı.
 
 — Tut! — dedi maña, emir etken kibi.
 — Qız qardaşım berdi...
@@ -527,9 +527,9 @@ Namangandan ketirgen.
 
 Yol boyunda narlarnı qaç kere ceplerime qoyacaq olıp çekiştim, öyle balaban ediler ki, üstümdeki sekiz dane cebden birine sığmadılar.
 Ellerime tuta berip, qaytıp keldim.
-Amma barakqa kirmedim; qaranlıq aralıqlarda dolanıp yurdim.
+Amma barakqa kirmedim; qaranlıq aralıqlarda dolanıp yürdim.
 Geceniñ bir maalinde İradanıñ eviniñ qapusını qaqtım.
-İçeride bir şey ğıçıldadı, soñ köridorda ayaq davuşları işitildi.
+İçeride bir şey ğıçıldadı, soñ köridorda ayaq davuşları eşitildi.
 Qapu açıldı.
 
 — Afu etiñiz, İrada!
@@ -539,9 +539,9 @@ Men sizge keldim...
 
 Tışarıda meni terk etken cesaret, içeri kirgenimnen qaytıp keldi.
 Eki narnı sıqıp tutqan ellerimni arqamda saqlay berip, içeri odağa keçtim.
-İrada qapularnı qapatayatqan arada olarnı setke beñzer tahta üzerine bıraqıp, üstüni küçük yastıçıqnen orttim.
+İrada qapularnı qapatayatqan arada olarnı setke beñzer tahta üzerine bıraqıp, üstüni küçük yastıçıqnen örttim.
 
-Üç daqiqa evelsi, bosağanıñ diger tarafında turğan vaqıtımda, İrada plotinanıñ proyektlerinen tolu eski, qara papkasını qarıştırıp oturadır bellegen edim.
+Üç daqiqa evelsi, bosağanıñ diger tarafında turğan vaqtımda, İrada plotinanıñ proyektlerinen tolu eski, qara papkasını qarıştırıp oturadır bellegen edim.
 Şimdi baqam, papka körünmey.
 Stol üstünde, eppi hırpalanğan roman yata.
 Alıp baqtım.
@@ -549,7 +549,8 @@ Alıp baqtım.
 İrada kirdi.
 Kitapnı yerine qoydım.
 
-— Oturıñız, Cevdet! — dedi o. —Boyle qaramanlıqqa nasıl cesaret ete bildiñiz?
+— Oturıñız, Cevdet! — dedi o. 
+—Boyle qaramanlıqqa nasıl cesaret ete bildiñiz?
 
 — Qolaylıqnen degil...— dedim men,— lâkin başqa çarem de qalmadı.
 
@@ -598,7 +599,7 @@ Men sizni selbi yanında kördim.
 Yañlışasıñız!
 Biz, o vaqıtta, qavğa ete edik.
 
-— Qavğa etmek içün öyle acaip yerni saylap aldıñızmı?
+— Qavğa etmek içün öyle acayip yerni saylap aldıñızmı?
 
 — Yer patlatıcılar bürosına kete edim.
 Tursunov artımda peyda oldı.
@@ -608,7 +609,7 @@ Daima küsüp yürgen kişi, o künü, pek şeñ edi.
 
 — Siziñ degeniñizge baqsam...— men terenden köküs keçirdim,— lâkin yüregimni yaraladıñız, İrada!
 
-— Üç aydan beri oq saplı yüregiñiznen kezesiñizmi?
+— Üç aydan berli oq saplı yüregiñiznen kezesiñizmi?
 
 — Ebet!
 
