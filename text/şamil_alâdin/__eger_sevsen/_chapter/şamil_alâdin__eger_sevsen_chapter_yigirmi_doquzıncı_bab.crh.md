@@ -257,15 +257,15 @@ Yeminni bozdım.
 Afu et, sevimli Karamat!
 
 Qırğız-Qulaqta, baş qurucılıq idaresinde tehnika işleri hususından muşavere oldı.
-Muşaverege, Krasnânskaya ve Curayevden, hızmet bölükleri başlıqlarından ğayri, smena injenerleri de davet etildiler.
+Muşaverege, Krasnânskaya ve Curayevden, hızmet bölükleri başlıqlarından ğayrı, smena injenerleri de davet etildiler.
 Muşavere, er vaqıt olğanı kibi, gece keç maalde bitti.
-Bu da azlıq etse kerek, Torizo muşavereden soñ smena injenerlerini öz kabinetine çağırdı, olarğa yeñi şarait ve yeñi vazifeler hususında izaat berdi.
+Bu da azlıq etse kerek, Torizo muşavereden soñ smena injenerlerini öz kabinetine çağırdı, olarğa yañı şarait ve yañı vazifeler hususında izaat berdi.
 
 İrada kabinetten çıqayatqanda, Curayev onıñ yanına keldi:
 
 — Maşinañız barmı?
 
-— Bar! — dedi İrada,— Bir de-bir maşinada kelgendirim, elbet!
+% — Bar! — dedi İrada,— Bir de-bir maşinanen kelgendirim, elbet!
 Onıñnen de qaytacağım...
 
 — Men mında qalmaq isteyim,— dedi Curaev, partkomda meşin divanlar bar.
@@ -274,22 +274,22 @@ Olarnıñ üstünde...
 Vestibülde eki daqiqa subet etken soñ Curayev köridor boyu ketti, İrada soqaqqa çıqtı.
 Etraf qaranlıq.
 Ne maşina, ne insan... çım-çırt edi.
-Onıñ da aqılına partkomnıñ divanları keldi, lâkin soñundan bu fikirden qorqtı.
+Onıñ da aqlına partkomnıñ divanları keldi, lâkin soñundan bu fikirden qorqtı.
 "Ketmeli... yolda maşina çoq.
 Çaresi tapılır" dep tüşündi.
 %
-Dört kilometr qadar yol yurdi, maşinağa beñzegen şey rastkelmedi.
+Dört kilometr qadar yol yürdi, maşinağa beñzegen şey rastkelmedi.
 Ögden esken küçlü, suvuq yelge qarşı ketmek qıyın edi.
 Paromğa yaqınlaştı... alâ kimse yoq.
 Açuvlandı: "endi maşina rastkelse... yalvarsa bile minmeycegim" dedi içinden.
 Öz-özüne canı ağırdı.
 
 Amma insannıñ taqdiri hucur ola.
-Qıznıñ qafasına bu qatıy fikir kirip yetiştirmedi, yanına yük maşinası toqtadı.
+Qıznıñ qafasına bu qatiy fikir kirip yetiştirmedi, yanına yük maşinası toqtadı.
 Kabinadan kişi tüşti.
 
 — Şadmanova?!
-Gecelein bu ne demek? — qız davuşnıñ saibini tanıdı: Vahid Tursunov...
+Geceleri bu ne demek? — qız davuşnıñ saibini tanıdı: Vahid Tursunov...
 Elektrik bölügi başlığı.
 — Qana, oturıñız! — qıznı kabinağa çağırdı.
  — Çabik oluñız!
