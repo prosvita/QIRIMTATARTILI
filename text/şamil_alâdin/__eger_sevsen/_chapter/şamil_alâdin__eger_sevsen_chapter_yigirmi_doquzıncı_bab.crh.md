@@ -303,7 +303,8 @@ Ava suvuq.
 Açıq yalıda turmaq mümkün degil.
 Qaravul odasına kirdiler.
 Saatkul ata, elinde berdankası, qıp-qırmızı çöyün sobanıñ ögünde oturğan, yuqsıray.
-Tursunovnı körgeninen tanıdı... deral ayındı, atılıp ayaqqa turdı: — yañçıq... biraz qızınayım dep kirdim, çıqacaq olıp otura edim. — Qart özüni aqlamağa tırıştı.
+Tursunovnı körgeninen tanıdı... deral ayındı, atılıp ayaqqa turdı: — yañçıq... biraz qızınayım dep kirdim, çıqacaq olıp otura edim. 
+— Qart özüni aqlamağa tırıştı.
 Çar-Çaq yalısında, elektrik stantsiya donatması... relsler, şpallar, ağaçlar obalanıp yatmaqta ediler.
 
 — Yat, Saatqul ata... yuqla! — dedi Tursunov ve şaqıldap küldi.
@@ -313,27 +314,28 @@ Tursunovnı körgeninen tanıdı... deral ayındı, atılıp ayaqqa turdı: — 
 E-e!
 Anda, totsız demirler de bar.
 Episi içün mesulim.
-5
+% 
 Episini körem...
 
 Şoför, yaş yigit, sobanıñ ögünde sozuldı, başını yerge qoyar-qoymaz huruldap qaldı.
-İrada ellerini qızdırmaq içün sobanıñ üstüne tuttı, amma birazdan, parmaqları sızlap başladılar.
+İrada ellerini qızdırmaq içün sobanıñ üstünde tuttı, amma birazdan, parmaqları sızlap başladılar.
 Öyle ağırdılar ki, qız çıdayalmay, ağlay-yazdı.
 Tursunov oña sobadan uzaqqa çekilmesini rica etti, soñ Çar-Çaqtan suvuq suv ketirip, ellerine suvuq kompress yaptı...
 Soñra, ne yerdendir, eski çuvallar tapıp, yerge töşedi, İradağa, yatıp raatlanmasını teklif etti.
-İrada yatqan soñ Tursunov tonını çıqarıp, onıñ üstüne ortti.
+İrada yatqan soñ Tursunov tonını çıqarıp, onıñ üstüne örtti.
 Sabağa yaqın qız közlerini açqanda, Tursunovnıñ polda büklenip, tığırıqlanıp yatqanını kördi.
 
 Tursunov ayaqqa turğan soñ, qız oña ıncınıp baqtı.
 
-— Sizge nisbeten adaletsiz oldım,— dedi o,— ma, tonıñıznı alıñız!
+— Sizge nisbeten adaletsiz oldım,— dedi o,— ma, tonuñıznı alıñız!
 
 — Adaletsizlik?
 Niçün?
-Bu menim insanlıq borcım degilmi?
+Bu menim insanlıq borcum degilmi?
 
-Tañ aldı maalinde, qandilniñ ülkün yarığında olğan bu subette Tursunov qızğa alicenap kişi olıp köründi: "Ne qadar hoş çeresi, güzel közleri bar!" dep tüşündi İrada.
-Özü çuvallar üstünde oturğanı alda, Tursunovqa, yanaşasından yer körsetti... oturmasını teklif etti.
+Tañ aldı maalinde, qandilniñ ülkün yarığında olğan bu subette Tursunov qızğa alicenap kişi olıp köründi: 
+"Ne qadar hoş çeresi, güzel közleri bar!" dep tüşündi İrada.
+Özü çuvallar üstünde oturğanı alda, Tursunovğa, yanaşasından yer körsetti... oturmasını teklif etti.
 Çerik saat keçken soñ ekisi bir tonğa örtünip, saba açılğanğa qadar suvuq soba yanında oturdılar.
 Ne aqqında laqırdı ettiler?
 Asıl da laqırdı ettilermi?
@@ -357,17 +359,17 @@ Kim bilsin?
 Kim bilsin?!
 
 ...O baar künleri bu şeylerni bilmey edim.
-Men yalıñız, İradanı Tursunovqa bermege mecalım yoqluğını bile edim.
+Men yalıñız, İradanı Tursunovğa bermege mecalım yoqluğını bile edim.
 Şimdi... qafam bu fikirlernen tolu olğanı alda, aşıqmay, evge keteyata edim.
 Ögümde, soqaqnıñ üstünde qaranlıq ve yalıñızlıq içinde turğan qadim çinar köründi.
 Kim bilsin, bu terek bu yerde belki İskander Zulqarnayin devirinde de böyle qadalıp turğandır?!..
 
-Ümütsizden qadın davuşı işittim... eleslendim.
+Ümütsizden qadın davuşını eşittim... eleslendim.
 Bir qaç adam daa yürgen soñ çinar astında İrada ile Tursunovnı sezdim.
 
 Esimni yoq ete yazdım.
 Yüregimniñ işlevi tekmil toqtağan kibi oldı.
-Mendeki eecan sezilmesin dep, yanlarından tez-tez keçip ketmek içün adımlarımnı sıqlaştırdım.
+Mendeki eyecan sezilmesin dep, yanlarından tez-tez keçip ketmek içün adımlarımnı sıqlaştırdım.
 Lâkin İradanıñ suvuq, qaltıravuq eli — elime ilişti.
 
 — Afu etiñiz, Cevdet! — dedi o maña,— rica etem, biraz toqtañız!
@@ -381,9 +383,10 @@ Menden niçün qaçınasıñız.
 Cevdet?
 Men siziñ içün ne fenalıq yaptım?
 
-Tursunov eecan içinde... ağızında tüteyyatqan papirosını dudaqlarınıñ bir köşesinden diger köşesine cılıştıra berip, maña köz etmekte edi.
+Tursunov eyecan içinde... ağzında tüteyyatqan papirosını dudaqlarınıñ bir köşesinden diger köşesine cılıştıra berip, maña köz etmekte edi.
 
-— Şimdi koreyatqanımdan fena iç bir şey yapqanıñız yoq! — dep cevap berdim men. — Menden daa ne isteysiñiz?
+— Şimdi koreyatqanımdan fena iç bir şey yapqanıñız yoq! — dep cevap berdim men. 
+— Menden daa ne isteysiñiz?
 Gecelik sergüzeştiñizniñ resmiy şaatı olğanımnımı?
 Men sizge, özümden ziyade inana edim, İrada!
 Meni aqaretlediñiz!
