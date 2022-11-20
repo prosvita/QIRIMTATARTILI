@@ -229,10 +229,10 @@ Bu iş yuqarı maalle qoquy.
 — Belki bizge endi bedava teri palto ve hrom çızmalar da berirler?— dedim men ve küldim. 
 Lâkin nemiz deñişti?
 İç bir şeyimiz!
-Gece ekskavatornıñ trosı üzülse, aman çöküçni alıp, çuqurğa çapamız.
+Gece ekskavatornıñ trosu üzülse, aman çöküçni alıp, çuqurğa çapamız.
 
 — Bu seniñ eski adetiñ.
-Özüñni alâ nijnik isap etesiñ.
+Özüñni alâ nijnik esap etesiñ.
 İsteseñ — çap, istemeseñ çapma, özüñniñ işiñ!
 Seniñ bu hızmet içün adamlarıñ bar!— dedi Hristofor.
 Soñ sol elinen yavaştan sağ eliniñ tirsegini köterip, yastıqnıñ üstüne qoydı.
@@ -243,7 +243,7 @@ Bizim qardaşnıñki kibi degil, öylemi?
 İlişmege şey bar.
 
 — Ya kvartira?
-Naçalnik olğan soñ, kvartira da bermege borclılar.
+Naçalnik olğan soñ, kvartira da bermege borclular.
 Nikolayğa nasıl, bilmeyim, amma saña... sen ev-barq saibi olmaq tedarigindesiñ.
 
 Bu saba Hristofornıñ keyfi yerinde edi.
@@ -255,10 +255,11 @@ Ekşi qapısta şorbasımı?
 Makaronmı?
 Ne olsa-olsun.
 
-— Aşamaq isteseñ, tez tur!— dedi Nikolay. — Keteyik!
+— Aşamaq isteseñ, tez tur!— dedi Nikolay. 
+— Keteyik!
 Seniñnen beraber barsaq, belki bizge de ürmet olur!
 
-Sabira hala Hristofornı körgende eecanlandı, ağlamsıradı, soñ hastahanede aşamağa qaç kere ve ne bergenlerini, yarası nasıl?
+Sabira hala Hristofornı körgende eyecanlandı, ağlamsıradı, soñ hastahanede aşamağa qaç kere ve ne bergenlerini, yarası nasıl?
 Yahşımı?
 Fenamı?
 Episini soradı.
