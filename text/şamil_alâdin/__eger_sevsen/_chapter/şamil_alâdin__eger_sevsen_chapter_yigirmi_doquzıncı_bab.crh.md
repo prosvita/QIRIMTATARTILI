@@ -100,32 +100,33 @@ Keçmi?
 Kim bilsin?
 Bizge arpa kürpesinden plâv qalğan.
 
-Yalığa qaytayatqanda küçlü gurultiler işitildi.
+Yalığa qaytayatqanda küçlü gürültiler eşitildi.
 Yuqarıdan, baraklar betten, patlavlar zevqlı keldiler.
 Anda-mında yanardağlar kibi, ateşli dumanlar çıqtı, taş ve topraq taşqını kök yüzüne köterildi, soñ kenişlep, eppi vaqıt qıbırdamay — avada asılıp turdı.
 Niayet, o, qara mantarlar yavaş-yavaş aşağı endiler.
 
-Kotlovannıñ etrafındaki adamlar yerli-yerlerine darqağan soñ, biz çuqurğa tüşdik.
+Kotlovannıñ etrafındaki adamlar yerli-yerlerine darqağan soñ, biz çuqurğa tüştik.
 Yerniñ astından çıqqan büyük qara taşlar nizamsız alda dağılıp yatmaqta ediler.
 
-— Konglomerat,— dedi Kandıba. — Ne isteysiñ?...
+— Konglomerat,— dedi Kandıba. 
+— Ne isteysiñ?...
 
 Hristofor öz nijniklerinen beraber, ekskavatornıñ artındaki demir yolnı yasap bitireyata edi.
-Onıñ eli ve omuzı alâ ağırmaqta, amma, men bellesem, onıñ şimdi iş vaqıtında asabiyleşkeniniñ sebebi bu degil.
+Onıñ eli ve omuzı alâ ağırmaqta, amma, men bellesem, onıñ şimdi iş vaqtında asabiyleşkeniniñ sebebi bu degil.
 Soñki aftalar içinde nijnikler meselesinde bahtsız oldıq.
 Baş Dugümde işler ketken sayın kenişlemekte, yerde er işke armaturcılar, motorcılar, desâtnikler ve betoncılar talap etilmekte.
 Yaş yigitlerniñ biri bizde kursta oqup başlay.
 Ne yapacaqsıñ?
 Kimerde şpalalarnı özümiz taşımağa ve relslerni pekitmege mecbur olamız.
 
-— Qayda bıralqılanıp yurdiñiz? — dep cekirdi üstümizge Hristofor.
+— Qayda bıralqılanıp yürdiñiz? — dep cekirdi üstümizge Hristofor.
 Yüzünde yasama ciddiylik sezildi.
 — Tez oluñız, yardım etiñiz!
 Kimse yoq... tek özümiz çekişemiz.
 — O, başından kepkasını çıqarıp, yüzüni sildi.
 — Baq, yarım saat içinde yol ne qadar uzandı!
 
-Ekskavatornı ögge cılıştırdık, soñ Andrey Zaharoviç kögertege çıqtı, rıçaglarnıñ ögüne oturıp, sol elini köterdi.
+Ekskavatornı ögge cılıştırdıq, soñ Andrey Zaharoviç kögertege çıqtı, rıçaglarnıñ ögüne oturıp, sol elini köterdi.
 Men rubilnikni keçirdim.
 Kovş aşağı sarqayatqanda, kögertede Mansurov peyda oldı.
 O maña: rubilnikni çıqar degen manada işaret etti.
@@ -136,10 +137,11 @@ Kovş avada sallanıp qaldı.
 — Bu ne demek, Cevdet? — Almazov qarıq sesinen qıçırdı.
 O işniñ farqına barmadı,— elektrik küçü yoqmı?
 
-Kögertege çıqtım, közlerimnen işaret etip Mansurovnı körsettim. — "Büyügimiz emir etti!"
+Kögertege çıqtım, közlerimnen işaret etip Mansurovnı körsettim. 
+— "Büyügimiz emir etti!"
 
 — Sen delirdiñmi?
-Rıçag çıqarılmay tura toknı kesmek mümkünmi? — Maşinist pek açuvlandı.
+Rıçag çıqarılmay tura toknı kesmek mümkünmi? — maşinist pek açuvlandı.
 — Kim ruhset etti?
 Maşinanı işten çıqarmaq isteysiñmi?
 Saqın, bir daa, men maşinanı toqtatmağance, rubilnikni çıqarma! 
@@ -147,7 +149,8 @@ Lâkin men...
 Ne, men?
 Ne, men? 
 Qabaat mende! — dedi Mansurov,— maña qıçır.
-Oña ne qıçırasıñ? — Mansurov kögerteniñ ucuna kelip, Andrey Zaharoviçke emir etti. — Toqtat işni!
+Oña ne qıçırasıñ? — Mansurov kögerteniñ ucuna kelip, Andrey Zaharoviçke emir etti. 
+— Toqtat işni!
 
 — Niçün?
 
@@ -161,16 +164,17 @@ Almazov bizge eleslenip baqtı.
 Mansurov bunı esledi.
 
 — Ne oldı? — dep soradı Abdulla Sadıkoviç.
-— Aqılıña bir şey daa keldimi?
+— Aqlıña bir şey daa keldimi?
 
-— Kran...— dedi Almazov açuvlanıp,— kran, añladıñmı?
+— Kran...— dedi Almazov açuvlanıp,
+— kran, añladıñmı?
 
 Bir qaç daqiqa keçken soñ, trosnı büyük konglomerat kesegi astına taqıp, dört bağlap, kovşqa iliştirdik.
 Yelquvan onı töpege köterip, çetke çekip alıp ketti.
 Bu usul kelişikli köründi.
 Şu künü çuqur içindeki konglomerat kesekleriniñ episini kotlovannıñ kenarına çekip çıqardıq.
 Mansurov, bu kesekler kovş içün ağırlıq eter dep qorqıp, indemey baqıp turdı.
-Amma qavflı olmağanını körgen soñ, özüniñ yeñi keşfini bildirmek içün Tursunovqa yuvurıp ketti.
+Amma qavflı olmağanını körgen soñ, özüniñ yañı keşfini bildirmek içün Tursunovğa yuvurıp ketti.
 Tursunov bizim tarafqa kelmedi.
 Diger ekskavatorcılar bizim usulnı bilmey, qaç saatler boş turdılar.
 Bilgen soñ, olar da bizim kibi yaptılar.
@@ -193,7 +197,7 @@ Vagonçıqlar tel yollar boyu özenniñ bir yalısından diger yalısına beton 
 Plotinanıñ divarları kün-künden yükselmekteler.
 Baar kelip yetkenini duymay qaldıq.
 Yağmurlar yağa başladılar.
-Kovşnıñ içine qoyu, yapışqaq çamur tola, yelquvan çetke burulğanda, bu çamur pnevmatik dumkarnıñ içine zar-zorına töküle.
+Kovşnıñ içine qoyu, yapışqaq çamur tola, yelquvan çetke burulğanda, bu çamur pnevmatik dumkarnıñ içine zar-zoruna töküle.
 Yağmurlar sebebinden beton işleri de bir qaç kün toqtalıp turdı.
 Ava künde bir qaç defa deñişip turdı: saba küneş çıqa, soqaqlar sarqqan kibi ola, biz evge qaytqanda kene yağmur yağa.
 Barakqa şır-suv olıp qaytamız.
