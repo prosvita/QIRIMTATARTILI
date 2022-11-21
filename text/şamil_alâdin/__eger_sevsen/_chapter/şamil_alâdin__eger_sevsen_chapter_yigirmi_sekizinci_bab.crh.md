@@ -144,7 +144,7 @@ Daa erte.
 Tarağını tumboçkanıñ çekmecesine, küzgüsini yastığınıñ astına tıqtı, özü qapuğa doğrulayatqanda qapu qaqıldı.
 Nikolay açtı.
 Bosağa üstünde Valâ Sinitskaya köründi.
-Üstünde temiz beyaz kofta, ve yeñi mavı yubka.
+Üstünde temiz beyaz kofta, ve yañı mavı yubka.
 
 — Rica etem! — Nikolay qıznı içeri davet etti ve onı, özüne sezdirmey, közden keçirdi.
 
@@ -163,14 +163,15 @@ Nice yazlar, nice qışlar keçti... kim içün rica etmege keldiñ, miledi?
 — Öyle demege utanmaysıñmı, Nikolay? — Valânıñ canı ağırdı.
 Atta sesi bile qaltırap ketti.
 Az qaldı, ağlaycaq edi.
-Amma ağlamadı,— eñ olmağanda bir kereçik te olsa, kirip baqmaysıñ...
+Amma ağlamadı,
+— eñ olmağanda bir kereçik de olsa, kirip baqmaysıñ...
 Valâ, işleriñ, sağlığıñ nasıl, dep soramaysıñ!
 
 — Kimden?
 Muşuq endi zuvdı.
-Arhipka özü-özlüginden ğaip oldı.
-Bir kere aylanma kanal bayramında, kelip, hatirimizni sorap ketti.
-Ondan beri ses-soluq yoq.
+Arhipka özü-özlüginden ğayıp oldı.
+Bir kere aylanma kanal bayramında, kelip, hatrimizni sorap ketti.
+Ondan berli ses-soluq yoq.
 
 — Muşuq? — Valâ küldi,— özüñ bilesiñ, Muşuq maña ücüm etti, qorquzmaq istedi.
 Bir şey çıqmadı.
@@ -178,7 +179,7 @@ Arhipka ise...
 Men kimseden qorqmayım.
 Men olardan qorqmayım.
 
-— Yok, men şay, özüm... — Nikolay lafnı uzatmaq istemedi.
+— Yoq, men şay, özüm... — Nikolay lafnı uzatmaq istemedi.
 
 — Men kettim... — dedim men Nikolayğa,— biraz dolanıp keleyim.
 
