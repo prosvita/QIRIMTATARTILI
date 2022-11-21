@@ -351,7 +351,7 @@ Bizim laqırdımızğa diñlenip turdı.
 
 Valâ Sırdarya bette rus qışlağında doğğan.
 Dört sınıf bitirgen.
-Babası inqlâbdan soñ, açlıq ve yıqıntı yıllarında ölgen.
+Babası inqlâptan soñ, açlıq ve yıqıntı yıllarında ölgen.
 Aptesi ve özü anasınıñ ihtiyarında qalğan.
 Yıllar keçkenler.
 Bir defa bazarda pirniç hırsızlağanda yaqalanıp, Belomor qurucılığına tüşken.
@@ -364,11 +364,11 @@ O, kanalda ekende, yahşı çalışqan, mektepte oquğan.
 
 Bir defa derske lager başlığı kirgen... onıñnen yüksek boylu arıq kişi de bar eken.
 Dersni toqtatqanlar.
-Yeñi adam talebelernen laqırdı etken.
+Yañı adam talebelernen laqırdı etken.
 Valânıñ sözlerini diqqatnen diñlegen.
-Musaabe vaqıtında adamnıñ mıyığı qıbırday bergen.
+Musaabe vaqtında adamnıñ mıyığı qıbırday bergen.
 Bu Valânıñ alâ esinde.
-Kişi Valânıñ taqdiri içün eecanlanğan.
+Kişi Valânıñ taqdiri içün eyecanlanğan.
 Qız oña doğmuş aptesi hususında ikâye etken.
 Aptesi "Martin İden"ni oquy eken.
 Anası bir kün: "Bıraq bu kitapnı!
@@ -376,26 +376,26 @@ Ket, keziñiz!
 Yoqsa, Yaşkanı elden qaçırırsıñ" degen.
 Aptesi kerçekten de, Yaşanı elden qaçırğan.
 
-Lager başlığı yeñi adamğa: — Sinitskaya Valâ pek terbiyeli,— degen. — Berilgen işni namusnen eda ete.
+Lager başlığı yañı adamğa: — Sinitskaya Valâ pek terbiyeli,— degen, — Berilgen işni namusnen eda ete.
 Bu hususta anasına mektüp yazdıq.
 Cevabını da aldıq.
 
 Arıq kişi Valânen çoq şeyler hususında laqırdı etken.
 O Valâdan: — maña iç bir türlü ricañ yoqmı? — dep sorağan.
-Valâ: bar! — degen. — Bir qaç funt şeker alıp, evge — anama yollamaq isteyim.
+% — Bir qaç funt şeker alıp, evge — anama yollamaq isteyim, — degen Valâ. 
 Amma aqçam yoq.
 Lager başlığı külümsiregen, lâkin arıq adamnıñ ökünçli yüzüni körgen soñ susqan.
 
 Bir aydan soñ Valânı lagerden azat etkenler.
 
-O, Pâtireçye özeni boyundaki, yeñi qışlaqqa kelgen.
+O, Pâtireçye özeni boyundaki, yañı qışlaqqa kelgen.
 Doğmuşları o vaqıtta anda yaşay ekenler.
 Valâ aşhanağa işke kirgen.
 Anda Nikolaynen tanış olğan.
 
 Valâ özüniñ lagerden niçün müddetten evel azat etilgenini bilmey.
 Bir sene taaciplenip yürgen.
-Bir kün kitaphanede kitapnıñ içinde arıq betli, uzun mıyıqlı kişiniñ suretini körgen.
+Bir kün kitaphanede kitapnıñ içinde arıq betli, uzun mıyıqlı kişiniñ süretini körgen.
 Ayrette qalğan... ebet, onıñ özü.
 Maksim Görkiy.
 
@@ -403,11 +403,12 @@ Valânıñ sözleri maña pek tesir etti.
 Tek maña degil...
 Nikolay yerinden qalqtı, Valânıñ yanına kelip, elini onıñ omuzına qoydı.
 
-— Valüha...— dedi kederli davuşnen. — Niçün bu vaqıtqa qadar bu hususta maña bir şey aytmadıñ?
+— Valüha...— dedi kederli davuşnen, — Niçün bu vaqıtqa qadar bu hususta maña bir şey aytmadıñ?
 
 Qıznıñ omuzları qaltıramaqta edi.
 
-— Men saña daa çoq şeylerni aytmadım...— dedi o ve maña çevirilip, sözüni devam etti. — O vaqıtta bunı — Valâ başınıñ areketinen Nikolaynı kösterdi,— men bunı sevdim ve o da, ğaliba, meni sevdi...
+— Men saña daa çoq şeylerni aytmadım...— dedi o ve maña çevirilip, sözüni devam etti. 
+— O vaqıtta bunı — Valâ başınıñ areketinen Nikolaynı kösterdi,— men bunı sevdim ve o da, ğaliba, meni sevdi...
 Bir kün baqam, Nikolay yoq...
 Çar-Çaqqa ketken.
 
@@ -420,7 +421,7 @@ Sen bayat insansıñ!
 Men Valânıñ Nikolayğa aytqan sözlerine diqqat ettim.
 Qız, elbet de, Nikolaynı seve.
 Onı Pâtireçyeden mında sevgi ketirgen.
-Ya İradanı sevgi qayda?
+Ya İradanıñ sevgisi qayda?
 Nege ketirdi?
 Bir kişi ile diger kişi arasında dolana berüvgemi?
 Adam, kimni sevgenini bilmese, ne qadar qıyın eken!?
@@ -491,13 +492,15 @@ Yañlış yaptı!
 Men başqa türlü tüşüne edim.
 — Qayda köçtiñ? — dep soradı Nikolay Valâdan.
 
-— Men o vaqıtta sarğuş edim...— dedi Valâ. — Ve bütün ayatıma tükürmege azır edim.
+— Men o vaqıtta sarğuş edim...— dedi Valâ. 
+— Ve bütün ayatıma tükürmege azır edim.
 Em tükürir edim…
 
 — Kim keder etti?
 Menmi?
 
-— Yoq, İra,— dedi Valâ. — O Petâ emcenen beraber barakqa kelgende meni kördi.
+— Yoq, İra,— dedi Valâ. 
+— O Petâ emcenen beraber barakqa kelgende meni kördi.
 Men, ğaliba, sögündim, İranı aqaretledim.
 İra maña bir şey demedi.
 İndemey çıqıp ketti.
