@@ -62,14 +62,14 @@ Raşid qar aqıntısını ikâye etip turğanda, ayaqlarımıznıñ astında —
 Menjevetskiy betteki yüksek bayırnıñ, aşağı, özenge taba cılışa başlağanını kördik.
 
 Desâtniklerden biri kiyik-kiyik qıçırdı.
-Yüksek qırnıñ ucundan, büyük topraq kesekleri qopıp, tüpke tayıp keteyatqanda, bizim ayaqlarımıznıñ astındaki aralıq kenişledi, topraqnıñ aşağı qısımı çökti.
+Yüksek qırnıñ ucundan, büyük topraq kesekleri qopıp, tüpke tayıp keteyatqanda, bizim ayaqlarımıznıñ astındaki aralıq kenişledi, topraqnıñ aşağı qısmı çökti.
 Bir daqiqa evelsi özen ile uçurım arasında yigirmi adımlıq mesafe bar edi.
 
 Bayırnıñ töpesinde desâtnik ve Menjevetskiy, evel nasıl turğan olsalar, şimdi de öyle turmaqtalar.
 Yel onıñ plaşçınıñ eteklerini ep yelpiretmekte.
 
 Raşid er kesten cesaretli çıqtı.
-Töpeden bayırnıñ üstüne sıçrap tüşti... ayaqları tizlerine qadar diyerlik yımşaq topraq içine kirip kettiler.
+Töpeden bayırnıñ üstüne sıçrap tüşti... ayaqları tizlerine qadar deyerlik yımşaq topraq içine kirip kettiler.
 Tırmalanıp, dörtayaqlap töpege çıqqan soñ, Sigizmund Genrihoviçke doğru çaptı.
 Yalığa er kes öz bilgenince çıqacaq oldı, lâkin kimse çıqalmadı.
 
@@ -79,11 +79,11 @@ Suv bayırnıñ etrafını yuvdı, kemirdi, bayır yarım adadan — bütün ada
 Biz idare ögüne kelgende, Menjevetskiy desâtnikni tazirlemekte edi.
 
 — Men sizni tenbiylegen edim.
-Bu — seysmik rayon, yalını bekitmek kerek degen edim.
+Bu — seysmik rayon, yalını pekitmek kerek degen edim.
 Şimdi, kördiñizmi, ne olıp çıqtı?
 — Bizge muracaat etip, sözüne devam etti:
 — Biz yalıda tura edik.
-Men olarğa yalını nasıl etip bekitmek mümkünligini añlata, Aleksey İvanoviç ise — Menjevetskiy desâtnikni körsetti,— maña itiraz eteyata edi: yalı qaviy, bir şey olmaz, dey edi.
+Men olarğa yalını nasıl etip pekitmek mümkünligini añlata, Aleksey İvanoviç ise — Menjevetskiy desâtnikni körsetti,— maña itiraz eteyata edi: yalı qaviy, bir şey olmaz, dey edi.
 İşte, kördiñizmi?..
 
 Desâtnik indemedi.
@@ -102,7 +102,7 @@ Biz, ekskavatorlarnıñ troslarını deñiştirgen soñ, onı haberdar etmege ke
 — Kirmege mümkünmi? — dep soradım yavaştan.
 
 — Yoq,— dep cevap berdi injener,— men raatlanam.
-Bu yarım saat — menim muqaddes vaqıtım.
+Bu yarım saat — menim muqaddes vaqtım.
 Sabır etiñiz!
 
 ...O vaqıtta men Menjevetskiyniñ qılıqlarını yahşı bilmey edim.
