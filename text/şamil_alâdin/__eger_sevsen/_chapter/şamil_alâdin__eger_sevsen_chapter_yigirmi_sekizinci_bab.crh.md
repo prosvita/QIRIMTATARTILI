@@ -507,19 +507,22 @@ Men, ğaliba, sögündim, İranı aqaretledim.
 Aqşam Petâ emce keldi, eşyalarımnı komsomol yataqhanesine alıp ketti.
 Ondan soñ, meni kommutatorğa işke qoydılar.
 
-— Demek...— Nikolay şay degen soñ sustı, sözüni kesmek istedi, lâkin kesmedi, devam etti,— Ana!
-Seniñ ve Cevdetniñ peyğamberi keleyata.
+— Demek...— Nikolay şay degen soñ sustı, sözüni kesmek istedi, lâkin kesmedi, devam etti,
+— Ana, Seniñ ve Cevdetniñ peyğamberi keleyata.
 
 Qapuğa çevirilip baqtıq.
 İçeri Hristofor kirdi.
 
-— Qaçtı,— dedi o birden,— Karimnen beraber aşhanede edi.
+— Qaçtı,— dedi o birden,
+— Karimnen beraber aşhanede edi.
 Çekkelep mında ketireyata edim, qurtuldı, qaçıp ketti.
-— O, tek şimdi, Valânı esledi: — Men kimni körem?
+— O, tek şimdi, Valânı esledi: 
+— Men kimni körem?
 Selâm, Valâ!
 
 — Aleyküm selâm, Hristofor!
-Sizni sağınıp keldim,— qız qızara berip külümsiredi. — Meni tekmil unuttıñız!
+Sizni sağınıp keldim,— qız qızara berip külümsiredi. 
+— Meni tekmil unuttıñız!
 İşleriñ nasıl, Hrist?
 
 — Bir coruq,— Duranidi üstümdeki brezent çekmenni çıqarmaq istedi, soñ bu fikirden vazgeçip, öz koykasına doğrulganda sağ omuzı, elektrik urğan kibi, qaqınıp aldı,— şikâyetlenmege şey yoq!
@@ -539,7 +542,7 @@ O zenaattan çaqasıñmı?
 Yedi sınıf bitirgen edim.
 
 — Yedi sınıf?
-Birinci sefer işitem... 
+Birinci sefer eşitem...
 Duranidi çekmenini ve çızmalarını zar-zorına çıqardı, koykanıñ üstüne yantaymaq istedi, soñ toqtaldı, cebini qarıştıra başladı, Örselı yeşil kâğıt çıqarıp, maña uzattı.
 
 — Ma!
@@ -558,18 +561,19 @@ Beklerim..."
 Yekaterina Vasilyevnanıñ kâğıtı hatrime keldi.
 Tekrar oqup baqtım, soñ qatlap, cebime qoydım.
 
-— Saña ne oldı? — dep soradı Nikolay. — Yüzüñ ap-aq kesildi?
+— Saña ne oldı? — dep soradı Nikolay. 
+— Yüzüñ ap-aq kesildi?
 
 — Bir şey de...
 
 — Men, ğaliba, meseleni añladım,— dedi Valâ ve maña közüni qıptı.
 — Acizlenmeñiz, Cevdet!
 Er şey sırasında olur.
-Menim sizge tevsiyem şu: sevmek isteseñiz — seviñiz, lâkin menim kibi, başıñıznı ğayip etmeñiz!
+Menim sizge tevsiyem şu: sevmek isteseñiz — seviñiz, lâkin menim kibi, başıñıznı ğayıp etmeñiz!
 
 Ayaqqa qalqtı, menimnen ve Hristofornen sağlıqlaşqan soñ Kandıbağa çevirildi.
 
-— Men kettim...— dedi Valâ Nikolayğa,— yapmak istegen işimni yaptım.
+— Men kettim...— dedi Valâ Nikolayğa,— yapmaq istegen işimni yaptım.
 Bir daa seni raatsızlamaycağım!
 
 — Selâm! — dedi Nikolay, yerinden qıbırdamadı,— men seniñ canıñnı ağırtmaq istemedim.
@@ -578,11 +582,15 @@ Qız indemedi.
 Qatıy areketnen qapuğa çevirildi, baraktan çıqıp ketti.
 
 — Bir şey añlamayım! — dedi Hristofor.
-Özüniñ yekâne közüni ziyade tögereklendirip baqtı. — Mında ne oldı?
+Özüniñ yekâne közüni ziyade tögereklendirip baqtı.
+— Mında ne oldı?
 
-— Yeñi iç bir şey olmadı! — dedi Nikolay. — Sen bugün niçün erte qayttıñ?
+— Yañı iç bir şey olmadı! — dedi Nikolay. 
+— Sen bugün niçün erte qayttıñ?
 
-— Elim... sızlay bere,— dedi Hristofor, soñ menden: — İra ne yaza? — dep soradı.
+— Elim... sızlay bere,— dedi Hristofor, 
+soñ menden:
+ — İra ne yaza? — dep soradı.
 
 — Evine çağıra...
 
