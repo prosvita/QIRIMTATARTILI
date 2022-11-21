@@ -5,7 +5,7 @@ Olarnıñ ortasında kotlovan qazıla.
 Topraq yığınları üstünden toqtamay-tınmay avtomaşinalar qatnaşalar.
 Evelde nizamsız yüre ediler, çünki özen boyunda yol fena, bayırlı-çuqurlı...
 Pek çoq maşinalar batıp, sançılıp qala, areketniñ tertibini boza ediler.
-Bunıñ içün yolnı kenişletmek, keçidniñ eki yanında yol kösterici kişiler qoymaq kerek oldı.
+Bunıñ içün yolnı kenişletmek, keçitniñ eki yanında yol kösterici kişiler qoymaq kerek oldı.
 Kestirmelerden biriniñ üstünde demir yol yerleştirildi.
 Onıñnen sağ yalığa... derivatsion kanal qurucılığına keçile.
 Sağ yalı qurucılığına Menjevetskiy başlıq oldı.
@@ -19,7 +19,7 @@ Kündüzleri mında kelip, stol başında, Nu — Tufanından qalğan yüksek ar
 İstraattan soñ, er vaqıttaki kibi, tendiris ve areketçen olıp, tekrar işke cöney.
 
 Birinci odada, idarede gece ve kündüz elektrik ocaq yanıp, qızarıp tura.
-Buña itiyac büyük.
+Buña ihtiyac büyük.
 Adamlar qızınmağa ve suv qaynatıp içmege keleler.
 Mında qıçırıp laqırdı etmek, sigar içmek olmay.
 
@@ -27,15 +27,15 @@ Mında qıçırıp laqırdı etmek, sigar içmek olmay.
 Men bu... ne deyim sizge, apartamentlerde iç bir vaqıt özüme sigar içmege musaade etmeyim.
 Amma...— o elini manalı surette kötere,— men, er kes şaat, az çalışmayım ve tütünni de az içmeyim!
 Lâkin mında degil.
-İnsan yaşağan yerda ava mutlaqa temiz olmaq kerek.
+İnsan yaşağan yerde ava mıtlaqa temiz olmaq kerek.
 Öyle degilmi?
 
 Böyle tazirden soñ qabaatlı kişi nege oğrağanını bilmey, Menjevetskiyniñ közlerine qaç daqiqalar baqıp tura, soñ omuzlarını qısa, indemey çıqıp kete ve bir daa tüteyyatqan sigarnen mında kirmey.
 
-Men bunıñ ile, Menjevetskiyniñ göñülinde işçiler içün saf duyğu barlığını aytmaq isteyim.
+Men bunıñ ile, Menjevetskiyniñ göñlünde işçiler içün saf duyğu barlığını aytmaq isteyim.
 Onıñ qılıqları er kesni taaciplendire, lâkin sögünçten yahşı tesir eteler.
 
-Bir kün Nikolaynı, Hristofornı, Raşidni ve meni eki yeñi trosnen Menjevetskiyge yolladılar.
+Bir kün Nikolaynı, Hristofornı, Raşidni ve meni eki yañı trosnen Menjevetskiyge yolladılar.
 Onıñ uçastkasına demir yol platformasında eki ekskavator keldi, lâkin troslar ipranğanlar, deñiştirmek kerek oldı.
 Biz troslarnı idareniñ ögünde tüşürgen soñ, Menjevetskiyni qıdırmağa kettik.
 Yüksek yarnıñ ucunda taş üstünde... desâtnikler arasında taptıq.
