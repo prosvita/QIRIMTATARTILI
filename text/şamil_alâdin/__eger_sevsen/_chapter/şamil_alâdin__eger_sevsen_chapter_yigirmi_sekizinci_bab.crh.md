@@ -631,7 +631,7 @@ O evniñ içini közden keçirdi, soñ üstündeki paltosınıñ etegini azaçı
 Seyyare boyunçığını egiltip, külümsiredi.
 Valâğa baqtım — çırayı ap-aq, közleri sönük.
 Laqırdını başlamağa mecalı yoq.
-Ağızını açsa, ökürip ağlaycaq.
+Ağzını açsa, ökürip ağlaycaq.
 Men onı añladım.
 
 — Çoqtanmı? — dep soradım.
@@ -671,9 +671,10 @@ Valâ köz yaşlarını gizliden silip aldı.
 
 Divar artından:
 
-— Beşincide — yedinci ve sekizinci nomererge yumurta unı berilecek,— degen yırtıq davuş işitildi,— talonğa yüzer gramm.
+— Beşincide — yedinci ve sekizinci nomererge yumurta unı berilecek,— degen yırtıq davuş eşitildi,— talonğa yüzer gramm.
 
-— Men almaycağım,— dep cevap berdi tınç, yaş qadın sesi,— belki soñundan yağ ketirirler. 
+— Men almaycağım,— dep cevap berdi tınç, yaş qadın sesi,
+— belki soñundan yağ ketirirler.
 Laqırdı eteyatqanlar — eki student qızlar edi.
 
 — Men yoruldım.
@@ -692,7 +693,7 @@ Karamat Böriskanı özüne almağa razı oldı.
 Böriskanı da yollaya bile...
 Onı zavoddan boşamaylar.
 
-— Sen de zavodqa kir!
+— Sen de zavodğa kir!
 Bir yerde olursıñız.
 
 — Yoq, men cebe arqasında oturalmayım. 
@@ -707,10 +708,10 @@ Ergaş şimdi bizim Seyyare ile oquy.
 Böris ise yaqında arbiy mektepni bitirdi.
 
 Karamat bizim evge çoq kelip kete.
-O, alâ, İradanıñ dostı.
+O, alâ, İradanıñ dostu.
 
 ..."Sevgi senden qaçsa, onıñ peşinden quvmaq kerekmi!..." Men bu sözlerni çoq hatırlayım.
 
 Amma öyle degil.
 Eger sevseñ... kerçekten sevseñ, onıñ içün yaşa — onıñ içün öl!
-Bütün dünya, ana topraq, ayatıñ ve adamlar ögündeki borcıñ, vicdanıñ ve bahtıñ — episi onıñ içün.
+Bütün dünya, ana topraq, ayatıñ ve adamlar ögündeki borcuñ, vicdanıñ ve bahtıñ — episi onıñ içün.
