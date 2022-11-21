@@ -206,13 +206,13 @@ Daa qaqqan olsañ, belki tapar ediñ.
 — Sen büyük adam oldıñ, Valâ!
 Raatsızlamaq istemedim.
 
-— Özüñ de naçalnik ekensiñ... işittim.
+— Özüñ de naçalnik ekensiñ... eşittim.
 
 — Men?
 Ebet, maşinist yardımcısım.
 Mında yaşaymız... demek, pek büyük naçalnik degilim.
 
-— Men qadınlar barağından ketkenimden beri epiñiz deñişkensiñiz.
+— Men qadınlar barağından ketkenimden berli epiñiz deñişkensiñiz.
 
 — Biz?..
 
@@ -220,8 +220,8 @@ Mında yaşaymız... demek, pek büyük naçalnik degilim.
 Şimdi nezaketli kişiler olğansıñız.
 Seni tanımaq mümkün degil, Nikolay!
 Seni de, Cevdet...— Valâ tiklenip maña baqtı,— sizge asıl ne oldı?
-İlki kelgen küniñ hatiriñdemi?
-Men kerçek sarğuş edim... amma episi aqılımda.
+İlki kelgen künüm hatriñdemi?
+Men kerçek sarğuş edim... amma episi aqlımda.
 
 Nikolay kerçekten taaciplendi.
 Ne demek olsun?
@@ -276,8 +276,8 @@ Bu nasıl oldı? — Nikolay taaciplendi.
 — Çıqtı.
 Demek, insan...— Valâ onıñ qulağına gizliden bir şeyler söyledi.
 
-Aqılıma Nikolaynıñ sevgi ve sadaqat aqqında aytqan fikirleri keldi.
-O maña: em Hristoforğa, em Arhipkağa, em Raşidke — episine birden alicenaplıq köstermek olmaz degen edi.
+Aqlıma Nikolaynıñ sevgi ve sadaqat aqqında aytqan fikirleri keldi.
+O maña: em Hristoforğa, em Arhipkağa, em Raşidge — episine birden alicenaplıq köstermek olmaz degen edi.
 Özü Rahilge qarşı, amma onı acıy.
 Demek, başqa çare yoq.
 Rahil özü Arhipkağa qarşı çıqtı.
@@ -305,7 +305,7 @@ Niçün?
 Seni körmek... saña qaytıp kelmek, adam olmaq istedim.
 Men!
 
-— Sen nasıl insansıñ, Nikolay?! — Artıq özümni tutalmadım. — Qız derdiñden ölecek.
+— Sen nasıl insansıñ, Nikolay?! — Artıq özümni tutalmadım. 
 Özüñni sıqmaysıñ!?
 
 — Qarışma, Cevdet,— dedi Nikolay qaba davuşnen.
@@ -332,11 +332,12 @@ Amma Valâ terk etti... andan çıqıp ketti.
 Valâ aqqında öyle laqırdı ettik ki, güya özü yanımızda yoq edi.
 
 — Valâ qayda yaşay, bilesiñmi?..
-— Men sözümni devam ettim,— Bilmeysiñ!
+— Men sözümni devam ettim,
+— Bilmeysiñ!
 
 — Baraktan köçkenimni Muşuq bilgen.
-Meni tenbiylemege kelgen edi...— Valâ şınşıqlay berdi,— menim aqqımda ağızıñdan bir söz çıqar, seni eki qısımğa bölerim...— dedi maña,— Başıñ sağda, ayaqlarıñ solda!
-Sen suv qıdırıp kelgen ediñ, hatiriñdemi, Cevdet?
+Meni tenbiylemege kelgen edi...— Valâ şınşıqlay berdi,— menim aqqımda ağzıñdan bir söz çıqar, seni eki qısımğa bölerim...— dedi maña,— Başıñ sağda, ayaqlarıñ solda!
+Sen suv qıdırıp kelgen ediñ, hatriñdemi, Cevdet?
 Nikolay bir şey bilmey.
 
 Men Valânı tınçlandırmaq istedim.
