@@ -114,7 +114,7 @@ O balanıñ bu vaqiağa ne alâqası bar?
 
 Çauş qızına baqıp, köküs keçirdi.
 
-– Torunımnı...Yoq.
+– Torunımnı...yoq.
 Men üyken Dilâver aqqında söylemek isteyim.
 Menim Dilâver degen oğlum bar edi... seniñ ağañ!
 
@@ -125,10 +125,11 @@ Sevinç, saadet hususında aytılsa, başqa mesele.
 Öyle adet olğan.
 Evlenüv arfesinde baba, yahut ana balalarğa telqin bermek kerek.
 
-– Şa-ay...Soñ? – Zeverced babasınıñ lafınıñ neticesini beklemekte edi.
+– Şa-ay...soñ? – Zeverced babasınıñ lafınıñ neticesini beklemekte edi.
 
 – O siziñ bahtıñız içün özüni ayamadı.
- – Çauş kettikçe teren tüşüncelerge daldı, sözleri, öz tüşüncelerine cevap olaraq yañğıradılar. – Adamlarğa ayat bağışladı, özü ise ondan, o ayattan, ketti.
+ – Çauş kettikçe teren tüşüncelerge daldı, sözleri, öz tüşüncelerine cevap olaraq yañğıradılar. 
+– Adamlarğa ayat bağışladı, özü ise ondan, o ayattan, ketti.
 
 Çauşnıñ sesi qaltıradı, soñ üzüldi.
 Bu saran sözler astında küçlü isler ve fikirler bar edi.
@@ -139,7 +140,7 @@ Añlamamaq mümkün degil edi.
 
 Çauşnıñ aytqan sözleri belki bu daqiqalarda pek zarur şeyler degildir.
 Üyken Dilâver, elbette, elâk oldı, ayatını şimdi sağ-selâmet kişiler içün berdi.
-Onıñ hatiresini saqlamaq kerek.
+Onıñ hatrisini saqlamaq kerek.
 Amma Zeverced ile Serverniñ sevgisinde, elâk adamnıñ büyük hızmeti yoq.
 Olarnıñ duyğuları tesadüfen, öz-özlüginden... qızılçıq teregindeki gönceler, yahut baardeki bulutlar kibi, birden doğdı.
 Zeverced oğlannıñ közlerine baqqanda, onda, yanmağa qavurılmağa azır yürek barlığını bildi.
@@ -153,31 +154,36 @@ Zeverced ise qocağa çıquv niyetinde, ne yaparsıñ?..
 Buña ayat deyler.
 
 – Siziñ içün!
-Siziñ sağlığñız içün! – dedi Çauş ve öz tostunı bitirdi. – Yürekleriñizniñ ışığı ve arareti içün!
+Siziñ sağlığñız içün! – dedi Çauş ve öz tostunı bitirdi. 
+– Yürekleriñizniñ ışığı ve arareti içün!
 
 Bana ev saibiniñ sözleri ile yüreklerge dalğan ağır duyğular unutıldı, er kes külümsiredi, atta hahıldap küle başladılar.
-Zeverced de küldi, çünki o bağsus böyle tostnı beklemegen edi... adetiy, sade tostnı.
-Qız öz qadesindeki şarapnı, ömürinde ilki olaraq, içip bitirdi.
+Zeverced de küldi, çünki o böyle tostnı beklemegen edi... adetiy, sade tostnı.
+Qız öz qadesindeki şarapnı, ömründe ilki olaraq, içip bitirdi.
 
-– Menim dostum qayda? – dedi Server, şarapnı içip, qadesini stol üstüne qoyğan soñ, – Körüşmegenimiz bir afta oldı.
+– Menim dostum qayda? – dedi Server, şarapnı içip, qadesini stol üstüne qoyğan soñ, 
+– Körüşmegenimiz bir afta oldı.
 
 – Dilâvermi? – dep soradı Şefiqa, – o evde oturmay.
 De kütüphanede, de stadionda.
 Kimerde özenge kete.
 Balıq tuta.
 
-– Potide de öyle... yalıda rastkeliştik, – dedi Server, külümsirep, – qarmağı ile...
+– Potide de öyle... yalıda rastkeliştik, – dedi Server, külümsirep, 
+– qarmağı ile...
 
 Torun laqırdısı çıqqan soñ Şefiqa gül kibi açıldı.
 Balanıñ bütün adetleri oña alicenap, nezaketli olıp körünmekte edi.
 Oğlunıñ nushası.
 
-– Bir kün men suvuqlandım... – Server kurorttaki vaqianı ikâye ete başladı. – Özüm küneşte oturam...
+– Bir kün men suvuqlandım... – Server kurorttaki vaqianı ikâye ete başladı.
+ – Özüm küneşte oturam...
 Lâkin aqsıram öksürem.
 Dilâver közleriniñ qıyığından maña baqtı: “Siziñ ile işlemek elverişli degil... – dedi o maña, – balıqlarnı qorquzasıñız.
 Qarmaqqa kelmeyler.
-Poliklinikağa barıp, körünseñiz, ne ola?” “Qayda o, poliklinika?” dedim men.
-“Bu yerde, yaqında.Yürüñiz, köstereyim!” dedi Dilâver.
+Poliklinikağa barıp, körünseñiz, ne ola?” 
+“Qayda o, poliklinika?” dedim men.
+“Bu yerde, yaqında,yürüñiz, köstereyim!” dedi Dilâver.
 Meni öz anasına, Zeynep aptege, alıp keldi.
 Evelâ, anketa toldurdılar.
 Ekim doğğan yerimni oqup bilgen soñ, qaysı yaqlardan kelgenimni soradı.
