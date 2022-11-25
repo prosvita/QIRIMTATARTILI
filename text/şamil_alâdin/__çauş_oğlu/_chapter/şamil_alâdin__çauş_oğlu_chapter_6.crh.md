@@ -212,9 +212,10 @@ Alıp ketiñiz, dedi.
 Lâkin er stantsiyadan maña telegramma beriñiz.
 Mına sizge para.
 Külüştik.
-Soñ men onıñnen şöyle keliştim: poyezddan diger poyezdğa avuşılğan stantsiyadan ve eñ soñki stantsiyadan telegramma beririm, dedim.
+Soñ men onıñnen şöyle keliştim: poyezdden diger poyezdge avuşılğan stantsiyadan ve eñ soñki stantsiyadan telegramma beririm, dedim.
 
-– Zeynepni kördiñ... öylemi, oğlum? – Şefiqa yenge asretli közlerini Serverge doğurulttı. – Nasıl özü... yahşımı?
+– Zeynepni kördiñ... öylemi, oğlum? – Şefiqa yenge asretli közlerini Serverge doğurulttı. 
+– Nasıl özü... yahşımı?
 
 – Güzel! – dedi Server.
 
@@ -233,7 +234,8 @@ Tek saçlarında biraz çal bar.
 – Niçün?
 Niçün, oğlum?
 
-– Niçün degeniñ ne? – Çauş qarısına qışımlı çere ile baqtı: – O qadar çekişken soñ... niçün çalarmaycaq?!
+– Niçün degeniñ ne? – Çauş qarısına qışımlı çere ile baqtı: 
+– O qadar çekişken soñ... niçün çalarmaycaq?!
 
 – Ebet!
 Öyle!
