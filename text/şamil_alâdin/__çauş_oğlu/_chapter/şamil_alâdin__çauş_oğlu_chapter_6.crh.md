@@ -1,6 +1,6 @@
 ## VI
 
-Küz ise, özüniñ sabırsızlıqnen beklenilgenini düyüp, aşıqtı.
+Küz ise, özüniñ sabırsızlıqnen beklenilgenini düyıp, aşıqtı.
 Çauşnıñ evi ögünde uzun dallarını caydırıp turğan çınarlarnıñ yapraqları erte sarardılar.
 Qırmızı renkli qadife çiçekler küneşniñ soñki sıcaq şavleleri altında sararıp solıp bittiler.
 Aqşamlar tınç ve salqın oldılar.
@@ -20,7 +20,7 @@ O şimdi aşıqmay keleyata.
 Qafasındaki fikirlerni ölçep baqmaq istey.
 Lâkin yoq.
 Buña da imkân berilmey.
-Daima bir şey mani ola.
+Daima bir şey mania ola.
 İşte... qapu yanında, çinar kölgesinde nasıldır pısırdı çıqmaqta.
 Gizli, eyecanlı, sevinçli pısırdı.
 
@@ -35,7 +35,7 @@ Pek tanış.
 – Yanıñdaki kim?
 
 – Server...
-Çoqtan beri beklenilgen körüşüv.
+Çoqtan berli beklenilgen körüşüv.
 Kerçek, Çauşta kiyevni geceleyin soqaqta rastketirüv ümüti yoq edi.
 Evelâ, onıñ yürüşini yahşı közden keçirmek içün, uzaqtan körmek, soñ yan-yanaşa, köz-közge kelip qonuşmaq kerek.
 Zeverced, eger elinden kelse, şimdi doğrulıp, babasınıñ közleri içine baqsın.
@@ -56,16 +56,18 @@ Sevimli musafirimiz oluñız!
 Küçük tahta qapunı açtı, babasına keçmege yol berdi, soñra Serverniñ bileginden tutıp, azaçıq ögge çekti... niayet, özü de kirdi.
 
 Şefiqa yenge ocaq başında aş pişirüv ile meşğul edi.
-Qızını ve qocasını beklemekte... amma böyle keç maalde üçünci kişi sürip kelir dep ümüt etkeni yoq.Şaştı şaşmaladı.
+Qızını ve qocasını beklemekte... amma böyle keç maalde üçünci kişi sürip kelir dep ümüt etkeni yoq, şaştı şaşmaladı.
 Ocaq üstünde qaynamaqta olğan qazan böyle müterem musafir içün yufqaca edi.
 
-– Raatsızlanma, apaqay! – dedi Çauş, qarısınıñ acizligini körip, – musafir öz kişimiz!
+– Raatsızlanma, apaqay! – dedi Çauş, qarısınıñ acizligini körip, 
+– musafir öz kişimiz!
 
 Şorbacınıñ tenbisi Şefiqadaki sıqıntını eksiltmedi.
 O, qara kostümli yigitke közlerini tögereklendirip baqa berdi ve yalıñız o: “selâm aleykim, Şefiqa apte!” degen soñ, müçesindeki kerginlik boşap ketti.
 Musafirge doğru eki-üç adım yürgen soñ, qızınıñ nişanlısı ekenini bildi.
 
-– Aleyküm selâm, oğlum! – Şefiqa nezaketli cevap berdi. – Kerçekten de, özümizniñki eken.
+– Aleyküm selâm, oğlum! – Şefiqa nezaketli cevap berdi. 
+– Kerçekten de, özümizniñki eken.
 Kiriñiz evge!
 
 – Sağ oluñız!
@@ -74,7 +76,8 @@ Bu – Mustafa ağanıñ balta ile çinardan yasağan oturğıçı edi.
 Serverniñ bu evge kirüvi apansızdan oldı.
 Eger ananeli, ciddiy laqırdısı çıqa qalsa, oña azır degil.
 
-– Bağçada isteseñiz, bağçada oturıñız. – Çauş musafirniñ arzusına razı oldı. – Sofranı asma yüzümler astında donat, apaqay!
+– Bağçada isteseñiz, bağçada oturıñız, – Çauş musafirniñ arzusına razı oldı.
+ – Sofranı asma yüzümler astında donat, apaqay!
 
 O Şefiqa yengege: “aşnı da tezce qoy...” dep fısıldadı, özü podvalğa tüşip ketti.
 Anda, fuçuda qoqulı muskat bar.
@@ -87,10 +90,11 @@ Anda, fuçuda qoqulı muskat bar.
 – Tüştik... soñ, ne oldı? – Zeverced oña itiraz etti.
 – Qartlar seni körmek istey ediler, körsünler.
 
-Çauş elinde surali,podvaldan çıqtı.
-Stol üstünde şarap, zeytün, patilcan turşusı peyda oldı.
+Çauş elinde surali, podvaldan çıqtı.
+Stol üstünde şarap, zeytün, patılcan turşusı peyda oldı.
 
-– Stolğa yaqınca oturıñız, – dedi Çauş. – Epiñiz oturıñız.
+– Stolğa yaqınca oturıñız, – dedi Çauş. 
+– Epiñiz oturıñız.
 Sen de, apaqay.
 Zeverced de!
 
