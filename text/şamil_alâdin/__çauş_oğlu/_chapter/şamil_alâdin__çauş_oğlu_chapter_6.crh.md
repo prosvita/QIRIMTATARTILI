@@ -245,11 +245,13 @@ Pek dülber edi...
 Şefiqa yenge közlerinden çıqayım-çıqayım dep turğan yaşlarnı silmek içün yavlığınıñ ucundan tutqan edi, azbar içindeki terekler astındaki soqaqta ayaq davuşları eşitildi.
 
 – Vay, oğulçığım!
-Vay qozuçığım! – yenge coşqun ses ile qıçırdı ve kendine yaqınlaşqan torunına doğru yürdi. – Seni bekley-bekley yüregim üzülip ketti, balam!
+Vay qozuçığım! – yenge coşqun ses ile qıçırdı ve kendine yaqınlaşqan torunına doğru yürdi. 
+– Seni bekley-bekley yüregim üzülip ketti, balam!
 
 O kence Dilâverniñ mañlayından öpti, stol başına oturttı.
 
-– Sergey emce, – dedi Dilâver, selâmlaşuv bitken soñ. – Sizge anamdan telegramma kelmedimi?
+– Sergey emce, – dedi Dilâver, selâmlaşuv bitken soñ. 
+– Sizge anamdan telegramma kelmedimi?
 
 – Nasıl telegramma! – Mustafa, qor üzerine basqan kibi qaqınıp yiberdi.
 
@@ -260,7 +262,9 @@ O kence Dilâverniñ mañlayından öpti, stol başına oturttı.
 – Bile... belki ğayıp etkendir deyim.
 Poçtağa kirip baqtım, yoq.
 
-– Tezden kelir... – dedi Çauş, başını sallap. – Yollağan olsa, alırmız. – Lâkin davuşında darğınlıq sezildi.
+– Tezden kelir... – dedi Çauş, başını sallap. 
+– Yollağan olsa, alırmız. 
+– Lâkin davuşında darğınlıq sezildi.
 
 Kelinniñ susa berüvi yüregine yatmay edi.
 Eki mektüp yazdı – cevap yoq.
@@ -268,15 +272,19 @@ Soñ telegramma yolladı, kene çım-çırt.
 Balanıñ yüregini sınap baqmaq isteymi...Alla bilsin!
 Biraz asretlik çekse, qaytıp kelir belleymi?
 
-Dilâver, kerçekten de, qasevetlene.Tüşünceli olıp qaldı.Kimerde mektüp dep sandraqlay.
+Dilâver, kerçekten de, qasevetlene, tüşünceli olıp qaldı, kimerde mektüp dep sandraqlay.
 
-– Mektüp kelir... – Şefiqa yenge torunnı tınçlandırmaq istedi, – Anañnıñ vaqıtı olmasa kerek.
+– Mektüp kelir... – Şefiqa yenge torunnı tınçlandırmaq istedi, 
+– Anañnıñ vaqtı olmasa kerek.
 Belki qabaat poçtanıñ özündedir.
 Mektüpler kimerde kontorlarda yatıp qalalar.
 
-– Oldı şunı! – Çauş iddetlendi. – Mektüp yazılğan, tezden kelir, demedimmi? – Qartnıñ çeresi, evelki kibi, bunarlı, közleri asretli edi.
+– Oldı şunı! – Çauş iddetlendi. 
+– Mektüp yazılğan, tezden kelir, demedimmi? 
+– Qartnıñ çeresi, evelki kibi, bunarlı, közleri asretli edi.
 Stol başındakiler ondan endi sevinçli laf beklemediler.
-Mustafa qarısına: – Şarap qoy! – dep işaret etti. – Turuñız, epimizniñ selâmetligimiz içün içeyik!
+Mustafa qarısına: 
+– Şarap qoy! – dep işaret etti. – Turuñız, epimizniñ selâmetligimiz içün içeyik!
 
 
 Qadeler alel-acele toldurıldı, köterildi.
@@ -289,7 +297,8 @@ Ne aytacağını bilmey, elini qadege uzattı.
 
 – Şa-ay! – dedi Çauş memnün davuş ile, qadesini dudaqlarına toqundırdı, bir şeyler daa aytmağa niyetlendi, lâkin aytalmadı.
 
-– Ana! – dep qıçırdı kence Dilâver, – Anaçığım!
+– Ana! – dep qıçırdı kence Dilâver, 
+– Anaçığım!
 
 Ellerini açıp azbar qapu betke çaptı.
 Onıñ artından çanabacaqlap Mustafa ketti.
@@ -310,7 +319,7 @@ Qade parlandı... demek, evge baht ve saadet keldi.
 
 ***
 
-Öyle eken, adamlarğa mani olmayıq.
+Öyle eken, adamlarğa mania olmayıq.
 Çauşnıñ evini terk eteyik.
 Endi keç oldı.
 
@@ -321,7 +330,7 @@ Meyvalarnıñ ağırlığından azat tereklerniñ astında şimdi kence Dilâver
 Ana-baba ve kelin laqırdı ete-ete, bir-birlerine baqa-baqa toymaylar.
 Oğlan, ellerini çetke caya berip, pervasız alda yuqlay.
 Kelecekniñ Dilâveri.
-Şefiqa, yengeniñ fikirince, o babasınıñ özü.
+Şefiqa, yengeniñ fikrince, o babasınıñ özü.
 Onı raatsızlamayıq.
 Küçük tahta qapunı yavaştan açayıq, yavaştan qapatayıq.
 Tışarıda yol belli.
