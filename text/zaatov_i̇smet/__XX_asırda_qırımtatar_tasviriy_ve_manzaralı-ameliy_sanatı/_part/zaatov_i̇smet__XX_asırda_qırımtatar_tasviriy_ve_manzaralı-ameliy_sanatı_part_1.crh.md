@@ -79,24 +79,24 @@
 
 % Böyleliknen, tunç asırınıñ soñları ve demir asırınıñ başlarından başlap Qırımda çeşit tipteki medeniyetlerniñ inkişaf etkenini, çeşit etnik gruppalarnıñ yan-yanaşa yaşağanlarını körmek mümkün.
 % Buña yarımadanıñ tabiatı ve landşaftınıñ özü yardımcı olğandır.
-%Mında deñizboyu tüzlükleri dağ rayonlarına birikip keteler, yarımadanıñ belli bir qısımını çelik teşkil ete.
-%Qadimiy devirlerde qabilelerniñ yarımadada yerleşmeleri o devirde üküm sürgen hocalıq usulına köre amelge keçe edi, dep qayd etmek mümkün, çünki erbir medeniyet özüne kelişken landşaft ve tabiat-iqlim zonasını seçip ala edi.
-%Bu öz nevbetinde Qırımda "üç etnik vilâyetniñ" peyda olmasına temel qoydı, ve medeniyetniñ biri-birinden farq etken özgün pıtaqları yan-yanaşa inkişaf ettiler...
+% Mında deñiz boyu tüzlükleri dağ rayonlarına birikip keteler, yarımadanıñ belli bir qısımını çelik teşkil ete.
+% Qadimiy devirlerde qabilelerniñ yarımadada yerleşmeleri o devirde üküm sürgen hocalıq usulına köre amelge keçe edi, dep qayd etmek mümkün, çünki er bir medeniyet özüne kelişken landşaft ve tabiat-iqlim zonasını seçip ala edi.
+% Bu öz nevbetinde Qırımda "üç etnik vilâyetniñ" peyda olmasına temel qoydı, ve medeniyetniñ biri-birinden farq etken özgün pıtaqları yan-yanaşa inkişaf ettiler...
  XV asırda yekâne Qırım devleti meydanğa kelgenge qadar biri-birilerinen qarışıp ketmediler".
-%Er bir qabile özüniñ ekologik yerini işğal etken edi.
-%Bu ise olarğa pek büyük olmağan territoriyanıñ sıñırları içinde muabbet yaşamağa imkân bere edi.
-%Ealiniñ hocalıq tüzümi ceetinden çeşit gruppaları özüne has bir simbioznı meydanğa ketire ediler.
-%Meselâ, muayyen bir barışıqperver munasebetler meydanğa kelgen edi, skif aleminiñ sıñırlarında bulunğan tavr köyleriniñ (Ayvazovskoye, Alma-Kermen, milâdiyden evel IV-III aa.) istihkâmlanmağanı bundan delâlet bermekteler.
-%Şu eki halqnıñ alâqaları yarımadadaki yekâne "tavr-skif" ealisi aqqında söz yürsetmege aq bere.
+% Er bir qabile özüniñ ekologik yerini işğal etken edi.
+% Bu ise olarğa pek büyük olmağan territoriyanıñ sıñırları içinde muabbet yaşamağa imkân bere edi.
+% Ealiniñ hocalıq tüzümi ceetinden çeşit gruppaları özüne has bir simbioznı meydanğa ketire ediler.
+% Meselâ, muayyen bir barışıqperver munasebetler meydanğa kelgen edi, skif aleminiñ sıñırlarında bulunğan tavr köyleriniñ (Ayvazovskoye, Alma-Kermen, milâdiyden evel IV-III aa.) istihkâmlanmağanı bundan delâlet bermekteler.
+% Şu eki halqnıñ alâqaları yarımadadaki yekâne "tavr-skif" ealisi aqqında söz yürsetmege aq bere.
 
-%Skifler ve kimmeriylerniñ özara munasebetleri başqaca bir harakterde şekillene.
-%Kimmeriyler de skifler kibi, ayvanasravcılıqnen oğraşa, ve amelde aynı şu ekologik yerni işğal ete ediler.
-%Lâkin bu topraqlar skiflerniñ menfaat çerçiveleri içinde buluna edi.
-%Tarihiy çarpışmalar neticesinde skifler olarnı Küçük Asiyanıñ territoriyasına sıqıp çıqaralar, ve Qırım Avroasiya kontinentiniñ Altaydan tutıp Tunağace olğan büyük bir territoriyasında keniş darqalğan Şimaliy-İran ve Merkeziy-Asiya qabileleriniñ, keniş köçebe skif medeniyetiniñ bir qısımına çevirile.
-%Tarihta malüm ki, aynı şu devirde Asiya medeniyeti Qırımğa keniş bir miqyasta kelip kirgen, maalliy qabilelerniñ medeniyetlerinen alâqada bulunğan ve şu medeniyetlernen qarışıp ketken edi.
+% Skifler ve kimmeriylerniñ özara munasebetleri başqaca bir harakterde şekillene.
+% Kimmeriyler de skifler kibi, ayvanasravcılıqnen oğraşa, ve amelde aynı şu ekologik yerni işğal ete ediler.
+% Lâkin bu topraqlar skiflerniñ menfaat çerçiveleri içinde buluna edi.
+% Tarihiy çarpışmalar neticesinde skifler olarnı Küçük Asiyanıñ territoriyasına sıqıp çıqaralar, ve Qırım Avroasiya kontinentiniñ Altaydan tutıp Tunağace olğan büyük bir territoriyasında keniş darqalğan Şimaliy-İran ve Merkeziy-Asiya qabileleriniñ, keniş köçebe skif medeniyetiniñ bir qısımına çevirile.
+% Tarihta malüm ki, aynı şu devirde Asiya medeniyeti Qırımğa keniş bir miqyasta kelip kirgen, maalliy qabilelerniñ medeniyetlerinen alâqada bulunğan ve şu medeniyetlernen qarışıp ketken edi.
 
-%Böyleliknen, Qırımda tsivilizatsiyanıñ nevbetteki basqıçı, milâdiyden evel VII asırda yarımadağa kelip yerleşken skiflernen bağlı oldı.
-%Qırım skif medeniyetiniñ tarqaluv arealınıñ küçük bir qısımı olğanına baqmadan, o skiflerniñ soñki durağı oldı (mında olar milâdiyden evel III asırğace bulundılar).
+% Böyleliknen, Qırımda tsivilizatsiyanıñ nevbetteki basqıçı, milâdiyden evel VII asırda yarımadağa kelip yerleşken skiflernen bağlı oldı.
+% Qırım skif medeniyetiniñ tarqaluv arealınıñ küçük bir qısımı olğanına baqmadan, o skiflerniñ soñki durağı oldı (mında olar milâdiyden evel III asırğace bulundılar).
 
 %Bu devir etnik alâqalarnıñ bayağı keniş tarqalmasınen qayd etile.
 %Bir taraftan, Qırımda skif medeniyeti pekinip başlay, bunı skif dünyabaqışlarınıñ, tabınuvlarınıñ, defn merasimleriniñ, sanatlarınıñ tarqaluvında körmek mümkün.
