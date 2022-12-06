@@ -23,31 +23,31 @@
 % Olarnıñ Çatırdağ qobaları, Biñbaş-Qoba, Suuq-Qoba, Pıçqı ve Süren köyleri, Sarıgöl gölü yanındaki duraqlar, Gurzuf davanındaki duraq, Üç-Qoş durağı boyunca yapqan tedqiqatları buña misal ola bilir.
 % Qırımda qadimiy sakinler yaşağan 150-ge yaqın duraq bellidir.
 
-%Qırım kirametiniñ qadimiy nümüneleri ta neolit devirinden bellidir.
-%Bular balçıqtan yasalğan, şekil ceetinden çeşit-türlü olğan, "bazıda tehnika ve örneklev üslübi ile zengin" (Başkirov), ateşte pişirilgen savutlardır.
-%Böyle tapılmalar Bağçasaray civarındaki Qaya-Arası ve Simferopol civarındaki At-Baş duraqlarında elde etildi.
+% Qırım kirametiniñ qadimiy nümüneleri ta neolit devirinden bellidir.
+% Bular balçıqtan yasalğan, şekil ceetinden çeşit-türlü olğan, "bazıda tehnika ve örneklev üslübi ile zengin" (Başkirov), ateşte pişirilgen savutlardır.
+% Böyle tapılmalar Bağçasaray civarındaki Qaya-Arası ve Simferopol civarındaki At-Baş duraqlarında elde etildi.
 
-%Eneolit (milâdiyden 3 biñ yıl evelsi) deviri endi maddiy ve maneviy inkişaftaki bayağı bir teraqqiyat mevcut olmasınen taqdim olunğandır.
-%Bu devirde madenden yasalğan taqıncalar — bilezlikler ve baqır gerdanlıqlar keniş darqalıp başlaylar.
+% Eneolit (milâdiyden 3 biñ yıl evelsi) deviri endi maddiy ve maneviy inkişaftaki bayağı bir teraqqiyat mevcut olmasınen taqdim olunğandır.
+% Bu devirde madenden yasalğan taqıncalar — bilezlikler ve baqır gerdanlıqlar keniş darqalıp başlaylar.
 
-%Eneolitniñ soñlarında Qırımda sanat keyfiyetçe yañı basqıçqa adım ata.
-%Soñundan keniş vaqıt diapazonını qavrap alğan (milâdiyden evel XX asırdan milâdiyden evel VIII asır) ilk qayaustü resimleri peyda olalar.
-%Buña Bağçasaray civarındaki Taş-Ayır massivindeki, Bogatoye (Bahçi-Eli), köyündeki, Vişennoye (Beş-Qurtqa) köyü yanındaki Sarı-Qaya qobasındaki qayaustü resimleri misal ola bilirler.
-%Mezkür resimler arasında çeşit-türlü qabile nişanları küneş ve yıldızlarnıñ temsillerini aks ettirgen resimler, bunıñ kibi de (başta bir av levhalarını — atlar, silâlı atlılar ve oqçularnı tasvirlegen) mürekkep ve çoqfiguralı kompozitsiyalar mevcutlar.
-%Avropada birinci olıp çoqrenkli naqşlar (divar resimleri) Qırımda peyda olalar.
-%Antropomorf, yani insan qiyafetini tasvirlegen skulpturalarnıñ, meselâ, Bağçasaray rayonındaki Sçastlivoye (Büyük-Özenbaş ve Sokolinoye (Kokköz) köyleri civarında) insan qiyafetini añdırıp turğan taş stellalarınıñ peyda olması tunç devirinen bağlıdır.
-%Böyle stellalarnı tiklemek bütün Qaradeñizboyu ve Kavkaz regionına aittir.
-%Kurganlar, kromlehler (taş isarlar) kibi monumental ibadet inşaatları mimarcılıqnıñ başlanğıçları aqqında delâlet bermekteler.
-%(Qırımdaki eñ büyük kromlehlerden biri Simferopol rayonında buluna edi, mında suv anbarı qurulğanda o suv astında qalıp ketken edi).
-%Kurganlar ve kromlehlerni qurmaq ya da tiklemek misalleri qomşu territoriyalarnıñ medeniyetlerinde de qayd etilmekte.
+% Eneolitniñ soñlarında Qırımda sanat keyfiyetçe yañı basqıçqa adım ata.
+% Soñundan keniş vaqıt diapazonını qavrap alğan (milâdiyden evel XX asırdan milâdiyden evel VIII asır) ilk qayaüstü resimleri peyda olalar.
+% Buña Bağçasaray civarındaki Taş-Ayır massivindeki, Bogatoye (Bahçi-Eli), köyündeki, Vişennoye (Beş-Qurtqa) köyü yanındaki Sarı-Qaya qobasındaki qayaüstü resimleri misal ola bilirler.
+% Mezkür resimler arasında çeşit-türlü qabile nişanları küneş ve yıldızlarnıñ temsillerini aks ettirgen resimler, bunıñ kibi de (başta bir av levhalarını — atlar, silâlı atlılar ve oqçularnı tasvirlegen) mürekkep ve çoqfiguralı kompozitsiyalar mevcutlar.
+% Avropada birinci olıp çoqrenkli naqşlar (divar resimleri) Qırımda peyda olalar.
+% Antropomorf, yani insan qiyafetini tasvirlegen skulpturalarnıñ, meselâ, Bağçasaray rayonındaki Sçastlivoye (Büyük-Özenbaş ve Sokolinoye (Kökköz) köyleri civarında) insan qiyafetini añdırıp turğan taş stellalarınıñ peyda olması tunç devirinen bağlıdır.
+% Böyle stellalarnı tiklemek bütün Qara deñiz boyu ve Kavkaz regionına aittir.
+% Kurganlar, kromlehler (taş isarlar) kibi monumental ibadet inşaatları mimarcılıqnıñ başlanğıçları aqqında delâlet bermekteler.
+% (Qırımdaki eñ büyük kromlehlerden biri Simferopol rayonında buluna edi, mında suv anbarı qurulğanda o suv astında qalıp ketken edi).
+% Kurganlar ve kromlehlerni qurmaq ya da tiklemek misalleri qomşu territoriyalarnıñ medeniyetlerinde de qayd etilmekte.
 
-%Bularnıñ episi tunç deviri yalıñız ayatnıñ faalleşmesinen qayd etilmegen, bu devirde maalliy qabilelerniñ Qadimiy Şarq, Aqdeñizboyu, Kavkaz artı tsivilizatsiyaları da kenişlegen, dep aytmağa esas bere.
-%Bu devirde Qırım territoriyasında (Belogorsk (Qarasuvbazar) civarındaki Kemik-Oba kurganınıñ adınen adlandırılğan) Kemik-oba medeniyeti inkişaf etken edi.
-%Bu devirde adamlar ziraatçılıq ve ayvanasravcılıqnen oğraşa ediler.
-%Bogatoye (Bahçi-Eli) köyüniñ civarındaki taş plita üstüne oyulğan tuvar ayvanınıñ şekili ve ziraatçınıñ iş aleti olğan — çapanıñ qiyafetini aks ettirgen qayaustü resimleri buña delâlet bermekteler.
+% Bularnıñ episi tunç deviri yalıñız ayatnıñ faalleşmesinen qayd etilmegen, bu devirde maalliy qabilelerniñ Qadimiy Şarq, Aq deñiz boyu, Kavkaz artı tsivilizatsiyaları da kenişlegen, dep aytmağa esas bere.
+% Bu devirde Qırım territoriyasında (Belogorsk (Qarasuvbazar) civarındaki Kemik-Oba kurganınıñ adınen adlandırılğan) Kemik-oba medeniyeti inkişaf etken edi.
+% Bu devirde adamlar ziraatçılıq ve ayvanasravcılıqnen oğraşa ediler.
+% Bogatoye (Bahçi-Eli) köyüniñ civarındaki taş plita üstüne oyulğan tuvar ayvanınıñ şekili ve ziraatçınıñ iş aleti olğan — çapanıñ qiyafetini aks ettirgen qayaüstü resimleri buña delâlet bermekteler.
 
-%Qırımnıñ qadimiy medeniyeti ananeleriniñ ilerideki inkişafı srub ve salt medeniyetlerine ait köçebe qabilelerniñ devirinen bağlıdır.
-%Mezkür qabilelerniñ yaşav arealı bütün Şimaliy Qaradeñizboyunı ve aşağı Podnestrovyeni qaplap ala edi.
+% Qırımnıñ qadimiy medeniyeti ananeleriniñ ilerideki inkişafı srub ve salt medeniyetlerine ait köçebe qabilelerniñ devirinen bağlıdır.
+% Mezkür qabilelerniñ yaşav arealı bütün Şimaliy Qara deñiz boyunı ve aşağı Podnestrovyeni qaplap ala edi.
 %Demir asırı başlanğan soñ olarnıñ medeniyetleriniñ yerine bazı bir malümatlarğa köre, iran tilinde laqırdı etken, tam belgili etnik identifikatsiyağa malik olğan kimmeriylerniñ (gmıri-gimeriyos, milâdiyden evel ІH-VІІ aa.) medeniyeti kirip kele.
 %İzleri Küçük Asiyada coyulıp ketken kimmeriylerniñ yaşav arealı tek Qırım yarımadasınen sıñırlanmay, o Şarqiy Avropanıñ aman-aman bütün cenübini qavrap ala edi.
 %Bu halq aqqında endi yazılı menbalarda malümatlar peyda olğan edi.
