@@ -1,27 +1,27 @@
-## OIRIMTATAR MANZARALI-AMELİY VE TASVİRİY SANATININ XX ASIRĞA QADAR ŞEKİLLENMESİ VE İNKİŞAF ETMESİ
+## OIRIMTATAR MANZARALI-AMELİY VE TASVİRİY SANATINIÑ XX ASIRĞA QADAR ŞEKİLLENMESİ VE İNKİŞAF ETMESİ
 
-### 1.1. Qırımnın qadimiy polietnik medeniyetinin fenomeni
+### 1.1. Qırımnıñ qadimiy polietnik medeniyetiniñ fenomeni
 
-%Qırım medeniyeti — cian kölemindeki bir fenomendir.
-%Onıñ unikalligi territoriya ceetinden deyerlik büyük olmağan yarımadanıñ sıñırları çerçivesinde asırlar devamında mında biri-biri artından kelip-ketken çoqtan-çoq etnoslarnıñ qarışmasınen belgilengendir.
-%Tarih iliminde Qırım yarımadası aqqında Şarq ve Ğarbnıñ sıñırındaki alâqalar zonası, çeşit-türlü tsivilizatsiyalarnıñ körüşüv yeri olğan "insanlıq tarihınıñ tecribe tarlası" degen fikir tesadufen pekinip qalmağandır.
-%Qırımnıñ coğrafik vaziyeti, onıñ ana-qıtadan yarımada şekilinde ayrı bulunması maalliy medeniyetniñ spetsifik qurulışında az rol oynamağandır.
-%M. Voloşinniñ obrazlı etip aytqanı kibi, "...mında tolup-taşqan insanlıq aqımlarınıñ ayrı irmaçıqları aqıp kele, sakin ve çıqımı olmağan limanlarda qatıp qala, olarnıñ sazlığına öz balçığını qoya, biri-biriniñ üstüne qat-qat yata, soñra ise tabiiy sürette biri-birinen qarışa ediler".
+% Qırım medeniyeti — cian kölemindeki bir fenomendir.
+% Onıñ unikalligi territoriya ceetinden deyerlik büyük olmağan yarımadanıñ sıñırları çerçivesinde asırlar devamında mında biri-biri artından kelip-ketken çoqtan-çoq etnoslarnıñ qarışmasınen belgilengendir.
+% Tarih iliminde Qırım yarımadası aqqında Şarq ve Ğarbnıñ sıñırındaki alâqalar zonası, çeşit-türlü tsivilizatsiyalarnıñ körüşüv yeri olğan "insanlıq tarihınıñ tecribe tarlası" degen fikir tesadufen pekinip qalmağandır.
+% Qırımnıñ coğrafik vaziyeti, onıñ ana-qıtadan yarımada şekilinde ayrı bulunması maalliy medeniyetniñ spetsifik qurulışında az rol oynamağandır.
+% M. Voloşinniñ obrazlı etip aytqanı kibi, "...mında tolıp-taşqan insanlıq aqımlarınıñ ayrı irmaçıqları aqıp kele, sakin ve çıqımı olmağan limanlarda qatıp qala, olarnıñ sazlığına öz balçığını qoya, biri-biriniñ üstüne qat-qat yata, soñra ise tabiiy sürette biri-birinen qarışa ediler".
 
-%Tarihçılarnıñ tahminlerine köre, eyi tesirli iqlim şaraitlerinen ayrılıp turğan Qırım toprağı beşeriyetniñ, zemaneviy tsivilizatsiyanıñ qadimiy beşiklerinden biridir.
-%Arheologlarnıñ tedqiqatları sayesinde mında aşağı paleolitten başlap, insan duraqları tapıldı.
-%Simferopolden şimalge 25 kilometr avlaqta Zuya özeniniñ vadiysinde yerleşken Kiyik-Qoba qobası (aşağı paleolit, 100 biñ yıl evelsi) Qırımda eñ qadimiy duraqlardan biri sayıla.
-%Orta paleolit deviri (50-40 biñ yıl evelsi) neandertaletslerniñ Salaçıq köyünde (Bağçasaray rayonı), kromanyonlarnıñ Simferopol şeerindeki (Küçük Salğır özeniniñ sol yalısındaki Çuqurça qobası), Belogorsk rayonındaki (evelki Qarasuvbazar — Aq-Qaya) duraqları ile taqdim olunğandır.
-%Yuqarı paleolit (35-10 biñ yıl evelsi) ise abidelerniñ keniş gruppasınen taqdim olunğandır (Belbek özeniniñ vadiysindeki Süren durağı, Burulça özeniniñ vadiysindeki Burun-Qaya qobası, Acı-Qoba qobası ve ilh.).
-%Olar Şimaliy Qaradeñizboyu ve Qara deñizniñ Kavkaz yalısındaki abidelernen bir çoq beñzerlikke malikler.
-%İlk eşyalarnıñ peyda oluvı taş deviriniñ başlarına doğru kele, meselâ kemik ve boynuzdan yasalğan oyma ve kertiklernen bezetilgen bu eşyalarda endi bediiy yaratıcılıqnıñ iptidaiy elementleri közge çarpıp başlaylar.
-%Bu devirde taşnı, terini, ağaçnı ğayrıdan işlev melekeleri inkişaf ete, aqılane ve tantiminen yasalğan qırğıçlar, disk şekilindeki aletler bundan delâlet bermekteler.
-%Maddiy medeniyet tapılmalarınen zengin olğan Çernaya (Çorğuna) özeniniñ vadiysindeki Süren-2, Şan-Qoba, Fatma-Qoba, Murzaq-Qoba, Boran-Qobanıñ Yuqarı qatlamı mezolit (14-7 biñ yıl evelsi) devirine aitler.
+% Tarihçılarnıñ tahminlerine köre, eyi tesirli iqlim şaraitlerinen ayrılıp turğan Qırım toprağı beşeriyetniñ, zemaneviy tsivilizatsiyanıñ qadimiy beşiklerinden biridir.
+% Arheologlarnıñ tedqiqatları sayesinde mında aşağı paleolitten başlap, insan duraqları tapıldı.
+% Simferopolden şimalge 25 kilometr avlaqta Zuya özeniniñ vadiysinde yerleşken Kiyik-Qoba qobası (aşağı paleolit, 100 biñ yıl evelsi) Qırımda eñ qadimiy duraqlardan biri sayıla.
+% Orta paleolit deviri (50-40 biñ yıl evelsi) neandertaletslerniñ Salaçıq köyünde (Bağçasaray rayonı), kromanyonlarnıñ Simferopol şeerindeki (Küçük Salğır özeniniñ sol yalısındaki Çuqurça qobası), Belogorsk rayonındaki (evelki Qarasuvbazar — Aq-Qaya) duraqları ile taqdim olunğandır.
+% Yuqarı paleolit (35-10 biñ yıl evelsi) ise abidelerniñ keniş gruppasınen taqdim olunğandır (Belbek özeniniñ vadiysindeki Süren durağı, Burulça özeniniñ vadiysindeki Burun-Qaya qobası, Acı-Qoba qobası ve ilh.).
+% Olar Şimaliy Qaradeñiz boyu ve Qara deñizniñ Kavkaz yalısındaki abidelernen bir çoq beñzerlikke malikler.
+% İlk eşyalarnıñ peyda oluvı taş deviriniñ başlarına doğru kele, meselâ kemik ve boynuzdan yasalğan oyma ve kertiklernen bezetilgen bu eşyalarda endi bediiy yaratıcılıqnıñ iptidaiy elementleri közge çarpıp başlaylar.
+% Bu devirde taşnı, terini, ağaçnı ğayrıdan işlev melekeleri inkişaf ete, aqılane ve tantiminen yasalğan qırğıçlar, disk şekilindeki aletler bundan delâlet bermekteler.
+% Maddiy medeniyet tapılmalarınen zengin olğan Çörnaya (Çorğuna) özeniniñ vadiysindeki Süren-2, Şan-Qoba, Fatma-Qoba, Murzaq-Qoba, Boran-Qobanıñ Yuqarı qatlamı mezolit (14-7 biñ yıl evelsi) devirine aitler.
 
-%Qırım tarihınıñ qadimiy deviri yeterlik derecede tolu tedqiq etilmegen, biz neolit (milâdiyden 6-3 biñ yıl evelsi) deviri aqqında bayağı çoq malümatlarğa malikmiz.
-%Bu devir inqilâbdan evel K. S. Merejkovskiy, N. N. Klepinin, A. S. Moiseyev kibi alimler tarafından ögrenilgen edi.
-%Olarnıñ Çatırdağ qobaları, Biñbaş-Qoba, Suuq-Qoba, Pıçqı ve Süren köyleri, Sarıgol gölü yanındaki duraqlar, Gurzuf davanındaki duraq, Üç-Qoş durağı boyunca yapqan tedqiqatları buña misal ola bilir.
-%Qırımda qadimiy sakinler yaşağan 150-ge yaqın duraq bellidir.
+% Qırım tarihınıñ qadimiy deviri yeterlik derecede tolu tedqiq etilmegen, biz neolit (milâdiyden 6-3 biñ yıl evelsi) deviri aqqında bayağı çoq malümatlarğa malikmiz.
+% Bu devir inqilâbdan evel K. S. Merejkovskiy, N. N. Klepinin, A. S. Moiseyev kibi alimler tarafından ögrenilgen edi.
+% Olarnıñ Çatırdağ qobaları, Biñbaş-Qoba, Suuq-Qoba, Pıçqı ve Süren köyleri, Sarıgöl gölü yanındaki duraqlar, Gurzuf davanındaki duraq, Üç-Qoş durağı boyunca yapqan tedqiqatları buña misal ola bilir.
+% Qırımda qadimiy sakinler yaşağan 150-ge yaqın duraq bellidir.
 
 %Qırım kirametiniñ qadimiy nümüneleri ta neolit devirinden bellidir.
 %Bular balçıqtan yasalğan, şekil ceetinden çeşit-türlü olğan, "bazıda tehnika ve örneklev üslübi ile zengin" (Başkirov), ateşte pişirilgen savutlardır.
