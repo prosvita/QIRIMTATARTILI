@@ -98,37 +98,37 @@
 % Böyleliknen, Qırımda tsivilizatsiyanıñ nevbetteki basqıçı, milâdiyden evel VII asırda yarımadağa kelip yerleşken skiflernen bağlı oldı.
 % Qırım skif medeniyetiniñ tarqaluv arealınıñ küçük bir qısımı olğanına baqmadan, o skiflerniñ soñki durağı oldı (mında olar milâdiyden evel III asırğace bulundılar).
 
-%Bu devir etnik alâqalarnıñ bayağı keniş tarqalmasınen qayd etile.
-%Bir taraftan, Qırımda skif medeniyeti pekinip başlay, bunı skif dünyabaqışlarınıñ, tabınuvlarınıñ, defn merasimleriniñ, sanatlarınıñ tarqaluvında körmek mümkün.
-%Diger taraftan, Qırım medeniyetinde rum, soñradan ellin tsivilizatsiyasınıñ tesiri daa ziyade sezilirli olıp başlay.
-%Ellinizm devirinde mında kendilerine yaqınca olğan tavr medeniyeti ve dinini qabul etken ilk rum kolonistleri peyda oldılar.
-%Qırımnıñ bütün yalısını öz ellerine alğan ellinler mında ondan ziyade polis-devletlerini, yani bir şeer ve onıñ civarlarından ibaret devletlerini qurdılar.
-%Olar arasında eñ büyügi Pantikapey edi, o Bospor devletiniñ paytahtı oldı (milâdiyden evel V a.).
+% Bu devir etnik alâqalarnıñ bayağı keniş tarqalmasınen qayd etile.
+% Bir taraftan, Qırımda skif medeniyeti pekinip başlay, bunı skif dünyabaqışlarınıñ, tabınuvlarınıñ, defn merasimleriniñ, sanatlarınıñ tarqaluvında körmek mümkün.
+% Diger taraftan, Qırım medeniyetinde rum, soñradan ellin tsivilizatsiyasınıñ tesiri daa ziyade sezilirli olıp başlay.
+% Ellinizm devirinde mında kendilerine yaqınca olğan tavr medeniyeti ve dinini qabul etken ilk rum kolonistleri peyda oldılar.
+% Qırımnıñ bütün yalısını öz ellerine alğan ellinler mında ondan ziyade polis-devletlerini, yani bir şeer ve onıñ civarlarından ibaret devletlerini qurdılar.
+% Olarnıñ arasında eñ büyügi Pantikapey edi, o Bospor devletiniñ paytahtı oldı (milâdiyden evel V a.).
 
-%Rum-tavr medeniyetiniñ sintezi de Qırım territoriyasında öz izlerini qaldırdı.
-%Bir taraftan, biz rum demir paralarında tavr Qızınıñ tasvirini bulamız.
-%Rumlar tavrlarnıñ mabudesi olğan Orhilohqa tabına ediler.
-%Diger taraftan, tavrlarnıñ sanatı rum mifologiyasınıñ obrazlarınen, plastikasınen toldurıla, tavrlarnıñ sanatı antik eykelik tesiriniñ altında qala.
+% Rum-tavr medeniyetiniñ sintezi de Qırım territoriyasında öz izlerini qaldırdı.
+% Bir taraftan, biz rum demir paralarında tavr Qızınıñ tasvirini bulamız.
+% Rumlar tavrlarnıñ mabudesi olğan Orhilohqa tabına ediler.
+% Diger taraftan, tavrlarnıñ sanatı rum mifologiyasınıñ obrazlarınen, plastikasınen toldurıla, tavrlarnıñ sanatı antik eykelik tesiriniñ altında qala.
 
-%Tavrlarnıñ kiramet sanatı keniş taqdim olunğandır.
-%Savut-sabalar küneş nişanlarınen, semaviy temsillernen süslendirilgendir, bu nişan ve temsiller qomşu halqlarnıñ sanatında da keniş tarqalğandır — Hersonesniñ ellinistik qatlamlarında pek çoq kiramet eşyaları tapıldı, olarnıñ tutqıçları üstünde ustalarnıñ adlarınen yan-yanaşa "tavr" etnonimi de yazılğandır.
+% Tavrlarnıñ kiramet sanatı keniş taqdim olunğandır.
+% Savut-sabalar küneş nişanlarınen, semaviy temsillernen süslendirilgendir, bu nişan ve temsiller qomşu halqlarnıñ sanatında da keniş tarqalğandır — Hersonesniñ ellinistik qatlamlarında pek çoq kiramet eşyaları tapıldı, olarnıñ tutquçları üstünde ustalarnıñ adlarınen yan-yanaşa "tavr" etnonimi de yazılğandır.
 
-%Bu devir Qırım medeniyetiniñ genezisi içün ğayet nümünelidir: bu devir ellin ve Rim tesiri altında alıp ketirilgen skif dominantası olğan maalliy tavr elementleriniñ sintezinen qayd etilgendir.
-%Bundan da ğayrı, milâdiyden evel VI-V aa. ait skif kurganlarında tapılğan İran importınıñ eşyaları maalliy medeniyetlerniñ Ulu İrannıñ mirasınen tanış olğanları ve alâqalarda bulunğanları aqqında delâlet bermekte.
-%Bu sintez ondan soñki devirlerde inkişaf etken qırımtatar medeniyetiniñ temelini teşkil etti.
+% Bu devir Qırım medeniyetiniñ genezisi içün ğayet nümünelidir: bu devir ellin ve Rim tesiri altında alıp ketirilgen skif dominantası olğan maalliy tavr elementleriniñ sintezinen qayd etilgendir.
+% Bundan da ğayrı, milâdiyden evel VI-V aa. ait skif kurganlarında tapılğan İran importınıñ eşyaları maalliy medeniyetlerniñ Ulu İrannıñ mirasınen tanış olğanları ve alâqalarda bulunğanları aqqında delâlet bermekte.
+% Bu sintez ondan soñki devirlerde inkişaf etken qırımtatar medeniyetiniñ temelini teşkil etti.
 
-%Skiflerniñ özleri (Gerodotnıñ qayd etkenine köre, mında çar skifleri yaşaganlar) Qırımda aman-aman 1000 yıl, yani got qabileleri olarnı tar-mar etkenge qadar yaşadılar, vaqıt keçtikçe otraq ziratçılıqqa keçtiler ve şimdiki Simferopolniñ civarında paytahtı Neapol-Skifskiyde (milâdiyden evel ІІ-ІІІ a.) — soñradan alğan adı Kermençik (qırımtatarcada "qale" — devlet qurdılar).
-%Bu ellin mabudeleri ve qaramanlarınıñ, skif daiyleriniñ eykelleri yerleştirilgen soqaqları, freskalarnen süslendirilgen cemaat ve mesken binaları olğan tipik antik bir şeer edi.
-%Skiflerniñ Şimaliy Qaradeñizboyundaki qomşu antik şeerlernen alâqalarda bulunganları bellidir.
+% Skiflerniñ özleri (Gerodotnıñ qayd etkenine köre, mında çar skifleri yaşaganlar) Qırımda aman-aman 1000 yıl, yani got qabileleri olarnı tar-mar etkenge qadar yaşadılar, vaqıt keçtikçe oturaq ziratçılıqqa keçtiler ve şimdiki Simferopolniñ civarında paytahtı Neapol-Skifskiyde (milâdiyden evel ІІ-ІІІ a.) — soñradan alğan adı Kermençik (qırımtatarcada "qale" — devlet qurdılar).
+% Bu ellin mabudeleri ve qaramanlarınıñ, skif daiyleriniñ eykelleri yerleştirilgen soqaqları, freskalarnen süslendirilgen cemaat ve mesken binaları olğan tipik antik bir şeer edi.
+% Skiflerniñ Şimaliy Qara deñiz boyundaki qomşu antik şeerlernen alâqalarda bulunganları bellidir.
 
-%Bu devirniñ maddiy medeniyeti maalliy ealiniñ çoqçeşitli medeniy alâqaları aqqında delâlet bergen ameliy sanat eşyalarınıñ keniş diapozonı ile taqdim etilgendir.
-%Mında em skiflerniñ "ayvan üslübine" harakterli olğan eşyalarnı, em ellinlerniñ qaraşekilli ve qızılşekilli vazalarını, şekilli tutquçları olğan İran küzgülerini, İnd okeanından alınğan mercanlardan yasalgan bezeklerni de rastketirmek mümkün.
-%Skif eşyalarında bediiy ğayelerniñ biri-birine yapqan tesirlerini körmek mümkün.
-%Antik örneklernen, selena ve satirlerniñ, Meduza Gorgonanıñ resimlerinen süslendirilgen eşyalarda bu daa ziyade körüne.
-%Skif sanatına İran sanatında ğayet populâr olğan polimorf mevcutatlar — sfinksler ve grifonlarnıñ obrazları da kirip keleler.
-%Skiflerniñ köçebe müiti diger medeniyetlerden olğan alıntılarğa ğayet tesirçen, açıq ve areketçen olğanını qayd etmeli.
+% Bu devirniñ maddiy medeniyeti maalliy ealiniñ çoq çeşitli medeniy alâqaları aqqında delâlet bergen ameliy sanat eşyalarınıñ keniş diapozonı ile taqdim etilgendir.
+% Mında em skiflerniñ "ayvan üslübine" harakterli olğan eşyalarnı, em ellinlerniñ qaraşekilli ve qızılşekilli vazalarını, şekilli tutquçları olğan İran küzgülerini, İnd okeanından alınğan mercanlardan yasalgan bezeklerni de rastketirmek mümkün.
+% Skif eşyalarında bediiy ğayelerniñ biri-birine yapqan tesirlerini körmek mümkün.
+% Antik örneklernen, selena ve satirlerniñ, Meduza Gorgonanıñ resimlerinen süslendirilgen eşyalarda bu daa ziyade körüne.
+% Skif sanatına İran sanatında ğayet populâr olğan polimorf mevcutlar — sfinksler ve grifonlarnıñ obrazları da kirip keleler.
+% Skiflerniñ köçebe müiti diger medeniyetlerden olğan alıntılarğa ğayet tesirçen, açıq ve areketçen olğanını qayd etmeli.
 
-%Ellin-skif medeniyetiniñ sintezi bir çoq unikal sanat yadikârlıqlarınıñ peyda olmasına alıp keldi, meselâ Neapol-Skifskiyniñ civarındaki nağışlarnen (atlılar ve çalğıcılar), ağaç skulpturalarnen (sfinksler ve grifonlarnıñ şekillerinen) süslendirilgen nekropol bu cümledendir.
+% Ellin-skif medeniyetiniñ sintezi bir çoq unikal sanat yadikârlıqlarınıñ peyda olmasına alıp keldi, meselâ Neapol-Skifskiyniñ civarındaki nağışlarnen (atlılar ve çalğıcılar), ağaç skulpturalarnen (sfinksler ve grifonlarnıñ şekillerinen) süslendirilgen nekropol bu cümledendir.
 %Bunıñ kibi de mında antik kiramet, quyumcılıq eşyalarınıñ nümüneleri saqlanıp qalğandır.
 
 %Vaqıt keçtikçe skifler maalliy zalite qarışıp, yoq olıp kettiler.
