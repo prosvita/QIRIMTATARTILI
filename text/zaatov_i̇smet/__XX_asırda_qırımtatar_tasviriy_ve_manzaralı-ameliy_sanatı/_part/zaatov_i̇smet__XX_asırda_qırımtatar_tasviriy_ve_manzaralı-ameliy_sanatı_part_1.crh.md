@@ -48,37 +48,37 @@
 
 % Qırımnıñ qadimiy medeniyeti ananeleriniñ ilerideki inkişafı srub ve salt medeniyetlerine ait köçebe qabilelerniñ devirinen bağlıdır.
 % Mezkür qabilelerniñ yaşav arealı bütün Şimaliy Qara deñiz boyunı ve aşağı Podnestrovyeni qaplap ala edi.
-%Demir asırı başlanğan soñ olarnıñ medeniyetleriniñ yerine bazı bir malümatlarğa köre, iran tilinde laqırdı etken, tam belgili etnik identifikatsiyağa malik olğan kimmeriylerniñ (gmıri-gimeriyos, milâdiyden evel ІH-VІІ aa.) medeniyeti kirip kele.
-%İzleri Küçük Asiyada coyulıp ketken kimmeriylerniñ yaşav arealı tek Qırım yarımadasınen sıñırlanmay, o Şarqiy Avropanıñ aman-aman bütün cenübini qavrap ala edi.
-%Bu halq aqqında endi yazılı menbalarda malümatlar peyda olğan edi.
-%Olar aqqında özüniñ "Ödisseya"sında Gömer qayd etip keçe.
-%Bazı bir mütehassıslarnıñ qayd etkenlerine köre, "kimmeriyler" degen termin Qırımnıñ toponimik adlarında saqlanıp qalğan.
+% Demir asırı başlanğan soñ olarnıñ medeniyetleriniñ yerine bazı bir malümatlarğa köre, iran tilinde laqırdı etken, tam belgili etnik identifikatsiyağa malik olğan kimmeriylerniñ (gmıri-gimeriyos, milâdiyden evel ІХ-VІІ aa.) medeniyeti kirip kele.
+% İzleri Küçük Asiyada coyulıp ketken kimmeriylerniñ yaşav arealı tek Qırım yarımadasınen sıñırlanmay, o Şarqiy Avropanıñ aman-aman bütün cenübini qavrap ala edi.
+% Bu halq aqqında endi yazılı menbalarda malümatlar peyda olğan edi.
+% Olar aqqında özüniñ "Odisseya"sında Gomer qayd etip keçe.
+% Bazı bir mütehassıslarnıñ qayd etkenlerine köre, "kimmeriyler" degen termin Qırımnıñ toponimik adlarında saqlanıp qalğan.
 
-%Kimmeriylerniñ esas meşğuliyeti yaylâ ayvanasravcılığı olğan.
-%Ayvanasravcılıqnen oğraşqan cemi qabilelerde olğanı kibi, kimmeriylerniñ arasında da madenni ğayrıdan işlev ve ondan yüksek bediiylikke malik olğan eşyalarnı azırlamaq sanatı yüksek derecede inkişaf etken edi.
-%Qadimiy tapılmalar — sapları dögme örneklernen süslendirilgen demir qılıçlar ve hancerler, dekor elementleri olğan cenkâver baltalar, spiral şekilindeki örneklernen süslendirilgen at qoşumı, örgülengen tunç bilezlikler bundan delâlet bermekteler.
-%Madenden eşyalar yapmaqnıñ asırlar devamında şekillenip kelgen ananeleri Qırımda skifler peyda olmazdan bayağı evel mında maalliy "ayvan" üslübi negizleriniñ inkişaf etip başlamasına temel qoydılar.
+% Kimmeriylerniñ esas meşğuliyeti yayla ayvanasravcılığı olğan.
+% Ayvanasravcılıqnen oğraşqan cemi qabilelerde olğanı kibi, kimmeriylerniñ arasında da madenni ğayrıdan işlev ve ondan yüksek bediiylikke malik olğan eşyalarnı azırlamaq sanatı yüksek derecede inkişaf etken edi.
+% Qadimiy tapılmalar — sapları dögme örneklernen süslendirilgen demir qılıçlar ve hancerler, dekor elementleri olğan cenkâver baltalar, spiral şekilindeki örneklernen süslendirilgen at qoşumı, örgülengen tunç bilezlikler bundan delâlet bermekteler.
+% Madenden eşyalar yapmaqnıñ asırlar devamında şekillenip kelgen ananeleri Qırımda skifler peyda olmazdan bayağı evel mında maalliy "ayvan" üslübi negizleriniñ inkişaf etip başlamasına temel qoydılar.
 
-%Eger şu adı añılğan kimmeriylerniñ medeniyeti olarnıñ yerine kelgen ve medeniyetlerini sıqıp çıqarğan köçebe skiflerniñ medeniyeti kibi, esasen yarımadanıñ çöl rayonlarında inkişaf etken köçebe ayvanasravcılar medeniyeti olğan olsa, otraq-ziraatçılar medeniyeti Qırımnıñ merkeziy, dağ etekleri, dağ ve yalıboyu rayonlarında inkişaf etkendir.
-%Söz öz adını Simferopol civarlarında yerleşken Qızıl-Qoba qobasınıñ adından alğan Qızıl-Qoba medeniyeti aqqında kete.
-%Bu yerde qadimiy insan duraqlarnıñ izleri tapılğan edi.
-%Culâlanğan, küneş nişanları şekilindeki kertikler ve oyma örneklernen süslendi-rilgen kiramet şu medeniyetniñ maddiy yadikârlıqları sayılalar.
+% Eger şu adı añılğan kimmeriylerniñ medeniyeti olarnıñ yerine kelgen ve medeniyetlerini sıqıp çıqarğan köçebe skiflerniñ medeniyeti kibi, esasen yarımadanıñ çöl rayonlarında inkişaf etken köçebe ayvanasravcılar medeniyeti olğan olsa, otraq-ziraatçılar medeniyeti Qırımnıñ merkeziy, dağ etekleri, dağ ve yalıboyu rayonlarında inkişaf etkendir.
+% Söz öz adını Simferopol civarlarında yerleşken Qızıl-Qoba qobasınıñ adından alğan Qızıl-Qoba medeniyeti aqqında kete.
+% Bu yerde qadimiy insan duraqlarnıñ izleri tapılğan edi.
+% Culâlanğan, küneş nişanları şekilindeki kertikler ve oyma örneklernen süslendirilgen kiramet şu medeniyetniñ maddiy yadikârlıqları sayılalar.
 
-%Qızıl-Qoba medeniyetinen parallel sürette ve ya onıñ peşinden oña soydaş olğan, yarımadanıñ cenübiy qısımını qavrap alğan tavr medeniyeti inkişaf etip başlay.
-%"Tavr" etnonimi yarımadanıñ adlarından biri olğan Tavrida adında saqlanıp qalğandır.
-%Biz tavrlar aqqındaki malümatlarnı tavrlarnıñ birinci daiysi, yani yetekçisi Taos aqqında (milâdiyden evel XIII a.) yazğan "tarih atası" Gerodotta bula bilemiz.
-%Tavrlar aqqındaki soñki malümatlar eramıznıñ X asırına aittir.
-%Biz tavrlar aqqındaki malümatlarnı bizans menbalarında da bula bilemiz, bu menbalarda söz hristian missonerleriniñ Qırımğa yollanılmaları aqqında kete.
-%Müellifniñ fikirince, Küçük Asiyanıñ cenübiy-ğarbından Qırımnıñ cenübiy yalısına kelgen rum kolonistleri Küçük Asiyanıñ cenübindeki Tavros dağlarınıñ Qırım dağlarına beñzegeni içün olarnı Tavros dağları dep adlandırğandırlar, bundan kelip çıqıp, şu dağlarda yaşağan sakinler de "tavroyos", yani tavrlar ekzoetnonimini alğandırlar.
+% Qızıl-Qoba medeniyetinen parallel sürette ve ya onıñ peşinden oña soydaş olğan, yarımadanıñ cenübiy qısımını qavrap alğan tavr medeniyeti inkişaf etip başlay.
+% "Tavr" etnonimi yarımadanıñ adlarından biri olğan Tavrida adında saqlanıp qalğandır.
+% Biz tavrlar aqqındaki malümatlarnı tavrlarnıñ birinci dayisi, yani yetekçisi Taos aqqında (milâdiyden evel XIII a.) yazğan "tarih atası" Gerodotta bula bilemiz.
+% Tavrlar aqqındaki soñki malümatlar eramıznıñ X asırına aittir.
+% Biz tavrlar aqqındaki malümatlarnı bizans menbalarında da bula bilemiz, bu menbalarda söz hristian missionerleriniñ Qırımğa yollanılmaları aqqında kete.
+% Müellifniñ fikirince, Küçük Asiyanıñ cenübiy-ğarbından Qırımnıñ cenübiy yalısına kelgen rum kolonistleri Küçük Asiyanıñ cenübindeki Tavros dağlarınıñ Qırım dağlarına beñzegeni içün olarnı Tavros dağları dep adlandırğandırlar, bundan kelip çıqıp, şu dağlarda yaşağan sakinler de "tavroyos", yani tavrlar ekzoetnonimini alğandırlar.
 
-%Qadimiy rumlar Küçük Asiyadaki Tavros dağlarında yaşağan hetlerniñ medeniyetinen (meselâ, divarlarnı tiklevde qullanılğan quru qalav printsipi) Qırım sakinleriniñ medeniyeti arasında nasıldır bir beñzerlikni köre ediler.
+% Qadimiy rumlar Küçük Asiyadaki Tavros dağlarında yaşağan hetlerniñ medeniyetinen (meselâ, divarlarnı tiklevde qullanılğan quru qalav printsipi) Qırım sakinleriniñ medeniyeti arasında nasıldır bir beñzerlikni köre ediler.
 
-%Elde etilgen çoqtan-çoq deliller tavrlar medeniyetiniñ olardan evel kelgen qabileler medeniyetleriniñ varisligi aqqında aytmaqtalar.
-%Söz o ve bu qabilelerde defn etüv merasimlerinde Küçük Asiyadaki hetlerde ve Ğarbiy Kavkazda yaşağan qadimiy abhazlardakine beñzegen "taş sanduqalarını" qullanğanları ve qadimiy mezarlıqlarnıñ bütün bir kompleksini teşkil etkeni, em de kurganlarnıñ üstünde monumental antropomorf eykellerni tiklev aqqında kete.
-%Kurganlar üstünde tiklenilgen insan eykellerini birinci olıp tavrlar yapıp başlağandırlar.
+% Elde etilgen çoqtan-çoq deliller tavrlar medeniyetiniñ olardan evel kelgen qabileler medeniyetleriniñ varisligi aqqında aytmaqtalar.
+% Söz o ve bu qabilelerde defn etüv merasimlerinde Küçük Asiyadaki hetlerde ve Ğarbiy Kavkazda yaşağan qadimiy abhazlardakine beñzegen "taş sanduqalarını" qullanğanları ve qadimiy mezarlıqlarnıñ bütün bir kompleksini teşkil etkeni, em de kurganlarnıñ üstünde monumental antropomorf eykellerni tiklev aqqında kete.
+% Kurganlar üstünde tiklenilgen insan eykellerini birinci olıp tavrlar yapıp başlağandırlar.
 
-%Böyleliknen, tunç asırınıñ soñları ve demir asırınıñ başlarından başlap Qırımda çeşit tipteki medeniyetlerniñ inkişaf etkenini, çeşit etnik gruppalarnıñ yan-yanaşa yaşağanlarını körmek mümkün.
-%Buña yarımadanıñ tabiatı ve landşaftınıñ özü yardımcı olğandır.
+% Böyleliknen, tunç asırınıñ soñları ve demir asırınıñ başlarından başlap Qırımda çeşit tipteki medeniyetlerniñ inkişaf etkenini, çeşit etnik gruppalarnıñ yan-yanaşa yaşağanlarını körmek mümkün.
+% Buña yarımadanıñ tabiatı ve landşaftınıñ özü yardımcı olğandır.
 %Mında deñizboyu tüzlükleri dağ rayonlarına birikip keteler, yarımadanıñ belli bir qısımını çelik teşkil ete.
 %Qadimiy devirlerde qabilelerniñ yarımadada yerleşmeleri o devirde üküm sürgen hocalıq usulına köre amelge keçe edi, dep qayd etmek mümkün, çünki erbir medeniyet özüne kelişken landşaft ve tabiat-iqlim zonasını seçip ala edi.
 %Bu öz nevbetinde Qırımda "üç etnik vilâyetniñ" peyda olmasına temel qoydı, ve medeniyetniñ biri-birinden farq etken özgün pıtaqları yan-yanaşa inkişaf ettiler...
