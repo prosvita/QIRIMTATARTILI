@@ -169,35 +169,35 @@
 % Lâkin çetten ketirilgen mallar da — ilmekler, toqalar, dügmeler keniş darqagan edi.
 
 % Bularnıñ episi antik Qırımnıñ büyük şeerlerinde medeniyet quvetli ellin tesiri altında inkişaf etkeni aqqında delâlet bermekteler.
-%Amma eramıznıñ IV asırında türkiy qabilelerniñ erte-garb birligi olğan hunlarnıñ seferleri Qırımda antik tsivilizatsiyanıñ izlerini silip atalar, ve bizans tesiri endi antik ananeler unutılğan devirde kirip kelmege başlay.
+% Amma eramıznıñ IV asırında türkiy qabilelerniñ erte-ğarp birligi olğan hunlarnıñ seferleri Qırımda antik tsivilizatsiyanıñ izlerini silip atalar, ve bizans tesiri endi antik ananeler unutılğan devirde kirip kelmege başlay.
 
-%### 1.2. ORTA ASIRLARDA QIRIMDA ETNOMEDENİYETNİÑ SİNTEZİ VE ONIÑ ESASINDA QIRIM HANLIĞINDA UMUMQIRIM MEDENİYETİNİÑ ŞEKİLLENMESİ
+% ### 1.2. ORTA ASIRLARDA QIRIMDA ETNOMEDENİYETNİÑ SİNTEZİ VE ONIÑ ESASINDA QIRIM HANLIĞINDA UMUMQIRIM MEDENİYETİNİÑ ŞEKİLLENMESİ
 %(qırımtatarlarnıñ etnogenezi misalinde)
 
-%Vizantiya quvetke kirip başlağan soñ Qırım (esasen onıñ yalıboyu qısımı) hristian pravoslaviyesiniñ tesirine oğrağan memleketler dairesinde buluna ve erte orta asır devirine kire.
-%Hristianlıqnıñ ğayeleri, başta bir, mimarcılıqta körüle.
-%Kilseler ve ibadethaneler, qobalarda ibadethaneler, bazilikler, rotondalar, çasovnâlarnıñ qurucılığı başlay.
-%Roman mimarcılığınıñ çeşitlerinden biri olğan rotonda yañı din içün qurban ketken şeitlerniñ qabirleri üstünde qurulğan, tsentrik qubbeli ibadethane — soñradan musulman mimarcılığında inkişaf etmege başlay.
-%Bu — meşur insanlarnıñ, zengin kişilerniñ mavzoley-türbeleridir.
-%Hristianlıqnıñ tarqaması freska boyalı resim çızuv sanatınıñ peyda olmasına sebep ola.
-%Bu sanatnıñ eñ eski nümüneleri HIII-HV asırlarğa aittir.
-%Qırımda ikonalar, haçlar, cemali haçlar, ilâhlarnıñ relyefli figuraçıqları keniş darqağan edi.
-%Medeniyet ve sanatnıñ diger çeşitlerine kelgende ise, mında bizans medeniyetiniñ tesiri çoq körülmey.
-%Esnafçılıqnıñ yetekçi çeşitlerinden biri sayılğan madenni bediiy ceetten ğayrıdan işlev esnafçılığında maalliy medeniyetleriniñ ananeleri inkişaf ettiler.
-%Çöl madenciliginiñ saqlanıp qalmasına Qırımğa yañı-yañı köçebe qabilelerniñ, bu cümleden türkiy tilli qabilelerniñ kelip yerleşmesi yardım etti.
-%Qırımğa moğol-tatar orduları bastırıp kirmezlerinden evel yarımadağa bir çoq türkiy tilli qabileler kelip ketkendirler.
-%Bu ise ket-kete yarımadada türkiy tilli ealiniñ çoqlaşmasına alıp keldi.
-%Orta asırlarda yaşağan qırım türkleriniñ bir qısımı proto-qırımtatarlar qomşularından hristian dinini alalar, olarnıñ nesilleri — greko-tatarlar, yani grek (pravoslav) dinini qabul eteler ve orta asırlardaki Qırımnıñ türk-hristian ealisini teşkil eteler.
+% Vizantiya quvetke kirip başlağan soñ Qırım (esasen onıñ yalıboyu qısımı) hristian pravoslaviyesiniñ tesirine oğrağan memleketler dairesinde buluna ve erte orta asır devirine kire.
+% Hristianlıqnıñ ğayeleri, başta bir, mimarcılıqta körüle.
+% Kilseler ve ibadethaneler, qobalarda ibadethaneler, bazilikler, rotondalar, çasovnâlarnıñ qurucılığı başlay.
+% Roman mimarcılığınıñ çeşitlerinden biri olğan rotonda yañı din içün qurban ketken şeitlerniñ qabirleri üstünde qurulğan, tsentrik qubbeli ibadethane — soñradan musulman mimarcılığında inkişaf etmege başlay.
+% Bu — meşur insanlarnıñ, zengin kişilerniñ mavzoley-türbeleridir.
+% Hristianlıqnıñ tarqaması freska boyalı resim çızuv sanatınıñ peyda olmasına sebep ola.
+% Bu sanatnıñ eñ eski nümüneleri XIII—XV asırlarğa aittir.
+% Qırımda ikonalar, haçlar, cemali haçlar, ilâhlarnıñ relyefli figuraçıqları keniş darqağan edi.
+% Medeniyet ve sanatnıñ diger çeşitlerine kelgende ise, mında bizans medeniyetiniñ tesiri çoq körülmey.
+% Esnafçılıqnıñ yetekçi çeşitlerinden biri sayılğan madenni bediiy ceetten ğayrıdan işlev esnafçılığında maalliy medeniyetleriniñ ananeleri inkişaf ettiler.
+% Çöl madenciliginiñ saqlanıp qalmasına Qırımğa yañı-yañı köçebe qabilelerniñ, bu cümleden türkiy tilli qabilelerniñ kelip yerleşmesi yardım etti.
+% Qırımğa moğol-tatar orduları bastırıp kirmezlerinden evel yarımadağa bir çoq türkiy tilli qabileler kelip ketkendirler.
+% Bu ise ket-kete yarımadada türkiy tilli ealiniñ çoqlaşmasına alıp keldi.
+% Orta asırlarda yaşağan qırım türkleriniñ bir qısımı proto-qırımtatarlar qomşularından hristian dinini alalar, olarnıñ nesilleri — greko-tatarlar, yani grek (pravoslav) dinini qabul eteler ve orta asırlardaki Qırımnıñ türk-hristian ealisini teşkil eteler.
 
-%R.Qurtiyevniñ fikirince, hunlar kelgen soñ (IV asırnıñ soñki çerigi — VI asırnıñ otuzıncı seneleri) köçebe türkiy qabilelerniñ Qırımnıñ türkiy olmağan ealisinen ilk etnosiyasiy alâqaları yüz berdi.
-%Neticede Qırımda iran qabileleriniñ (kimmeriyler, skifler, sarmatlar ve ilâhrileri) biñyıllıq ükümdarlığınıñ yerine kelgen türk tarihına temel qoyula.
+% R.Qurtiyevniñ fikirince, hunlar kelgen soñ (IV asırnıñ soñki çerigi — VI asırnıñ otuzıncı seneleri) köçebe türkiy qabilelerniñ Qırımnıñ türkiy olmağan ealisinen ilk etnosiyasiy alâqaları yüz berdi.
+% Neticede Qırımda iran qabileleriniñ (kimmeriyler, skifler, sarmatlar ve ilâhrileri) biñyıllıq ükümdarlığınıñ yerine kelgen türk tarihına temel qoyula.
 
-%Qırımtatar halqınıñ avtohtonlığına dair problema, ve onıñ medeniyetiniñ mında inkişaf etken tavr ve skif tsivilizatsiyalarnı meydanğa ketirgen qabilelerniñ medeniyetleriniñ varisi olğanı aqqındaki mesele bugün-de-bugün ilimde ve cemiyette eñ aktual meselelerden biridir.
-%Qırımtatar milliy areketiniñ liderleri ve Rusiye, Ukraina, Avropa ve Amerikanıñ bir sıra alimleri qırımtatar medeniyeti kelmeşek harakterini taşıy degen fikirge qarşı çıqalar ve şu pozitsiyalarda turalar.
-%Bu ğaye siyasiy küreşte qullanılğan boş ideologik şiar degil, aksine Qırımda milliy küreş keskinleşmesinden bayağı evel postulat olaraq belgilengen, ilmiy esaslandırılğan fakttır.
+% Qırımtatar halqınıñ avtohtonlığına dair problema, ve onıñ medeniyetiniñ mında inkişaf etken tavr ve skif tsivilizatsiyalarnı meydanğa ketirgen qabilelerniñ medeniyetleriniñ varisi olğanı aqqındaki mesele bugün-de-bugün ilimde ve cemiyette eñ aktual meselelerden biridir.
+% Qırımtatar milliy areketiniñ liderleri ve Rusiye, Ukraina, Avropa ve Amerikanıñ bir sıra alimleri qırımtatar medeniyeti kelmeşek harakterini taşıy degen fikirge qarşı çıqalar ve şu pozitsiyalarda turalar.
+% Bu ğaye siyasiy küreşte qullanılğan boş ideologik şiar degil, aksine Qırımda milliy küreş keskinleşmesinden bayağı evel postulat olaraq belgilengen, ilmiy esaslandırılğan fakttır.
 
-%Daa XX asırnıñ başlarında alimler qırımtatarlar tavr medeniyetiniñ doğrudan-doğru varisi olğanı aqqındaki gipotezanı ögge sürgen ediler.
-%Rusiye iliminde Qırımnı tedqiq etken alimler arasında birinci olıp Petr Keppen: "Tapılmalarğa zengin olğan aman-aman bütün dolmenler (taş qobalar) sakinleriniñ damarlarında şimdi de qadimiy dolmen qurucılarınıñ qanı aqa, dep belleyim" dep yazğan edi.
+% Daa XX asırnıñ başlarında alimler qırımtatarlar tavr medeniyetiniñ doğrudan-doğru varisi olğanı aqqındaki gipotezanı ögge sürgen ediler.
+% Rusiye iliminde Qırımnı tedqiq etken alimler arasında birinci olıp Petr Keppen: "Tapılmalarğa zengin olğan aman-aman bütün dolmenler (taş qobalar) sakinleriniñ damarlarında şimdi de qadimiy dolmen qurucılarınıñ qanı aqa, dep belleyim" dep yazğan edi.
 %Rus alimi, antropolog YE. Jirov kendi fikirini bayağı açıqça beyan etken edi.
 %O, Eski-Kermenni tedqiq etken ve bu aqta: "Dağlı Qırımnıñ orta asırlardaki ealisiniñ ekseriyeti qadimiy aborigenler — tavrlarnıñ nesilleri degil ekenlermi...
 %Asılında alacaq olsaq — tavrlar qayda ğayıp olıp kettiler.
