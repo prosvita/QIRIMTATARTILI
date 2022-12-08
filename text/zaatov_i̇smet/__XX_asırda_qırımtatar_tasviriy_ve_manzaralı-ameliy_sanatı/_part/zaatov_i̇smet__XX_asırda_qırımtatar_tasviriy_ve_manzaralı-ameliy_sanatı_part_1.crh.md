@@ -154,21 +154,21 @@
 % Orta asırlarda Hersones Qırımda ve Ğarbiy Avropada bizans medeniyeti ve hristiancılıqnıñ translâtorına çevirile.
 
 % Böyleliknen, antik medeniyet (Qırımnıñ yalı boyları) ve tavr-skif qabileleriniñ medeniyetleri (Qırımnıñ çöl ve dağlıq rayonları) daimiy özara alâqalarda buluna edi.
-%İcadiy alâqalar, çetten kelgen ananeler neticesinde qırımlı ustalar klassik eykeltıraşlıq ve mimarcılıqnen, orderli sistemanen tanış olalar, qurucılıqnıñ yañı usul ve melekelerini menimseyler, esnafçılıqnıñ yañı çeşitlerinen tanış olalar, meselâ, pencere camları ve polihrom savutlar istisalını menimseyler.
-%Rimde ğayet populâr ölgan mozaika camlarını (millifiore) istisalı keniş darqamağa başlay.
+% İcadiy alâqalar, çetten kelgen ananeler neticesinde qırımlı ustalar klassik eykeltıraşlıq ve mimarcılıqnen, orderli sistemanen tanış olalar, qurucılıqnıñ yañı usul ve melekelerini menimseyler, esnafçılıqnıñ yañı çeşitlerinen tanış olalar, meselâ, pencere camları ve polihrom savutlar istisalını menimseyler.
+% Rimde ğayet populâr ölgan mozaika camlarını (millifiore) istisalı keniş darqamağa başlay.
 
-%Antik Qırımnıñ kirametçiligi antik urkçülikniñ tolusınen menimsenilgenini numayış ete.
-%Antik ürkçülikniñ ananeleri mında em import eşyalarnen, em de ellin kolonistleriniñ yasağan mallarınen kirip keleler.
-%Ürk ustaları tarafından maalliy balçıqtan yasalğan qızıl laklı, qızıl balçıqlı, külrenk balçıqlı yapma eşyalar bular cümlesindendir.
-%Aşhane savutları arasında antik Ortadeñizboyunda keniş darqağan şekillerdeki amforalar, pifoslar, qadeler, çanaqlar, şamdanlar, tepsilerniñ keniş assortimenti mevcuttır.
+% Antik Qırımnıñ kirametçiligi antik urkçülikniñ tolusınen menimsenilgenini numayış ete.
+% Antik ürkçülikniñ ananeleri mında em import eşyalarnen, em de ellin kolonistleriniñ yasağan mallarınen kirip keleler.
+% Ürk ustaları tarafından maalliy balçıqtan yasalğan qızıl laklı, qızıl balçıqlı, külrenk balçıqlı yapma eşyalar bular cümlesindendir.
+% Aşhane savutları arasında antik Orta deñiz boyunda keniş darqağan şekillerdeki amforalar, pifoslar, qadeler, çanaqlar, şamdanlar, tepsilerniñ keniş assortimenti mevcuttır.
 
-%Tovretika ve quyumcılıq sanatına ait eşyalar — acayip nefis kümüşler, tunçtan ve demirden bütün quyulğan bilezlikler, ayvan ya da yılanlarnıñ başlarına beñzegen açıq, uclu bilezlikler, bazıda ise gemmalı, yani oyma taşlı yüzüklerde em ellin tesirini, em de çöl alemi sanatınıñ tesirini körmek mümkün.
+% Tovretika ve quyumcılıq sanatına ait eşyalar — acayip nefis kümüşler, tunçtan ve demirden bütün quyulğan bilezlikler, ayvan ya da yılanlarnıñ başlarına beñzegen açıq, uclu bilezlikler, bazıda ise gemmalı, yani oyma taşlı yüzüklerde em ellin tesirini, em de çöl alemi sanatınıñ tesirini körmek mümkün.
 
-%Tapılmalar arasında taqdir ilâhı Tiha, Nika, Demetranıñ tasvirleri olğan gemmalar da sıq rastkele.
-%Bu gemmalar yarımadada işlep çıqarılğan mallardır, çünki mevcut menbalarğa köre Bosporda taş kesüv ustahanesi bar edi.
-%Lâkin çetten ketirilgen mallar da — ilmekler, toqalar, dügmeler keniş darqagan edi.
+% Tapılmalar arasında taqdir ilâhı Tiha, Nika, Demetranıñ tasvirleri olğan gemmalar da sıq rastkele.
+% Bu gemmalar yarımadada işlep çıqarılğan mallardır, çünki mevcut menbalarğa köre Bosporda taş kesüv ustahanesi bar edi.
+% Lâkin çetten ketirilgen mallar da — ilmekler, toqalar, dügmeler keniş darqagan edi.
 
-%Bularnıñ episi antik Qırımnıñ büyük şeerlerinde medeniyet quvetli ellin tesiri altında inkişaf etkeni aqqında delâlet bermekteler.
+% Bularnıñ episi antik Qırımnıñ büyük şeerlerinde medeniyet quvetli ellin tesiri altında inkişaf etkeni aqqında delâlet bermekteler.
 %Amma eramıznıñ IV asırında türkiy qabilelerniñ erte-garb birligi olğan hunlarnıñ seferleri Qırımda antik tsivilizatsiyanıñ izlerini silip atalar, ve bizans tesiri endi antik ananeler unutılğan devirde kirip kelmege başlay.
 
 %### 1.2. ORTA ASIRLARDA QIRIMDA ETNOMEDENİYETNİÑ SİNTEZİ VE ONIÑ ESASINDA QIRIM HANLIĞINDA UMUMQIRIM MEDENİYETİNİÑ ŞEKİLLENMESİ
