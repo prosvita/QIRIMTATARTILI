@@ -129,31 +129,31 @@
 % Skiflerniñ köçebe müiti diger medeniyetlerden olğan alıntılarğa ğayet tesirçen, açıq ve areketçen olğanını qayd etmeli.
 
 % Ellin-skif medeniyetiniñ sintezi bir çoq unikal sanat yadikârlıqlarınıñ peyda olmasına alıp keldi, meselâ Neapol-Skifskiyniñ civarındaki nağışlarnen (atlılar ve çalğıcılar), ağaç skulpturalarnen (sfinksler ve grifonlarnıñ şekillerinen) süslendirilgen nekropol bu cümledendir.
-%Bunıñ kibi de mında antik kiramet, quyumcılıq eşyalarınıñ nümüneleri saqlanıp qalğandır.
+% Bunıñ kibi de mında antik kiramet, quyumcılıq eşyalarınıñ nümüneleri saqlanıp qalğandır.
 
-%Vaqıt keçtikçe skifler maalliy zalite qarışıp, yoq olıp kettiler.
-%Skiflernen bir vaqıtta, yani milâdiyden evel 7 asırda peyda olğan ellin kolonistleriniñ medeniyetlerine kelgende ise şunı ayta bilemiz: olarnıñ medeniyeti Qırımnıñ medeniy tarihında eñ ziyade ögrenilgen bir medeniyettir.
-%Ebet, bu medeniyet Qırımda Yunanistan ve Küçük Asiyadaki kibi inkişaf etmedi.
-%Yarımadanıñ ğarbında yerleşken Hersones, şarqta Bospor çarlığınıñ paytahtlarından biri olğan Pantikapey (Kerç), milâdiyden evel 6 asırda meydanğa ketirilgen Feodosiya, şimdiki Yevpatoriya bulunğan yerdeki Kerkinitida Qırımda ellin medeniyetiniñ yetekçi merkezleri ediler.
-%Bospor çarlığı Qırımda ellin medeniyetini numayış etken eñ aydın bir misaldir.
-%Mitridat Yevpator devirinde qocaman qudret ve mühteşemlikke irişken Bospor çarlığı 800 yıl turdı.
-%Bospor çarlığındaki ealiniñ etnik erkânı ilmiy edebiyatta çoq vaqıtlar devamında munaqaşalarğa sebep olıp keldi.
-%Tedqiqatçılarnıñ ekseriyeti mında esasen ellin ve sarmat medeniyetleriniñ elementlerini menimsegen skifler yaşağan ediler, degen fikirge keleler.
-%Başqa bir noqtaiy-nazarğa köre, mında ealiniñ esas qısımını ellinler teşkil etkenler.
+% Vaqıt keçtikçe skifler maalliy ealige qarışıp, yoq olıp kettiler.
+% Skiflernen bir vaqıtta, yani milâdiyden evel 7 asırda peyda olğan ellin kolonistleriniñ medeniyetlerine kelgende ise şunı ayta bilemiz: olarnıñ medeniyeti Qırımnıñ medeniy tarihında eñ ziyade ögrenilgen bir medeniyettir.
+% Ebet, bu medeniyet Qırımda Yunanistan ve Küçük Asiyadaki kibi inkişaf etmedi.
+% Yarımadanıñ ğarbında yerleşken Hersones, şarqta Bospor çarlığınıñ paytahtlarından biri olğan Pantikapey (Kerç), milâdiyden evel 6 asırda meydanğa ketirilgen Feodosiya, şimdiki Yevpatoriya bulunğan yerdeki Kerkinitida Qırımda ellin medeniyetiniñ yetekçi merkezleri ediler.
+% Bospor çarlığı Qırımda ellin medeniyetini numayış etken eñ aydın bir misaldir.
+% Mitridat Yevpator devirinde qocaman qudret ve mühteşemlikke irişken Bospor çarlığı 800 yıl turdı.
+% Bospor çarlığındaki ealiniñ etnik erkânı ilmiy edebiyatta çoq vaqıtlar devamında munaqaşalarğa sebep olıp keldi.
+% Tedqiqatçılarnıñ ekseriyeti mında esasen ellin ve sarmat medeniyetleriniñ elementlerini menimsegen skifler yaşağan ediler, degen fikirge keleler.
+% Başqa bir noqtaiy-nazarğa köre, mında ealiniñ esas qısımını ellinler teşkil etkenler.
 
 %Qırım medeniyeti inkişafınıñ bir sıra hususiyetleri Feodosiyanıñ — tavrlarda — Ardabda, türk menbalarında Aradayda — tarihınen bağlıdır.
-%Ellin kolonistleri tarafından meydanğa ketirilgen bu şeer bir çoq asır keçken soñ Qaradeñizboyunıñ eñ iri ticaret ve medeniy merkezlerinden biri olğan Kefe ceneviz qalesine çevirile.
-%Türk istilâsı yıllarında Qırım yarımadasında osmanlı medeniyetiniñ merkezi olğan Küçük İstanbul adınen añıla.
+% Ellin kolonistleri tarafından meydanğa ketirilgen bu şeer bir çoq asır keçken soñ Qaradeñiz boyunıñ eñ iri ticaret ve medeniy merkezlerinden biri olğan Kefe ceneviz qalesine çevirile.
+% Türk istilâsı yıllarında Qırım yarımadasında osmanlı medeniyetiniñ merkezi olğan Küçük İstanbul adınen añıla.
 
-%Coğrafik ceetten antik tsivilizatsiyanıñ diger şeerlerine yaqın turğan Hersones ta orta asırlarğace Qırımda ellin ana-qıta medeniyetiniñ forpostı olıp keldi.
-%Hersoneste milâdiyden evel ІІІ-ІІ asırlarda maalliy koroplast-eykeltıraşlar tarafından yasalğan antik skulpturalarnıñ fragmentleri bizim künümizgece yetip keldirler.
-%Bu fragmentlerde antik Hersoneste populâr olğan ilâhlar — Deva ve Gerakl, Appolon ve Dionis ve onıñ etrafında bulunğan kimseler, Kibela ve Afrodita resimleriniñ tasvirleri mevcut.
-%Bu tasvirlerde Skopasnıñ, Praksitelniñ, Lisippniñ tesirleri közge çarpa.
-%Korolastika sanatınıñ çeçeklenmesi em ibadet ihtiyaclarına, em de ilkingi material olğanına (mermer ve güzel keyfiyetli balçıq olmağanına) bağlıdır.
-%Şeerde terrakot eykellerini yasağan bir qaç ustahane bar edi.
-%Orta asırlarda Hersones Qırımda ve Ğarbiy Avropada bizans medeniyeti ve hristiancılıqnıñ translâtorına çevirile.
+% Coğrafik ceetten antik tsivilizatsiyanıñ diger şeerlerine yaqın turğan Hersones ta orta asırlarğace Qırımda ellin ana-qıta medeniyetiniñ forpostı olıp keldi.
+% Hersoneste milâdiyden evel ІІІ-ІІ asırlarda maalliy koroplast-eykeltıraşlar tarafından yasalğan antik skulpturalarnıñ fragmentleri bizim künümizgece yetip keldirler.
+% Bu fragmentlerde antik Hersoneste populâr olğan ilâhlar — Deva ve Gerakl, Appolon ve Dionis ve onıñ etrafında bulunğan kimseler, Kibela ve Afrodita resimleriniñ tasvirleri mevcut.
+% Bu tasvirlerde Skopasnıñ, Praksitelniñ, Lisippniñ tesirleri közge çarpa.
+% Korolastika sanatınıñ çeçeklenmesi em ibadet ihtiyaclarına, em de ilkingi material olğanına (mermer ve güzel keyfiyetli balçıq olmağanına) bağlıdır.
+% Şeerde terrakot eykellerini yasağan bir qaç ustahane bar edi.
+% Orta asırlarda Hersones Qırımda ve Ğarbiy Avropada bizans medeniyeti ve hristiancılıqnıñ translâtorına çevirile.
 
-%Böyleliknen, antik medeniyet (Qırımnıñ yalı boyları) ve tavr-skif qabileleriniñ medeniyetleri (Qırımnıñ çöl ve dağlıq rayonları) daimiy özara alâqalarda buluna edi.
+% Böyleliknen, antik medeniyet (Qırımnıñ yalı boyları) ve tavr-skif qabileleriniñ medeniyetleri (Qırımnıñ çöl ve dağlıq rayonları) daimiy özara alâqalarda buluna edi.
 %İcadiy alâqalar, çetten kelgen ananeler neticesinde qırımlı ustalar klassik eykeltıraşlıq ve mimarcılıqnen, orderli sistemanen tanış olalar, qurucılıqnıñ yañı usul ve melekelerini menimseyler, esnafçılıqnıñ yañı çeşitlerinen tanış olalar, meselâ, pencere camları ve polihrom savutlar istisalını menimseyler.
 %Rimde ğayet populâr ölgan mozaika camlarını (millifiore) istisalı keniş darqamağa başlay.
 
