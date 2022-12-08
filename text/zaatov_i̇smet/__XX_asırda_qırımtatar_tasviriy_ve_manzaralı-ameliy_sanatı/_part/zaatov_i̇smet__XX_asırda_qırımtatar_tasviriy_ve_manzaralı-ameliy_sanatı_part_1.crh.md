@@ -198,7 +198,7 @@
 
 % Daa XX asırnıñ başlarında alimler qırımtatarlar tavr medeniyetiniñ doğrudan-doğru varisi olğanı aqqındaki gipotezanı ögge sürgen ediler.
 % Rusiye iliminde Qırımnı tedqiq etken alimler arasında birinci olıp Petr Keppen: "Tapılmalarğa zengin olğan aman-aman bütün dolmenler (taş qobalar) sakinleriniñ damarlarında şimdi de qadimiy dolmen qurucılarınıñ qanı aqa, dep belleyim" dep yazğan edi.
-%Rus alimi, antropolog YE. Jirov kendi fikirini bayağı açıqça beyan etken edi.
+% Rus alimi, antropolog YE. Jirov kendi fikirini bayağı açıqça beyan etken edi.
 %O, Eski-Kermenni tedqiq etken ve bu aqta: "Dağlı Qırımnıñ orta asırlardaki ealisiniñ ekseriyeti qadimiy aborigenler — tavrlarnıñ nesilleri degil ekenlermi...
 %Asılında alacaq olsaq — tavrlar qayda ğayıp olıp kettiler.
 %Tarih nasıldır bir köçmenler aqqında iç bir şey aytmay", dep yazğan edi.
