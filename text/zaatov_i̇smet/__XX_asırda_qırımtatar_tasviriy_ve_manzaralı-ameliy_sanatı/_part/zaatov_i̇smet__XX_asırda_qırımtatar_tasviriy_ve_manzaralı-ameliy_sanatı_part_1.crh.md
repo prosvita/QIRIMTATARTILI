@@ -199,54 +199,54 @@
 % Daa XX asırnıñ başlarında alimler qırımtatarlar tavr medeniyetiniñ doğrudan-doğru varisi olğanı aqqındaki gipotezanı ögge sürgen ediler.
 % Rusiye iliminde Qırımnı tedqiq etken alimler arasında birinci olıp Petr Keppen: "Tapılmalarğa zengin olğan aman-aman bütün dolmenler (taş qobalar) sakinleriniñ damarlarında şimdi de qadimiy dolmen qurucılarınıñ qanı aqa, dep belleyim" dep yazğan edi.
 % Rus alimi, antropolog YE. Jirov kendi fikirini bayağı açıqça beyan etken edi.
-%O, Eski-Kermenni tedqiq etken ve bu aqta: "Dağlı Qırımnıñ orta asırlardaki ealisiniñ ekseriyeti qadimiy aborigenler — tavrlarnıñ nesilleri degil ekenlermi...
-%Asılında alacaq olsaq — tavrlar qayda ğayıp olıp kettiler.
-%Tarih nasıldır bir köçmenler aqqında iç bir şey aytmay", dep yazğan edi.
+% O, Eski-Kermenni tedqiq etken ve bu aqta: "Dağlı Qırımnıñ orta asırlardaki ealisiniñ ekseriyeti qadimiy aborigenler — tavrlarnıñ nesilleri degil ekenlermi...
+% Asılında alacaq olsaq — tavrlar qayda ğayıp olıp kettiler.
+% Tarih nasıldır bir köçmenler aqqında iç bir şey aytmay", dep yazğan edi.
 
-%Keçenlerde dünya yüzü körgen "Qırımtatarlarnıñ tarihiy taqdirleri" ("İstoriçeskiye sudbı krımskih tatar") kitapbında, onıñ müellifi, Qırım medeniyeti ve tarihınıñ tedqiqatçısı V. Vozgrin qırımtatar sanatınıñ tarihı tavrlar sanatından kelip çıqqanını, esaslandıraraq, tasdiqlay.
+% Keçenlerde dünya yüzü körgen "Qırımtatarlarnıñ tarihiy taqdirleri" kitabında, onıñ müellifi, Qırım medeniyeti ve tarihınıñ tedqiqatçısı V. Vozgrin qırımtatar sanatınıñ tarihı tavrlar sanatından kelip çıqqanını, esaslandıraraq, tasdiqlay.
 
-%Meraqlı yeri şunda ki, V. Vozgrin orta asırlarda qırımtatarlar aqqında yazğan bazı bir müelliflerniñ malümatlarını misal olaraq ketire: "tatarlar... özleriniñ qadimiy skif tamırlarınen ğururlanalar".
-%Qadimiy skifler ve tavrlarnıñ istiqamet yerleri orta asırlarda menimsenilgen medeniyet merkezleri olaraq öz emiyetlerini saqlap qalalar.
-%Bular — Eski-Kermen (Çerkes-Kirman köyü civarındaki qale), Manğup, Qız-Kermen, Tepe-Kermen, Baqla, Çufut-Qale ve saireleridir.
+% Meraqlı yeri şunda ki, V. Vozgrin orta asırlarda qırımtatarlar aqqında yazğan bazı bir müelliflerniñ malümatlarını misal olaraq ketire: "tatarlar... özleriniñ qadimiy skif tamırlarınen ğururlanalar".
+% Qadimiy skifler ve tavrlarnıñ istiqamet yerleri orta asırlarda menimsenilgen medeniyet merkezleri olaraq öz emiyetlerini saqlap qalalar.
+% Bular — Eski-Kermen (Çerkes-Kerman köyü civarındaki qale), Manğup, Qız-Kermen, Tepe-Kermen, Baqla, Çufut-Qale ve saireleridir.
 
-%Amma qırımtatarlarnıñ tamırları yalıñız tavrlar ve ya skiflernen bağlı degil, qırımlılar — öz içine otuzğa yaqın qabile ve halqlarnı qavrap alğan mürekkep etnik mahsulattır.
-%Avrasiya çöllerinden ve Küçük Asiyadan Qırımğa biri digeri artından yetip kelgen türkiy tilli halqlarnıñ (hunlar, dürk-alanlar, protobulğarlar, hazarlar, peçenegler, qıpçaqlar, selcuklerniñ) migratsion dalğalarınıñ tesiri altında maalliy medeniyette türkiy komponent üstün turmağa başlay, ve neticede yañı etnos — türkiy tilde laqırdı etken qırımtatar halqı şekillene.
+% Amma qırımtatarlarnıñ tamırları yalıñız tavrlar ve ya skiflernen bağlı degil, qırımlılar — öz içine otuzğa yaqın qabile ve halqlarnı qavrap alğan mürekkep etnik mahsulattır.
+% Avrasiya çöllerinden ve Küçük Asiyadan Qırımğa biri digeri artından yetip kelgen türkiy tilli halqlarnıñ (hunlar, türk-alanlar, protobulğarlar, hazarlar, peçenegler, qıpçaqlar, selcuklerniñ) migratsion dalğalarınıñ tesiri altında maalliy medeniyette türkiy komponent üstün turmağa başlay, ve neticede yañı etnos — türkiy tilde laqırdı etken qırımtatar halqı şekillene.
 
-%Qırımtatar halqınıñ etnogenezine dair kontseptsiyalarnıñ müelliflerinden biri R. Qurtiyev şöyle dep yaza: "Qırımlılarnıñ etnogenezleriniñ acayip hususiyetlerinden biri bu biri digerinden tübü-temelinden farq etken etnik komponentlerniñ: türkiy olmağan avtohton otraq qabileler ve köçebe türkiy qabilelerniñ sintezidir.
-%Mezkür sintez neticesinde sayı ceetinden üstün turğan birinci komponent yavaş-yavaş türkleştirilgen ve musulmanlaştırılğan edi, yani o medeniy assimilâtsiyağa oğratılğan edi...
-%ІV-VІІ asırlarda çeşit-türlü türkiy qabileler intensiv sürette migratsiya yapqanlarına baqmadan, çöl rayonlarında yaşağan qırımlılarnıñ negizini qıpçaqlar teşkil ettiler.
-%Buña etnik fenomen demek mümkün".
-%Coğrafik müit ve maalliy landşaft şu müitke eñ ziyade alışqan tipniñ şekillenmesine yardım etti.
-%Bir çoq etnik gruppalarnıñ varisi olğan yekâne halqnıñ şekillenmesi, işte, böyle başlandı.
+% Qırımtatar halqınıñ etnogenezine dair kontseptsiyalarnıñ müelliflerinden biri R. Qurtiyev şöyle dep yaza: "Qırımlılarnıñ etnogenezleriniñ acayip hususiyetlerinden biri bu biri digerinden tübü-temelinden farq etken etnik komponentlerniñ: türkiy olmağan avtohton otraq qabileler ve köçebe türkiy qabilelerniñ sintezidir.
+% Mezkür sintez neticesinde sayı ceetinden üstün turğan birinci komponent yavaş-yavaş türkleştirilgen ve musulmanlaştırılğan edi, yani o medeniy assimilâtsiyağa oğratılğan edi...
+% ІV-VІІ asırlarda çeşit-türlü türkiy qabileler intensiv sürette migratsiya yapqanlarına baqmadan, çöl rayonlarında yaşağan qırımlılarnıñ negizini qıpçaqlar teşkil ettiler.
+% Buña etnik fenomen demek mümkün".
+% Coğrafik müit ve maalliy landşaft şu müitke eñ ziyade alışqan tipniñ şekillenmesine yardım etti.
+% Bir çoq etnik gruppalarnıñ varisi olğan yekâne halqnıñ şekillenmesi, işte, böyle başlandı.
 
-%Orta asırlarnıñ başındaki Qırımnıñ çoq çizgili sanatı polietnik cemiyetniñ ideallarını aks ettire.
-%Tavrlar ve ellin-kolonistlerden ğayrı mında skolot-skifleri, sarmatlar, türk-alanlar, soñradan ise hazarlar, Nahiçevan ermenileri, Skandinaviyadan kelgen ve mında öz devletini qurğan gottlar assimilâtsiyağa oğratıldılar.
-%Er bir etnos Qırım medeniyetine öz ananelerini, öz dünyaañlayışını, estetik ideallar aqqında öz tasavurlarını qoştı.
-%Öz içinde em İran, em Orta Asiya, em türk-çöl sanatınıñ elementlerini taşığan İran-sasanid sanatınıñ tesirleri Qırımğa yetip keldiler (157, s.225).
+% Orta asırlarnıñ başındaki Qırımnıñ çoq çizgili sanatı polietnik cemiyetniñ ideallarını aks ettire.
+% Tavrlar ve ellin-kolonistlerden ğayrı mında skolot-skifleri, sarmatlar, türk-alanlar, soñradan ise hazarlar, Nahiçevan ermenileri, Skandinaviyadan kelgen ve mında öz devletini qurğan gotlar assimilâtsiyağa oğratıldılar.
+% Er bir etnos Qırım medeniyetine öz ananelerini, öz dünya añlayışını, estetik ideallar aqqında öz tasavurlarını qoştı.
+% Öz içinde em İran, em Orta Asiya, em türk-çöl sanatınıñ elementlerini taşığan İran-sasanid sanatınıñ tesirleri Qırımğa yetip keldiler (157, s.225).
 
-%VIII asırda Qırım Vizantiya ve Türk Kaganatınıñ varisi olğan hazarlar arasındaki küreşniñ tamam kesişken yerinde buluna.
-%Bunıñ neticesinde Hersones Vizantiyağa keçe, bütün Şarqiy Qırım ve yarımada ğarbındaki çöller Hazariyada qala.
-%Hazarlarnen beraber mında yalıñız teñricilik degil, iudaizm de kirip kele.
+% VIII asırda Qırım Vizantiya ve Türk Kaganatınıñ varisi olğan hazarlar arasındaki küreşniñ tamam kesişken yerinde buluna.
+% Bunıñ neticesinde Hersones Vizantiyağa keçe, bütün Şarqiy Qırım ve yarımada ğarbındaki çöller Hazariyada qala.
+% Hazarlarnen beraber mında yalıñız teñricilik degil, iudaizm de kirip kele.
 Soñradan Qırım Hazariyadan ayırıla ve Vizantiyanıñ tesiri altında qala.
 
-%Orta asırlarda mında peçeneg (ІX-XІ aa.), qıpçaq (X-XІ aa.), slavân (X-XI asırlarda Kerç qadimiy Rus knâzlığı Tmutarakannıñ erkânına kire edi) qabileleri kelip yerleşeler.
-%Niayet, XIII asırda Orta Asiya çöllerinden Küçük Asiyaga, ve mından da Balkanlarğa areket etken türk-oğuz qabileleriniñ konglomeratı olğan selcukler peyda olalar.
-%Olarnıñ kelmesinen Qırımda islâm dini tarqalıp başlay.
-%İslâm dini kelmezden evel Qırım territoriyasında şekillengen, teñricilik ve hristian dinini kütken türk etnik substratı XIII asırda regionnıñ türk-islâm aleminiñ bir qısımına çeviril-mesinde belgileyici rol oynadı.
+% Orta asırlarda mında peçeneg (ІX-XІ aa.), qıpçaq (X-XІ aa.), slavân (X-XI asırlarda Kerç qadimiy Rus knâzlığı Tmutarakannıñ erkânına kire edi) qabileleri kelip yerleşeler.
+% Niayet, XIII asırda Orta Asiya çöllerinden Küçük Asiyağa, ve mından da Balkanlarğa areket etken türk-oğuz qabileleriniñ konglomeratı olğan selcukler peyda olalar.
+% Olarnıñ kelmesinen Qırımda islâm dini tarqalıp başlay.
+% İslâm dini kelmezden evel Qırım territoriyasında şekillengen, teñricilik ve hristian dinini kütken türk etnik substratı XIII asırda regionnıñ türk-islâm aleminiñ bir qısımına çevirilmesinde belgileyici rol oynadı.
 
-%Küçük Asiyada XIV asırgace turğan Selcuk sultanatı Vizantiyanen birlikte orta asırlardaki Qırım sanatınıñ inkişaf negiziniñ şekillenmesine öz tesirini bıraqtı.
-%Aynı şu selcuk devirinde erte hristian tipindeki medeniyetten medeniyetniñ yañı tipine — musulman medeniyetine keçildi.
+% Küçük Asiyada XIV asırgace turğan Selcuk sultanatı Vizantiyanen birlikte orta asırlardaki Qırım sanatınıñ inkişaf negiziniñ şekillenmesine öz tesirini bıraqtı.
+% Aynı şu selcuk devirinde erte hristian tipindeki medeniyetten medeniyetniñ yañı tipine — musulman medeniyetine keçildi.
 
-%Selcukler devirinden başlap bütün Küçük Asiyada musulman mimarcılığınıñ esas tipleri tarqalıp başlay.
-%Camiler, minareler, medreseler, kervansaraylar buña misal ola bilir.
-%Böyle inşaatlar Qırım territoriyasında daa olmağan olsalar da (olar mında yalıñız XIV asırda peyda oldılar) Türkiye territoriyasından Qırımğa "daa Altın Orda deviri başlanmazdan evel Qırım ealisini musulman dinine çevirgen, oña musulman medeniyetini aşlağan islâm tsivilizatsiyasınıñ qudretli impulsları yetip keleler".
-%Meselâ, Altın Orda devirinden evelki selcuk koloniyalarınıñ eñ irisi Otuz (s.Şçebetovka) köyü ve Sudaq civarındaki diger köyler edi.
-%1260-ncı senelerniñ başında Altın Ordanıñ ükümdarı Berke han onı Solhatnen birlikte selcuk sultanı II İzzed-din Key-Qavusqa (1238-1278) bağışlağan edi.
-%Qırımğa kelip yerleşken ve islâm dinini qabul etken polovetsler (qıpçaqlar) de ülkeniñ islâmlaşmasına öz isselerini qoştılar.
+% Selcukler devirinden başlap bütün Küçük Asiyada musulman mimarcılığınıñ esas tipleri tarqalıp başlay.
+% Camiler, minareler, medreseler, kervansaraylar buña misal ola bilir.
+% Böyle inşaatlar Qırım territoriyasında daa olmağan olsalar da (olar mında yalıñız XIV asırda peyda oldılar) Türkiye territoriyasından Qırımğa "daa Altın Orda deviri başlanmazdan evel Qırım ealisini musulman dinine çevirgen, oña musulman medeniyetini aşlağan islâm tsivilizatsiyasınıñ qudretli impulsları yetip keleler".
+% Meselâ, Altın Orda devirinden evelki selcuk koloniyalarınıñ eñ irisi Otuz (s.Şçebetovka) köyü ve Sudaq civarındaki diger köyler edi.
+% 1260-ncı senelerniñ başında Altın Ordanıñ ükümdarı Berke han onı Solhatnen birlikte selcuk sultanı II İzzed-din Key-Qavusqa (1238-1278) bağışlağan edi.
+% Qırımğa kelip yerleşken ve islâm dinini qabul etken polovetsler (qıpçaqlar) de ülkeniñ islâmlaşmasına öz isselerini qoştılar.
 
-%İslâmnen beraber Qırımda ğarbnıñ da tesiri körünip başlay: XII asırda mında cenevizliler öz koloniyalarını meydanğa ketireler.
-%Sudaq qalesi olardan qalğan mirastır.
-%Ceneviz medeniyeti Altın Orda devirinde XIII-XV asırlarda ğayet keniş tarqağandır.
+% İslâmnen beraber Qırımda ğarpnıñ da tesiri körünip başlay: XII asırda mında cenevizliler öz koloniyalarını meydanğa ketireler.
+% Sudaq qalesi olardan qalğan mirastır.
+% Ceneviz medeniyeti Altın Orda devirinde XIII-XV asırlarda ğayet keniş tarqağandır.
 
 %Böyleliknen Qırımğa mogol ükümranlarınıñ yetekçiliginde türk-tatar-ordalılar kelip kirgenlerinde mında endi qaviy türk müiti mevcut edi.
 %Uzaq yıllar devamında ilmiy edebiyatta yarımadaga kelip toluşqan ve bu yerge yat olğan türk medeniyetini tatar-moğollar ketirdiler, degen fikirniñ esassız olğanı körünip tura.
