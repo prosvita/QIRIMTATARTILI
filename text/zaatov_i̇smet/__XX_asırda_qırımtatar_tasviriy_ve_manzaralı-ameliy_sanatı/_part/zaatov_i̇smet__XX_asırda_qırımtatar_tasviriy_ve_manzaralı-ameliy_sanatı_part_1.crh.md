@@ -284,7 +284,7 @@ Soñradan Qırım Hazariyadan ayırıla ve Vizantiyanıñ tesiri altında qala.
 % Altın ordalılar yarımadada, hususan zengin Ceneviz koloniyalarında ticaretniñ inkişaf etmesinde menfaatdar ediler, ve ticaretke keder etmey, kelirniñ bir qısımını harac sıfatında ala ediler.
 
 % Şimdiki Eski Qırım şeeri yanındaki iri ticaret ve esnafçılıq merkezi olğan Qırım şeeri (cenevizce adı — Solhat) yarımadanıñ memuriy merkezine çevirile.
-% ХIII asırğa ait arab menbalarında qayd etilgenine köre, şeerde qıpçaqlar, alanlar, ruslar yaşay ediler.
+% ХIII asırğa ait arap menbalarında qayd etilgenine köre, şeerde qıpçaqlar, alanlar, ruslar yaşay ediler.
 % Arheologik tedqiqatlar ХІІІ-ХІV asırlarda şeerniñ medeniyeti yüksek seviyede olğanını tasdiqladılar.
 % Solhatnıñ bazı bir abideleri bizim künümizgece yetip keldiler.
 
@@ -329,50 +329,50 @@ Soñradan Qırım Hazariyadan ayırıla ve Vizantiyanıñ tesiri altında qala.
 % Binanıñ ög cebhesinde portal ayrılıp tura.
 % Bina köşeleriniñ birinden uclu minare (türk tipi) kökke uzanğandır.
 % Cami dekorınıñ fragmentleri — taşlardaki oyma nağışlar ve arap usulındaki çeçekli örnekleri olğan maolika çinileri, bunıñ kibi de epigrafik dekor — portalnıñ üst kemeri üzerindeki yazılar saqlanıp qalgandırlar.
-%Portalnıñ süslendirilmesinde altın suvlar qullanılğan.
-%Bu mimarcılıqnıñ unikal bir abidesidir, onıñ aqqında pek çoq edebiyat bar (Başkirov A. S., Veymarn B. V.). Bu abide Qırımda özgün mimarcılıq mektebi şekillengeninden delâlet bermekte.
-%Onda maalliy ve selcuk ananeleri biri-birilerinen bitişip keteler.
-%Üstüne ferüze tökülgen, özleriniñ örnegi ne renkleriniñ dülberliginen ayrette qaldırğan cami çinileri yerli kiramet ustahanelerinde yasalğanları da meraqlı fakttır.
-%Müellifniñ fikirine köre, Eski Qırım çinileri öz fakturaları boyunca Horezm ve Buhara kiramet istisalınıñ çinilerine pek yaqın.
+% Portalnıñ süslendirilmesinde altın suvlar qullanılğan.
+% Bu mimarcılıqnıñ unikal bir abidesidir, onıñ aqqında pek çoq edebiyat bar (Başkirov A. S., Veymarn B. V.). Bu abide Qırımda özgün mimarcılıq mektebi şekillengeninden delâlet bermekte.
+% Onda maalliy ve selcuk ananeleri biri-birilerinen bitişip keteler.
+% Üstüne ferüze tökülgen, özleriniñ örnegine renkleriniñ dülberliginen ayrette qaldırğan cami çinileri yerli kiramet ustahanelerinde yasalğanları da meraqlı fakttır.
+% Müellifniñ fikirine köre, Eski Qırım çinileri öz fakturaları boyunca Horezm ve Buhara kiramet istisalınıñ çinilerine pek yaqın.
 
-%Bu devirde esnaf inkişafında belli bir ösüvni qayd etmek mümkün.
-%Qabarıq örnekli ve yaraşıqlı yerleştirilgen acayip oymalı yazıları olğan qabir taşları, örnek ve boya izleri qalğan çoqtan-çoq çini savutlarınıñ parçaları, quyumcılıq bezekleri, oymalı baqır eşyaları, örneklernen süslendirilgen elyazma kitaplar bizim künge qadar saqlanğandır.
-%"Tatar icadiyatınıñ manzaralı nümüneleri umumiy türk-moğol sanatına nisbeten özleriniñ örnek ve renkleriniñ pak qızlıq nazikliginen ayrette qaldıralar".
+% Bu devirde esnaf inkişafında belli bir ösüvni qayd etmek mümkün.
+% Qabarıq örnekli ve yaraşıqlı yerleştirilgen acayip oymalı yazıları olğan qabir taşları, örnek ve boya izleri qalğan çoqtan-çoq çini savutlarınıñ parçaları, quyumcılıq bezekleri, oymalı baqır eşyaları, örneklernen süslendirilgen elyazma kitaplar bizim künge qadar saqlanğandır.
+% "Tatar icadiyatınıñ manzaralı nümüneleri umumiy türk-moğol sanatına nisbeten özleriniñ örnek ve renkleriniñ pak qızlıq nazikliginen ayrette qaldıralar".
 
-%Mimarcılıq-plastik ananeleriniñ inkişafı aqqında delâlet bergen taş üstünde oyuv sanatı baştaşlarında ziyade ifadelengendir.
-%Musulman halqlarınıñ sanatında taş üstünde oyulğan bir qaç çeşitleri bar.
-%Bu — geometrik (girih), tasviriy (insan, ev ayvanları, turmuş eşyalarınıñ şekilleri), ösümlikler (eñ büyük gruppa), epigrafik (Qurandan parçalar, mezar kitabesi).
-%Qırımda dülber, plastik "suls" yazısınen yapılğan epigrafik dekor ziyade emiyetke maliktir.
-%Bu, esasen endi yuqarıda añılğanı kibi, Qurandan parçalar, merhum aqqında qısqa malümat ya da şiiriy mezar kitabesi.
+% Mimarcılıq-plastik ananeleriniñ inkişafı aqqında delâlet bergen taş üstünde oyuv sanatı baştaşlarında ziyade ifadelengendir.
+% Musulman halqlarınıñ sanatında taş üstünde oyulğan bir qaç çeşitleri bar.
+% Bu — geometrik (girih), tasviriy (insan, ev ayvanları, turmuş eşyalarınıñ şekilleri), ösümlikler (eñ büyük gruppa), epigrafik (Qurandan parçalar, mezar kitabesi).
+% Qırımda dülber, plastik "suls" yazısınen yapılğan epigrafik dekor ziyade emiyetke maliktir.
+% Bu, esasen endi yuqarıda añılğanı kibi, Qurandan parçalar, merhum aqqında qısqa malümat ya da şiiriy mezar kitabesi.
 
-%İslâm dünyasınıñ başqa regionlarındaki baştaşlardan farqlı olaraq, Qırımdaki baştaşlar eykeltıraşlıq ve plastik şekillerine ziyade meil bergenler.
-%Keniş darqağan tasviriy mevzular sayısına şam, çıraq, altı köşeli yıldız, stilizlengen ve tabiiy çeçeklerniñ tasviri kire.
-%Er bir mevzunıñ tek özüne has ayrı manası bar.
-%Böylece, musulman sanatında şam ve çıraq o bir dünyağa keteyatqan merhumnıñ ruhunıñ yolunı aydınlatmaqnen bağlıdır, çeçekler ise — cennet bağçasınıñ temsilidir.
+% İslâm dünyasınıñ başqa regionlarındaki baştaşlardan farqlı olaraq, Qırımdaki baştaşlar eykeltıraşlıq ve plastik şekillerine ziyade meil bergenler.
+% Keniş darqağan tasviriy mevzular sayısına şam, çıraq, altı köşeli yıldız, stilizlengen ve tabiiy çeçeklerniñ tasviri kire.
+% Er bir mevzunıñ tek özüne has ayrı manası bar.
+% Böylece, musulman sanatında şam ve çıraq o bir dünyağa keteyatqan merhumnıñ ruhunıñ yolunı aydınlatmaqnen bağlıdır, çeçekler ise — cennet bağçasınıñ temsilidir.
 
-%Bütün musulman Şarqınıñ sanatında adı taş üstünde oyulğan astronom Urus Haciniñ mezarında qoyulğan baştaş nadir yadikârlıq sayıla.
-%Taş direkniñ üstünde yazıları olğan relyefli manzaralı qasnaqlı yarımkurre yerleştirilgen.
-%Yarımkurre özüne has globustır, kök semasınıñ tasviri, onıñ üstünde oyulğan noqtalar ise kökteki yıldızlardır.
-%Bu abide — orta asırlarda Qırımda ilim yüksek inkişaf seviyesinde bulunğanınıñ isbatıdır.
+% Bütün musulman Şarqınıñ sanatında adı taş üstünde oyulğan astronom Urus Haciniñ mezarında qoyulğan baştaş nadir yadikârlıq sayıla.
+% Taş direkniñ üstünde yazıları olğan relyefli manzaralı qasnaqlı yarımkurre yerleştirilgen.
+% Yarımkurre özüne has globustır, kök semasınıñ tasviri, onıñ üstünde oyulğan noqtalar ise kökteki yıldızlardır.
+% Bu abide — orta asırlarda Qırımda ilim yüksek inkişaf seviyesinde bulunğanınıñ isbatıdır.
 
-%Qırımnıñ territoriyasında (Hersones etraflarında, qırımtatarca adı Sarı-Kermen) esasen Küçük Asiya istisalınıñ (XIII asır) bediiy madenden yasalğan eşyaları tapıldı.
-%Şu cümleden — arslan tasvirli kepçe sapı, tunç keliler, arap yazıları olğan qalemdan.
-%Qırımlılarnıñ turmuşında bu eşyalarnıñ oluvı keniş medeniy almaşuvı mevcutlığınıñ delilidir.
+% Qırımnıñ territoriyasında (Hersones etraflarında, qırımtatarca adı Sarı-Kermen) esasen Küçük Asiya istisalınıñ (XIII asır) bediiy madenden yasalğan eşyaları tapıldı.
+% Şu cümleden — arslan tasvirli kepçe sapı, tunç keliler, arap yazıları olğan qalemdan.
+% Qırımlılarnıñ turmuşında bu eşyalarnıñ oluvı keniş medeniy almaşuvı mevcutlığınıñ delilidir.
 
-%XV — XVI asırlarda Qırım hanlığınıñ sanatı özüniñ yüksek seviyesinen bellidir ve Avropada Ğayrıdan canlanuv deviri kibi, ilmiy edebiyatta "musulman" deviri olaraq qayd etile.
-%Dağılğan Altın Ordadan ayırılıp, Qırım hanlığı 1475 senesi Türkiyeniñ imayesine tüşkenine qadar, öz mustaqilligini saqlap qaldı.
-%Bu Qırımnıñ tarihında müim vaqia oldı — onıñ çoq asırlıq tarihında ilk olaraq, er vaqıt ayrı yaşağan etnik provintsiyalarnı birleştirgen birdem devlet meydanğa ketirildi.
-%Bu devirniñ medeniy inkişafına nisbeten müim hulâsa V.Vozgringe aittir, o böyle yaza: "Tatarlarnıñ medeniyeti, yarımadada peyda olğan devirden berli açıq harakter taşımaqta.
-%Bu hulâsa, biz körgenimiz kibi, qırımtatar halqı tarihınıñ bütün devirleri devamında öz adaletligini saqlap qala, böyleliknen, işbu medeniyetniñ asırlar terenliginden başlap eñ soñki devirge qadar inkişafı ve saqlanıp qaluvı içün esas emiyetke malik olıp qala".
+% XV — XVI asırlarda Qırım hanlığınıñ sanatı özüniñ yüksek seviyesinen bellidir ve Avropada Ğayrıdan canlanuv deviri kibi, ilmiy edebiyatta "musulman" deviri olaraq qayd etile.
+% Dağılğan Altın Ordadan ayırılıp, Qırım hanlığı 1475 senesi Türkiyeniñ imayesine tüşkenine qadar, öz mustaqilligini saqlap qaldı.
+% Bu Qırımnıñ tarihında müim vaqia oldı — onıñ çoq asırlıq tarihında ilk olaraq, er vaqıt ayrı yaşağan etnik provintsiyalarnı birleştirgen birdem devlet meydanğa ketirildi.
+% Bu devirniñ medeniy inkişafına nisbeten müim hulâsa V.Vozgringe aittir, o böyle yaza: "Tatarlarnıñ medeniyeti, yarımadada peyda olğan devirden berli açıq harakter taşımaqta.
+% Bu hulâsa, biz körgenimiz kibi, qırımtatar halqı tarihınıñ bütün devirleri devamında öz adaletligini saqlap qala, böyleliknen, işbu medeniyetniñ asırlar terenliginden başlap eñ soñki devirge qadar inkişafı ve saqlanıp qaluvı içün esas emiyetke malik olıp qala".
 
-%Türkiye, öz nevbetinde, ceneviz faktoriyalarını zapt etmek maqsadı ile Qırımğa ücüm etti.
-%Lâkin aynı zamanda Qırım hanlığı ile arbiy areketler olmağan — Qırım hanlığı Türkiye tabileri degil de, belki biraderleri olğandır.
-%Geraylar Osmanlı imperiyasınıñ qanunları mücibi, Osmanlar sülâlesi kesilgen alda, türk tahtına birinci nevbetteki uquqqa malikler.
-%Türkler Qırımda adiy memuriy bölünüv kirsettiler.
-%Kefede sancaq tesis etildi, Qırımnıñ dağlı tarafında ise, sabıq Feodoro knâzlığınıñ malikaneleri ve cenübiy-şarq Qırımda ceneviz müstemlekelerniñ bir qısımdan ibaret Tat-Beyligi okrugı meydanğa ketirildi.
-%Qırımda Türkiye protektoratınıñ kirsetilüvi "Qırım hanlığınıñ umumiy tarihı ve sanatı inkişafında nasıldır ağır deñişmeler demek degil de, belki de onıñ medeniyeti ögünde, XV asırnıñ ortalarından berli o ıntılğan umummusulmanlıqnıñ tiklenüvi içün keniş imkânlar açılğandır".
+% Türkiye, öz nevbetinde, ceneviz faktoriyalarını zapt etmek maqsadı ile Qırımğa ücüm etti.
+% Lâkin aynı zamanda Qırım hanlığı ile arbiy areketler olmağan — Qırım hanlığı Türkiye tabileri degil de, belki biraderleri olğandır.
+% Geraylar Osmanlı imperiyasınıñ qanunları mücibi, Osmanlar sülâlesi kesilgen alda, türk tahtına birinci nevbetteki uquqqa malikler.
+% Türkler Qırımda adiy memuriy bölünüv kirsettiler.
+% Kefede sancaq tesis etildi, Qırımnıñ dağlı tarafında ise, sabıq Feodoro knâzlığınıñ malikaneleri ve cenübiy-şarq Qırımda ceneviz müstemlekelerniñ bir qısımdan ibaret Tat-Beyligi okrugı meydanğa ketirildi.
+% Qırımda Türkiye protektoratınıñ kirsetilüvi "Qırım hanlığınıñ umumiy tarihı ve sanatı inkişafında nasıldır ağır deñişmeler demek degil de, belki de onıñ medeniyeti ögünde, XV asırnıñ ortalarından berli o ıntılğan umummusulmanlıqnıñ tiklenüvi içün keniş imkânlar açılğandır".
 
-%XV asırdan başlap qırımtatar hanlığınıñ sanatı aman-aman üç yüz yıl devam etken ösüv ve çeçeklenüv devirinde buluna.
+% XV asırdan başlap qırımtatar hanlığınıñ sanatı aman-aman üç yüz yıl devam etken ösüv ve çeçeklenüv devirinde buluna.
 %Bu al Qırım yarımadasındaki çoqmilletli cemiyeti pekingen içtimaiy, siyasiy, iqtisadiy serbestlik ile añlatıla.
 %Mozaikalıgı, medeniy politsentrizmi Qırımnı bir yerge toplağan, "qoyulaştırılğan Aqdeñizboyu" olaraq qısa, lâkin doğru belgilemege imkân bereler.
 %Qırım cemaatı yüksek bilgi seviyesinen ayırılıp tura, eali arasında savatsızlıq yoq edi.
