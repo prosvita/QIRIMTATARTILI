@@ -248,56 +248,56 @@ Soñradan Qırım Hazariyadan ayırıla ve Vizantiyanıñ tesiri altında qala.
 % Sudaq qalesi olardan qalğan mirastır.
 % Ceneviz medeniyeti Altın Orda devirinde XIII-XV asırlarda ğayet keniş tarqağandır.
 
-%Böyleliknen Qırımğa mogol ükümranlarınıñ yetekçiliginde türk-tatar-ordalılar kelip kirgenlerinde mında endi qaviy türk müiti mevcut edi.
-%Uzaq yıllar devamında ilmiy edebiyatta yarımadaga kelip toluşqan ve bu yerge yat olğan türk medeniyetini tatar-moğollar ketirdiler, degen fikirniñ esassız olğanı körünip tura.
-%Uzaq yıllar devamında yaşatıp kelingen, hrestomatik bir şekil alğan işbu fikirniñ müellifleri — A. L. Yakobson, P. N. Nadinskiy, V. YE. Potehin ve başqaları qırımlılarnıñ ecdatları — Çıñğız han ya da Batunıñ (ХIII a.) Ordalarından çıqmışlar, yani olar köçebe-moğollar, tatarlar ya da ordalılar, dep saya ediler.
-%"Qırımtatarlar" degen ekzoetnoniminiñ ekinci komponentine beñzegen "tatar" etnonimi ve çöl regionlarında yaşağan qırımlılarnıñ hocalıq alıp baruv usulları olarğa böyle esaslandıruvlar yapmağa imkân berdiler.
-%Basqıncılarnıñ yañı dalğası aborigenlerniñ soydaş tilde laqırdı etkenleri ve aynı şu aborigenlerniñ medeniyetleri bayagı yüksek seviyede olğanı neticesinde maalliy eali arasında siñip ketti, bunıñnen qırımtatar etnosınıñ şekillenmesine öz issesini qoştı.
-%Bu yerde akademik Bartoldnıñ eserinden bir misal ketirmekni yerli dep tanıdıq: "...Moğollarnıñ büyük bir qısımı Moğolstanga qaytıp kettiler.
-%Basıp aldıqları memeleketlerde qalğan mogollar öz milliyliklerini tez coydılar...
-%Türk elementiniñ ğalebesi islâm ve musulman medeniyetiniñ ğalebesinen devam ettirildi".
+% Böyleliknen Qırımğa mogol ükümranlarınıñ yetekçiliginde türk-tatar-ordalılar kelip kirgenlerinde mında endi qaviy türk müiti mevcut edi.
+% Uzaq yıllar devamında ilmiy edebiyatta yarımadağa kelip toluşqan ve bu yerge yat olğan türk medeniyetini tatar-moğollar ketirdiler, degen fikirniñ esassız olğanı körünip tura.
+% Uzaq yıllar devamında yaşatıp kelingen, hrestomatik bir şekil alğan işbu fikirniñ müellifleri — A. L. Yakobson, P. N. Nadinskiy, V. YE. Potehin ve başqaları qırımlılarnıñ ecdatları — Çıñğız han ya da Batunıñ (ХIII a.) Ordalarından çıqmışlar, yani olar köçebe-moğollar, tatarlar ya da ordalılar, dep saya ediler.
+% "Qırımtatarlar" degen ekzoetnoniminiñ ekinci komponentine beñzegen "tatar" etnonimi ve çöl regionlarında yaşağan qırımlılarnıñ hocalıq alıp baruv usulları olarğa böyle esaslandıruvlar yapmağa imkân berdiler.
+% Basqıncılarnıñ yañı dalğası aborigenlerniñ soydaş tilde laqırdı etkenleri ve aynı şu aborigenlerniñ medeniyetleri bayagı yüksek seviyede olğanı neticesinde maalliy eali arasında siñip ketti, bunıñnen qırımtatar etnosınıñ şekillenmesine öz issesini qoştı.
+% Bu yerde akademik Bartoldnıñ eserinden bir misal ketirmekni yerli dep tanıdıq: "...Moğollarnıñ büyük bir qısımı Moğolstanga qaytıp kettiler.
+% Basıp aldıqları memeleketlerde qalğan mogollar öz milliyliklerini tez coydılar...
+% Türk elementiniñ ğalebesi islâm ve musulman medeniyetiniñ ğalebesinen devam ettirildi".
 
-%Orta asırlardaki Qırımnıñ sanatı polietnik cemiyetniñ ideallarını aks ettire edi.
-%Çeşit-türlü esnafçılıqlar evelkisiday yüksek seviyede inkişaf eteler, olarnıñ tsehler şekilinde teşkilâtlandırılması olarnı bizans ananelerinen bağlay, bu başta bir madenden nefis eşyalar istisalına, quyumcılıq sanatına, urk istisalına aittir.
-%Orta asırlarnıñ kirametçiligi özleriniñ zengin süjet ve ornamental motivlerinen ayrette qaldıralar.
-%Qırımda, esasen Sudaq ve Aluşta arasındaki yalıboyu köylerinde bu yerlerde yetiştirilgen yüzümden şarap azırlav ceryanında zarur olğan amforalarnı yasav boyunca merkezler (VIII a.) mevcut edi.
+% Orta asırlardaki Qırımnıñ sanatı polietnik cemiyetniñ ideallarını aks ettire edi.
+% Çeşit-türlü esnafçılıqlar evelkisiday yüksek seviyede inkişaf eteler, olarnıñ tsehler şekilinde teşkilâtlandırılması olarnı bizans ananelerinen bağlay, bu başta bir madenden nefis eşyalar istisalına, quyumcılıq sanatına, urk istisalına aittir.
+% Orta asırlarnıñ kirametçiligi özleriniñ zengin süjet ve ornamental motivlerinen ayrette qaldıralar.
+% Qırımda, esasen Sudaq ve Aluşta arasındaki yalıboyu köylerinde bu yerlerde yetiştirilgen yüzümden şarap azırlav ceryanında zarur olğan amforalarnı yasav boyunca merkezler (VIII a.) mevcut edi.
 
-%Bu devirniñ tasviriy sanatınıñ nümünelerini Eski-Kermen yaqınlarındaki kilseniñ (donatorlar ibadethanesi) freskalarında körmek mümkün.
-%Mında İsa peyğamberniñ tasvirleri, İncil süjetlerini aks ettirgen levhalar, donatorlarnıñ portretleri, acderanı öldüreyatqan Aya-Georgiyniñ tasviri saqlanıp qalğandır.
+% Bu devirniñ tasviriy sanatınıñ nümünelerini Eski-Kermen yaqınlarındaki kilseniñ (donatorlar ibadethanesi) freskalarında körmek mümkün.
+% Mında İsa peyğamberniñ tasvirleri, İncil süjetlerini aks ettirgen levhalar, donatorlarnıñ portretleri, ajderhanı öldüreyatqan Aya-Georgiyniñ tasviri saqlanıp qalğandır.
 
-%Erte orta asır deviri Qırımda taş eykelleriniñ — balballarnıñ peyda olmasınen qayd etile.
-%Taş balballarnı (türkçe "baba", ata, ecdat) kurganlarnıñ üstüne, betlerini şarqqa baqtırıp yerleştire ediler.
-%Er kişi ve qadınlarnıñ şekilleri diniy renk taşıy ve ekseri allarda yol köstergiçleri rolüni oynay ediler.
-%Qırımda polovetslernen (qıpçaqlarnen) bağlı olıp, yerleştirilgen balballar ğayet qıymetli etnografik material olmaqnen beraber, soñundan qırımtatar ustalarına şan ve şeref ketirgen taş kesüv sanatı teren, maalliy tamırlarğa malik olğanından delâlet bermekteler.
+% Erte orta asır deviri Qırımda taş eykelleriniñ — balballarnıñ peyda olmasınen qayd etile.
+% Taş balballarnı (türkçe "baba", ata, ecdat) kurganlarnıñ üstüne, betlerini şarqqa baqtırıp yerleştire ediler.
+% Er kişi ve qadınlarnıñ şekilleri diniy renk taşıy ve ekseri allarda yol köstergiçleri rolüni oynay ediler.
+% Qırımda polovetslernen (qıpçaqlarnen) bağlı olıp, yerleştirilgen balballar ğayet qıymetli etnografik material olmaqnen beraber, soñundan qırımtatar ustalarına şan ve şeref ketirgen taş kesüv sanatı teren, maalliy tamırlarğa malik olğanından delâlet bermekteler.
 
-%XIII asırda Qırım Avropa ve Asiyanıñ qocaman territoriyalarını birleştirgen Altın Ordanıñ vilâyetine çevirile.
-%Qırımnıñ medeniyeti ve sanatınıñ inkişafında yañı devir başlana.
-%Altın Orda devirinden başlap bütün Tavriya yarımadası Qırım (qırım — türkçe: qale) adını ala.
-%Bu devirde yarımadanıñ territoriyasında medeniy-hocalıq zonalar daa saqlanıp qalalar.
-%Qırım köçebe-çöllüler yaşağan çöl rayonlarına (yarımadanıñ şimali) ve cenübiy yalısı olğan dağ qısımına bölüne; dağ qısımındaki şeer ve köylerde yalıñız otraq eali yaşay edi.
-%Yarımadanıñ bu qısımı çeşit tarihiy devirlerde özüniñ nisbiy muhtariyetini saqlap qala.
-%Meselâ, XIII asırda altınordalılar yarımadanıñ tek çöl qısımında yaşay, dağ rayonlarına ve cenübiy yalıboylarına köz tikmey ediler.
-%Seyahatçı Rubruknıñ qayd etkenine köre, Soldayyanıñ (Sudaqnıñ) ükümranları moğollarğa harac töley ediler, harac tölemek içün şeerniñ ükümranı Batunıñ stavkasına bara edi.
-%Böyleliknen, baqıp çıqılğan devir devamında Qırım Altın Ordanıñ qolu astında buluna edi, lâkin buña baqmadan, yarımadada gotalan, türk-hristian, italyan ve ellin ealisi olğan mustaqil anklavlar da bar edi.
+% XIII asırda Qırım Avropa ve Asiyanıñ qocaman territoriyalarını birleştirgen Altın Ordanıñ vilâyetine çevirile.
+% Qırımnıñ medeniyeti ve sanatınıñ inkişafında yañı devir başlana.
+% Altın Orda devirinden başlap bütün Tavriya yarımadası Qırım (qırım — türkçe: qale) adını ala.
+% Bu devirde yarımadanıñ territoriyasında medeniy-hocalıq zonalar daa saqlanıp qalalar.
+% Qırım köçebe-çöllüler yaşağan çöl rayonlarına (yarımadanıñ şimali) ve cenübiy yalısı olğan dağ qısımına bölüne; dağ qısımındaki şeer ve köylerde yalıñız otraq eali yaşay edi.
+% Yarımadanıñ bu qısımı çeşit tarihiy devirlerde özüniñ nisbiy muhtariyetini saqlap qala.
+% Meselâ, XIII asırda altın ordalılar yarımadanıñ tek çöl qısımında yaşay, dağ rayonlarına ve cenübiy yalıboylarına köz tikmey ediler.
+% Seyahatçı Rubruknıñ qayd etkenine köre, Soldayyanıñ (Sudaqnıñ) ükümranları moğollarğa harac töley ediler, harac tölemek içün şeerniñ ükümranı Batunıñ stavkasına bara edi.
+% Böyleliknen, baqıp çıqılğan devir devamında Qırım Altın Ordanıñ qolu astında buluna edi, lâkin buña baqmadan, yarımadada got- alan, türk-hristian, italyan ve ellin ealisi olğan mustaqil anklavlar da bar edi.
 
-%Şeerlerde esasen ellinler, ermeniler, türk-alanlar, grek-tatarlar (hristian dinini kütken türkler), cenevizliler yaşay ediler.
-%Altınordalılar yarımadada, hususan zengin Ceneviz koloniyalarında ticaretniñ inkişaf etmesinde menfaatdar ediler, ve ticaretke keder etmey, kelirniñ bir qısımını harac sıfatında ala ediler.
+% Şeerlerde esasen ellinler, ermeniler, türk-alanlar, grek-tatarlar (hristian dinini kütken türkler), cenevizliler yaşay ediler.
+% Altın ordalılar yarımadada, hususan zengin Ceneviz koloniyalarında ticaretniñ inkişaf etmesinde menfaatdar ediler, ve ticaretke keder etmey, kelirniñ bir qısımını harac sıfatında ala ediler.
 
-%Şimdiki Eski Qırım şeeri yanındaki iri ticaret ve esnafçılıq merkezi olğan Qırım şeeri (cenevizce adı — Solhat) yarımadanıñ memuriy merkezine çevirile.
-%ХIII asırğa ait arab menbalarında qayd etilgenine köre, şeerde qıpçaqlar, alanlar, ruslar yaşay ediler.
-%Arheologik tedqiqatlar ХІІІ-ХІV asırlarda şeerniñ medeniyeti yüksek seviyede olğanını tasdiqladılar.
-%Solhatnıñ bazı bir abideleri bizim künümizgece yetip keldiler.
+% Şimdiki Eski Qırım şeeri yanındaki iri ticaret ve esnafçılıq merkezi olğan Qırım şeeri (cenevizce adı — Solhat) yarımadanıñ memuriy merkezine çevirile.
+% ХIII asırğa ait arab menbalarında qayd etilgenine köre, şeerde qıpçaqlar, alanlar, ruslar yaşay ediler.
+% Arheologik tedqiqatlar ХІІІ-ХІV asırlarda şeerniñ medeniyeti yüksek seviyede olğanını tasdiqladılar.
+% Solhatnıñ bazı bir abideleri bizim künümizgece yetip keldiler.
 
-%Yarımadanıñ medeniy-ticariy merkezleriniñ safında Bağçasaray civarındaki qudretli türk qabilesiniñ topraqları olmış Qırq-Yer (Çufut-Qale), harac tölegen ceneviz şeerleri Bosporo (Kerç), Çembalo (Balıqlava), ceneviz topraqlarınıñ merkezi olğan Soldayya (Sudaq) ve digerleri barlar.
-%Eñ büyük deñiz limanı Kefe (Feodosiya) edi.
-%Şeerniñ esas qısımını hristianlar teşkil ete ediler, lâkin mında öz camilerine malik olğan musulmanlar da yaşay ediler.
-%Kefede çeşittürlü esnafçılıqlar keniş inkişaf etken edi.
+% Yarımadanıñ medeniy-ticariy merkezleriniñ safında Bağçasaray civarındaki qudretli türk qabilesiniñ topraqları olmış Qırq-Yer (Çufut-Qale), harac tölegen ceneviz şeerleri Bosporo (Kerç), Çembalo (Balıqlava), ceneviz topraqlarınıñ merkezi olğan Soldayya (Sudaq) ve digerleri barlar.
+% Eñ büyük deñiz limanı Kefe (Feodosiya) edi.
+% Şeerniñ esas qısımını hristianlar teşkil ete ediler, lâkin mında öz camilerine malik olğan musulmanlar da yaşay ediler.
+% Kefede çeşit türlü esnafçılıqlar keniş inkişaf etken edi.
 
-%Baqıp çıqılayatqan devirde yarımadanıñ etnik manzarasına kiçkene, mustaqil Feodoro (Qırımnıñ Ğarbiy qısımı) knâzlığı da qoşma renk bermekte edi.
-%Mezkür knâzlıqta gotlarnıñ nesilleri, ellinler, türk-hristianlar ve türk-yeudiyler yaşay ediler.
-%Knâzlıq bizans medeniyetiniñ özüne has bir nümünesi edi.
-%O, cenevizliler ve altınordalılar arasında çeviklik köstererek, öz mustaqilligini saqlap qalmağa tırışa edi.
-%Knâzlıqnıñ merkezlerinden biri olğan Manğup qalesindeki freskalar bizans ve ceneviz ikonografik qanunları biri-birinen örülip ketken unikal abidedir.
+% Baqıp çıqılayatqan devirde yarımadanıñ etnik manzarasına kiçkene, mustaqil Feodoro (Qırımnıñ Ğarbiy qısımı) knâzlığı da qoşma renk bermekte edi.
+% Mezkür knâzlıqta gotlarnıñ nesilleri, ellinler, türk-hristianlar ve türk-yeudiyler yaşay ediler.
+% Knâzlıq bizans medeniyetiniñ özüne has bir nümünesi edi.
+% O, cenevizliler ve altın ordalılar arasında çeviklik köstererek, öz mustaqilligini saqlap qalmağa tırışa edi.
+% Knâzlıqnıñ merkezlerinden biri olğan Manğup qalesindeki freskalar bizans ve ceneviz ikonografik qanunları biri-birinen örülip ketken unikal abidedir.
 
 %Bu devirlerde Qırım Şarq ve Ğarbnı biri-birinen bağlağan ticaret yollarınıñ kesişken yerinde buluna edi.
 %O tranzit bir punkt edi.
