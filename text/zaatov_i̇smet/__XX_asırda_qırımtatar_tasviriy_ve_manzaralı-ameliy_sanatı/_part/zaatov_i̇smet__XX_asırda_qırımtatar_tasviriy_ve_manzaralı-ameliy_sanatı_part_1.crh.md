@@ -373,31 +373,31 @@ Soñradan Qırım Hazariyadan ayırıla ve Vizantiyanıñ tesiri altında qala.
 % Qırımda Türkiye protektoratınıñ kirsetilüvi "Qırım hanlığınıñ umumiy tarihı ve sanatı inkişafında nasıldır ağır deñişmeler demek degil de, belki de onıñ medeniyeti ögünde, XV asırnıñ ortalarından berli o ıntılğan umummusulmanlıqnıñ tiklenüvi içün keniş imkânlar açılğandır".
 
 % XV asırdan başlap qırımtatar hanlığınıñ sanatı aman-aman üç yüz yıl devam etken ösüv ve çeçeklenüv devirinde buluna.
-%Bu al Qırım yarımadasındaki çoqmilletli cemiyeti pekingen içtimaiy, siyasiy, iqtisadiy serbestlik ile añlatıla.
-%Mozaikalıgı, medeniy politsentrizmi Qırımnı bir yerge toplağan, "qoyulaştırılğan Aqdeñizboyu" olaraq qısa, lâkin doğru belgilemege imkân bereler.
-%Qırım cemaatı yüksek bilgi seviyesinen ayırılıp tura, eali arasında savatsızlıq yoq edi.
-%"Hanlar deviriniñ tatarları, — dep yaza M. Ya. Ginzburg, öz milliy ayatlarınıñ o derecede gür çeçeklenüv ve ösüv devirinde bulundılar ki, bütün bu tesirlerni (söz Türkiyeniñ ve Qırımnıñ polietnik ealisiniñ tesiri aqqında kete) tek özüne has degil de, aqiqiy mimarcılıq ve manzaralı özgünlik ile tolu, yañı mevzular ile yekâne üslüp konglomeratında toplamağa nail oldılar".
+% Bu al Qırım yarımadasındaki çoqmilletli cemiyeti pekingen içtimaiy, siyasiy, iqtisadiy serbestlik ile añlatıla.
+% Mozaikalıgı, medeniy politsentrizmi Qırımnı bir yerge toplağan, "qoyulaştırılğan Aq deñiz boyu" olaraq qısa, lâkin doğru belgilemege imkân bereler.
+% Qırım cemaatı yüksek bilgi seviyesinen ayırılıp tura, eali arasında savatsızlıq yoq edi.
+% "Hanlar deviriniñ tatarları, — dep yaza M. Ya. Ginzburg, öz milliy ayatlarınıñ o derecede gür çeçeklenüv ve ösüv devirinde bulundılar ki, bütün bu tesirlerni (söz Türkiyeniñ ve Qırımnıñ polietnik ealisiniñ tesiri aqqında kete) tek özüne has degil de, aqiqiy mimarcılıq ve manzaralı özgünlik ile tolu, yañı mevzular ile yekâne üslüp konglomeratında toplamağa nail oldılar".
 
-%Medeniy ömürniñ canlanuvı metsenat-ükümdarlar — sanatnı añlağan, yüksek bilgili, mütefekkir insanlarnıñ peyda oluvına alıp keldi.
-%Meselâ, 49 yıl ükümranlıq yapqan meşur siyasetçi ve diplomat, alim ve şair Meñli Geray han I devirinde medeniyet körülmemiş yükseklikke irişti.
+% Medeniy ömürniñ canlanuvı metsenat-ükümdarlar — sanatnı añlağan, yüksek bilgili, mütefekkir insanlarnıñ peyda oluvına alıp keldi.
+% Meselâ, 49 yıl ükümranlıq yapqan meşur siyasetçi ve diplomat, alim ve şair Meñli Geray han I devirinde medeniyet körülmemiş yükseklikke irişti.
 
-%Yarımadada medeniyet inkişaf etkeniniñ şartlarından biri Geraylarnıñ çeşit dinlerge olğan sabırlı munasebetidir.
-%Olar başqa dinlerge ve medeniyetlerge de inkişaf etmege imkân berdiler, öz saraylarına çetelli ustalarnı davet ettiler.
-%Atta Kefede hannıñ sımarışı ile çıqarılğan kapiklerniñ aversinde Geraylarğa varis qalğan Çıñğızlarnıñ tamğası — "taraq" (taraq — yetekçi milliy temsil), reversinde ise katolik haçı ile cenevizler gerbi tasvirlengen.
-%İtaliyadan uzaqta italyan medeniyetniñ ocaqları Kefe, Sudaq, Balıqlava olıp qaldılar.
-%Ta XVI asırnıñ soñlarında Kefe Türkiye tarafından zabt etilip, o da türk medeniyetiniñ daa bir ocağına çevirildi.
+% Yarımadada medeniyet inkişaf etkeniniñ şartlarından biri Geraylarnıñ çeşit dinlerge olğan sabırlı munasebetidir.
+% Olar başqa dinlerge ve medeniyetlerge de inkişaf etmege imkân berdiler, öz saraylarına çetelli ustalarnı davet ettiler.
+% Atta Kefede hannıñ sımarışı ile çıqarılğan kapiklerniñ aversinde Geraylarğa varis qalğan Çıñğızlarnıñ tamğası — "taraq" (taraq — yetekçi milliy temsil), reversinde ise katolik haçı ile cenevizler gerbi tasvirlengen.
+% İtaliyadan uzaqta italyan medeniyetniñ ocaqları Kefe, Sudaq, Balıqlava olıp qaldılar.
+% Ta XVI asırnıñ soñlarında Kefe Türkiye tarafından zapt etilip, o da türk medeniyetiniñ daa bir ocağına çevirildi.
 
-%Şarq ve ğarp dünyasınıñ çatışmasında yerleşken Qırım Avropa medeniyetiniñ bivasta tesirini sezip turdı.
-%Canlandıruv sanatınıñ vekilleri, italyan ustaları Qırım hanlarınıñ saraylarında çalıştılar.
-%Ginzburg Qırımda tatar sanatınıñ esas hususiyetlerinden biri onıñ alelhusus eklektizmi, çeşir tesirler ve qatlamlardır, dep saya.
-%İşbu tesir ve qatlamlarnıñ menbası, elbet de, birinci nevbette, Şarq Pariji — İstanbul edi.
+% Şarq ve ğarp dünyasınıñ çatışmasında yerleşken Qırım Avropa medeniyetiniñ bivasta tesirini sezip turdı.
+% Canlandıruv sanatınıñ vekilleri, italyan ustaları Qırım hanlarınıñ saraylarında çalıştılar.
+% Ginzburg Qırımda tatar sanatınıñ esas hususiyetlerinden biri onıñ alelhusus eklektizmi, çeşit tesirler ve qatlamlardır, dep saya.
+% İşbu tesir ve qatlamlarnıñ menbası, elbet de, birinci nevbette, Şarq Pariji — İstanbul edi.
 
-%Türkiyeniñ patronajlığı Qırımğa, Osman sanatına üstünlik berilgen ananeleriniñ ileride kirüvini belgiledi.
-%Birinci selcuk sultanları sade seyaat turmuşını begengen iseler, vaqıt keçken sayın arbiy seyaatlar ketirgen büyük kelirler insanda başqa añ şekillendirdiler.
-%Türk asılzadeleri içün baylıq içinde yaşamaq tabiiy şey olıp qaldı.
-%Mühteşem şeyler turmuşqa kirerek rafinirlengen estetik duyğularnıñ inkişafına yardım eteler.
-%Mühteşemlikke ıntıluv Qırım ükümdarları ceetten unikal medeniy abideleri ile Bağçasaray qurula.
-%Sanatta canlı mahlüqlarnıñ tasviri çoq vaqıtqace ğayıp ola, amma geometrik ve ösümlik örnekleri gür çeçekleneler.
+% Türkiyeniñ patronajlığı Qırımğa, Osman sanatına üstünlik berilgen ananeleriniñ ileride kirüvini belgiledi.
+% Birinci selcuk sultanları sade seyaat turmuşını begengen iseler, vaqıt keçken sayın arbiy seyaatlar ketirgen büyük kelirler insanda başqa añ şekillendirdiler.
+% Türk asılzadeleri içün baylıq içinde yaşamaq tabiiy şey olıp qaldı.
+% Mühteşem şeyler turmuşqa kirerek rafinirlengen estetik duyğularnıñ inkişafına yardım eteler.
+% Mühteşemlikke ıntıluv Qırım ükümdarları ceetten unikal medeniy abideleri ile Bağçasaray qurula.
+% Sanatta canlı mahlüqlarnıñ tasviri çoq vaqıtqace ğayıp ola, amma geometrik ve ösümlik örnekleri gür çeçekleneler.
 
 %Qırımda Osman mimarcılığınıñ ananeleri camilerniñ qurucılığında, minareler, saraylar, dürbeler, amamlarnıñ qurucılığında, öz aksini taptılar.
 %1500 senesi Meñli Geray hannıñ emiri ile meşur Zıncırlı medrese qurula (Şarq Avropanıñ eñ eski oquv yurtlarından biri), medresege kireyatqanda, ilimniñ ululuğı ögünde baş eggen kibi, bosağanıñ üstünde asılğan zıncırnıñ astından egilip keçmek kerek edi.
