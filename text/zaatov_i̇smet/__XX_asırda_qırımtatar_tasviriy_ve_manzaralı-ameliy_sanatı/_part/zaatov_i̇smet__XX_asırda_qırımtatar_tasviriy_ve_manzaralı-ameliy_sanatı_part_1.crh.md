@@ -499,10 +499,10 @@ XX asırnıñ başına kelip caminiñ dekorativ süslenüvinden tek parçalar ve
 O, aqiqiy universal-ressam, fırçı ve qalemden ustalıq ile faydalanğan, Şarq musulmanları ressamlarınıñ vekillerinden biri olğan.
 % Örnekli resimlerge tabiiy kirsetilgen yazılar Ömer yahşı hattat olğanından delâlet bereler.
 % Resimler arasına kirsetilgen şiiriy satırlarnıñ müellifi de Ömer olğanını inkâr etmek mümkün degil.
-%M. Ya. Ginzburg Ömerni bediiy söz ve hattatlıqnı ustalıqnen menimsegen hattat-ressam, universallar sırasına kirsete.
-%Olarnıñ özleri em şiirler yaza, soñra özleri de örnekli resimlerni hattat yazılarınen yaraştıra ediler.
-%Hattatlar tek şiirler yazmaqnen sıñırlanmaylar, sarayda çeşit mektüp ve yollanmalarnıñ müellifleri olaraq da hızmet ete turğanlar.
-%Böyle ustalar ayrıca ürmetke malik olıp, sanat mühlisleri imayecileri olğan ükümdarlarnıñ yaqınları olğanlar.
+% M. Ya. Ginzburg Ömerni bediiy söz ve hattatlıqnı ustalıqnen menimsegen hattat-ressam, universallar sırasına kirsete.
+% Olarnıñ özleri em şiirler yaza, soñra özleri de örnekli resimlerni hattat yazılarınen yaraştıra ediler.
+% Hattatlar tek şiirler yazmaqnen sıñırlanmaylar, sarayda çeşit mektüp ve yollanmalarnıñ müellifleri olaraq da hızmet ete turğanlar.
+% Böyle ustalar ayrıca ürmetke malik olıp, sanat mühlisleri imayecileri olğan ükümdarlarnıñ yaqınları olğanlar.
 
 Ömerniñ daa bir tahminiy eseri — Hansarayda Altın kabinetniñ süslenüvidir.
 Bütün tavan Vizantiya örmesi şekilindeki geometrik örmesi ile qapatılğan.
@@ -535,10 +535,10 @@ Bu — Qırımda mevcut, iş içün kelişken materialnıñ çoqluğı (kireç t
 Sebeplerden daa birisi — qırımtatar ustalarınıñ fikir yürsetüv hususiyetleri, olar dogmatik qanunlar ile qaviy bağlı olmağanlar, çünki olar asırlar devamında çoqtan-çoq ve çeşit-türlü tesirlerge oğratılğan müitte terbiyelengenler.
 Buña baqmadan, ustalarnıñ bu işke yanaşuvı ne qadar individual ve icadiy olsa da, baştaşlarda qırımlılarnıñ tarihiy hatırasında saqlanıp qalğan, qadimiy balballarnıñ çizgileri körülmekteler.
 İnsan qiyafetini tasvirlemek, onıñ mezarına eykel qoymaq imkânlarından marum olğan ustalar taşqa antropomorfik qiyafetke tek oşatuv bere ediler, üstüne sarıq (erkek kişi kömülgen alda), ya da fes (qadın kişi olsa) yasay ediler.
-Ustanıñda ustalığı, sıñırsız potentsialı, işte, böyle ufaq-tüfek şeylerde ifade ola edi.
+Ustanıñ da ustalığı, sıñırsız potentsialı, işte, böyle ufaq-tüfek şeylerde ifade ola edi.
 
 Taş üstüne oyuv sanatı inkişafınıñ yönelişini, XVII asırdan XVIII asırğa taba umumiy tendentsiyanı közeterek, tedqiqatçılar "onıñ zenginlik ceetten ösüvini qayd eteler.
-Abidelerniñ metn ve şekilleri mürekkepçe, ünerli, ğayet süslendirilgen, örnekli hattat yazıları ile toldurılğan", bu alnı sanatta müelliflik başlanuvı ve qanunlarnıñ zayıflaşqanınen bağlamaq mümkün.
+Abidelerniñ metin ve şekilleri mürekkepçe, ünerli, ğayet süslendirilgen, örnekli hattat yazıları ile toldurılğan", bu alnı sanatta müelliflik başlanuvı ve qanunlarnıñ zayıflaşqanınen bağlamaq mümkün.
 
 Qırımda kirametçilik türk kirametçiliginiñ belli bir tesiri altında inkişaf ete.
 İşbu devirde Qırımğa Türkiyeden pek çoq kirametten yasalğan savut-saba ketirilgen.
@@ -561,14 +561,14 @@ XVIII asırnıñ soñu Qırımnıñ tarihında Rusiye imperiyasına qoşuluvıne
 Bu formal olsa da mustaqillikni ğayıp etüvnen birlikte, medeniy ömür saasında da büyük ğayıplar ile bağlıdır.
 Etnik ve konfessional ceetten yaqın devlet, Türkiyege tabilik Qırımnıñ halqara alâqalarnıñ keniş dairesine kirmesine hızmet etken ise, Rusiye istilâsı devirinde Qırım başqa din, yat medeniyet inkişaf etken ve şunıñ içün de ğayıp olunması talap etilgen, uzaq provintsiyağa çevirile.
 
-Qırımnı işğal etüvde Rusiyeniñ birinci adımları tınç yaşağan ealini talamaq, ortalıqnı yaqıpyıqmaq, ulu mimarcılıq abidelerini, qırımtatar halqı medeniyetiniñ qıymetlerini gayıp etüvnen başlandı.
+Qırımnı işğal etüvde Rusiyeniñ birinci adımları tınç yaşağan ealini talamaq, ortalıqnı yaqıp-yıqmaq, ulu mimarcılıq abidelerini, qırımtatar halqı medeniyetiniñ qıymetlerini gayıp etüvnen başlandı.
 1736 senesi Qırım yarımadasınıñ çöl beti feldmarşal Minih yolbaşçılıq yapqan rus ordusı tarafından vahşiylerce bozuldı, 1771 senesi Dolgorukovnıñ ordusı o tarafnı ateşnen yaqıp, qılıçnen kesip çıqtı.
 Olar bir maqsadnı közde tuta ediler: "...qırımtatarlarnı birini qaldırmay öldürmek, topraqlarını tutıp almaq, ne kâr, ne fayda ketirmegen bu halqnı yoq etmek" maqsadını küte ediler.
 
-Qırım basıp alınğan soñ çar Rusiyesi qırımtatarlarnı ğayrıdinli olğanları ve olarnı "varvar"lar diye tarih saifelerinden silip atmaq içün kütleviy sürgünlerge oğrata.
+Qırım basıp alınğan soñ çar Rusiyesi qırımtatarlarnı ğayrı dinli olğanları ve olarnı "varvar"lar diye tarih saifelerinden silip atmaq içün kütleviy sürgünlerge oğrata.
 Qırımtatarlarnı sürgün etüv siyaseti aman-aman bir buçuq asır devamında alınıp barıla.
 Bu yıllar içinde qırımtatarlarnı tuvğan topraqlarından zorbalıqnen kettirilmeleri üç kere, yani 1783, 1860 senelerinde, ve XX asırnıñ başlarında öz kulminatsiyasına yetkizilgen edi.
-Eger XVIII asırnıñ soñlarında yarımada ealisiniñ arasında rumlar, ermeniler, gürciler, slavânlar, karaimler, qırımçaqlar ve urumlar da olğanını esapqa alacaq olsaq, ve atta rus hristianlarını Qırımdan Azavboylarına sürgün etkenlerinden soñ bile qırımtatarlar ealiniñ 95 fayızını teşkil etken olsalar, 1917 senesine kelip qırımtatarlar öz vatanlarında milliy azlıqqa çevirildiler.
+Eger XVIII asırnıñ soñlarında yarımada ealisiniñ arasında rumlar, ermeniler, gürciler, slavânlar, karaimler, qırımçaqlar ve urumlar da olğanını esapqa alacaq olsaq, ve atta rus hristianlarını Qırımdan Azav boylarına sürgün etkenlerinden soñ bile qırımtatarlar ealiniñ 95 fayızını teşkil etken olsalar, 1917 senesine kelip qırımtatarlar öz vatanlarında milliy azlıqqa çevirildiler.
 Yalıñız qırımtatar halqı degil, onıñ cemi tarihı, bu topraqlarda qaldırgan terenden-teren izleri bile ğayıp etile edi.
 
 Birinci nevbette din ile baglı abideler — camiler, medreseler, mezarlıqlar yoq etile.
@@ -579,7 +579,7 @@ Bu vaqia müstemlekecilik tarihında ayrıca turğan, unikal bir vaqiadır", dep
 Yoq etip yetiştirilmegen şeyler ise unutıluvğa, tabiiy yoq olıp ketüvge mahküm etilgen edi.
 
 Qırımtatarlar sürgün etilgen soñ şu medeniyetni taşıyıcılarnıñ sayısı da eksile, ananeler unutıla, medeniy teraqqiyat bütünley toqtap qala, "halq icadiyatı saasında paraliç" yüz bere.
-Başta bir Türkiye ile ananeviy tışqı alâqalarnıñ üzülmesi, uzaq devir devamında Qırım medeniyetindeki icadiy impulslarnıñ toqtaması, turmuş tarzınıñ bozulması, qırımtatarlarnıñ ömür tarzlarınıñ sarsılması, islâm dininiñ faaliyet day resiniñ tarlaşması, qırımtatar tili ve yazınıñ rolüniñ eksiltilmesi qırımtatar zalisini kelmeşekler medeniyetiniñ uquqsız bir parçasına çevire.
+Başta bir Türkiye ile ananeviy tışqı alâqalarnıñ üzülmesi, uzaq devir devamında Qırım medeniyetindeki icadiy impulslarnıñ toqtaması, turmuş tarzınıñ bozulması, qırımtatarlarnıñ ömür tarzlarınıñ sarsılması, islâm dininiñ faaliyetday resiniñ tarlaşması, qırımtatar tili ve yazınıñ rolüniñ eksiltilmesi qırımtatar zalisini kelmeşekler medeniyetiniñ uquqsız bir parçasına çevire.
 
 Meselâ, ulu Ömerniñ nağışlarınen süslendirilgen unikal abide — Yeşil-Cami XX asırnıñ başlarına kelip aman-aman ğayıp etilgen edi.
 Ömerniñ Han-Camideki nağışları ise bina kosmetik tamir etilgen soñ yoq etildi.
@@ -602,7 +602,7 @@ Böyleliknen, Rusiye Qırımnı basıp alğan soñ, başqa medeniyetlerniñ, rus
 XIX asırnıñ soñlarında ve XX asırnıñ başlarında mimarcılıqta endi Qırımda öz pomestiyalarını qurğan rus zenginleri esas sımarışçılar olalar.
 Ananeviy musulman mimarcılığınıñ belli bir elementleri alına, binalarğa şarq romantizmi ve ekzotikası berille.
 Bazıda böyle eklektik qarışuv qaba olıp körüne, bazıda ise içeriki takt ve qararlılıqnen tolu özgün ürünler bere.
-Mimar N. P. Krasnovnıñ Yusupov sarayı kompleksniy qurğanda ananeviy şarq mimarcılığından ğayet büyük ustalıqnen faydalanğan edi.
+Mimar N. P. Krasnovnıñ Yusupov sarayı kompleksni qurğanda ananeviy şarq mimarcılığından ğayet büyük ustalıqnen faydalanğan edi.
 Neticede, milliy romantizm üslübindeki inşaatlar peyda oldılar.
 Böyle şedevrlerden biri saraydan biraz avlaqta qurulğan Yusupov camisidir (Sokoloniye köyü, evelki Kokköz).
 Caminiñ leyhası o devirde qurulğan camiler içün tipiktir — caminiñ dört aqabalı dam astında qurulğan zalı, mihrabı bar, lâkin onıñ bir sıra hususiyetleri onı diger böyle inşaatlardan ayırıp turalar, ve bunıñnen oña mühteşemlik ve öriginallik bağışlay.
@@ -620,7 +620,7 @@ Umumen alğanda ХІХ-ХХ asırnıñ başlarında Qırım sanatı çeşit-tür
 Qırımtatar tasviriy sanatı XIX asırnıñ soñu ve XX asırnıñ başlarında öz inkişafında halqnıñ siyasiy ve etnik tarihınen sıqı bağlı olğan üç esas basqıçnı keçti:
 - 1895 senesinden 1944 senesinece olğan devirdeki tasviriy sanatnıñ inkişafı: bu devir ilki qırımtatar professional ressamlarınıñ Rusiye ve Ğarbiy Avropanıñ akademik merkezlerinde oqup başlağan devirden 1944 senesiniñ sürgüninece olğan devirni qavrap ala;
 - sürgünlik devirindeki (1944-1989 ss.) tasviriy sanat: bu devir qırımtatar halqı Orta Asiyağa, Qazahistanğa ve Rusiyeniñ şimaliy vilâyetlerine zorbalıqnen sürgün etilgen ve dispersion yerleşüvge oğratılğan devirni qavrap ala;
-- qırımtatar tasviriy sanatınıñ tarihiy vatanda ğayrıdan canlanuv deviri: bu devir (1989-2002 ss.) qırımtatarlarnıñ Qırımga alâ bu kün devam eteyatqan avdeti ve yerleşüvi devirini qavrap ala.
+- qırımtatar tasviriy sanatınıñ tarihiy vatanda ğayrıdan canlanuv deviri: bu devir (1989-2002 ss.) qırımtatarlarnıñ Qırımga alâ bugün devam eteyatqan avdeti ve yerleşüvi devirini qavrap ala.
 
 
 
