@@ -419,86 +419,86 @@ Soñradan Qırım Hazariyadan ayırıla ve Vizantiyanıñ tesiri altında qala.
 
 % Qurucılıqnıñ çeçeklenüv ceryanı Geraylar sülâlesiniñ bundan soñki vekilleriniñ devirinde de qayd etile.
 % Evelki kibi, mimarcılıq saasında yerli, türk, Vizantiya, İtaliya ananeleri közetileler.
-%Qırımtatar halqınıñ körümli mimarcılıq abideleri sırasına Han-Cami, Hansaray yanındaki Küçük-Cami, Aqmescitteki Kebir-Cami (1508 senesi qurulğan bu cami çoq kereler restavratsiya yapıldı ve ğayrıdan quruldı, Şimdi o, qırımtatarlarnıñ baş ibadethanesidir) kire.
+% Qırımtatar halqınıñ körümli mimarcılıq abideleri sırasına Han-Cami, Hansaray yanındaki Küçük-Cami, Aqmescitteki Kebir-Cami (1508 senesi qurulğan bu cami çoq kereler restavratsiya yapıldı ve ğayrıdan quruldı, Şimdi o, qırımtatarlarnıñ baş ibadethanesidir) kire.
 
-%1552 senesi Kezlevde qurulğan Cuma-Cami — türk sultanı Suleyman 1-niñ baş mimarı.
-%Osmanlı Türkiyeniñ körümli mimarı Sinannıñ Qırımda saqlanıp qalğan yekâne qurucılığıdır.
-%Belli ki, XVI asırnıñ 50-nci yıllarında Kefede qurulğan cami ve amam oña mensüptir.
-%Bu qurucılıqlar Qırımnıñ mimarcılığını XVI asırda başından ğayet çeçeklenüv devirini keçirgen osmanlı mektebiniñ dairesine qoşalar.
+% 1552 senesi Kezlevde qurulğan Cuma-Cami — türk sultanı Suleyman 1-niñ baş mimarı.
+% Osmanlı Türkiyeniñ körümli mimarı Sinannıñ Qırımda saqlanıp qalğan yekâne qurucılığıdır.
+% Belli ki, XVI asırnıñ 50-nci yıllarında Kefede qurulğan cami ve amam oña mensüptir.
+% Bu qurucılıqlar Qırımnıñ mimarcılığını XVI asırda başından ğayet çeçeklenüv devirini keçirgen osmanlı mektebiniñ dairesine qoşalar.
 
-%Dürbeler taş üstünde oyulğan örneklerniñ dülber nümünelerini numayış eteler.
-%Qabir taşlarnı süslendirgen geometrik ve ösümlik şekilindeki örmeler Qırımnıñ tamır ealisi yaşağan Feodoro ve diger yerlerde çıqqan abidelerge beñzeyler.
+% Dürbeler taş üstünde oyulğan örneklerniñ dülber nümünelerini numayış eteler.
+% Qabir taşlarnı süslendirgen geometrik ve ösümlik şekilindeki örmeler Qırımnıñ tamır ealisi yaşağan Feodoro ve diger yerlerde çıqqan abidelerge beñzeyler.
 
-%Qırımtatar halqı manzaralı-ameliy sanatınıñ çeçeklenüvi de XVI — XVII asırlar devirine aittir.
-%Örnek sanatı öz inkişafınıñ yüksek noqtasına yete.
-%"Hanlar, olarnıñ qadınlarınıñ qabirlerindeki baştaşlarnıñ üstündeki oymalı örmeler, qabile kostümleriniñ nagışlarında ve quyumcılıq örneklerindeki oymalı örmeler — mevzularnıñ dülberligi ve zenginligi işletilgen materialnıñ sıfatınen pek kelişken, olarga teñi yoq abideler yarattılar.
-%Bu devirde basma ve nağışlarnıñ boyaları — nazik, ösümlikten azırlanğan.
-%Urba tiküv ve nağış işlerinde Eski Qırım ve Bağçasaray rayonlarında yipek bile qullanılğan.
-%Amma palı basmalarğa ihtiyac büyük edi, şunıñ içün de yerli istisal sımarışlarnı eda etip olmağanı sebebinden, Qırımğa basmalar başqa yerlerden alıp keline edi.
+% Qırımtatar halqı manzaralı-ameliy sanatınıñ çeçeklenüvi de XVI — XVII asırlar devirine aittir.
+% Örnek sanatı öz inkişafınıñ yüksek noqtasına yete.
+% "Hanlar, olarnıñ qadınlarınıñ qabirlerindeki baştaşlarnıñ üstündeki oymalı örmeler, qabile kostümleriniñ nagışlarında ve quyumcılıq örneklerindeki oymalı örmeler — mevzularnıñ dülberligi ve zenginligi işletilgen materialnıñ sıfatınen pek kelişken, olarga teñi yoq abideler yarattılar.
+% Bu devirde basma ve nağışlarnıñ boyaları — nazik, ösümlikten azırlanğan.
+% Urba tiküv ve nağış işlerinde Eski Qırım ve Bağçasaray rayonlarında yipek bile qullanılğan.
+% Amma paalı basmalarğa ihtiyac büyük edi, şunıñ içün de yerli istisal sımarışlarnı eda etip olmağanı sebebinden, Qırımğa basmalar başqa yerlerden alıp keline edi.
 
-%Bu devirde tseh institutlarınıñ şekillenüvi devam ete, bu ise esnaflarnıñ pekinüvi ve çeçeklenüvine hızmet ete.
-%XV ve XVI asırnıñ başlarında qırımtatar halq esnaflarınıñ deyerlik inkişafı aqqında söz yürsetmek mümkün.
-%Qırım esnafçıları "maden ve meşin, yün ve ağaçtan yasalğan şeylerniñ seviyesinde eñ yüksek qazançlarğa irişe ediler.
-%Olarnıñ çoqusı aqiqiy sanat eserleri olaraq tanıla edi".
-%Avropada sapları qaqlamalarle süslendirilgen, ya da altın ve kümüş çertmesi olğan pıçaq ve hancerlerge, ateşli silâ, Qırım egerlerine ihtiyac büyük olğan.
+% Bu devirde tseh institutlarınıñ şekillenüvi devam ete, bu ise esnaflarnıñ pekinüvi ve çeçeklenüvine hızmet ete.
+% XV ve XVI asırnıñ başlarında qırımtatar halq esnaflarınıñ deyerlik inkişafı aqqında söz yürsetmek mümkün.
+% Qırım esnafçıları "maden ve meşin, yün ve ağaçtan yasalğan şeylerniñ seviyesinde eñ yüksek qazançlarğa irişe ediler.
+% Olarnıñ çoqusı aqiqiy sanat eserleri olaraq tanıla edi".
+% Avropada sapları qaqlamalarle süslendirilgen, ya da altın ve kümüş çertmesi olğan pıçaq ve hancerlerge, ateşli silâ, Qırım egerlerine ihtiyac büyük olğan.
 
-%Qırımnıñ maneviy ve maddiy medeniyetiniñ Türkiyege meil berüvi XVII-XVIII asırlar devamında da saqlanıp qalmaqta.
-%Bu al bir qaç sebeplernen añlatıla: memuriy boysınuv, milliy ve diniy, coğrafik ceetten yaqınlıq.
-%Amma evelki oriyentirlerniñ tış körünüşleri saqlanıp qaluvnen, sanatnıñ içki mündericesi deñişe.
-%"Musulman Renessansı"na ait, insan ruhunıñ köterilüvini tasdiqlağan ve közge, qalpke hoş olğan, dünya yaşayışını zengin ziyafet olaraq yırlağan insaniyetlik ideallarnıñ bütünligi, bediiy medeniyetniñ sinkretizmi; ilim, şiiriyet, mimarcılıq, epigrafika, hattatlıq, quyumcılıq sanatınıñ biri-birine siñip, biri-birini toldurıp inkişaf etüvi yavaş-yavaş ğayp olıp kete".
+% Qırımnıñ maneviy ve maddiy medeniyetiniñ Türkiyege meil berüvi XVII-XVIII asırlar devamında da saqlanıp qalmaqta.
+% Bu al bir qaç sebeplernen añlatıla: memuriy boysunuv, milliy ve diniy, coğrafik ceetten yaqınlıq.
+% Amma evelki oriyentirlerniñ tış körünüşleri saqlanıp qaluvnen, sanatnıñ içki mündericesi deñişe.
+% "Musulman Renessansı"na ait, insan ruhunıñ köterilüvini tasdiqlağan ve közge, qalpke hoş olğan, dünya yaşayışını zengin ziyafet olaraq yırlağan insaniyetlik ideallarnıñ bütünligi, bediiy medeniyetniñ sinkretizmi; ilim, şiiriyet, mimarcılıq, epigrafika, hattatlıq, quyumcılıq sanatınıñ biri-birine siñip, biri-birini toldurıp inkişaf etüvi yavaş-yavaş ğayıp olıp kete".
 
-%Eger bundan evelki devirde sanat umumiy maneviy printsipler ile siñirilgen ise, ХVII-ХVIII asırlarda sanattan milliy tiklenüv ğayelerinen, bütün devletniñ çeçeklengen, küçlü devlet ğayesinen ruhlanğan içki pafos yoq ola.
-%Bu al içtimaiy-siyasiy vaziyet ile de bağlıdır: devletniñ evelki itibarı tüşe; daa keçenlerde dünya ticaret yollarınıñ çatışmasında bulunğan Qırım, yarımadada yerleşüvi sebebinden uzaqlaşqanından gayrı, aman provintsiyağa çevirile.
-%XVI asırdan soñ dünya ticaret yolları öz yönelişlerini deñiştireler.
-%Ulu Yipek Yolu evelki emiyetini yoq ete.
-%Orta Asiya regionı da aynı bu taqdirge oğradı — bu ceetten Qırım ve Orta Asiya medeniy genezisleriniñ umumiy noqtaları bardır.
+% Eger bundan evelki devirde sanat umumiy maneviy printsipler ile siñirilgen ise, ХVII-ХVIII asırlarda sanattan milliy tiklenüv ğayelerinen, bütün devletniñ çeçeklengen, küçlü devlet ğayesinen ruhlanğan içki pafos yoq ola.
+% Bu al içtimaiy-siyasiy vaziyet ile de bağlıdır: devletniñ evelki itibarı tüşe; daa keçenlerde dünya ticaret yollarınıñ çatışmasında bulunğan Qırım, yarımadada yerleşüvi sebebinden uzaqlaşqanından gayrı, aman provintsiyağa çevirile.
+% XVI asırdan soñ dünya ticaret yolları öz yönelişlerini deñiştireler.
+% Ulu Yipek Yolu evelki emiyetini yoq ete.
+% Orta Asiya regionı da aynı bu taqdirge oğradı — bu ceetten Qırım ve Orta Asiya medeniy genezisleriniñ umumiy noqtaları bardır.
 
-%"XVIII asırnıñ ekinci yarısında tatar sanatı, dep yaza Ginzburg, — deyerlik XV ve XVI asırlarğa ait öz inkişafınıñ monumental devirini endi keride qaldırdı.
-%Kerçekten de mimarcılıq camiler, tekiye ve dürbeler yaratuv deviri keçti, talil etilgen devirniñ ziyade meraq doğurğan hususiyetleri ahır-soñu tek manzaralı faaliyet olaraq baqılğan.
-%O devirde qurulğan cami ve meskenler mimarcılıq ceetten ğayet sadeler.
-%Ekseriyet allarda, bu pencereli dört tegiz divar, tegiz tavan, onıñ üstünde dört enişli dam.
-%Lâkin onıñ içi ağaç üstünde manzaralı oymalar, camnıñ üstünde renkli resimler, örnek ve hattat yazılarınen öyle acayip yaraştırılğan ki, tatarlar içün eñ müim ve ekinci dereceli şeyler ne olğanını aman añlaysıñ".
-%Amma, belki, mesele neler müim ve neler ekinci dereceli sayılğanında degil de, devir talap etken imkânlardadır.
-%Monumental qurucılıqnıñ deviri keçken olsa da, halqqa kelişken şekillerde öz askini tapqan halqnıñ icadiy istidatı ğayıp olmadı.
-%Sanat kamer, atta intim, daa nazik harakterne malik oldı.
-%Saray sanatı ve halq sanatı özleriniñ inkişaf yollarını saqlap qalalar.
+% "XVIII asırnıñ ekinci yarısında tatar sanatı, dep yaza Ginzburg, — deyerlik XV ve XVI asırlarğa ait öz inkişafınıñ monumental devirini endi keride qaldırdı.
+% Kerçekten de mimarcılıq camiler, tekiye ve dürbeler yaratuv deviri keçti, talil etilgen devirniñ ziyade meraq doğurğan hususiyetleri ahır-soñu tek manzaralı faaliyet olaraq baqılğan.
+% O devirde qurulğan cami ve meskenler mimarcılıq ceetten ğayet sadeler.
+% Ekseriyet allarda, bu pencereli dört tegiz divar, tegiz tavan, onıñ üstünde dört enişli dam.
+% Lâkin onıñ içi ağaç üstünde manzaralı oymalar, camnıñ üstünde renkli resimler, örnek ve hattat yazılarınen öyle acayip yaraştırılğan ki, tatarlar içün eñ müim ve ekinci dereceli şeyler ne olğanını aman añlaysıñ".
+% Amma, belki, mesele neler müim ve neler ekinci dereceli sayılğanında degil de, devir talap etken imkânlardadır.
+% Monumental qurucılıqnıñ deviri keçken olsa da, halqqa kelişken şekillerde öz aksini tapqan halqnıñ icadiy istidatı ğayıp olmadı.
+% Sanat kamer, atta intim, daa nazik harakterge malik oldı.
+% Saray sanatı ve halq sanatı özleriniñ inkişaf yollarını saqlap qalalar.
 
-%Qırım keniş ticaret alâqalarından çıqarılğanına baqmadan, yarımadanıñ Avropa sanatlarınıñ inkişafında atta bazı paraleller keçirmek yerlidir.
-%XV — XVI asırlar Qırımda medeniyet ösüviniñ deviri olaraq qayd etile, tedqiqatçılar bu devirni Avropadaki Tiklenüv deviri ile şartlı teñeştireler.
-%XVIII asır ise Maarif deviri sayıla.
-%Bu vaqıtta oña ait yengillikle, şekillerniñ nazikligi ile saray sanatı gürdeli inkişaf ete.
-%Rokoko sanatında terbiyelengen gedoizm ve zevqlanuv musulman Qırımınıñ sanatında da öz parallellerini tapa.
-%Tedqiqatçılar atta körümli qırımtatar ressamı Ömerniñ icadında bile bu üslüpniñ tesirini qayd eteler.
-%Bu devir, hususan meşur siyasetçi olmaqnen beraber metsenat,kollektsioner Qırım Geraynıñ (1758 — 1764) hanlığında Ğarp Avropa tarafından diplomatik munasebetleriniñ canlanuvınen bellidir.
-%Bu devirde Qırımğa medeniyetniñ — muzıka, teart (sarayda fransız truppası Molyer ve başqa Avropa müellifleriniñ eserlerini oynağan), tasviriy sanat, eykeltıraşlıq ananeleri keniş tadbiq oluna.
-%Qırım hanlığınıñ paytahtı — Bağçasaray ilim ve sanat inkişafınıñ merkezine çevirile.
-%XVIII asır Qırımnıñ tarihında "soñki, qısqa, lâkiñ mustaqillikniñ eñ parlaq deviri" olaraq qaldı".
+% Qırım keniş ticaret alâqalarından çıqarılğanına baqmadan, yarımadanıñ Avropa sanatlarınıñ inkişafında atta bazı paraleller keçirmek yerlidir.
+% XV — XVI asırlar Qırımda medeniyet ösüviniñ deviri olaraq qayd etile, tedqiqatçılar bu devirni Avropadaki Tiklenüv deviri ile şartlı teñeştireler.
+% XVIII asır ise Maarif deviri sayıla.
+% Bu vaqıtta oña ait yengillikle, şekillerniñ nazikligi ile saray sanatı gürdeli inkişaf ete.
+% Rokoko sanatında terbiyelengen gedoizm ve zevqlanuv musulman Qırımınıñ sanatında da öz parallellerini tapa.
+% Tedqiqatçılar atta körümli qırımtatar ressamı Ömerniñ icadında bile bu üslüpniñ tesirini qayd eteler.
+% Bu devir, hususan meşur siyasetçi olmaqnen beraber metsenat,kollektsioner Qırım Geraynıñ (1758 — 1764) hanlığında Ğarp Avropa tarafından diplomatik munasebetleriniñ canlanuvınen bellidir.
+% Bu devirde Qırımğa medeniyetniñ — muzıka, teart (sarayda fransız truppası Molyer ve başqa Avropa müellifleriniñ eserlerini oynağan), tasviriy sanat, eykeltıraşlıq ananeleri keniş tadbiq oluna.
+% Qırım hanlığınıñ paytahtı — Bağçasaray ilim ve sanat inkişafınıñ merkezine çevirile.
+% XVIII asır Qırımnıñ tarihında "soñki, qısqa, lâkiñ mustaqillikniñ eñ parlaq deviri" olaraq qaldı".
 
-%Ameliy sanat çeşitleri gür inkişaf eteler, bu ise rokayl deviriniñ hususiyetlerinden biridir.
-%Bu devirde Qırım bediiy maden (baqır savut-saba, pıçaqlar, hancerler, tüfekler), quyumcılıq eşyaları, yün maqat ve kilimler, meşin eşyalarnıñ istisalcısı ve eksportörı ola.
+% Ameliy sanat çeşitleri gür inkişaf eteler, bu ise rokayl deviriniñ hususiyetlerinden biridir.
+% Bu devirde Qırım bediiy maden (baqır savut-saba, pıçaqlar, hancerler, tüfekler), quyumcılıq eşyaları, yün maqat ve kilimler, meşin eşyalarnıñ istisalcısı ve eksportörı ola.
 
-%XVIII asır Qırımnıñ sanatında — bu eñ evelâ Bağçasarayda yaşağan ve çalışqan meşur ressam Ömerniñ icadı deviridir.
-%Qırım medeniyetiniñ tarihında onıñ adı Qırım Geraynıñ sevimli qadını Dilâra Bikeçke bağışlap qurulğan Yeşil-Caminiñ fasadındaki "çalıştı Ömer, 1178 Hicra yılı" yazılar sayesinde saqlanıp qaldı.
-%Camideki fresk resimleri ulu ressamnıñ acayip dürberlikteki icadıdır.
-%Usta caminiñ divarlarında resimlerni büyük mearet ile yerleştirmege nail olğan, caminiñ mimarcılıq acimi soñundan süslendirmekni közde tutmağan da.
-%Resimlerde çeçek, ösümlik mevzuları üstünlik ete, olar resimniñ ince ve naziklikligi ile ayırılıp turmaqtalar.
-%Olar soñ derecede musulman sanatına has olğanına baqmadan, rokoko sanatınıñ tesirini numayış etmekteler.
+% XVIII asır Qırımnıñ sanatında — bu eñ evelâ Bağçasarayda yaşağan ve çalışqan meşur ressam Ömerniñ icadı deviridir.
+% Qırım medeniyetiniñ tarihında onıñ adı Qırım Geraynıñ sevimli qadını Dilâra Bikeçke bağışlap qurulğan Yeşil-Caminiñ fasadındaki "çalıştı Ömer, 1178 Hicra yılı" yazılar sayesinde saqlanıp qaldı.
+% Camideki fresk resimleri ulu ressamnıñ acayip dürberlikteki icadıdır.
+% Usta caminiñ divarlarında resimlerni büyük mearet ile yerleştirmege nail olğan, caminiñ mimarcılıq acimi soñundan süslendirmekni közde tutmağan da.
+% Resimlerde çeçek, ösümlik mevzuları üstünlik ete, olar resimniñ ince ve naziklikligi ile ayırılıp turmaqtalar.
+% Olar soñ derecede musulman sanatına has olğanına baqmadan, rokoko sanatınıñ tesirini numayış etmekteler.
 
-%Ömerniñ birinci işlerinden biri — Bağçasaray Hansarayda (1753) Selâmet Geraynıñ qullesini süslendirgen resimlerdir, onıñ bazı bir parçaları bizim küngece saqlanıp qalğandır.
-%Resimniñ esasında — Şarq sanatı içün ananeviy olğan bardaq ile çeçekler süjetidir.
-%Bu iş ince, dalğalı çızıqlarnıñ dülber nazikligi ile ayırılıp turmaqta.
-%Biri-birine kelişken suvuq mavı-yeşil ve sıcaq sarı-altın, gülgüli renklerge esaslanğan resimniñ ayretlendirici koloritniñ qıymetini arttıra.
-%Ressam tegiz resimni, alebastrdan yasalğan bardaq ot ve çeçeklerni qabartıp, zenginleştire.
+% Ömerniñ birinci işlerinden biri — Bağçasaray Hansarayda (1753) Selâmet Geraynıñ qullesini süslendirgen resimlerdir, onıñ bazı bir parçaları bizim küngece saqlanıp qalğandır.
+% Resimniñ esasında — Şarq sanatı içün ananeviy olğan bardaq ile çeçekler süjetidir.
+% Bu iş ince, dalğalı çızıqlarnıñ dülber nazikligi ile ayırılıp turmaqta.
+% Biri-birine kelişken suvuq mavı-yeşil ve sıcaq sarı-altın, gülgüli renklerge esaslanğan resimniñ ayretlendirici koloritniñ qıymetini arttıra.
+% Ressam tegiz resimni, alebastrdan yasalğan bardaq ot ve çeçeklerni qabartıp, zenginleştire.
 
-%Ömer gayet büyük ustalıqnen menimsegen monumental-manzaralı sanatı çeşitleriniñ sintezi 1763 senesi ressam tarafından süslendirilgen Han-Caminiñ misalinde taqdim olunğan.
-%Caminiñ interyerleri çeşit renkli resimler, cam üstündeki resimler, mayolika ve silmeler ile yaraştırılğan.
-%Olarnıñ esasını — Ömerge has çeçek-ösümlik örnekleri teşkil eteler.
+% Ömer gayet büyük ustalıqnen menimsegen monumental-manzaralı sanatı çeşitleriniñ sintezi 1763 senesi ressam tarafından süslendirilgen Han-Caminiñ misalinde taqdim olunğan.
+% Caminiñ interyerleri çeşit renkli resimler, cam üstündeki resimler, mayolika ve silmeler ile yaraştırılğan.
+% Olarnıñ esasını — Ömerge has çeçek-ösümlik örnekleri teşkil eteler.
 XX asırnıñ başına kelip caminiñ dekorativ süslenüvinden tek parçalar ve ayrı detalleri saqlanıp qaldı, yazıq ki, soñundan yapılğan restavratsiya neticesinde olar öz özgünligini ğayıp ettiler.
 
-%Ömer şarq örnekleriniñ zengin palitrasını menimserek, er keresi tekrarlanmağan kompozitsiyalar yaratqan.
+% Ömer şarq örnekleriniñ zengin palitrasını menimserek, er keresi tekrarlanmağan kompozitsiyalar yaratqan.
 O, aqiqiy universal-ressam, fırçı ve qalemden ustalıq ile faydalanğan, Şarq musulmanları ressamlarınıñ vekillerinden biri olğan.
-%Örnekli resimlerge tabiiy kirsetilgen yazılar Ömer yahşı hattat olğanından delâlet bereler.
-%Resimler arasına kirsetilgen şiiriy satırlarnıñ müellifi de Ömer olğanını inkâr etmek mümkün degil.
+% Örnekli resimlerge tabiiy kirsetilgen yazılar Ömer yahşı hattat olğanından delâlet bereler.
+% Resimler arasına kirsetilgen şiiriy satırlarnıñ müellifi de Ömer olğanını inkâr etmek mümkün degil.
 %M. Ya. Ginzburg Ömerni bediiy söz ve hattatlıqnı ustalıqnen menimsegen hattat-ressam, universallar sırasına kirsete.
 %Olarnıñ özleri em şiirler yaza, soñra özleri de örnekli resimlerni hattat yazılarınen yaraştıra ediler.
 %Hattatlar tek şiirler yazmaqnen sıñırlanmaylar, sarayda çeşit mektüp ve yollanmalarnıñ müellifleri olaraq da hızmet ete turğanlar.
