@@ -399,26 +399,26 @@ Soñradan Qırım Hazariyadan ayırıla ve Vizantiyanıñ tesiri altında qala.
 % Mühteşemlikke ıntıluv Qırım ükümdarları ceetten unikal medeniy abideleri ile Bağçasaray qurula.
 % Sanatta canlı mahlüqlarnıñ tasviri çoq vaqıtqace ğayıp ola, amma geometrik ve ösümlik örnekleri gür çeçekleneler.
 
-%Qırımda Osman mimarcılığınıñ ananeleri camilerniñ qurucılığında, minareler, saraylar, dürbeler, amamlarnıñ qurucılığında, öz aksini taptılar.
-%1500 senesi Meñli Geray hannıñ emiri ile meşur Zıncırlı medrese qurula (Şarq Avropanıñ eñ eski oquv yurtlarından biri), medresege kireyatqanda, ilimniñ ululuğı ögünde baş eggen kibi, bosağanıñ üstünde asılğan zıncırnıñ astından egilip keçmek kerek edi.
-%Bu Qırımnıñ eñ körümli oquv yurtlarından biri olıp, mında 10 yıllıq oquv devamında tatar ve arap tili, yazuv, matematika, etika, hattatlıq, mantıq, şiiriyet, musulman qanunı, din oquvı, sunna ve Qurannıñ münderice ve manası ögretilgen, rus tili ögrenilgen.
+% Qırımda Osman mimarcılığınıñ ananeleri camilerniñ qurucılığında, minareler, saraylar, dürbeler, amamlarnıñ qurucılığında, öz aksini taptılar.
+% 1500 senesi Meñli Geray hannıñ emiri ile meşur Zıncırlı medrese qurula (Şarq Avropanıñ eñ eski oquv yurtlarından biri), medresege kireyatqanda, ilimniñ ululığı ögünde baş eggen kibi, bosağanıñ üstünde asılğan zıncırnıñ astından egilip keçmek kerek edi.
+% Bu Qırımnıñ eñ körümli oquv yurtlarından biri olıp, mında 10 yıllıq oquv devamında tatar ve arap tili, yazuv, matematika, etika, hattatlıq, mantıq, şiiriyet, musulman qanunı, din oquvı, sunna ve Qurannıñ münderice ve manası ögretilgen, rus tili ögrenilgen.
 
-%Bağçasaray qurulğanında mında Qırq-Yerden (Çufut-Qale) saray köçip kele, işte o devirde qırımtatar sanatınıñ unikal abidesi olğan meşur Demir-Qapu qurula.
-%Onıñ müellifi — italiyalı usta Aleviz Novıy.
-%O, İvan III sarayına Kreml divarlarınıñ ve Arhangelsk soborınıñ qurucılığı içün çağırılıp, Moskvağa keteyatqanda yol üstünde Qırımda toqtağan.
-%İşbu abidede orta asırlarda Qırımnıñ sanatında belgileyci roller oynağan hususiy tesirler küzgüde kibi aks olundılar.
-%İtaliya Canlanuvı sanatınıñ añaneleri mında order sistemasına qullanuvda aks olundı: kirişniñ eki tarafında körent üslübindeki kapiteller turğan pilâstrlar, olar arhitravnı (baş kiriş) tutıp turalar, arhitravnıñ üstünde ise örnekli friz yolağı sozula, onıñ yuqarısında karniz, karnizniñ töpesinde — akroteriylernen süslendirilgen yarımqubbeli timpan.
-%Renessans mevzularnıñ sayısında dekor terkibine inciler, bükleme sicim şeritleri, tişçikler, ovallar kirsetile.
-%Amma Aleviz, renessans kompozitsiyalarından faydalanaraq, dekornıñ tipik Şarq usullarını işlete, qapını kelişken oymalı örnekler yaraştıralar, akanf yapraqları ve pıtaqlarınıñ, nilüfer çeçekleri ve emen pıtaqlarınıñ örmeleri yunan amforasını añdırğan çeçek bardağı astından ösip çıqqan kibi.
-%Epigrafik dekornı italiyalı usta tipik musulman üslübinde işlegen.
+% Bağçasaray qurulğanında mında Qırq-Yerden (Çufut-Qale) saray köçip kele, işte o devirde qırımtatar sanatınıñ unikal abidesi olğan meşur Demir-Qapu qurula.
+% Onıñ müellifi — italiyalı usta Aleviz Novıy.
+% O, İvan III sarayına Kreml divarlarınıñ ve Arhangelsk soborınıñ qurucılığı içün çağırılıp, Moskvağa keteyatqanda yol üstünde Qırımda toqtağan.
+% İşbu abidede orta asırlarda Qırımnıñ sanatında belgileyci roller oynağan hususiy tesirler küzgüde kibi aks olundılar.
+% İtaliya Canlanuvı sanatınıñ ananeleri mında order sistemasına qullanuvda aks olundı: kirişniñ eki tarafında körent üslübindeki kapiteller turğan pilâstrlar, olar arhitravnı (baş kiriş) tutıp turalar, arhitravnıñ üstünde ise örnekli friz yolağı sozula, onıñ yuqarısında karniz, karnizniñ töpesinde — akroteriylernen süslendirilgen yarımqubbeli timpan.
+% Renessans mevzularnıñ sayısında dekor terkibine inciler, bükleme sicim şeritleri, tişçikler, ovallar kirsetile.
+% Amma Aleviz, renessans kompozitsiyalarından faydalanaraq, dekornıñ tipik Şarq usullarını işlete, qapını kelişken oymalı örnekler yaraştıralar, akanf yapraqları ve pıtaqlarınıñ, nilüfer çeçekleri ve emen pıtaqlarınıñ örmeleri yunan amforasını añdırğan çeçek bardağı astından ösip çıqqan kibi.
+% Epigrafik dekornı italiyalı usta tipik musulman üslübinde işlegen.
 
-%Bağçasaraydaki Hansaraynıñ özü ta XVI asırda I Meñli Geray han devirinde qurulıp, bugünge qadar virane olıp restavratsiya yapıldı ve neticede onıñ evelki körünüşi pek bozuldı.
-%"Onıñ eski qısımlarında bir taraftan — arap-fars ve türk üslüpleriniñ ve ekinci taraftan — İtaliya renessansınıñ izleri de rastkeleler" (qılavuzdan).
-%Saraynıñ içeri azbarında 1756 senesi Qırım Geray tarafından qurdurılğan meşur Közyaş çeşmesi yerleşken.
-%O, mında hannıñ sevimli qadını — Dilâra Bikeçniñ dürbesinden II Yekaterina devirinde avuştırılğan.
+% Bağçasaraydaki Hansaraynıñ özü ta XVI asırda I Meñli Geray han devirinde qurulıp, bugünge qadar virane olıp restavratsiya yapıldı ve neticede onıñ evelki körünüşi pek bozuldı.
+% "Onıñ eski qısımlarında bir taraftan — arap-fars ve türk üslüpleriniñ ve ekinci taraftan — İtaliya renessansınıñ izleri de rastkeleler" (qılavuzdan).
+% Saraynıñ içeri azbarında 1756 senesi Qırım Geray tarafından qurdurılğan meşur Közyaş çeşmesi yerleşken.
+% O, mında hannıñ sevimli qadını — Dilâra Bikeçniñ dürbesinden II Yekaterina devirinde avuştırılğan.
 
-%Qurucılıqnıñ çeçeklenüv ceryanı Geraylar sülâlesiniñ bundan soñki vekilleriniñ devirinde de qayd etile.
-%Evelki kibi, mimarcılıq saasında yerli, türk, Vizantiya, İtaliya ananeleri közetileler.
+% Qurucılıqnıñ çeçeklenüv ceryanı Geraylar sülâlesiniñ bundan soñki vekilleriniñ devirinde de qayd etile.
+% Evelki kibi, mimarcılıq saasında yerli, türk, Vizantiya, İtaliya ananeleri közetileler.
 %Qırımtatar halqınıñ körümli mimarcılıq abideleri sırasına Han-Cami, Hansaray yanındaki Küçük-Cami, Aqmescitteki Kebir-Cami (1508 senesi qurulğan bu cami çoq kereler restavratsiya yapıldı ve ğayrıdan quruldı, Şimdi o, qırımtatarlarnıñ baş ibadethanesidir) kire.
 
 %1552 senesi Kezlevde qurulğan Cuma-Cami — türk sultanı Suleyman 1-niñ baş mimarı.
