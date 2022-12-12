@@ -3,13 +3,13 @@
 
 ## Kiriş
 Qırımtatarlarnıñ yigirminci asırğa ait tasviriy ve manzaralı-ameliy sanatı asılında tedqiq etilmegen mevzu olıp, o mahsus ögrenilüvge muhtacdır.
-Bunıñ sebeplerini zemaneviy qırımtatar tarihında yüz bergen facialı vaqialarnen anlatmaq mümkün.
-1918-1921 senelerinin qızıl ve aq terrorı, 19211922 seneleri aselet teşkilâtlandırılan kütleviy açlıq, halqnın intellektual elitası yoq etilgen 1928, 1937-1938 seneleriniñ repressiyaları, qırımtatarlar öz Vatanından sürgün etilip, çeşit ülkelerge dağıtılğan 1944 senesiniñ zorbalıqlı deportatsiyası, halqnın çoq yıllar devamında diskriminatsiyağa oğratılması, onın medeniy yenişleri devlet tarafından inkâr etilip, yoqqa çıqarılması milliy medeniyet ve sanat içün facialı ve ödetmez ğayıplarğa alıp keldi.
-Soñki onyıllıqnıñ vaqiaları, yani qırımtatar halqınıñ öz tuvğan toprağına qaytıp başlaması, medeniy ananelerniñ ğayrıdan tiklenilmesi, Qırımdaki zemaneviy bediiy yaratıcılıqnıñ faalleşmesi mezkûr mevzunıñ aktualligini arttıralar, om öğrenmek imkânını bereler.
+Bunıñ sebeplerini zemaneviy qırımtatar tarihında yüz bergen facialı vaqialarnen añlatmaq mümkün.
+1918-1921 seneleriniñ qızıl ve aq terrorı, 1921-1922 seneleri aselet teşkilâtlandırılğan kütleviy açlıq, halqnıñ intellektual elitası yoq etilgen 1928, 1937-1938 seneleriniñ repressiyaları, qırımtatarlar öz Vatanından sürgün etilip, çeşit ülkelerge dağıtılğan 1944 senesiniñ zorbalıqlı deportatsiyası, halqnıñ çoq yıllar devamında diskriminatsiyağa oğratılması, onıñ medeniy yeñişleri devlet tarafından inkâr etilip, yoqqa çıqarılması milliy medeniyet ve sanat içün facialı ve ödetmez ğayıplarğa alıp keldi.
+Soñki onyıllıqnıñ vaqiaları, yani qırımtatar halqınıñ öz tuvğan toprağına qaytıp başlaması, medeniy ananelerniñ ğayrıdan tiklenilmesi, Qırımdaki zemaneviy bediiy yaratıcılıqnıñ faalleşmesi mezkûr mevzunıñ aktualligini arttıralar, onı öğrenmek imkânını bereler.
 Qırım yarımadasınıñ territoriyasında biñlernen yıllar zuur etken devamlı etnik ceryan yigirminci asırnıñ başlarında üç Qırım etnosınıñ şekillenmesinen yekünlendi.
 Zemaneviy qırımtatar milleti meydanğa keldi ki, o burjua milletiniñ inkişafı içün zarur olğan bütün içtimaiy cehetlerge, medeniy ve maneviy alâmetlerge artıq malik edi, bundan tek yaqın tarihiy keçmişte ğayıp etilgen milliy devletçilik istisna edi.
 Qararnen şu devirde Qırım karaimleri (türk-karaitler) ve qırımçaqları (yehudiy türkler) da şekillenip yetiştiler.
-Qırım urumları — qırımtatar tilinde laqırdı etken pravoslav (ortodoksa!) dindeki hristianlar — Ekaterina saniy II hükümeti tarafından 1778 senesi Qırımdan bütünley sürgün etilmegen olsalar, Qırımnıñ zemaneviy dörtünci etnosı ola bilecek ediler.
+Qırım urumları — qırımtatar tilinde laqırdı etken pravoslav (ortodoksal) dindeki hristianlar — Ekaterina saniy II hükümeti tarafından 1778 senesi Qırımdan bütünley sürgün etilmegen olsalar, Qırımnıñ zemaneviy dörtünci etnosı ola bilecek ediler.
 Mevzudan biraz çetleşerek, şunı faraz etmek mümkün ki, yuqarıda kösterilgen etnoslarnıh yekâne topraqta, yekâne devlet sınırları içinde tabiiy surette inkişaf etüv ceryanı ertemi-keçmi yekâne Qırım halqınıñ meydanğa kelmesinen, yani şu etnoslarnıh bir etnosqa çevirilmesinen yekünlenmek kerek edi.
 Çünki XVIII asımın sonuna kelip, olarnin tilleri bir (türkiy til), maddiy ve maneviy medeniyetleri (dinden ğayrı) bir edi.
 Böyleliknen, Qırımnıñ bu etnografik gruppaları arasındaki yekâne farqnı yalınız din — olarnin kütken İslâm, yehudiy, karaim yahut hristian dinleri teşkil etecek edi.
