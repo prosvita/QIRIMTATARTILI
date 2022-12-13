@@ -58,17 +58,17 @@ Qırım sanatşınaslıq iliminde ilk kere manzaralı sanat numünelerini ananel
 Qullanamada ketirilgen tedqiqatlarnıñ ameliy qıymeti — olardan qırımtatarlarnıñ professional sanatını ve halq esnafçılığını ğayrıdan tiklev, inkişaf ettirüv ve teşviq etüvde keniş faydalanmaq mümkün olacağından ibarettir; toplanılğan ve talil etilgen material XX asırğa ait qırımtatar sanatı inkişafınıñ bütünlikli bir manzarasını aks ettirmek imkânını bere.
 Aynı vaqıtta, tedqiqatlarnıñ materiallarından ileride zemaneviy qırımtatar sanatını ögrenüv işinde hem de bediiy oquv yurtları içün lektsiya materialları sıfatında faydalanır mümkün.
 Qırımtatar halq manzaralı-ameliy ve tasviriy sanatını sanatşınaslıq cehetinden ilk kere kompleksli, bütünlikli bir körüniş sıfatında öğrenmek zaruriyeti meselege monografik yanaşuvnı ve onıñ esas çeşitlerini ardı-sıra talil etüvni közde tuta edi.
-Muellifnin belgilegen tedqiqat çerçivesine aşağıdakiler kirdi:
-- tedqiqat yazılğan vaqıtta ögrenilgen arhiv menbalarınıñ ve muzey kollektsiyalarınıñ harakteristikası; ekspeditsiyalar teşkilâtlandırılan vaqıtta ötkerilgen tedqiqatlarnıñ neticeleri;
-- qırımtatarlarnın etnogenezi ve etnomedeniy inkişafına qısqa ekskurs;
-- qırımtatar etnosınıñ şekillenmesinde türkiy substratnıñ ve türkiy olmağan superstratnıñ rölü, olarğa has medeniyetlerniñ farqlandırıcı alâmetleri, qırımtatarlarğa ve çeşit devirlerde olarnıñ yanında yaşağan diğer halqlarğa has medeniyetlerniñ biri-biriine tesir etüvi ve biri-birine sinüvi, halqnıñ kendi etnotarihiy territoriyasından sürgün etilüvinin ve evelki asırlarda yüz bergen muhacirlik dalğalarının zemaneviy milliy medeniyetke ve halq sanatına yapqan tesiri ve, aqibet olaraq, qırımtatar etnografik gruppalarının hem ana-topraqta, hem diaspora şaraitinde yekâne, metin bir etnos olaraq çabik süratnen birleşmesi.
-Yuqarıda qayd olunğan problem şimdiki zamanda qırımtatar halq sanatını tedqiq eticilernin öğünde gayet keskin turğanı munasebetinen Ukrainada qadimiy Oırım sanatını, yani qırımtatar sanatını ögrenüv boyunca ilmiy merkezni meydanğa ketirmek zaruriyeti endi çoqtan sezile.
+Muellifniñ belgilegen tedqiqat çerçivesine aşağıdakiler kirdi:
+- tedqiqat yazılğan vaqıtta ögrenilgen arhiv menbalarınıñ ve müzey kollektsiyalarınıñ harakteristikası; ekspeditsiyalar teşkilâtlandırılan vaqıtta ötkerilgen tedqiqatlarnıñ neticeleri;
+- qırımtatarlarnıñ etnogenezi ve etnomedeniy inkişafına qısqa ekskurs;
+- qırımtatar etnosınıñ şekillenmesinde türkiy substratnıñ ve türkiy olmağan superstratnıñ rölü, olarğa has medeniyetlerniñ farqlandırıcı alâmetleri, qırımtatarlarğa ve çeşit devirlerde olarnıñ yanında yaşağan diğer halqlarğa has medeniyetlerniñ biri-biriine tesir etüvi ve biri-birine sinüvi, halqnıñ kendi etnotarihiy territoriyasından sürgün etilüviniñ ve evelki asırlarda yüz bergen muhacirlik dalğalarınıñ zemaneviy milliy medeniyetke ve halq sanatına yapqan tesiri ve, aqibet olaraq, qırımtatar etnografik gruppalarınıñ hem ana-topraqta, hem diaspora şaraitinde yekâne, metin bir etnos olaraq çabik süratnen birleşmesi.
+Yuqarıda qayd olunğan problem şimdiki zamanda qırımtatar halq sanatını tedqiq eticilerniñ öğünde gayet keskin turğanı munasebetinen Ukrainada qadimiy Oırım sanatını, yani qırımtatar sanatını ögrenüv boyunca ilmiy merkezni meydanğa ketirmek zaruriyeti endi çoqtan sezile.
 Şekilce bu Sanatşınaslıq ilmiy-tedqiqat institutı ola bilir edi.
-Zaten, böyle muessiseler Rusiye Federatsiyasıniñ muhtariyatlarında ve diğer sabıq Sovet cumhuriyetlerinde endi çoqtan mevcuttır.
-Hal-azırda ise yaş qırımtatar sanatşınaslığı öğünde turğan vazifelerni 2000 senesi meydanğa ketirilgen Cumhuriyet qırımtatar sanatı muzeyiniñ ilmiy hadimler kollektivi küçü ve imkânları yetkeni qadar çezmege tırışa.
-Mezkûr muzeynin dört hadimi Ukraina, Özbekistan ve Azerbaycannıñ çeşit akademik merkezlerindeki aspiranturalarda oquy.
+Zaten, böyle muessiseler Rusiye Federatsiyasıniñ muhtariyetlerinde ve diger sabıq Sovet cumhuriyetlerinde endi çoqtan mevcuttır.
+Hal-azırda ise yaş qırımtatar sanatşınaslığı öğünde turğan vazifelerni 2000 senesi meydanğa ketirilgen Cumhuriyet qırımtatar sanatı müzeyiniñ ilmiy hadimler kollektivi küçü ve imkânları yetkeni qadar çezmege tırışa.
+Mezkûr müzeyniñ dört hadimi Ukraina, Özbekistan ve Azerbaycannıñ çeşit akademik merkezlerindeki aspiranturalarda oquy.
 2001 senesi Qırım devlet sanayı-pedagogika institutında «Halq bediiy icadiyatı» mütehassıslığı açıldı.
-2001 senesinin sentâbr 1-inden başlap 40 talebe qırımtatar bediiy esnafçılığı ve manzaralı-ameliy sanatı boyunca nazariy ve ameliy bilgi ala.
+2001 senesiniñ sentâbr 1-inden başlap 40 talebe qırımtatar bediiy esnafçılığı ve manzaralı-ameliy sanatı boyunca nazariy ve ameliy bilgi ala.
 Derslerni yüksek ihtisaslı mütehassıslar — ilim doktorları ve namzetleri alıp baralar.
 İşte, şu eki kollektivde hazırlanğan mütehassıslar ileride Sanatşınaslıq ilmiy-tedqiqat institutınıñ kadrlar negizini teşkil ete bilecekler.
-Her halda, yaqın kelecekte qırımtatar sanatşınaslığı boyunca akademik merkezni teşkil etmek içün Qırımda şimdinin özünde hem hayatiy muhtaclıq, hem ilmiy zaruriyet, hem şarait bar.
+Her halda, yaqın kelecekte qırımtatar sanatşınaslığı boyunca akademik merkezni teşkil etmek içün Qırımda şimdiniñ özünde hem hayatiy muhtaclıq, hem ilmiy zaruriyet, hem şarait bar.
