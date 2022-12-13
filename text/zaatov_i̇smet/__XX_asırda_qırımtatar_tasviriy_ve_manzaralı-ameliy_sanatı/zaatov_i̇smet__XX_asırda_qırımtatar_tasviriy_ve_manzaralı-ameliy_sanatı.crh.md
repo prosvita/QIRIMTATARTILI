@@ -38,15 +38,15 @@ Soñki yıllarda deviriy matbuatta zemaneviy qırımtatar sanatı problemleri ha
 Bular — L. Milina, M. Mecitova, G. Useinova, G. Abiyeva, S. Ziyadinova, Z. Nimetullayeva ve diğerleridir.
 Öz maqalelerinen tedqiqatımız içün meraq doğurğan professional sanatşınaslar cümlesine N.Ostrovskiy adına Taşkent teatr-ressamlıq institutınıñ mezunları A. Asanov, L. Tairova, E. Çerkezova kireler.
 Bugünde-bugün qırımtatar halqınıñ tarihında yanı basqıç başlanğanı, yani o özüniñ tarihiy Vatanına qaytayatqanı munasebetinen qırımtatar tasviriy sanatınıñ peyda oluv ve inkişaf etüv ceryanını aks ettirmek hem de qırımtatar manzaralı-ameliy sanatınıñ ananelerini bayağı terence öğrenmek, evel belli olmağan abidelerniri keniş dairesini ilmiy qullanuvğa kirsetmek, halq icadınıñ esas çeşitlerini (maden, ağaç ve taşnı bediiy işlev; kiramet; ufaq plastika; küçük şekilli halq mimarcılığı; altın yiplernen ve örnekli işleme; bezekli örüv; gön ve kiyiz üstüne applikatsiya çeküv; bediiy toqumacılıq; gobelenler, havlı ve havsız kilim, kiyizler toquv; inkrustatsiya) açıp köstermek zaruriyeti doğdı.
-Mezkûr qullanmada dere olunğan tedqiqatlarnıñ maqsadı — zemaneviy qırımtatar tasviriy sanatınıñ peyda oluv ve ayaqqa turuv ceryanlarını, XX asırğa ait olıp, evelki zamanlar an'anelerini miras etip alğan halq manzaralı-ameliy sanatınıñ ğayrıdan tiklenüv ve inkişaf etüv problemlerini közetmek, qırımtatar sanatınıñ bediiy hususiyetlerini ve inkişafındaki esas tendentsiyalarnı belgilemektir.
+Mezkûr qullanmada derc olunğan tedqiqatlarnıñ maqsadı — zemaneviy qırımtatar tasviriy sanatınıñ peyda oluv ve ayaqqa turuv ceryanlarını, XX asırğa ait olıp, evelki zamanlar ananelerini miras etip alğan halq manzaralı-ameliy sanatınıñ ğayrıdan tiklenüv ve inkişaf etüv problemlerini közetmek, qırımtatar sanatınıñ bediiy hususiyetlerini ve inkişafındaki esas tendentsiyalarnı belgilemektir.
 Zanımızca, zemaneviy qırımtatar tasviriy ve manzaralı-ameliy sanatını tedqiq etüv ve ögrenüv sahasındaki esas ve birinci nevbette turğan vazifelerni belgilemek içün aşağıdakilerni yapmaq zarur.
- Qırımtatarlarnıñ XX asır başlanmasına qadar olğan sanatının qısqa harakteristikasını bertmek.
-Avropa tesiri neticesinde Qırımda yanı, an'aneviy olmağan sanat çeşitlerinin — ressamlıq, grafika, heykelcilikniñ peyda oluv ceryanını açıp köstermek.
- Qırımtatar tasviriy sanatı inkişafının esas basqıçlarını közden keçirmek, yetekçi ressamlarnıñ icadını talil etüv negizinde bediiy ceryannın esas çizgilerini belgilemek.
- Tasviriy sanatta sonki on yıl devamında zuur etken esas yöneliş ve tendentsiyalarnı, mevzularnı aydınlatmaq, yetekçi ressamlarnı belgilemek.
- Qırımda ve onın tışında qırımtatar bediiy esnafçılığınıñ an'aneviy merkezlerini hem de olarnın lokal farqlarını belgilemek.
- Tasviriy sanatnın şekillenmesi ve inkişaf etmesinde an'aneviy medeniyetniñ rolüni belgilemek.
- Qırımtatar ustalarınıñ an'aneviy iş usullarını harakterizlemek.
+ Qırımtatarlarnıñ XX asır başlanmasına qadar olğan sanatının qısqa harakteristikasını bermek.
+Avropa tesiri neticesinde Qırımda yanı, ananeviy olmağan sanat çeşitleriniñ — ressamlıq, grafika, heykelcilikniñ peyda oluv ceryanını açıp köstermek.
+ Qırımtatar tasviriy sanatı inkişafınıñ esas basqıçlarını közden keçirmek, yetekçi ressamlarnıñ icadını talil etüv negizinde bediiy ceryannın esas çizgilerini belgilemek.
+ Tasviriy sanatta soñki on yıl devamında zuur etken esas yöneliş ve tendentsiyalarnı, mevzularnı aydınlatmaq, yetekçi ressamlarnı belgilemek.
+ Qırımda ve onıñ tışında qırımtatar bediiy esnafçılığınıñ ananeviy merkezlerini hem de olarnıñ lokal farqlarını belgilemek.
+ Tasviriy sanatnıñ şekillenmesi ve inkişaf etmesinde ananeviy medeniyetniñ rolüni belgilemek.
+ Qırımtatar ustalarınıñ ananeviy iş usullarını harakterizlemek.
  Qırımtatarlarmn halq manzaralı-ameliy sanatınıñ hem de tasviriy sanatınıñ esas stilistik hususiyetlerini belgilemek.
  Qırımtatar tasviriy hem de manzaralı-ameliy sanatlarının halqtaki diğer maddiy ve maneviy medeniyet körünişlerinen bağını açıp köstermek, qırımtatarlarnıñ halq ameliy-manzaralı hem de tasviriy sanatlarınen diğer halqlarnın sanatları arasındaki umumiy hususiyetlerni ve farqlarnı belgilemek.
 %Mezkûr qullanmada beyan etilgen tedqiqatlarnıh metodologik negizini qırımtatar halq manzaralı-ameliy ve tasviriy sanatlarına ait eserlerni ögrenüv, olarnın bediiy cehetten talili ve sanatşınaslıq cehetinden telqini teşkil eteler,zaten, manzaralı-ameliy ve tasviriy sanatlarğa milliy medeniyetniñ bir qısımı sıfatında, halqnın tarihi, etnogenezi, dünyabaqışı, emek ve turmuş şaraitleri, an'aneleri, urf-adetleri, folklorı ve halq icadiyatının diğer çeşitlerinen bağlı halda qıymet kesmek lâzim.
