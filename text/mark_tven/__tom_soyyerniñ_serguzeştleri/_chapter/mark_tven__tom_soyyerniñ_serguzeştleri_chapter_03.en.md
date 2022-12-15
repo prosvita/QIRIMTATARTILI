@@ -4,11 +4,11 @@ TOM presented himself before Aunt Polly, who was sitting by an open window in a 
 The balmy summer air, the restful quiet, the odor of the flowers, and the drowsing murmur of the bees had had their effect, and she was nodding over her knitting—for she had no company but the cat, and it was asleep in her lap.
 Her spectacles were propped up on her gray head for safety.
 She had thought that of course Tom had deserted long ago, and she wondered at seeing him place himself in her power again in this intrepid way.
-%He came in and said:
+% He came in and said:
 
 "Mayn't I go and play now, aunt?"
 
-%Have you already done what I said?
+% Have you already done what I said?
 How much have you done?"
 
 "It's all done, aunt."
@@ -18,7 +18,7 @@ How much have you done?"
 "I ain't, aunt;
 it IS all done."
 
-%Aunt Polly didn't trust him.
+% Aunt Polly didn't trust him.
 She went out to see for herself; and she would have been content to find twenty per cent of Tom's statement true.
 When she found the entire fence white-washed, and not only whitewashed but elaborately coated and recoated, and even a streak added to the ground, her astonishment was almost unspeakable.
 
