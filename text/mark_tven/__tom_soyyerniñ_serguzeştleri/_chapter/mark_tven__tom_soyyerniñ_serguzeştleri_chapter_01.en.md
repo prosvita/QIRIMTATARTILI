@@ -1,15 +1,15 @@
 ## CHAPTER I
 
--TOM!
+- TOM!
 
 No answer.
 
--TOM!
+- TOM!
 
 No answer.
 
 "What's gone with that boy, I wonder?
--Tom!
+- Tom!
 
 No answer.
 
@@ -17,7 +17,7 @@ The old lady pulled her spectacles down and looked over them about the room; the
 She seldom or never looked THROUGH them for so small a thing as a boy.
 they were her state pair, the pride of her heart, and were built for "style," not service—she could have seen through a pair of stove-lids just as well.
 She looked perplexed for a moment, and then said, not fiercely, but still loud enough for the furniture to hear:
-She paused for a moment, thinking,and then she said,not very loudly,but so that the furniture in the room could hear her:
+She paused for a moment, thinking, and then she said, not very loudly, but so that the furniture in the room could hear her:
 
 Well, I lay if I get hold of you I'll—"
 
@@ -28,18 +28,18 @@ She went to the open door and stood in it and looked out among the tomato vines 
 % Tom wasn't here either.
 %  Old woman raising her voice so that she could be heard very far away:
 
-%- Tom!- she shouted.
+% - Tom! - she shouted.
 
 % Something rumbled from behind.
  She turned just in time to seize a small boy by the slack of his roundabout and arrest his flight.
-% Tom,where did you disappear to?
-%- Yes,yes!
-%I forgot to look at the store.
+% Tom, where did you disappear to?
+% - Yes, yes!
+% I forgot to look at the store.
 What you been doing in there?"
 
 - Nothing.
 
-%-How is it nothing?
+% - How is it nothing?
 Look at your hands. 
 And look at your mouth.
 What IS that truck?"
@@ -47,13 +47,13 @@ What IS that truck?"
 "I don't know, aunt."
 
 "Well, I know.
-It's jam—that's what it is.
+It's jam — that's what it is.
 Forty times I've said if you didn't let that jam alone I'd skin you.
 Hand me that switch.
 
-The switch hovered in the air—the peril was desperate— My!
+The switch hovered in the air — the peril was desperate — My!
 
-%- Oh,look behind you, aunt?!
+% - Oh, look behind you, aunt?!
 
 The old lady whirled round, and snatched her skirts out of danger.
 The lad fled on the instant, scrambled up the high board-fence, and disappeared over it.
@@ -61,7 +61,7 @@ The lad fled on the instant, scrambled up the high board-fence, and disappeared 
 
 His aunt Polly stood surprised a moment, and then broke into a gentle laugh.
 
-% -Prankster boy!
+% - Prankster boy!
 
 % Of course, I have to get used to his dirty tricks.
 Ain't he played me tricks enough? 
@@ -82,9 +82,9 @@ Every time I let him off, my conscience does hurt me so, and every time I hit hi
 % My heart breaks when I try to hurt him.
 % No wonder the Bible says the human age is short and full of sorrows.
 % Gospel truth!
-% Here you are: today he is slipping away from school ,which means that İ will punish him tomorrow-let him work hard.
+% Here you are: today he is slipping away from school, which means that İ will punish him tomorrow-let him work hard.
 It's mighty hard to make him work Saturdays, when all the boys is having holiday, but he hates work more than he hates anything else, and I've GOT to do some of my duty by him, or I'll be the ruination of the child."
-% This time I will not be able to punish him,otherwise I will completely destroy him.
+% This time I will not be able to punish him, otherwise I will completely destroy him.
 
 % Tom didn't go to school today.
 % So he had a great time.
@@ -98,11 +98,11 @@ Like many other simple-hearted souls, it was her pet vanity to believe she was e
 Said she:
 "Tom, it was middling warm in school, warn't it?"
 
-%-Yes,madam.
+% - Yes, madam.
 
 "Powerful warm, warn't it?"
 
--Yes,madam.
+-Yes, madam.
 
 "Didn't you want to go in a-swimming, Tom?"
 
@@ -133,10 +133,10 @@ The trouble vanished out of Tom's face.
 He opened his jacket.
 His shirt collar was securely sewed.
 
-%-Okay,okay.
+% - Okay, okay.
 Well, go 'long with you.
 I'd made sure you'd played hookey and been aswimming.
-But I forgive ye, Tom.I reckon you're a kind of a singed cat, as the saying is—better'n you look.
+But I forgive ye, Tom. I reckon you're a kind of a singed cat, as the saying is—better'n you look.
 
 She was half sorry her sagacity had miscarried.
  Аnd half glad that Tom had stumbled into obedient conduct for once.
@@ -180,7 +180,7 @@ The summer evenings were long.
 It was not dark, yet.
 Presently Tom checked his whistle.
 A stranger was before him—a boy a shade larger than himself.
-A newcomer of any age or either sex was an impressive curiosity in the poor little shabby village of St.Petersburg.
+A newcomer of any age or either sex was an impressive curiosity in the poor little shabby village of St. Petersburg.
 This boy was well dressed, too—well dressed on a week-day.
 This was simply astounding.
 His cap was a dainty thing, his closebuttoned blue cloth roundabout was new and natty, and so were his pantaloons.
@@ -191,20 +191,20 @@ The more Tom stared at the splendid marvel, the higher he turned up his nose at 
 
 % The two boys stared at each other in silence.
 If one moved, the other moved—but only sidewise, in a circle.
-%They didn't take their eyes off each other.
+% They didn't take their eyes off each other.
 
 
 Finally Tom said:
 
--Do you want me to hit you?-he asked.
+- Do you want me to hit you?-he asked.
 
-%-Hit,I'd like to see it!
+% - Hit, I'd like to see it!
 
 "Well, I can do it."
 
 "No you can't, either."
 
-% If I want,I will hit you.
+% If I want, I will hit you.
 
 "No you can't."
 
@@ -225,17 +225,17 @@ Then Tom said:
 
 "Well I 'low I'll MAKE it my business."
 
-%-Show me,let`s see.
-%-What you will show?
+% - Show me, let`s see.
+% - What you will show?
 
 "If you say much, I will."
 
-%- Two words!
-%- Two words!
-%- Two words!
+% - Two words!
+% - Two words!
+% - Two words!
 % Get it!
 
-%-Look at him!
+% - Look at him!
 I could lick you with one hand tied behind me, if I wanted to."
 
 "Well why don't you DO it?
@@ -265,7 +265,7 @@ Oh, what a hat!"
 
 
 
-%- Then what are you waiting for?
+% - Then what are you waiting for?
 % You only know how to scare,but in reality you can`t prove anything.
 It's because you're afraid."
 
@@ -296,7 +296,7 @@ After struggling till both were hot and flushed, each relaxed his strain with wa
 
 "You're a coward and a pup.
 I'll tell my big brother on you, and he can thrash you with his little finger."
-% I will definitely tell him- he will hit you!- he said.
+% I will definitely tell him - he will hit you! - he said.
 
 % I`m not afraid of your brother.
 % I also have a brother.
@@ -331,11 +331,11 @@ In an instant both boys were rolling and tumbling in the dirt, gripped together 
  They tugged and tore at each other's hair and clothes, punched and scratched each other's nose. 
 Presently the confusion took form, and through the fog of battle Tom appeared, seated astride the new boy, and pounding him with his fists.
 
-% -"Holler 'nuff!-Tom demanded.
+% - "Holler 'nuff! - Tom demanded.
 
 The boy only struggled to free himself.
 
-"Holler 'nuff!"—and the pounding went on.
+"Holler 'nuff!"— and the pounding went on.
 
 % Finally, the boy mumbled:
 
@@ -344,8 +344,8 @@ The boy only struggled to free himself.
 "Now that'll learn you.
 Better look out who you're fooling with next time."
 The new boy went off brushing the dust from his clothes, sobbing, snuffling, and occasionally looking back and shaking his head and threatening what he would do to Tom the "next time he caught him out."
-%Tom said "yes,of course,of course!"laughing at him and went home proud of his victory.
-% And as soon as he turned his back,the boy grabbed the stone and threw it.
+% Tom said "yes,of course,of course!"laughing at him and went home proud of his victory.
+% And as soon as he turned his back, the boy grabbed the stone and threw it.
  And hit him between the shoulders.
  He then turned tail and ran like an antelope.
 Tom chased the traitor home, and thus found out where he lived.
