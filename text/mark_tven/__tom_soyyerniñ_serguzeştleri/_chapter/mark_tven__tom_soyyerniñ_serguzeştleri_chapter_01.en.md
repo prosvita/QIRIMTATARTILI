@@ -309,8 +309,8 @@ My brother can throw him over that fence, too." [Both brothers were imaginary.]
 
 Tom drew a line in the dust with his big toe, and said:
 
-% - I will draw the line, be carefull.
-"I dare you to step over that, and I'll lick you till you can't stand up,Anybody that'll take a dare will steal sheep."
+% - Just don`t say you`ll jump over that line!
+"I`ll spank you so hard that you won`t recornize youur own! Whoever crosses this line, it will be very bad! - says. 
 
 
 The new boy stepped over promptly, and said:
