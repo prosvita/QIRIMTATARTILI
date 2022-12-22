@@ -298,18 +298,18 @@ After struggling till both were hot and flushed, each relaxed his strain with wa
 I'll tell my big brother on you, and he can thrash you with his little finger."
 % I will definitely tell him- he will hit you!- he said.
 
-%I`m not afraid of your brother.
+% I`m not afraid of your brother.
 % I also have a brother.
-%He is older than your brother.
+% He is older than your brother.
 My brother can throw him over that fence, too." [Both brothers were imaginary.]
 
-%-You are lying!
+% - You are lying!
 
 % You talk nonsense.
 
 Tom drew a line in the dust with his big toe, and said:
 
-%- I will draw the line,be carefull.
+% - I will draw the line, be carefull.
 "I dare you to step over that, and I'll lick you till you can't stand up,Anybody that'll take a dare will steal sheep."
 
 
@@ -322,7 +322,7 @@ The new boy stepped over promptly, and said:
 
 "Well, you SAID you'd do it—why don't you do it?"
 
-% If I don`t hit you for two cents,let the devils cry for me!
+% If I don`t hit you for two cents, let the devils cry for me!
 
 The new boy took two broad coppers out of his pocket and held them out with derision.
 
@@ -337,7 +337,7 @@ The boy only struggled to free himself.
 
 "Holler 'nuff!"—and the pounding went on.
 
-% Finally,the boy mumbled:
+% Finally, the boy mumbled:
 
  "'Nuff!" and Tom let him up and said:
 
