@@ -1,15 +1,15 @@
-## QIRIMTATARLARNIN XX ASIRDAKİ TASVİRİY SANATI: İNKİŞAFNIÑ MEYİLLERİ VE ESAS MUAMMALARI
+## QIRIMTATARLARNIÑ XX ASIRDAKİ TASVİRİY SANATI: İNKİŞAFNIÑ MEYİLLERİ VE ESAS MUAMMALARI
 
 XIX asırnıñ soñlarına, XXI asırnıñ başlarına ait qırımtatar tasviriy sanatı inkişafnın üç esas basqıçını keçti ki, bu basqıçlar doğrudan-doğru halqnıñ siyasiy ve etnik tarihi ile bağlıdırlar:
 - 1895 senesinden 1944 senesine qadar olğan devirde.
-Rusieniñ ve ğarbiy Avropanıñ akademik merkezlerinde ilk professional qırımtatar ressamlarınıñ oqup başlağan vaqtından sürgünlikke qadar 
-- qırımtatar halqı Rusiyenin şimaliy rayonlarına, Orta Asiyağa, Qazahistanğa zorbalıqnen sürgün etilip, dağınıq halda yerleştirilgen devirge (1944-1989 seneleri) ait tasviriy sanat.
+Rusiyeniñ ve ğarbiy Avropanıñ akademik merkezlerinde ilk professional qırımtatar ressamlarınıñ oqup başlağan vaqtından sürgünlikke qadar 
+- qırımtatar halqı Rusiyeniñ şimaliy rayonlarına, Orta Asiyağa, Qazahistanğa zorbalıqnen sürgün etilip, dağınıq halda yerleştirilgen devirge (1944-1989 seneleri) ait tasviriy sanat.
 - qırımtatar tasviriy sanatınıñ tarihiy Vatanda qayta tiklenüv deviri (1989-2002 seneleri).
 En evelâ monumental tasviratnen hem de orta asırlarğa ait kitap miniatürasınen taqdim olunğan tasviriy sanatta esas diqqat örnekler, çeçeklerni tasvirlev üslübine berile edi.
-XIX asırnıñ sonlarında qırımtatar tasviriy sanatı inqiraz halında bulunıp, bunın sebepleri yarımadadaki umumiy tarihiy-medeniy vaziyetnen, çar hükümeti yüz yıl devamında yerli medeniyetke ve qırımtatar ehalisine nisbeten keçirgen siyasetnen bağlı edi.
-İslâm alemindeki diğer regionlarda olğanı kibi, Qırımnıñ tasviriy sanatı da XIX asırnıñ sonuna qadar öz qanunları esasında inkişaf etip, bu qanunlar mucibi aqiqatnı realistik tarzda aks ettirmek mümkün değil edi.
-Yarımadağa sanatnın yanı şekilleri kelmesinen mındaki medeniy ömür heppeyi canlandı, teatr, kinematograf, edebiyat ilerilediler, qırımtatar icadiy ziyalılarımn sayısı östü.
-Şubhesiz, Qırım medeniyetinde Ğarp ve Şarqnıñ «körüşmesi» birinci kere değil edi (bu yerde Geraylar devirini hatırlamaq mümkün: o vaqıtlarda hanlar kendi huzurlarına İtalyan ustalarını davet ete turğanlar), lâkin bu keresinde münasebetler bam-başqa tüs taşıy ediler — Avropa medeniyetiniñ tesiri çoq asırlıq mahalliy an'anelernih büs-bütün inkâr etilgeni halda keçirildi.
+XIX asırnıñ sonlarında qırımtatar tasviriy sanatı inqiraz halında bulunıp, bunıñ sebepleri yarımadadaki umumiy tarihiy-medeniy vaziyetnen, çar hükümeti yüz yıl devamında yerli medeniyetke ve qırımtatar ealisine nisbeten keçirgen siyasetnen bağlı edi.
+İslâm alemindeki diger regionlarda olğanı kibi, Qırımnıñ tasviriy sanatı da XIX asırnıñ sonuna qadar öz qanunları esasında inkişaf etip, bu qanunlar mucibi aqiqatnı realistik tarzda aks ettirmek mümkün degil edi.
+Yarımadağa sanatnıñ yañı şekilleri kelmesinen mındaki medeniy ömür heppeyi canlandı, teatr, kinematograf, edebiyat ilerilediler, qırımtatar icadiy ziyalılarnıñ sayısı östü.
+Şubhesiz, Qırım medeniyetinde Ğarp ve Şarqnıñ «körüşmesi» birinci kere degil edi (bu yerde Geraylar devrini hatırlamaq mümkün: o vaqıtlarda hanlar kendi huzurlarına İtalyan ustalarını davet ete turğanlar), lâkin bu keresinde münasebetler bam-başqa tüs taşıy ediler — Avropa medeniyetiniñ tesiri çoq asırlıq mahalliy ananelerniñ büs-bütün inkâr etilgeni halda keçirildi.
 Qırımtatar ziyalılarının ayrı vekilleri bediiy tahsilni Rusiyede, çetelde — Avropada aldılar.
 Lâkin bu esnada en büyük adım XIX asırnıñ soñlarında, Rusiyenin yetekçi ressamları Qırımğa daimiy yaşamağa kelip başlağanlarından soñ atıldı.
 Bunınnen birlikte aynı şu Rusiyege qoşuluv sayesinde Qırımğa sanatnıñ avropalıca medeniy an'anelerge has yanı şekilleri, cümleden, tezya sanatı ket-kete sinip, inkişaf etip başladılar.
