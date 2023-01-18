@@ -27,16 +27,16 @@ Yañı sovet hakimiyeti çar hükümetiniñ diğer milletlerni eziyetlevge doğr
 Rusiyede yüz bergen inqilâbiy deñişmeler bir çoq kenar mintaqalarda milliy azatlıq hareketlerini qozğadılar.
 Bu esnada yarımadadaki asıl halqnıñ medeniy inkişafında muayen yılışuv közetile.
 Qırım muhtariyet huquqını ala, qırımtatarlar Qırımnıñ asıl halqı sıfatında tanılalar, qırımtatar tili ise devlet statusına malik ola.
-1923 senesi partiyanıñ baş yolu, dep ilân etilgen tamırlaştıruv siyaseti neticesinde qırımtatarlarğa hakimiyet organlarında, oquv yurtlarında ve istihsalda keniş kvotalar berildi.(183.5-nci sahife).
-Böyleliknen, milliy tahsil sistemasını qaytadan teşkilâtlandıruv, yanı medeniy muessiselerni meydanğa ketirüv ceryam başlana; bir sıra medeniyet erbaplarınıñ, şu cümleden qırımtatar ressamlarınıñ peyda olması içün şaraitler doğa.
-20-30-ncı seneler devamında ananeviy esnaflarnı canlandıruv boyunca iş alınıp barıla (Bağçasarayda sonundan Qırım oblast tatar sanayı-ressamlıq mektebi, dep adlandırılğan tatar ressamlıq-sanayı tehnikumı çalışıp başlay).
+1923 senesi partiyanıñ baş yolu, dep ilân etilgen tamırlaştıruv siyaseti neticesinde qırımtatarlarğa hakimiyet organlarında, oquv yurtlarında ve istisalda keniş kvotalar berildi.(183, 5-nci sahife).
+Böyleliknen, milliy tahsil sistemasını qaytadan teşkilâtlandıruv, yañı medeniy muessiselerni meydanğa ketirüv ceryan başlana; bir sıra medeniyet erbaplarınıñ, şu cümleden qırımtatar ressamlarınıñ peyda olması içün şaraitler doğa.
+20-30-ncı seneler devamında ananeviy esnaflarnı canlandıruv boyunca iş alınıp barıla (Bağçasarayda soñundan Qırım oblast tatar sanayı-ressamlıq mektebi, dep adlandırılğan tatar ressamlıq-sanayı tehnikumı çalışıp başlay).
 Amma böyle vaziyet çoqqa sürmedi.
-Regionlarnıñ öz mustaqilligini böyle gür nümayiş etmesinen Sovet hakimiyeti razılaşıp olamay edi.
-Bu şey ahır-sonu qırımtatar milleti içün ödelmez ğayıplarğa alıp keldi.
-Medeniyeti ve sanatının tarihi bu derecede facialı vaqialarğa tolup-taşqan daha bir halqnı tapmaq küçtir.
+Regionlarnıñ öz mustaqilligini böyle gür nümayış etmesinen Sovet hakimiyeti razılaşıp olamay edi.
+Bu şey ahır-soñu qırımtatar milleti içün ödelmez ğayıplarğa alıp keldi.
+Medeniyeti ve sanatınıñ tarihı bu derecede facialı vaqialarğa tolup-taşqan daha bir halqnı tapmaq küçtir.
 Qırımtatarlarnıñ sürgünlikten evelki sanatı bir taraftan aydın, özgün sanat olıp, ekinci taraftan — o ğayet az ögrenilgen bir körüniş edi.
-Bunıñ sebebi şunda ki, Qırımnıñ asıl halqınıñ sürgünlikten evelki medeniyeti hususında cenkten sofi da onlarnen yıllar devamında ağız açılmadı.
-XX asırda yaşap icat etken qırımtatar ressamlarınıñ birinci nesili öz faaliyetini ta inqilâptan evel başlağan, rus akademik sanatınıñ an aneleri esasında terbiyelengen, tahsilni Qırımdan tışta alğan edi.
+Bunıñ sebebi şunda ki, Qırımnıñ asıl halqınıñ sürgünlikten evelki medeniyeti hususında cenkten soñki onlarnen yıllar devamında ağız açılmadı.
+XX asırda yaşap icat etken qırımtatar ressamlarınıñ birinci nesili öz faaliyetini ta inqilâptan evel başlağan, rus akademik sanatınıñ ananeleri esasında terbiyelengen, tahsilni Qırımdan tışta alğan edi.
 Aynı vaqıtta bu nesil adamları kendi halqınıñ tamırlarını hiç bir vaqıt coymadılar, kendi medeniy asabalığını unutmadılar.
 Olar oqumış, zengin bilgilerge malik adamlar ediler ki, istidatları icatnın pek çoq sahalarında aks oluna edi.
 İşte, bu nesilge ait eh aydın vekillerniñ birisi i.Boraganskiydir.
