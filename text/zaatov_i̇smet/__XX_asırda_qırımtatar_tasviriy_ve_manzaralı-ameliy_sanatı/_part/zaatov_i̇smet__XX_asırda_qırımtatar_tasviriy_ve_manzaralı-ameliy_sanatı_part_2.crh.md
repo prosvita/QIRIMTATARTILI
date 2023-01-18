@@ -18,15 +18,15 @@ XX asırnıñ yigirminci seneleri amerikalı qırımşınaslar A.Fişer ve E.Laz
 Bu sözlerde can bar, faqat, olarnı, her halda, tamamlamaq kerek.
 Qırımnıñ medeniy renessansı ancaq beş yıl devam etti (1923-1927 seneleri), amma bu yıllar edebiyat, teatr, ilim, tahsilniñ gür çeçeklengen yılları ediler.
 1928 senesiniñ yanvar ayında ise qırımtatar ziyalılarına qarşı repressiyalarnıñ birinci dalğası koterile.(183, 5-nci sahife).
-Qırımtatar medeniyetinin o yıllardaki inkişafı mürekkep, zıddiyetli keçti.
+Qırımtatar medeniyetiniñ o yıllardaki inkişafı mürekkep, zıddiyetli keçti.
 Bir taraftan, muayen ösüv körünip turğanı halda, diğer taraftan — medeniyetni gizliden yoq etmeğe tırışıldı.
 Ebet, XX asırnıñ başlarında medeniyette qırımtatar halq ananeleri daha saqlanılğan ediler, lâkin Qırımdaki medeniy zeminniri özgünligi sovet hakimiyeti yıllarında bütünley yoq etildi.
-Ananeviy bediiy asabalıqnıñ belli parçaları (bazı bir esnaflar, mimarcılıq, kitap miniatürası, monumental süslev) ğayıp etilmesinen birge Oırımda qırımtatar halqı içün yañı sanat şekilleri — tezya ressamlığı, grafika, eykelciliknıri ayaqqa turması içün şaraitler yaratıla.
+Ananeviy bediiy asabalıqnıñ belli parçaları (bazı bir esnaflar, mimarcılıq, kitap miniatürası, monumental süslev) ğayıp etilmesinen birge Oırımda qırımtatar halqı içün yañı sanat şekilleri — tezya ressamlığı, grafika, eykelcilikniñ ayaqqa turması içün şaraitler yaratıla.
 Teraqqiy perver başlanğıçlar çoqusı cehetten içtimaiy-siyasiy vaziyet ile bağlı ediler.
-Yañı sovet hakimiyeti çar hükümetiniñ diğer milletlerni eziyetlevge doğrultılğan siyasetine qarşılıq olaraq milletleniñ kendi muqadderatını kendi tayin ete bilüv, serbestlik, birlik, qardaşlıq siyasetini qoydı.
-Rusiyede yüz bergen inqilâbiy denişmeler bir çoq kenar mintaqalarda milliy azatlıq hareketlerini qozğadılar.
-Bu esnada yarımadadaki asıl halqnıh medeniy inkişafında muayen yılışuv közetile.
-Qırım muhtariyet huquqını ala, qırımtatarlar Qırımnın asıl halqı sıfatında fanilalar, qırımtatar tili ise devlet statusına malik ola.
+Yañı sovet hakimiyeti çar hükümetiniñ diğer milletlerni eziyetlevge doğrultılğan siyasetine qarşılıq olaraq milletlerniñ kendi muqadderatını kendi tayin ete bilüv, serbestlik, birlik, qardaşlıq siyasetini qoydı.
+Rusiyede yüz bergen inqilâbiy deñişmeler bir çoq kenar mintaqalarda milliy azatlıq hareketlerini qozğadılar.
+Bu esnada yarımadadaki asıl halqnıñ medeniy inkişafında muayen yılışuv közetile.
+Qırım muhtariyet huquqını ala, qırımtatarlar Qırımnıñ asıl halqı sıfatında tanılalar, qırımtatar tili ise devlet statusına malik ola.
 1923 senesi partiyanıñ baş yolu, dep ilân etilgen tamırlaştıruv siyaseti neticesinde qırımtatarlarğa hakimiyet organlarında, oquv yurtlarında ve istihsalda keniş kvotalar berildi.(183.5-nci sahife).
 Böyleliknen, milliy tahsil sistemasını qaytadan teşkilâtlandıruv, yanı medeniy muessiselerni meydanğa ketirüv ceryam başlana; bir sıra medeniyet erbaplarınıñ, şu cümleden qırımtatar ressamlarınıñ peyda olması içün şaraitler doğa.
 20-30-ncı seneler devamında ananeviy esnaflarnı canlandıruv boyunca iş alınıp barıla (Bağçasarayda sonundan Qırım oblast tatar sanayı-ressamlıq mektebi, dep adlandırılğan tatar ressamlıq-sanayı tehnikumı çalışıp başlay).
