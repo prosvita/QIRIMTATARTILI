@@ -10,14 +10,14 @@ XIX asırnıñ sonlarında qırımtatar tasviriy sanatı inqiraz halında bulun�
 İslâm alemindeki diger regionlarda olğanı kibi, Qırımnıñ tasviriy sanatı da XIX asırnıñ sonuna qadar öz qanunları esasında inkişaf etip, bu qanunlar mucibi aqiqatnı realistik tarzda aks ettirmek mümkün degil edi.
 Yarımadağa sanatnıñ yañı şekilleri kelmesinen mındaki medeniy ömür heppeyi canlandı, teatr, kinematograf, edebiyat ilerilediler, qırımtatar icadiy ziyalılarnıñ sayısı östü.
 Şubhesiz, Qırım medeniyetinde Ğarp ve Şarqnıñ «körüşmesi» birinci kere degil edi (bu yerde Geraylar devrini hatırlamaq mümkün: o vaqıtlarda hanlar kendi huzurlarına İtalyan ustalarını davet ete turğanlar), lâkin bu keresinde münasebetler bam-başqa tüs taşıy ediler — Avropa medeniyetiniñ tesiri çoq asırlıq mahalliy ananelerniñ büs-bütün inkâr etilgeni halda keçirildi.
-Qırımtatar ziyalılarının ayrı vekilleri bediiy tahsilni Rusiyede, çetelde — Avropada aldılar.
-Lâkin bu esnada en büyük adım XIX asırnıñ soñlarında, Rusiyenin yetekçi ressamları Qırımğa daimiy yaşamağa kelip başlağanlarından soñ atıldı.
-Bunınnen birlikte aynı şu Rusiyege qoşuluv sayesinde Qırımğa sanatnıñ avropalıca medeniy an'anelerge has yanı şekilleri, cümleden, tezya sanatı ket-kete sinip, inkişaf etip başladılar.
-Bu hal hususan yarımadada bolşevikler hakimyeti tasdiqlanğan son közge çarpıp başladı, çünki sovet Rusiyesinin inqilâbiy sanatı musülman Qırımınıñ medeniy asabalığını zerrece hesapqa almay edi.
-XX asırnıñ yigirminci seneleri amerikalı qırımşınaslar A.Fişer ve E.Lazerininin oğurlı elinen qırımtatar sanatının «altın aşırı» adını aldılar, o yıllarnı kimerde qırımtatar renessansı deviri, de deyler.
+Qırımtatar ziyalılarınıñ ayrı vekilleri bediiy tahsilni Rusiyede, çetelde — Avropada aldılar.
+Lâkin bu esnada enñ büyük adım XIX asırnıñ soñlarında, Rusiyenin yetekçi ressamları Qırımğa daimiy yaşamağa kelip başlağanlarından soñ atıldı.
+Bunınñnen birlikte aynı şu Rusiyege qoşuluv sayesinde Qırımğa sanatnıñ avropalıca medeniy ananelerge has yañı şekilleri, cümleden, tezya sanatı ket-kete sinip, inkişaf etip başladılar.
+Bu hal hususan yarımadada bolşevikler hakimyeti tasdiqlanğan son közge çarpıp başladı, çünki sovet Rusiyesiniñ inqilâbiy sanatı musulman Qırımınıñ medeniy asabalığını zerrece hesapqa almay edi.
+XX asırnıñ yigirminci seneleri amerikalı qırımşınaslar A.Fişer ve E.Lazerininiñ oğurlı elinen qırımtatar sanatınıñ «altın aşırı» adını aldılar, o yıllarnı kimerde qırımtatar renessansı deviri, de deyler.
 Bu sözlerde can bar, faqat, olarnı, her halda, tamamlamaq kerek.
-Qırımnıñ medeniy renessansı ancaq beş yıl devam etti (1923-1927 seneleri), amma bu yıllar edebiyat, teatr, ilim, tahsilnin gür çeçeklengen yılları ediler.
-1928 senesiniñ yanvar ayında ise qırımtatar ziyalılarına qarşı repressiyalarnıñ birinci dalğası koterile.(183.5-nci sahife).
+Qırımnıñ medeniy renessansı ancaq beş yıl devam etti (1923-1927 seneleri), amma bu yıllar edebiyat, teatr, ilim, tahsilniñ gür çeçeklengen yılları ediler.
+1928 senesiniñ yanvar ayında ise qırımtatar ziyalılarına qarşı repressiyalarnıñ birinci dalğası koterile.(183, 5-nci sahife).
 Qırımtatar medeniyetinin o yıllardaki inkişafı mürekkep, zıddiyetli keçti.
 Bir taraftan, muayen ösüv körünip turğanı halda, diğer taraftan — medeniyetni gizliden yoq etmeğe tırışıldı.
 Ebet, XX asırnıñ başlarında medeniyette qırımtatar halq ananeleri daha saqlanılğan ediler, lâkin Qırımdaki medeniy zeminniri özgünligi sovet hakimiyeti yıllarında bütünley yoq etildi.
