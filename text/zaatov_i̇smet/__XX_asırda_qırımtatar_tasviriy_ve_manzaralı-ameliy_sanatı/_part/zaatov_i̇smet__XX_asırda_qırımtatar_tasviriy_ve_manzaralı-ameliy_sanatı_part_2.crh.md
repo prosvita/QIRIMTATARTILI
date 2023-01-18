@@ -38,15 +38,15 @@ Qırımtatarlarnıñ sürgünlikten evelki sanatı bir taraftan aydın, özgün 
 Bunıñ sebebi şunda ki, Qırımnıñ asıl halqınıñ sürgünlikten evelki medeniyeti hususında cenkten soñki onlarnen yıllar devamında ağız açılmadı.
 XX asırda yaşap icat etken qırımtatar ressamlarınıñ birinci nesili öz faaliyetini ta inqilâptan evel başlağan, rus akademik sanatınıñ ananeleri esasında terbiyelengen, tahsilni Qırımdan tışta alğan edi.
 Aynı vaqıtta bu nesil adamları kendi halqınıñ tamırlarını hiç bir vaqıt coymadılar, kendi medeniy asabalığını unutmadılar.
-Olar oqumış, zengin bilgilerge malik adamlar ediler ki, istidatları icatnın pek çoq sahalarında aks oluna edi.
-İşte, bu nesilge ait eh aydın vekillerniñ birisi i.Boraganskiydir.
+Olar oqumış, zengin bilgilerge malik adamlar ediler ki, istidatları icatnıñ pek çoq sahalarında aks oluna edi.
+İşte, bu nesilge ait eh aydın vekillerniñ birisi İ.Boraganskiydir.
 Ilyas mirza Boraganskiy (1852 senesi Bağçasarayda doğdı, 1924 senesi Sterlitamaq şeherinde vefat etti) — meşhur qırımtatar maarifperveri, naşiri, şarqşınas alimidir.
 1866 senesinden 1874 senesine qadar İstanbulda tahsil alıp, anda şarq kalligrafiyası ve örnekçiliginiñ sırlarını öğrendi.
-Qırımğa qaytıp kelgen son qırımtatar örneklerini işlev sahasında öz tecribesini mükemmelleştirerek, Peterburgdaki kendi matbaasında neşir ettiği çeşit türlü kitaplarnı bediiy cehetten bezetti.(248.63-64-nci sahifeler).
-O öz matbaasında qırımtatar kitaplarından ğayrı bütün diğer türkiy tillerde, arap, fars tillerinde kitaplar çıqardı, aynı vaqıtta Sankt-Peterburg universitetinde ocalıq yaptı, Qırımdan ve Rusiye imperiyasının başqa türk-musülman regionlarından oqumağa kelgen iqtidarlı gençlerni oqutıp, olarnı işnen teminleyerek, keniş pedagogik ve hayriye faaliyetinen meşğul oldı.
+Qırımğa qaytıp kelgen soñ qırımtatar örneklerini işlev sahasında öz tecribesini mükemmelleştirerek, Peterburgdaki kendi matbaasında neşir etkeni çeşit türlü kitaplarnı bediiy cehetten bezetti.(248.63-64-nci sahifeler).
+O öz matbaasında qırımtatar kitaplarından ğayrı bütün diger türkiy tillerde, arap, fars tillerinde kitaplar çıqardı, aynı vaqıtta Sankt-Peterburg universitetinde ocalıq yaptı, Qırımdan ve Rusiye imperiyasınıñ başqa türk-musülman regionlarından oqumağa kelgen iqtidarlı gençlerni oqutıp, olarnı işnen teminleyerek, keniş pedagogik ve hayriye faaliyetinen meşğul oldı.
 Körümü qırımtatar yazıcısı, alimi ve pedagogı Osman Aqçoqraqlı da şu nesilge mensüptir.
-Onıñ babası namlı hattat olğan, öz bilgilerini oğluna bergen, sonundan Osman da babası kibi, meşhur hattalardan biri sayılğan.
-Tolu olmağan orta malûmatlı Osman Aqçoqraqlı (o, Bağçasaray medresesinde tahsil aldı) öz devirinin eh oqumış adamlarından birine çevirilip (Peterburg universitetinin şarq filleri fakultetinde talebelerge hattatlıq sırlarını ögretken, belli bir vaqıt İ.Boraganskiynin matbaasında kitaplarını bezetken), «Rusiyede eh yahşi musülman hattatı» sayılğan, Oırım pedagogika institutında türk ve arap fillerinden ders bergen.
+Onıñ babası namlı hattat olğan, öz bilgilerini oğluna bergen, soñundan Osman da babası kibi, meşhur hattalardan biri sayılğan.
+Tolu olmağan orta malûmatlı Osman Aqçoqraqlı (o, Bağçasaray medresesinde tahsil aldı) öz deviriniñ eñ oqumış adamlarından birine çevirilip (Peterburg universitetiniñ şarq filleri fakultetinde talebelerge hattatlıq sırlarını ögretken, belli bir vaqıt İ.Boraganskiyniñ matbaasında kitaplarını bezetken), «Rusiyede eñ yahşi musulman hattatı» sayılğan, Oırım pedagogika institutında türk ve arap tillerinden ders bergen.
 Sankt-Peterburg camisindeki ve Hansaraydaki örnekler ve Quran ayetlerinden ibaret yazılar, işte, onıñ qolunen yapılğandır.
 O. Aqçoqraqlı Qırımdaki bir çoq epigrafik abidelerni (baştaşlardaki yazılarnı ve ilâhre) oqup, ilmiy qullanuvğa kirsetken edi.
 Lâkin ustanın istidatına inkişaf etmek imkânını bermediler — biraz vaqıt keçken son hattatlıq yabaniy grafika, dep tanıla ve o bediiy icat sahasından bütünley çıqarıla, uzaq-uzaq yıllarğa unutıla.
