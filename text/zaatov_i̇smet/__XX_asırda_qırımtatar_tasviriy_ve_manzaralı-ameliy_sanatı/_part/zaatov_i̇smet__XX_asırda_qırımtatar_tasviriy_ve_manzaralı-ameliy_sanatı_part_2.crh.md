@@ -49,15 +49,15 @@ Onıñ babası namlı hattat olğan, öz bilgilerini oğluna bergen, soñundan O
 Tolu olmağan orta malûmatlı Osman Aqçoqraqlı (o, Bağçasaray medresesinde tahsil aldı) öz deviriniñ eñ oqumış adamlarından birine çevirilip (Peterburg universitetiniñ şarq filleri fakultetinde talebelerge hattatlıq sırlarını ögretken, belli bir vaqıt İ.Boraganskiyniñ matbaasında kitaplarını bezetken), «Rusiyede eñ yahşi musulman hattatı» sayılğan, Oırım pedagogika institutında türk ve arap tillerinden ders bergen.
 Sankt-Peterburg camisindeki ve Hansaraydaki örnekler ve Quran ayetlerinden ibaret yazılar, işte, onıñ qolunen yapılğandır.
 O. Aqçoqraqlı Qırımdaki bir çoq epigrafik abidelerni (baştaşlardaki yazılarnı ve ilâhre) oqup, ilmiy qullanuvğa kirsetken edi.
-Lâkin ustanın istidatına inkişaf etmek imkânını bermediler — biraz vaqıt keçken son hattatlıq yabaniy grafika, dep tanıla ve o bediiy icat sahasından bütünley çıqarıla, uzaq-uzaq yıllarğa unutıla.
-Hem mesele tek Qırımda qullanılğan arap elifbesinin yerine başta latin elifbesi, daha sonra ise kirillik elifbe kelgeninde değil, mesele Qırımnın bütün islâm medeniyeti yoqqa çıqarılğanında, bunınnen beraber ise hattatlıq kibi fenomennin de yoq etilgenindedir.
-Aqçokraqlınıñ özü ise pantürkizmde qabaatlanıp, repressiyağa oğratılğan ve 1938 senesi atıp öldürilgen edi.(184.29-ncı sahife).
+Lâkin ustanıñ istidatına inkişaf etmek imkânını bermediler — biraz vaqıt keçken soñ hattatlıq yabaniy grafika, dep tanıla ve o bediiy icat sahasından bütünley çıqarıla, uzaq-uzaq yıllarğa unutıla.
+Hem mesele tek Qırımda qullanılğan arap elifbesiniñ yerine başta latin elifbesi, daha soñra ise kirillik elifbesi kelgeninde degil, mesele Qırımnıñ bütün islâm medeniyeti yoqqa çıqarılğanında, bunıñnen beraber ise hattatlıq kibi fenomenniñ de yoq etilgenindedir.
+Aqçoqraqlınıñ özü ise pantürkizmde qabaatlanıp, repressiyağa oğratılğan ve 1938 senesi atıp öldürilgen edi.(184.29-ncı sahife).
 Moskvadaki Stroganov adına resaamlıq-tehnika oquv yurtunda tahsil alğan U.Bodaninskiy, A.Abiyev, A.Lâtif-zade tezya sanatı sahasında professional negizde çalışqan qırımtatar ressamlarınıñ birinci nesiline mensüp ediler.
-Olar qırımtatar halqımn medeniy ömürinde tasviriy sanatnın zarur element sıfatında tasdiqlanmasına büyük hisse qoştılar.
-Professional esasta çalışqan ilk qırımtatar ressamlarınıñ peyda olmasına belli bir derecede İ.Gasprinskiynin, İ.Boraganskiynin, A.Mediyevnin ve diğer qırımtatar naşirleriniñ aktiv faaliyeti şiltem berdi.
- Çünki olarnın neşir ettiği gazetalar, mecmualar ve kitaplarnı bediiy bezetmek içün qırımtatar halqınıñ medeniyeti ve sanatını içinden bilgen, bu halq medeniyetinin taşıyıcısı sayılğan professional ressamlar hem Qırımda, hem Peterburgda talap oluna ediler.
-Türkiy halqlarnın maarifçisi İsmail Gasprinskiyniñ meslekdeşi ve izdeşi sayılğan, qırımtatar ilimi ve sanatının qoruyıcısı olğan polkovnik İsmail Mufti-zadenin bu esnadaki hizmetleri ğayet büyüktir.
-O, 1883 senesi «Cemiyet-i hayriye» adlı qırımtatar hayriye vaqufını amelde meydanğa ketire ve onı tek 1887 senesi resmiy sürette cedvelge aldırtıp ola.
+Olar qırımtatar halqınıñ medeniy ömründe tasviriy sanatnıñ zarur element sıfatında tasdiqlanmasına büyük hisse qoştılar.
+Professional esasta çalışqan ilk qırımtatar ressamlarınıñ peyda olmasına belli bir derecede İ.Gasprinskiyniñ, İ.Boraganskiyniñ, A.Mediyevniñ ve diger qırımtatar naşirleriniñ aktiv faaliyeti şiltem berdi.
+ Çünki olarnıñ neşir etkeni gazetalar, mecmualar ve kitaplarnı bediiy bezetmek içün qırımtatar halqınıñ medeniyeti ve sanatını içinden bilgen, bu halq medeniyetiniñ taşıyıcısı sayılğan professional ressamlar hem Qırımda, hem Peterburgda talap oluna ediler.
+Türkiy halqlarnıñ maarifçisi İsmail Gasprinskiyniñ meslekdeşi ve izdeşi sayılğan, qırımtatar ilimi ve sanatınıñ qoruyıcısı olğan polkovnik İsmail Mufti-zadeniñ bu esnadaki hizmetleri ğayet büyüktir.
+O, 1883 senesi «Cemiyet-i hayriye» adlı qırımtatar hayriye vaqfını amelde meydanğa ketire ve onı tek 1887 senesi resmiy sürette cedvelge aldırtıp ola.
 XIX asırnıñ sonlarında ilk qırımtatar ressamları İ.Mufti-zadeniñ şahsiy paraları ve «Cemiyet-i hayriye»nin maddiy qoltutuvı sayesinde Moskvağa oqumağa yollanılıp, sonra Frantsiya, Almaniya, Türkiyede ameliyat keçtiler.(249.175-nci sahife).
 XX asırnıñ başlarına ait qırımtatar tasviriy sanatının eh büyük sımalarından biri Usein Bodaninskiy edi.
 Zamandaşları onı «tarihiy hatıranın bekçisi» (248.63-nci sahife), ressam, sanatşınas, etnograf sıfatında bile ediler.U. Bodaninskiy bediiy tahsilniñ esaslarını Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunda aldı, anda K.A. Korovinnin elinde oqup, bezetici-ressam zenaatını menimsedi (1896-1905).
