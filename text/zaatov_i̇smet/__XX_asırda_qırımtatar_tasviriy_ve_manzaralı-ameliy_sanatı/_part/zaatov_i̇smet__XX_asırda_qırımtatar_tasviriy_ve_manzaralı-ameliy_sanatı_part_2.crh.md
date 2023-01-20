@@ -79,14 +79,14 @@ Bunıñnen birlikte 20-nci senelerde neşir olunğan bir sıra kitaplarğa U.Bod
 Meselâ, P.Nikolskiynin «Bağçasaray çeşmesi» kitabını Bodaninskiyniñ elinen yapılğan örnekler ve vinyetkalar yaraştıralar, hem bu bezetmeler ressamnı ananeviy örneklerni yahşı bilgen usta sıfatında köstereler.
 İcatçınıñ saqlanıp qalğan süjetli eserleri cümlesine tatarlarnıñ turmuşı ve icadiyatı mevzusında yapılğan grafikası — «Kiyiz işlev», «Baqırcı ustahanesi» kibi resim taslaqları kireler.(205.221-nci sahife).
 Abdurefi Abiyev (1879-1938) haqqında malûmat pek az.
-1906 senesi o, Stroganov adına oquv yurtunı bitire, sonra oquvını Parijde devam ettire.
+1906 senesi o, Stroganov adına oquv yurtunı bitire, soñra oquvını Parijde devam ettire.
 Belli bir vaqıt devamında Rostovdaki mebel fabrikasında modelci olıp çalışa (1908-1910).
 20-nci senelerniñ sonlarında Bağçasaray ressamlıq-sanayı tehnikumınıñ direktorı ola, 30-ncı senelerde Aqmescit ressamlıq tehnikumında ocalıq yapa.
-Onıñ mına bu eserleri haqqında az-buçuq malûmat bar: «Qadınımnıñ portreti», «Mimarcılıq peyzajı», «Evnin interyeri».(248.13-nci sahife).
-Bir çoq ressamlarnıñ taqdiri kibi, onın taqdiri de facialı oldı — qanlı repressiyalarda saq qalğanlar az edi.
-Öz halqınıñ ömürini bütün çeşitliliği ile aks ettirmeğe ıntıluv ilk nesil qırımtatar ressamlarınıñ harakterli bir çizgisi oldı.
+Onıñ mına bu eserleri haqqında az-buçuq malûmat bar: «Qadınımnıñ portreti», «Mimarcılıq peyzajı», «Evniñ interyeri».(248.13-nci sahife).
+Bir çoq ressamlarnıñ taqdiri kibi, onıñ taqdiri de facialı oldı — qanlı repressiyalarda saq qalğanlar az edi.
+Öz halqınıñ ömürini bütün çeşitliligi ile aks ettirmege ıntıluv ilk nesil qırımtatar ressamlarınıñ harakterli bir çizgisi oldı.
 Tasviratnıñ realistik, konkret-plastik usulı olar içün birinci yerde tura edi.
-Ressamlıgta peyzaj, portret, turmuş levhası kibi janrlar ileriley.
+Ressamlıqta peyzaj, portret, turmuş levhası kibi janrlar ileriley.
 Mahalliy halqnıñ turmuşına has olğan tafsilâtlarnı aks ettirüvge ayrıca emiyet berile.
 Ressamlarnı insan, onın emeği, etnografik hususiyetleri, kiyimi ve turmuş vaziyetiniñ dülberligi meraqlandıra edi.
 O devirde yarıtılğan peyzaj resimleri yarıqnen, ava ve hayatnen aşlanğanlar.
