@@ -70,14 +70,14 @@ Bundan soñ onıñ icadiy faaliyeti kene Moskva ve Sankt-Peterburgnen bağlı o
 Almaniyalı tedqiqatçı Edige Qırımal özüniñ «Qırım türkleriniñ milliy mücadelesi» adlı kitabında U.Bodaninskiy ve A.Abiyev haqqında böyle yaza:«Bular — Qırımnıñ asıl halqı içinden çıqmış istidatlı ressamlardır ki, olar kendi bilgilerini İtalyan ve fransız ressamlıq mekteplerinde mukemmelleştirgenler».(250).
 20-nci senelerniñ milliy uyanuv dalğasında U.Bodaninskiy bediiy-pedagogik faaliyetke berilip, halq esnaflarını canlandıruvnen, 1924-29 seneleri Qırq-Azizlerde, Eski Yurtta, Eski Qırımda, Çufut-Qalede, şimaliy Qırımda etnografiya ekspeditsiyaları ötkerüvnen meşğul ola, aynı vaqıtta ressamlıq sanayı tehnikumında ders bere, orta asırlarğa ait ve zemaneviy qırımtatar sanatı haqqında lektsiyalar oquy...
 Bodaninskiy Qırım tarihında birinci kere, Yalta kinostudiyasında yaratılğan «Alim» bediiy filminiñ ressamı da ola.
-Biraz vaqıttan son om Bağçasaraydaki saray-muzeynin direktorı olaraq tayinleyler ve bu muzey Bodaninskiy devirinde qırımtatar sanatınıñ ilmiy-tedqiqat merkezine çevirile.
-Teessüf ki, onın bediiy icadını aydınlatqan numüneler saqlanıp qalmadı — Bodaninskiynin elinen yaratılğan bütün eserler alim 1938 senesi atıp öldürilgen son maqsadkârlıq ile yoq etildiler.
-Onın eserleri haqqında faqat bazı bir malûmatlar mevcut.
-Meselâ, Bodaninskiy Peterburgda «Ay yarıq gecede» adlı akvarel resim (1910) yapqan, bundan gayrı 1909 senesi Moskvadaki ressamlar şirketiniñ 17-nci sergisinde iştirak etken, Moskva mimarcılar cemiyetinin ve Peterburgdaki Mimar-ressamlar cemiyetinin faaliyetlerine qatılğan.
+Biraz vaqıttan soñ o Bağçasaraydaki saray-muzeyiniñ direktorı olaraq tayinleyler ve bu muzey Bodaninskiy devirinde qırımtatar sanatınıñ ilmiy-tedqiqat merkezine çevirile.
+Teessüf ki, onıñ bediiy icadını aydınlatqan numüneler saqlanıp qalmadı — Bodaninskiyniñ elinen yaratılğan bütün eserler alim 1938 senesi atıp öldürilgen son maqsadkârlıq ile yoq etildiler.
+Onıñ eserleri haqqında faqat bazı bir malûmatlar mevcut.
+Meselâ, Bodaninskiy Peterburgda «Ay yarıq gecede» adlı akvarel resim (1910) yapqan, bundan ğayrı 1909 senesi Moskvadaki ressamlar şirketiniñ 17-nci sergisinde iştirak etken, Moskva mimarcılar cemiyetiniñ ve Peterburgdaki Mimar-ressamlar cemiyetiniñ faaliyetlerine qatılğan.
 Qırımnıñ aq gvardiyacılardan azat olunğanınıñ 10 yıllığına bağışlanğan yübiley sergisinde (1930) onıñ «Pionerler» adlı resimi nümayiş etilgen;U. Bodaninskiy Aqmescitteki Qırımtatar teatrinde sanalaştırılğan «Bağçasaray çeşmesi» (1927) baleti içün kostümlerniñ eskizlerini yarattı.(205.220-nci sahife).
-Bunıñnen birlikte 20-nci senelerde neşir olunğan bir sıra kitaplarğa U.Bodaninskiynin illüstratsiyaları da saqlanıp qalğan.
-Meselâ, P.Nikolskiynin «Bağçasaray çeşmesi» kitabını Bodaninskiyniñ elinen yapılğan örnekler ve vinyetkalar yaraştıralar, hem bu bezetmeler ressamnı an'aneviy örneklerni yahşi bilgen usta sıfatında köstereler.
-İcatçınıñ sağlanıp qalğan süjetli eserleri cümlesine tatarlarnın turmuşı ve icadiyatı mevzusında yapılğan grafikası — «Kiyiz işlev», «Baqırcı ustahanesi» kibi resim taslaqları kireler.(205.221-nci sahife).
+Bunıñnen birlikte 20-nci senelerde neşir olunğan bir sıra kitaplarğa U.Bodaninskiyniñ illüstratsiyaları da saqlanıp qalğan.
+Meselâ, P.Nikolskiynin «Bağçasaray çeşmesi» kitabını Bodaninskiyniñ elinen yapılğan örnekler ve vinyetkalar yaraştıralar, hem bu bezetmeler ressamnı ananeviy örneklerni yahşı bilgen usta sıfatında köstereler.
+İcatçınıñ saqlanıp qalğan süjetli eserleri cümlesine tatarlarnıñ turmuşı ve icadiyatı mevzusında yapılğan grafikası — «Kiyiz işlev», «Baqırcı ustahanesi» kibi resim taslaqları kireler.(205.221-nci sahife).
 Abdurefi Abiyev (1879-1938) haqqında malûmat pek az.
 1906 senesi o, Stroganov adına oquv yurtunı bitire, sonra oquvını Parijde devam ettire.
 Belli bir vaqıt devamında Rostovdaki mebel fabrikasında modelci olıp çalışa (1908-1910).
