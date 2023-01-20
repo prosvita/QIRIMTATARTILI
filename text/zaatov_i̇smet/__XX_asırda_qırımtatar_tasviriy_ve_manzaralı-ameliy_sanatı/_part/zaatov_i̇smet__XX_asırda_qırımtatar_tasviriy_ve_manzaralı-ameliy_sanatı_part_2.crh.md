@@ -58,16 +58,16 @@ Professional esasta çalışqan ilk qırımtatar ressamlarınıñ peyda olmasın
  Çünki olarnıñ neşir etkeni gazetalar, mecmualar ve kitaplarnı bediiy bezetmek içün qırımtatar halqınıñ medeniyeti ve sanatını içinden bilgen, bu halq medeniyetiniñ taşıyıcısı sayılğan professional ressamlar hem Qırımda, hem Peterburgda talap oluna ediler.
 Türkiy halqlarnıñ maarifçisi İsmail Gasprinskiyniñ meslekdeşi ve izdeşi sayılğan, qırımtatar ilimi ve sanatınıñ qoruyıcısı olğan polkovnik İsmail Mufti-zadeniñ bu esnadaki hizmetleri ğayet büyüktir.
 O, 1883 senesi «Cemiyet-i hayriye» adlı qırımtatar hayriye vaqfını amelde meydanğa ketire ve onı tek 1887 senesi resmiy sürette cedvelge aldırtıp ola.
-XIX asırnıñ sonlarında ilk qırımtatar ressamları İ.Mufti-zadeniñ şahsiy paraları ve «Cemiyet-i hayriye»nin maddiy qoltutuvı sayesinde Moskvağa oqumağa yollanılıp, sonra Frantsiya, Almaniya, Türkiyede ameliyat keçtiler.(249.175-nci sahife).
-XX asırnıñ başlarına ait qırımtatar tasviriy sanatının eh büyük sımalarından biri Usein Bodaninskiy edi.
-Zamandaşları onı «tarihiy hatıranın bekçisi» (248.63-nci sahife), ressam, sanatşınas, etnograf sıfatında bile ediler.U. Bodaninskiy bediiy tahsilniñ esaslarını Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunda aldı, anda K.A. Korovinnin elinde oqup, bezetici-ressam zenaatını menimsedi (1896-1905).
+XIX asırnıñ sonlarında ilk qırımtatar ressamları İ.Mufti-zadeniñ şahsiy paraları ve «Cemiyet-i hayriye»niñ maddiy qoltutuvı sayesinde Moskvağa oqumağa yollanılıp, soñra Frantsiya, Almaniya, Türkiyede ameliyat keçtiler.(249.175-nci sahife).
+XX asırnıñ başlarına ait qırımtatar tasviriy sanatının eh büyük sımalarından biri Usein Bodaninskiy edi, zamandaşları onı «tarihiy hatıranıñ bekçisi» (248.63-nci sahife), ressam, sanatşınas, etnograf sıfatında bile ediler.
+U. Bodaninskiy bediiy tahsilniñ esaslarını Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunda aldı, anda K.A. Korovinniñ elinde oqup, bezetici-ressam zenaatını menimsedi (1896-1905).
 1905 senesinden 1907 senesine qadar Aqmescitteki Kommertsiya oquv yurtunda grafika sanatı boyunca ders berdi.
 Tahsilini İtaliyada, Frantsiya, Türkiyede devam ettirdi.
-Onıñ özü yazğanı kibi, 1907-1909 seneleri İstanbulda, Parijde, Münhende ve Drezdende çalışqan, 1912 senesi ise İtaliyağa barıp, anda Uyanuv devirinin monumental ressamlığını ögrengen.
-Bundan soñ onın icadiy faaliyeti kene Moskva ve Sankt-Peterburgnen bağlı ola — Bodaninskiy Stroganov adına oquv yurtunın filialında ders bere, filialnın ressamlıq-sanayı mektebine yolbaşçılıq yapa, belli mimar İ.A. Fominnen beraber bezetici ressam olıp çalışa.
-1910 senesi U.Bodaninskiy Moskvadaki Ticaret bankınıñ binasındaki plafonlarnı süslendire, Ya.V. Ratkov-Rojnovmn, S.S. Abamelek-Lazarevnin ve digerlerniñ evlerini bezete.
+Onıñ özü yazğanı kibi, 1907-1909 seneleri İstanbulda, Parijde, Münhende ve Drezdende çalışqan, 1912 senesi ise İtaliyağa barıp, anda Uyanuv deviriniñ monumental ressamlığını ögrengen.
+Bundan soñ onıñ icadiy faaliyeti kene Moskva ve Sankt-Peterburgnen bağlı ola — Bodaninskiy Stroganov adına oquv yurtunıñ filialında ders bere, filialnıñ ressamlıq-sanayı mektebine yolbaşçılıq yapa, belli mimar İ.A. Fominnen beraber bezetici ressam olıp çalışa.
+1910 senesi U.Bodaninskiy Moskvadaki Ticaret bankınıñ binasındaki plafonlarnı süslendire, Ya.V. Ratkov-Rojnovmn, S.S. Abamelek-Lazarevniñ ve digerlerniñ evlerini bezete.
 1917 senesi Qırımğa qaytıp kele.
-Almaniyalı tedqiqatçı Ediğe Qırımal özünin «Qırım türklerinih milliy mücadelesi» adlı kitabında U.Bodaninskiy ve A.Abiyev haqqında böyle yaza:«Bular — Qırımnın asıl halqı içinden çıqmış istidatlı ressamlardır ki, olar kendi bilgilerini İtalyan ve transız ressamlıq mekteplerinde mukemmelleştirgenler».(250).
+Almaniyalı tedqiqatçı Edige Qırımal özüniñ «Qırım türkleriniñ milliy mücadelesi» adlı kitabında U.Bodaninskiy ve A.Abiyev haqqında böyle yaza:«Bular — Qırımnıñ asıl halqı içinden çıqmış istidatlı ressamlardır ki, olar kendi bilgilerini İtalyan ve fransız ressamlıq mekteplerinde mukemmelleştirgenler».(250).
 20-nci senelerniñ milliy uyanuv dalğasında U.Bodaninskiy bediiy-pedagogik faaliyetke berilip, halq esnaflarını canlandıruvnen, 1924-29 seneleri Qırq-Azizlerde, Eski Yurtta, Eski Qırımda, Çufut-Qalede, şimaliy Qırımda etnografiya ekspeditsiyaları ötkerüvnen meşğül ola, aynı vaqıtta ressamlıqsanayı tehnikumında ders bere, orta asırlarğa ait ve zemaneviy qırımtatar sanatı haqqında lektsiyalar oquy...
 Bodaninskiy Qırım tarihında birinci kere, Yalta kinostudiyasında yaratılğan «Alim» bediiy filminiñ ressamı da ola.
 Biraz vaqıttan son om Bağçasaraydaki saray-muzeynin direktorı olaraq tayinleyler ve bu muzey Bodaninskiy devirinde qırımtatar sanatınıñ ilmiy-tedqiqat merkezine çevirile.
