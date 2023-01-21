@@ -108,15 +108,16 @@ Zaten, qırımtatar ustalarınıñ özleri her halda etnografik tüsteki eserler
 İşte, eki dalğağa ait qırımtatar ressamlarınıñ içtimaiy kelip çıquvları türlü-türlü olğanına baqmadan, olarnı bir şey — icat etüvge doğrultılğan tükenmez ıntıluv birleştire.
 Qırımda o devirde ötkerilgen bir sıra bediiy sergiler (Kefe, 1927; Aqmescit, 1922, 1925, 1927, 1930, 1940 seneleri) kosterdiler ki, qırımtatar ustaları Qırımnıñ tasviriy sanatında yetekçi yer almaları, özleriniñ aydın ve özgün istidatları ile tenqitçilerniñ diqqatlarını celp etmeleri içün imkân bar edi.(150.144-150-nci sahifeler).
 Meselâ, Qırımda sovet hakimiyeti tasdiqlanmasınıñ 15 yıllığına bağışlanğan sergide artıq 21 qırımtatar ressamı iştirak etti (qıyas içün: ruslardan 43, ukrainlerden 8, yehudiylerden 11, diger milletlerden birer adam), hem «tatar ressamları istidat cehetinden sergi iştirakçileri arasında yetekçi yerlerde bulunalar».(150.145-nci sahife).
-Bu ressamlar arasında serginin birinci mükâfatını qazanğan A.Ustayev, A.Yarmuhamedov, M.Abselâmov (ekinci mükâfat), Halilev, Asanov, Yağyayev, halq ustaları A.Kalafatov, A.Efendiyeva, F.Aliyeva, A.Mambetova ve diğerleri bar ediler.
-Sergige hudayinabit (kendi kendine resim ögrengen) ressamlar da qatıldılar,Özünin deniz peyzajlarınen iştirak etken sobacı Azizov-şöyle istidatlı ressamlarnıh birisidir.(150.145-146-ncı sahifeler).
-Amet Ustayev (1909-1990) Tuaq köyünde doğdı, Bağçasaraydaki ameliy sanat boyunca tehnikumnı bitirdi (1926-1929), lâkin onın meraqları bayağı kenişçe edi.
+Bu ressamlar arasında serginiñ birinci mükâfatını qazanğan A.Ustayev, A.Yarmuhamedov, M.Abselâmov (ekinci mükâfat), Halilev, Asanov, Yağyayev, halq ustaları A.Kalafatov, A.Efendiyeva, F.Aliyeva, A.Mambetova ve digerleri bar ediler.
+Sergige hudayinabit (kendi kendine resim ögrengen) ressamlar da qatıldılar,Özüniñ deñiz peyzajlarınen iştirak etken sobacı Azizov-şöyle istidatlı ressamlarnıñ birisidir.(150.145-146-ncı sahifeler).
+Amet Ustayev (1909-1990) Tuaq köyünde doğdı, Bağçasaraydaki ameliy sanat boyunca tehnikumnı bitirdi (1926-1929), lâkin onıñ meraqları bayağı kenişçe edi.
 O portretler, peyzajlar da yapa edi.
-Ressamnıñ erte eserlerinden birisi — «Bağçasaray çeşmesi»Resimi janr cehetinden turmuş levhası olıp, onda çeşmeden suv alayatqan yaş qızlar tasvirlengen.
-Oquvnı bitirgen Ustayev taqsimlev boyunca Qazahistanğa tüşe, anda kilim toquv fabrikasında ressam olıp çalışa, qazah örneklerini ögrene, süjetli ve örnekli kilimlernin eskizlerini yarata (onın eskizi esasında Leninnin portreti olğan kilim toqula — 205.228-nci sahife).
-1934 senesi tuvğan koyune qaytıp kelgen Amet Ustayev esasen bezetüvnen oğraşa — tükânlar, qaveler, klublar içün ad tahtaları yapa, aynı vaqıtta qalem resimleri, koydeşlernin portrelerinden ibaret seriyalar yarata.(88.54-nci sahife).
-A. Ustayevni Vrubelnen qiyaslağan A.Polkanovnın fikirince, «Ustayev — aqransız istidat» edi.(150.146ncı sahife).
-Ustayevnin en değerli eserlerinden birisi — «Qırğıncı aq gvardiyacılarnıñ tatar köyünden quvuluvı» adlı resimine belli ressam N.S. Samokişnin yüksek qıymet keskini haqqında malûmat bar (bu eser A.Polkanovnın yuqarıda anılğan maqalesinde qayd etile).
+Ressamnıñ erte eserlerinden birisi — «Bağçasaray çeşmesi» resimi janr cehetinden turmuş levhası olıp, onda çeşmeden suv alayatqan yaş qızlar tasvirlengen.
+Oquvnı bitirgen Ustayev taqsimlev boyunca Qazahistanğa tüşe, anda kilim toquv fabrikasında ressam olıp çalışa, qazah örneklerini ögrene, süjetli ve örnekli kilimlerniñ eskizlerini yarata 
+onıñ eskizi esasında Leninniñ portreti olğan kilim toqula — 205.228-nci sahife).
+1934 senesi tuvğan koyune qaytıp kelgen Amet Ustayev esasen bezetüvnen oğraşa — tükânlar, qaveler, klublar içün ad tahtaları yapa, aynı vaqıtta qalem resimleri, koydeşlerniñ portrelerinden ibaret seriyalar yarata.(88.54-nci sahife).
+A. Ustayevni Vrubelnen qiyaslağan A.Polkanovnıñ fikrince, «Ustayev — aqransız istidat» edi.(150.146ncı sahife).
+Ustayevniñ en degerli eserlerinden birisi — «Qırğıncı aq gvardiyacılarnıñ tatar köyünden quvuluvı» adlı resimine belli ressam N.S. Samokişniñ yüksek qıymet keskeni haqqında malûmat bar (bu eser A.Polkanovnıñ yuqarıda añılğan maqalesinde qayd etile).
 1935 senesi Ustayev Aqmescitke avuşa, mında Qırım oblast drama teatrinde dekorcı olıp çalışa, Pionerler evindeki resim studiyasına yolbaşçılıq yapa, Qırım Ressamlar birliğinin Teşkiliy komitetini meydanğa ketirüvde iştirak ete.
 O devir kün tertibinde turğan mevzular boyunca çoqtan çoq siyasiy plakatlar, peyzajlar, naturadan resim taslaqları, portretler yapa.
 Ustayevnin sürgünlikten evel yapıp yetiştirgen salmaqlı eserlerinden birisi — «Halq kedayı Canğazı Şerfedinniñ portreti»dir (1939).
