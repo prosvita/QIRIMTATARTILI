@@ -148,36 +148,36 @@ Ressamnıñ Qırımda yüz bergen içtimaiy deñişmelerge nisbeten inqilâbiy 
 Bu eser — o devirge has olğan tipik bir resimdir, fikir ete bilgen pek çoq adamlarnı bile yoldan urğan çiy hayaldır.
 Ressam bu resiminde bahtlı adamlar yaşağan serbest, çeçeklengen Qırım haqqındaki hayatlarını nümayış ete.
 Resimdeki kimersi avropalıcasına, kimersi musulmancasına kiyinip quşanğan adamlar yarıq galereyalar boylap kezineler, biri-birlerinen aşıqmadan suhbetleşeler.
-Bir baqıştan, bu — kurort ömürinden bir levhadır, demek mümkün, asılında ise, bu resim — muellifniñ yanı cemiyet haqqında hayalıdır.
-Belli ki, böyle cemiyet qurulacağını «halqlar atası» Stalin işandırğan edi.
-İşte, resimniñ sağ köşesinde Stalinnin büyükten-büyük portreti qoyulmasınıñ sebebi de şundadır.
-Umumen, A.Yarmuhamedovnın resimleri onıñ plener sanatı sahasında büyük usta olğanını köstereler.
-Ressamnın belli eserleri cümlesine «Baynın bostanında», «Dağlı çobannın oyum», «Mamay taş ocaqlarında işçilerniñ atılıp öldürilüvi» kibi resimleri kireler.(248.226-ncı sahife).
-1936 senesinden son hiç bir menbada ressamnıñ adı ahılmay.
-XX asımın birinci yarısında yaşap, icat etken nice-nice ressamlar Qırım medeniyetiniñ tarihından silinip taşlandılar!
+Birinci baqışta, bu kurort ayatından bir levha olıp körüne, lâkin bu müellifniñ — "halqlar dayisi" tarafından işandırılğan yañı cemiyet aqqındaki arzusıdır — kartinanıñ sağ köşesinde Stalinniñ qocaman portreti yerleştirilgen.
+Polotnonıñ tasvirat degerlikleri büyük meraq doğuralar: "Tatar toyu"nda olğan aydınlıq ve ava duyğusı mında büyük bir quvet ile kösterilgen.
+Dersiñ küneş nurları kartina delip, arkadanıñ ajurlığını, mimarcılıq konstruktsiyasınıñ mühteşemligini qayd etip resimge ayrıca bir süs bermekteler.
+Umumen, A.Yarmuhamedovnıñ resimleri onıñ plener sanatı sahasında büyük usta olğanını köstereler.
+Ressamnıñ belli eserleri cümlesine «Baynıñ bostanında», «Dağlı çobannıñ oyunı», «Mamay taş ocaqlarında işçilerniñ atılıp öldürilüvi» kibi resimleri kireler.(248.226-ncı sahife).
+1936 senesinden soñ hiç bir menbada ressamnıñ adı añılmay.
+XX asırnıñ birinci yarısında yaşap, icat etken nice-nice ressamlar Qırım medeniyetiniñ tarihından silinip taşlandılar!
 Keçmişte nam qazanğan, şuret arttırğan nice-nice adamlar haqqında şimdi elimizde hiç bir türlü malûmat yoq, olsa bile — zerre qadardır!
-Aqmescitteki bediiy muzey, ülkeşınaslıq müzeyi öz fondlarında Tohtar Afuzovnın (1900-1942) resimlerini heppeyi vaqıt saqlı tutıp, kimsege köstermediler.
+Aqmescitteki bediiy muzey, ülkeşınaslıq müzeyi öz fondlarında Tohtar Afuzovnıñ (1900-1942) resimlerini heppeyi vaqıt saqlı tutıp, kimsege köstermediler.
 Tek yaqında bu eserlerni körmek, olarğa qıymet kesmek imkânı doğdı.
-Afuzovnıñ dağ ve deniz peyzajları («Ay-Petri», 1935; «Küneş qonğanda», 1937; «Deniz», 1940), cıllılıq, samimiylik ile tasvirlengen Qırım manzaraları («Balıqçı qulübesi», 1935; «Ay ışığındaki evçik», 1939; «Oreandadaki lager», 1940), parlaq, renkkerenk natürtmortları («Küzçeçek», 1935; «Çeçekler ile natürmort», 1940; «Vişneler ile natürmort», 1940) ressamnıñ özgün istidatından, Moskvada V.Meşkovnıñ studiyasında aldığı temelli professional bilgilerinden delâlet bereler.
+Afuzovnıñ dağ ve deñiz peyzajları («Ay-Petri», 1935; «Küneş qonğanda», 1937; «Deñiz», 1940), cıllılıq, samimiylik ile tasvirlengen Qırım manzaraları («Balıqçı qulübesi», 1935; «Ay ışığındaki evçik», 1939; «Oreandadaki lager», 1940), parlaq, renkkerenk natürtmortları («Küzçeçek», 1935; «Çeçekler ile natürmort», 1940; «Vişneler ile natürmort», 1940) ressamnıñ özgün istidatından, Moskvada V.Meşkovnıñ studiyasında alğanı temelli professional bilgilerinden delâlet bereler.
 Ressamnıñ hayatı 1942 senesi üzüldi — onı faşistler atıp oldürdiler.
-Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunın mezunı Abdulla Lâtif-zadenin (1888-1955) ömüri ve icadiy faaliyeti haqqında da malûmat pek az.
-O, 1921-1924 seneleri devamında Bahçasaray muzeyiniñ Kokközdeki filialında (Yusupov sarayı) müfettiş (ya da mudir) (248.101-nci sahife) olıp çalışqan, sonra mektepte sızuv ve resim yapuv boyunca ders bergen.(248.130-ncı sahife).
+Moskvadaki Stroganov adına ressamlıq-sanayı oquv yurtunıñ mezunı Abdulla Lâtif-zadeniñ (1888-1955) ömüri ve icadiy faaliyeti haqqında da malûmat pek az.
+O, 1921-1924 seneleri devamında Bağçasaray müzeyiniñ Kokközdeki filialında (Yusupov sarayı) müfettiş (ya da mudir) (248.101-nci sahife) olıp çalışqan, soñra mektepte sızuv ve resim yapuv boyunca ders bergen.(248.130-ncı sahife).
 1930 senesi sovetlerge qarşı faaliyet alıp baruvda qabaatlanıp, Qırımdan sürgün etilgen.
-ömürinin 14 yılını Stalin lagerlerinde keçirgen.
-Organlar om yaqalağan vaqıtta pek çoq resimlerini, eskizlerini müsadere etkenler ki, o eserlernin taqdiri şimdi belli değil.
-Onıñ icadı haqqında biz tek on resimnin qara-beyaz fotoreproduktsiyalarına baqıp qıymet kese bilemiz.
+ömrüniñ 14 yılını Stalin lagerlerinde keçirgen.
+Organlar onı yaqalağan vaqıtta pek çoq resimlerini, eskizlerini müsadere etkenler ki, o eserlerniñ taqdiri şimdi belli degil.
+Onıñ icadı haqqında biz tek on resimniñ qara-beyaz fotoreproduktsiyalarına baqıp qıymet kese bilemiz.
 Ressamnıñ doğmuşlarında saqlanıp qalğan bu fotoreproduktsiyalarda milliy kiyimler kiygen qızlar, şeher peyzajı, turmuş eşyaları ve qırımtatarlarnıñ milliy urbaları tasvirlengen.
-Ressamnıñ «Keçmişniñ cirençli tipleri» dep adlandırılğan grafikalı satirik portretleri de pek meraqlıdır.(248.101-nci sahife).
-Lâtif-zade ömüriniñ sonum Harkov oblastında (Lozovaya stantsiyası) keçirdi, anda saqatlar şirketinde çalıştı.
-A. Abiyevnin torum olğan Muhtar Şerfedinov (1908-1941).
- Bağçasaraydaki ressamlıq-sanayı mektebini alâ işaretlemen bitirip,Moskva mimarcılıq institutına oqumağa kirdi ve Moskvada da yaşamağa qaldı.(248.213nci sahife).
+Ressamnıñ «Keçmişniñ igrençli tipleri» dep adlandırılğan grafikalı satirik portretleri de pek meraqlıdır.(248.101-nci sahife).
+Lâtif-zade ömrüniñ soñunı Harkov oblastında (Lozovaya stantsiyası) keçirdi, anda saqatlar şirketinde çalıştı.
+A. Abiyevniñ torun olğan Muhtar Şerfedinov (1908-1941).
+ Bağçasaraydaki ressamlıq-sanayı mektebini alâ işaretlernen bitirip,Moskva mimarcılıq institutına oqumağa kirdi ve Moskvada da yaşamağa qaldı.(248.213nci sahife).
 Saqlanıp qalğan malümatlarğa köre, Şerfedinov acayip resimci sıfatında cemaat binalarınıñ leyhaları üzerinde çalışqan.
-Muhtar Şerfedinov Moskvadaki Gorkiy adına medeniyet ve istrahat bağçasmıh leyhasını yapqan muelliflerniñ birisi olaraq tanıldı.
-Qırımnınıñ 1930-nci senelerdeki medeniy ömürinde meşhur ukrain ressamı, tasviratta uruş janrınıñ acayip ustası sayılğan akademik Nikolay Semyönoviç Samokişniñ studiyası hususan büyük röl oynadı.
-Belli ki, bu studiya sonundan Simferopol ressamlıq tehnikumına çevirilgen edi, şimdi ise N.S. Samokiş adına ressamlıq oquv yurtu, dep adlandırıla.
+Muhtar Şerfedinov Moskvadaki Gorkiy adına medeniyet ve istrahat bağçası leyhasını yapqan muelliflerniñ birisi olaraq tanıldı.
+Qırımnınıñ 1930-nci senelerdeki medeniy ömründe meşhur ukrain ressamı, tasviratta uruş janrınıñ acayip ustası sayılğan akademik Nikolay Semönoviç Samokişniñ studiyası hususan büyük röl oynadı.
+Belli ki, bu studiya soñundan Simferopol ressamlıq tehnikumına çevirilgen edi, şimdi ise N.S. Samokiş adına ressamlıq oquv yurtu, dep adlandırıla.
 Cenkten evel icat etken qırımtatar ressamlarınıñ ekseryieti şu studiyada terbiyelendiler.
 Aqmescitte 1918 senesinden yaşağan N.S. Samokiş qırımtatar halqını sevip-saya edi. 
-%O, qırımtatar pek ürmet ete ve şunıñ içün de qırımtatar halqnıñ facialı tarihi onı er daim raatsızlap tura edi.
+%O, qırımtatarlarnı pek ürmet ete ve şunıñ içün de qırımtatar halqnıñ facialı tarihı onı er daim raatsızlap tura edi.
 Qırımtatar halqına münasebetini o özüniñ bir sıra tarihiy eserlerinde («Qırımda 1921-1922 senelerinin açılığı») aks ettirdi.
 Meselâ, «Qırımtatarlarnıñ hicretke ketüvi» (1934) adlı resimde tatarlarnıñ tuvğan topraqnen sağlıqlaşuvlarınñ yanığı tasvirlene.
 Resim Simferopoldeki bediiy muzeyde nümayiş etilgen edi.
