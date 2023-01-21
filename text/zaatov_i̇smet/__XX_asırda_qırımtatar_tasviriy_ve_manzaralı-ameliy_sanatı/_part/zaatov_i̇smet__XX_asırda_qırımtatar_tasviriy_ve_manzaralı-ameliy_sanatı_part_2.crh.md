@@ -179,25 +179,25 @@ Cenkten evel icat etken qırımtatar ressamlarınıñ ekseryieti şu studiyada t
 Aqmescitte 1918 senesinden yaşağan N.S. Samokiş qırımtatar halqını sevip-saya edi. 
 %O, qırımtatarlarnı pek ürmet ete ve şunıñ içün de qırımtatar halqnıñ facialı tarihı onı er daim raatsızlap tura edi.
 Qırımtatar halqına münasebetini o özüniñ bir sıra tarihiy eserlerinde («Qırımda 1921-1922 senelerinin açılığı») aks ettirdi.
-Meselâ, «Qırımtatarlarnıñ hicretke ketüvi» (1934) adlı resimde tatarlarnıñ tuvğan topraqnen sağlıqlaşuvlarınñ yanığı tasvirlene.
+Meselâ, «Qırımtatarlarnıñ hicretke ketüvi» (1934) adlı resimde tatarlarnıñ tuvğan topraqnen sağlıqlaşuvlarınıñ yanığı tasvirlene.
 Resim Simferopoldeki bediiy muzeyde nümayiş etilgen edi.
 Resimde biz yelkenli gemige çıqmaq içün skelede toplanğan zavallı adamlarnı köremiz.
-Daha demin yönegen diğer gemi ise ufuqqa taba aşıqa.
-Resimniñ sağ qısımında, birinci planda ğayet emiyetli levha tasvirlengen — vatanını terk eteyatqan adiy koylu tatar adamı endiden son şu topraqqa sahiplik yapacaq rus pomeşçiginen guya sessiz laqırdı ete.
+Daha demin yönegen diger gemi ise ufuqqa taba aşıqa.
+Resimniñ sağ qısımında, birinci planda ğayet emiyetli levha tasvirlengen — vatanını terk eteyatqan adiy köylü tatar adamı endiden soñ şu topraqqa sahiplik yapacaq rus pomeşçiginen guya sessiz laqırdı ete.
 Tatar adamı itaat ile başını töben alğan (öz toprağında), rus ise özüni şorbacı (birevnin toprağında) kibi his ete.
 Onıñ ayaqdaşı — körkem urbalar kiygen bir hanım lornetini közüne yaqın tutıp, ortalıqtaki qalabalıqnı meraqnen seyir etip tura.
-Ressam qırımtatar halqiniñ tarihındaki eh facialı daqqalarnıñ birisini tasvirlegen: tatarlar öz yurtunı terk etkenleri etken, daha nice-nice adamlar yolda helâk oldılar.
-Qara deniz yüzlernen, binlernen adamlarnıñ cesedlerini Qırım yalısına çıqarıp taşlağan edi.
-Anadan doğma istidatlı, pek büyük ümütler bağışlağan Şevket Qadrizade (1908 senesi Tavdayır köyünde doğğanı tahmin etile) körümü ressam ola bilecek edi.
-Kerçek, o — acayip resimler yapqan qırımtatar klassik şairi Abdurahman Qadri-zadeniıñ oğludır.
+Ressam qırımtatar halqınıñ tarihındaki eñ facialı daqqalarnıñ birisini tasvirlegen: tatarlar öz yurtunı terk etkenleri etken, daha nice-nice adamlar yolda helâk oldılar.
+Qara deñiz yüzlernen, biñlernen adamlarnıñ cesetlerini Qırım yalısına çıqarıp taşlağan edi.
+Anadan doğma istidatlı, pek büyük ümütler bağışlağan Şevket Qadrizade (1908 senesi Tavdayır köyünde doğğanı tahmin etile) körümi ressam ola bilecek edi.
+Kerçek, o — acayip resimler yapqan qırımtatar klassik şairi Abdurahman Qadri-zadeniñ oğludır.
 Şevket hususan peyzajlarnı büyük ustalıqnen yapa edi.
 Rus klassik ressamlarıñ eserlerinden kopiyalarnı ise yüksek tehnikiy seviyede ve tamlılıqnen icra ete edi.
 Teessüf ki, o pek az yaşadı.
 1931 senesi Qızıl Orduda hizmet eter eken, Çuguev şeheriniñ civarlarında ötkerilgen talim vaqtında helâk oldı.
-Bugünde ise Şevketniñ torum — Simferopol ressamlıq oquv yurtunıñ talebesi Zubeir Qadri-zadeden yahşi ressam çıqacağına ümüt bar.
+Bugünde ise Şevketniñ torum — Simferopol ressamlıq oquv yurtunıñ talebesi Zubeir Qadri-zadeden yahşı ressam çıqacağına ümüt bar.
 Ressam, qırımtatar teatrinin solisti Memet Abselâmov (1911-1988) Aqmescitte N.S. Samokişniñ studiyasını bitirdi (1934).
 İstidatlı ressam sıfatında oquvını devam ettirmek içün Leningraddaki Sanat institutına yollanıldı, lâkin bu tekliften vazgeçip, Qırımda qaldı.
-M. Abselâmovnıñ ЗО-ncı senelerge ait resimleri Qırımda olıp keçken sosialistik denişmelernen sıqı bağlıdır («Üsküt köyündeki tatarlarnın mamür yaşayışı», 1935; «işçiler köşesi», 1935).
+M. Abselâmovnıñ ЗО-ncı senelerge ait resimleri Qırımda olıp keçken sosialistik denişmelernen sıqı bağlıdır («Üsküt köyündeki tatarlarnıñ mamur yaşayışı», 1935; «işçiler köşesi», 1935).
 1944 senesi M.Abselâmov bütün halqınen beraber Qırımdan sürgün etilip.
  Tacikistanğa tüşe.
 Cumhuriyet ve Bütünittifaq sergilerinde iştirak etken, 1958 senesinden SSSR Ressamlar birliğiniñ azası olğan M.Abselâmov peyzaj janrının tanılğan ustası edi.
