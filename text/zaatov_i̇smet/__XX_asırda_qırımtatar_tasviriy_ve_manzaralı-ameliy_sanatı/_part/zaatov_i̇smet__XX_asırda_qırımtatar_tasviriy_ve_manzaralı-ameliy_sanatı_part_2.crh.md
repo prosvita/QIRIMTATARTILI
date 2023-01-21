@@ -122,12 +122,12 @@ Ustayevniñ en degerli eserlerinden birisi — «Qırğıncı aq gvardiyacılar
 O devir kün tertibinde turğan mevzular boyunca çoqtan çoq siyasiy plakatlar, peyzajlar, naturadan resim taslaqları, portretler yapa.
 Ustayevnin sürgünlikten evel yapıp yetiştirgen salmaqlı eserlerinden birisi — «Halq kedayı Canğazı Şerfedinniñ portreti»dir (1939).
 Bu eser 1939 senesi Moskvada olıp keçken Bütünittifaq bediiy sergisinde nümayiş etilgen edi.
-Soñki vaqıtqa qadar mezkûr esernin tek «Tvorçestvo» mecmuasında basılğan reproduktsiyası saqlanıp qaldı, dep hesap etile edi.
-Lâkin şimdi elimizde portretnih yağnen ve qalemnen yapılğan eki asıl nüshası buluna.
+Soñki vaqıtqa qadar mezkür eserniñ tek «Tvorçestvo» mecmuasında basılğan reproduktsiyası saqlanıp qaldı, dep hesap etile edi.
+Lâkin şimdi elimizde portretniñ yağnen ve qalemnen yapılğan eki asıl nushası buluna.
 Portret realistik ressamlıq ananeleri esasında keyfiyetti, professional yapılğan.
-Re simde biz aq saqailı, maniayım teren bürüşikler örtken, çatışıq qaşları astındaki közlerinde mazunlıq, yaqınlaşayatqan afatnı sezüv duyğusı aks olunğan qartnın belgece tasvirini köremiz.
-Şusı meraqlı ki, qırımlı ressamlar portret janrında çalışaqoymay ediler.(151.19-nci sahife).
-Demek, bundan ötrü Ustayevnın mezkûr eseri daha qıymetlice ola.
+Re simde biz aq saqallı, mañlayında teren bürüşikler örtken, çatışıq qaşları astındaki közlerinde mazunlıq, yaqınlaşayatqan afatnı sezüv duyğusı aks olunğan qartnıñ belgece tasvirini köremiz.
+Şusı meraqlı ki, qırımlı ressamlar portret janrında çalışa qoymay ediler.(151.19-nci sahife).
+Demek, bundan ötrü Ustayevnıñ mezkür eseri daha qıymetlice ola.
 Cenkten evel yaratılğan «Küneş nurlarındaki emen» adlı etüdni usta N.S. Samokişke hediye etken edi.
 Ressamnıñ 1950-nci senelernin sonlarında yaratılğan akvarel resimleri endi Özbekistan ve Qazahistan devirlerine aittir.
 «Sabah», «Tandaki şeher», «Pialadaki nar» kibi eserler şimdi Aqmescitteki qırımtatar sanatı muzeyinde saqlanalar.(248.187-nci sahife).
