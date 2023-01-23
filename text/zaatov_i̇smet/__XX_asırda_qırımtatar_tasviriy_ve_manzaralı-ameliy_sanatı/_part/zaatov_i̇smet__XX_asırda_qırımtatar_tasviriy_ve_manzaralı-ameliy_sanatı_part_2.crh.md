@@ -200,22 +200,22 @@ Ressam, qırımtatar teatrinin solisti Memet Abselâmov (1911-1988) Aqmescitte N
 M. Abselâmovnıñ ЗО-ncı senelerge ait resimleri Qırımda olıp keçken sosialistik denişmelernen sıqı bağlıdır («Üsküt köyündeki tatarlarnıñ mamur yaşayışı», 1935; «işçiler köşesi», 1935).
 1944 senesi M.Abselâmov bütün halqınen beraber Qırımdan sürgün etilip.
  Tacikistanğa tüşe.
-Cumhuriyet ve Bütünittifaq sergilerinde iştirak etken, 1958 senesinden SSSR Ressamlar birliğiniñ azası olğan M.Abselâmov peyzaj janrının tanılğan ustası edi.
+Cumhuriyet ve Bütünittifaq sergilerinde iştirak etken, 1958 senesinden SSSR Ressamlar birliğiniñ azası olğan M.Abselâmov peyzaj janrınıñ tanılğan ustası edi.
  («Küneşli kün», 1947; «Sabah», 1955; «Küz», 1956; «Tacikistanda bahar», 1962; «Oızıl damlar», 1979).(88.9-ncı sahife).
-Abselâmovnın eh sevgen mevzusı — Qırım tabiatı edi («Qırım gecesi», 1958; «Qırım selbileri», 1958; «Gurzuf», 1980; «Tan», 1983; «Sonki ışıq», 1984; «Bahar», 1985).
-Qırım manzaralarını ressam ta 30-ncı senelerde tasvirlep başladı («Yanı Üsküt», 1936).
-Onın peyzajları acayip nazm ile ayırılıp turalar: olar kolorit cehetinden yarıq ve nazik olmaqnen beraber tek Qırım tabiatınıñ güzelligini değil, aynı vaqıtta muellifniñ sevgisini ve ayretini ifadeleyler.
-Farit İlyasov (1915-1944?) Başqırtıstanda doğup östü.
- lâkin onın taliyi de qırımtatarlarnıñ facialı taliyi kibi oldı.
-F. İlyasov Oazan ressamlıq oquv yurtum bitirdi (1934), Tataristan ASSRnin Sovet ressamları birliğini meydanğa ketirüvde faal iştirak etti, 1936 senesinden şu Birlik reisinin birinci muavini olıp çalıştı.(205.225-nci sahife).
-Ressamnıñ Qazanda yaşağan devirine ait tek kataloglardaki anmalar qaldı (grafika tabaqları, cümleden — bestekâr N.Jiganovnıñ portreti).
-1940 senesi ötkerilgen «Sovet Qırımı 20 yaşında» adlı yübiley sergisinde onın «Gorkiy «Teselli»de» resimi nümayiş etildi (248.101-nci sahife), bundan ğayrı, onın «Tatar köyünde Qızıl Orduğa özğaruv» adlı resimi anıla.
-Ressam eki kere yaqalana — başta Qazanda (tezden azat oluna), sonra 1944 senesi Qırımda.
-Bundan son ressamnın izleri coyula.
-Qırımnıñ cenk arfesi yıllarındaki medeniy ömüri haqqında biz esasen qırımlı sanatşınas ve muzey hadimi A.Polkanovnın faaliyeti sayesinde bilemiz.
+Abselâmovnın eñ sevgen mevzusı — Qırım tabiatı edi («Qırım gecesi», 1958; «Qırım selbileri», 1958; «Gurzuf», 1980; «Tan», 1983; «Sonki ışıq», 1984; «Bahar», 1985).
+Qırım manzaralarını ressam ta 30-ncı senelerde tasvirlep başladı («Yañı Üsküt», 1936).
+Onıñ peyzajları acayip nazm ile ayırılıp turalar: olar kolorit cehetinden yarıq ve nazik olmaqnen beraber tek Qırım tabiatınıñ güzelligini degil, aynı vaqıtta muellifniñ sevgisini ve ayretini ifadeleyler.
+Farit İlyasov (1915-1944?) Başqırtıstanda doğıp östi.
+ lâkin onıñ taliyi de qırımtatarlarnıñ facialı taliyi kibi oldı.
+F. İlyasov Oazan ressamlıq oquv yurtunı bitirdi (1934), Tataristan ASSRniñ Sovet ressamları birligini meydanğa ketirüvde faal iştirak etti, 1936 senesinden şu Birlik reisiniñ birinci muavini olıp çalıştı.(205.225-nci sahife).
+Ressamnıñ Qazanda yaşağan devrine ait tek kataloglardaki anmalar qaldı (grafika tabaqları, cümleden — bestekâr N.Jiganovnıñ portreti).
+1940 senesi ötkerilgen «Sovet Qırımı 20 yaşında» adlı yübiley sergisinde onıñ «Gorkiy «Teselli»de» resimi nümayiş etildi (248.101-nci sahife), bundan ğayrı, onıñ «Tatar köyünde Qızıl Orduğa özğaruv» adlı resimi añıla.
+Ressam eki kere yaqalana — başta Qazanda (tezden azat oluna), soñra 1944 senesi Qırımda.
+Bundan soñ ressamnın izleri coyula.
+Qırımnıñ cenk arfesi yıllarındaki medeniy ömrü haqqında biz esasen qırımlı sanatşınas ve müzey hadimi A.Polkanovnıñ faaliyeti sayesinde bilemiz.
 Rus ve ukrain sanatşınaslarınen birlikte o da mecmua ve gazetalarda maqaleler bastırıp, qırımtatar ressamları haqqında defalarca yazdı, öz maqalelerinde qırımtatar ressamlarınıñ tuvğan topraqnı, tuvğan tabiatnı nasıl sevgenlerini qayd etti.
 Qırım medeniyetine ait olıp, yoq olunuvğa hüküm etilgen bediiy kollektsiyalarnıñ saqlanıp qalmasında A.Polkanovnıñ hizmeti büyüktir.
-Ressam Şamil Muratov haqqında biz tek bir şeyni, yani 1944 senesi halq sürgün etilgen vaqıtta onın Qırımda olmağanını ve bu ressam bir sıra cumhuriyet hem de bütünittifaq sergilerinde iştirak etkenini bilemiz.(205.227-nci sahife).
+Ressam Şamil Muratov haqqında biz tek bir şeyni, yani 1944 senesi halq sürgün etilgen vaqıtta onıñ Qırımda olmağanını ve bu ressam bir sıra cumhuriyet hem de bütünittifaq sergilerinde iştirak etkenini bilemiz.(205.227-nci sahife).
 Ressam, yazıcı Ennan Alimovnıñ (1912-1941) icadiy ömüri de qısqa oldı.
 O, 1936 senesi Aqmescitteki ressamlıq tehnikumını bitire ve aynı şu yılı mezkûr tehnikumnıñ direktorı olaraq tayinlene.
 1941 senesi Donbassta olğan uruşlanıñ birinde helâk ola.(248.35-nci sahife).
