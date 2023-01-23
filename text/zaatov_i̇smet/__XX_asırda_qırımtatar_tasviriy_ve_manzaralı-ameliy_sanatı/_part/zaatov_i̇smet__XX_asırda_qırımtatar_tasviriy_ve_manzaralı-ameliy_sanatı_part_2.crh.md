@@ -439,15 +439,15 @@ Onıñ o devirde yaratqan eserleriniñ esas mundericesini facialı tüşkünlik,
 Ressam adiy, bir baqıştan, olduqça sıqılğan motivlerge özüniñ bütün heyecanlı duyğularınıñ terenligini bağışlay.
 M.Çurlu kolemli ve ifadeli temsillerden öz işlerinde defalarca faydalanıp, bu eserlerni özüne has türkümlerge birleştire.
 Öz halqından ayırılğan Qırım toprağına «Qızıltaşnıñ çarmuqlanğan bağları» (1990), «Sürgünlik» (1990), «Avdet» (1990) kibi peyzaj resimleri bağışlanğandır.
-Aynı şu fikir ve felsefiy umumiyleştirmelernen «Çeltek torba» (1992), «Eski mıhlar» (1992), «Ösüp çıqqan soğan» (1993), «Fal» (1995) kibi natürmortlar da sinirilgen.
-M. Çurlu portretler üzerinde çalışqanda insan yüzünin real tasvirinden qaçınaraq, ancaq siluet vastası ile, harakterli hareket yardımınen psihologik cehetten tekmil obrazlar yarata — «Oızımnın portreti» (1992), «Ana ve qız» (1992).
-90-ncı senelerniñ ekinci yarısından başlap ressamnıñ iş usulı denişe.
+Aynı şu fikir ve felsefiy umumiyleştirmelernen «Çeltek torba» (1992), «Eski mıhlar» (1992), «Ösip çıqqan soğan» (1993), «Fal» (1995) kibi natürmortlar da sinirilgen.
+M. Çurlu portretler üzerinde çalışqanda insan yüzüniñ real tasvirinden qaçınaraq, ancaq siluet vastası ile, harakterli hareket yardımınen psihologik cehetten tekmil obrazlar yarata — «Qızımnıñ portreti» (1992), «Ana ve qız» (1992).
+90-ncı senelerniñ ekinci yarısından başlap ressamnıñ iş usulı deñişe.
 Barlıqnı kesen-kes itiraf etüv yerine Yaratuv mevzuları kele.
-Avdet ve öz toprağında yaşav quvançı, Qırımnıñ tabiatından ayretlenüv, qırımtatar medeniyeti qaytabaştan ayaqqa turacağına işanç ressamnın sızuv üslübini de deniştireler, koloritni daha yımşaqça, daha nefisçe eteler.
-«Armut dalı»(1995), «Sudaq (qale)» (1995), «Özenbaş qayaları» (1998), «Ouru Özen»(1998), «Oızıl Ooba yolu» (1998), «Dehizge alıp barğan yol» (1998) kibi eserler, işte, şöyle tarzda yapılğanlar.
-Ressam özüniñ sonki yıllarda yaratqan resimlerinde halq sanatına (hususan toqumacılıq sanatına) has olğan an'aneviy tamğalardan ve nazarlıq emiyetini taşığan temsillerden faydalana.
-Bu esnada onın «Çöl» (1997), «Sımalar» (1997), «Nazarlıq» (1997), «Oorçalayıcı hareketler» (1997) kibi resimlerini anmalı.
-Bular manzaralı kompozitsiyalar olıp, olarda işaretli piktogrammalarğa, tamğa timsallerine hem de geometrik örnekli parça tehnikasına has an'aneler biriktirilgen.
+Avdet ve öz toprağında yaşav quvançı, Qırımnıñ tabiatından ayretlenüv, qırımtatar medeniyeti qaytabaştan ayaqqa turacağına işanç ressamnıñ sızuv üslübini de deñiştireler, koloritni daha yımşaqça, daha nefisçe eteler.
+«Armut dalı»(1995), «Sudaq (qale)» (1995), «Özenbaş qayaları» (1998), «Ouru Özen»(1998), «Qızıl Qoba yolu» (1998), «Deñizge alıp barğan yol» (1998) kibi eserler, işte, şöyle tarzda yapılğanlar.
+Ressam özüniñ soñki yıllarda yaratqan resimlerinde halq sanatına (hususan toqumacılıq sanatına) has olğan ananeviy tamğalardan ve nazarlıq emiyetini taşığan temsillerden faydalana.
+Bu esnada onıñ «Çöl» (1997), «Sımalar» (1997), «Nazarlıq» (1997), «Qorçalayıcı hareketler» (1997) kibi resimlerini añmalı.
+Bular manzaralı kompozitsiyalar olıp, olarda işaretli piktogrammalarğa, tamğa timsallerine hem de geometrik örnekli parça tehnikasına has ananeler biriktirilgen.
 M. Çurlu arhetip şekillernin — romblar, üçköşelikler — çeşit kombinatsiyalarından faydalanaraq, renk hem de ritmika cehetinden uyğun kompozitsiyalar yarata.
 Ressam M.Çurlunın icat yılları Taşkentte ve Moskvada, Sankt-Peterburgda, Kiyevde, Aqmescitte, Almaniyanıñ Köln, Duysburg, Haydelberg kibi şeherlerinde ötkerilgen şahsiy sergilerinde aks olunğandır.
 Nuri Yaqubov (1963 senesi doğdı) — qırımtatar ressamlığındaki realistik yöneliş vekilidir.
