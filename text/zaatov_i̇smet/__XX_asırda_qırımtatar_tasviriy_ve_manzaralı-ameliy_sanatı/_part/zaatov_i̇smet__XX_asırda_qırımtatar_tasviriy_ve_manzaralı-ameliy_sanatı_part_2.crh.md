@@ -298,36 +298,36 @@ Fevzi Recepov (1923-1983) keniş, temelli tahsil alsa da, sürgünlik şaraitler
 O, Aqmescitte, Qırım koy hocalığı institutınıñ rektorı Arif Alimovnıñ ve qırımtatar tili ve edebiyatı ocapçesi Mümine Recepovanıñ qorantasında doğıp östi.
 Aqmescitteki balalar ressamlıq studiyalarına qatnadı.
 Ta bala ekende belli ressamlarnıñ yağlı boyalarnen yapılğan eserlerinden eyi kopiyalar yapıp başladı.
-1946 senesi F.Recepov trudarmiyadan Samarqand şeherine kele, çünki onın qorantası anda sürgün etilgen edi.
-Şeherdeki Bediiy fondğa işke kirip, ömürinin sohunace anda çalışa.
-1955 senesi qırımtatar ressamları arasında birinci olıp Taşkent teatrressamcılıq institutının kündüzki bölügine ressam mütehassıslığı boyunca oqumağa kire ve om muvafaqiyetnen bitirgen son.
- Іnstitutta ocalıq yapmaq teklifini ala.
+1946 senesi F.Recepov trudarmiyadan Samarqand şeherine kele, çünki onıñ qorantası anda sürgün etilgen edi.
+Şeherdeki Bediiy fondğa işke kirip, ömrüniñ soñunace anda çalışa.
+1955 senesi qırımtatar ressamları arasında birinci olıp Taşkent teatr ressamcılıq institutınıñ kündüzki bölügine ressam mütehassıslığı boyunca oqumağa kire ve onı muvafaqiyetnen bitirgen soñ
+ institutta ocalıq yapmaq teklifini ala.
 Lâkin o, Samarqandqa qaytıp bara ve bezetici ressam sıfatındaki faaliyetini devam ettire.
-Onın natürmortlar seriyası («Georginalar ve flokslar», «Qarpız», «Ayva», «Yüzüm», «Samarqand toprağının mahsulları»), Samarqand civarlarını aks ettirgen peyzajlar («Agalıq»), eski şeherdeki mimarcılıq abidelerinin körünişleri, medeniyet ve sanat erbaplarının portretleri ressamnıñ professional ustalığı yüksek noqtada bulunğanını köstereler.
+Onın natürmortlar seriyası («Georginalar ve flokslar», «Qarpız», «Ayva», «Yüzüm», «Samarqand toprağınıñ mahsulları»), Samarqand civarlarını aks ettirgen peyzajlar («Ağalıq»), eski şeherdeki mimarcılıq abideleriniñ körünişleri, medeniyet ve sanat erbaplarınıñ portretleri ressamnıñ professional ustalığı yüksek noqtada bulunğanını köstereler.
 Lâkin bir daha körüp olamağan Vatanınıñ manzaralarını aks ettirgen peyzaj resimleri hususan güzeldirler.
 Meselâ, «Gurzuf», «Qaçaqmalcılar», «Qırımtatar urbasını kiygen qadın» kibi resimlerni o, balalıq ve ösmürlik hatıraları esasında yapqan edi.
-Recepovnıñ eserleri Moskvada ötkerilgen bir çoq bütünittifaq sergilerinde, Taşkent ve Samarqandda ötkerilgen cumhuriyet sergilerinde nümayiş etildi.
+Recepovnıñ eserleri Moskvada ötkerilgen bir çoq bütünittifaq sergilerinde, Taşkent ve Samarqandda ötkerilgen cumhuriyet sergilerinde nümayış etildi.
 Bir sıra resimlerni Samarqanddaki Tarih, medeniyet ve sanat müzeyi satın aldı.
-Sanatşınaslıq doktorı, professor, Özbekistan Ressamlar akademiyasınıñ akademiği Rafael Taqtaş öz maqalelerinde Recepovnıñ icadına ğayet yüksek qıymet kese edi.
-Recepovnıñ qız qardaşı 2001 senesi ressamnıñ ekseriyet eserlerini Vatanğa ketirebildi ve olarnı Cumhuriyet qırımtatar sanatı muzeyine bağışladı.
-Qırımdan balalıq çağında sürgün etilgen istidatlı yaşlanıñ icadiy taliyleri de çeşit türlü oldı.
+Sanatşınaslıq doktorı, professor, Özbekistan Ressamlar akademiyasınıñ akademigi Rafael Taqtaş öz maqalelerinde Recepovnıñ icadına ğayet yüksek qıymet kese edi.
+Recepovnıñ qız qardaşı 2001 senesi ressamnıñ ekseriyet eserlerini Vatanğa ketirebildi ve olarnı Cumhuriyet qırımtatar sanatı müzeyine bağışladı.
+Qırımdan balalıq çağında sürgün etilgen istidatlı yaşlarnıñ icadiy taliyleri de çeşit türlü oldı.
 Halil Memedlâyev (1937) — şöyle istidatlı gençlerniñ birisi edi.
 O, Duşanbedeki ressamlıq oquv yurtunda tahsil aldı (1955-1960), 1967 senesinden başlap Leninabadnıñ Bediiy fondunda çalıştı, leninabadlı yaş ressamlarnıñ birleşmesine yetekçilik yaptı.
 H. Memedlâyevniñ icadiy meraqlanuv dairesi keniş edi.
- %1977 senesi SSSR Ressamlar birliğinin azası oldı — o hem dekorcılıqnen oğraştı, hem monumental eserler yarattı, lâkin meyilligi mevzuiy resimlerde ve portretlerde edi.
-Ressam 70-nci senelerge has sosialistik realizm üslübinde yapılğan resimler vastasınen kündelik emek haqqında hikâye ete, emekdar insannı, Orta Asiya tabiatının güzelliklerini terennüm ete — «Turksib» (1968), «Armanda» (1970), «Yır» (1974), «Bahar» (1975), «Aşttaki burav donatması» (1983).
-H.Memedlâyev 1993 senesinden berli Qırımda yaşay, Krasnogvardeyskoye rayonının Oktâbrskoye qasabasındaki balalar ressamlıq studiyasına yolbaşçılıq yapa.
-icatnen çoq oğraşa, maneviy ve içtimaiy cehetten değerli eserler yarata («Dua», 1995; «Bağçasaray», 1997).
+ %1977 senesi SSSR Ressamlar birliğiniñ azası oldı — o hem dekorcılıqnen oğraştı, hem monumental eserler yarattı, lâkin meyilligi mevzuiy resimlerde ve portretlerde edi.
+Ressam 70-nci senelerge has sosialistik realizm üslübinde yapılğan resimler vastasınen kündelik emek haqqında hikâye ete, emekdar insannı, Orta Asiya tabiatınıñ güzelliklerini terennüm ete — «Turksib» (1968), «Armanda» (1970), «Yır» (1974), «Bahar» (1975), «Aşttaki burav donatması» (1983).
+H.Memedlâyev 1993 senesinden berli Qırımda yaşay, Krasnogvardeyskoye rayonınıñ Oktâbrskoye qasabasındaki balalar ressamlıq studiyasına yolbaşçılıq yapa.
+icatnen çoq oğraşa, maneviy ve içtimaiy cehetten degerli eserler yarata («Dua», 1995; «Bağçasaray», 1997).
 1995 ve 2000 seneleri Aqmescitte ve Bağçasarayda ressamnıñ şahsiy sergileri olıp keçti.
 Ressam Nuri Planciyev (1937) de Qırımdan bala ekende çıqarıldı.
-Aluşta rayonında doğup ösken Nuri bir sıra obyektiv sebeplerden ötrü professional tahsil alıp olamadı.
-Lâkin icatta oha Leningrad Ressamlıq akademiyasınıñ mezum Dmitriy Valerianoviç Selânin ustazlıq yaptı.
-1944 senesinden 1969 senesine qadar Nuri Planciyev Taşkent oblastındaki Yanıyol şeherinde yaşadı, anda belli rus ressamı İ.Brodskiynin şegirti F.Malkinden ressamlıq sırlarını öğrendi.
-1975 senesi Melitopol şeherine (Zaporojye oblastı) köçüp, şimdi de şu şeherde yaşay, şeher ve cumhuriyet sergilerinde iştirak ete.
-Onın «Ay yarıq gecesinde» (1962), «Uçansuv yanındaki sırlı tavuqlar» (1987), «Qırım sığınları» (1995), «Dağlı Qırım» (1996), «Sırlı tavuqlar alanı» (1997), «Sultan tavuğı» (1997) kibi eserlerinde realistik üslüp manzaralı-folklor elementlerinen çatışqandır.(87.39-ncı sahife).
-Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtum bitirgen (1955-1961) Abib İsmailov (1939 senesi doğdı) şimdilikte Samarqand şeherinde yaşay.
+Aluşta rayonında doğıp ösken Nuri bir sıra obyektiv sebeplerden professional tahsil alıp olamadı.
+Lâkin icatta oña Leningrad Ressamlıq akademiyasınıñ mezunı Dmitriy Valerianoviç Selânin ustazlıq yaptı.
+1944 senesinden 1969 senesine qadar Nuri Planciyev Taşkent oblastındaki Yanıyol şeherinde yaşadı, anda belli rus ressamı İ.Brodskiyniñ şegirti F.Malkinden ressamlıq sırlarını ögrendi.
+1975 senesi Melitopol şeherine (Zaporojye oblastı) köçip, şimdi de şu şeherde yaşay, şeher ve cumhuriyet sergilerinde iştirak ete.
+Onıñ «Ay yarıq gecesinde» (1962), «Uçansuv yanındaki sırlı tavuqlar» (1987), «Qırım sığınları» (1995), «Dağlı Qırım» (1996), «Sırlı tavuqlar alanı» (1997), «Sultan tavuğı» (1997) kibi eserlerinde realistik üslüp manzaralı-folklor elementlerinen çatışqandır.(87.39-ncı sahife).
+Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirgen (1955-1961) Abib İsmailov (1939 senesi doğdı) şimdilikte Samarqand şeherinde yaşay.
 Bu ressam bir çoq yıllar devamında şeherdeki orta mahsus oquv yurtlarında ders berdi.
- 1975-80-nci senelerde şehernin Baş ressamı oldı.
+ 1975-80-nci senelerde şeherniñ Baş ressamı oldı.
 1962 senesinden itibaren cumhuriyet ve bütünittifaq sergilerinde iştirak etti.
  1970 senesi SSSR Ressamlar birliğine qabul olundı.
 O, esasen peyzaj janrında çalışa — mimarcılıq ve lirik peyzajlar yarata hem de interyerlerni, muzey ekspozitsiyalarını bezetüvnen oğraşa.
