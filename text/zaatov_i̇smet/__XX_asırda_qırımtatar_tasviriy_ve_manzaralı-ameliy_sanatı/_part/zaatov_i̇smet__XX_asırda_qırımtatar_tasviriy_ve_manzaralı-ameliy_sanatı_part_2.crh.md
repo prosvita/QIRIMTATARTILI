@@ -349,45 +349,45 @@ Bu hal, sözsüz, qırımtatar professional sanatınıñ keyfiyetçe yukselüvin
 Bu — eh evelâ qırımtatarlar öz Vatanlarına kütleviy surette qaytıp başlağanlarınen bağlıdır.
 Evelde çeşit şeherlerde dağınıqlıqta yaşağan qırımtatar ressamları pek çoq şeylerden, meselâ, icadiy qonuşuvdan, milliy tematikanı ögge sürmek imkânlarından mahrum ediler.
 Şimdi ise özlerini eyi taraftan kostere bilgen qırımtatar ressamları çoq yıllar zarfında ilk kere Qırımdaki medeniy ceryanlarğa da tesir etmek iqtidarında oldılar.
-Halqnıh ömürinde yüz bergen negiz denişmeler sayesinde, siyasiy ömürniñ faalleşmesi, qırımtatar halqınıñ bir talay demokratik serbestliklerni elde ete bilmesi neticesinde tasviriy sanatnıñ inkişaf etüv harakteri de denişti.
-Milliy sanatnıñ şimdiki devirdeki inkişafı kimerde açıq-aydın siyasiy tüs taşıy, çünki bir çoq ressamlar milliy hareketnin faal iştirakçileridirler.
-«Yanı mintaqa»larnı menimsev ketişatında ille rastkelingen bütün teşkiliy meselelerni (mesken, ustahane meselesi, birinci sergilerni teşkilâtlandıruv, qırımtatar sanatını terğib etüv meseleleri) olar olduqça qısqa müddetlerde, mustaqil surette ya da qırımtatar halqı Meclisinin qoltutuvı sayesinde çeze bildiler.
-Sürgünlikten Qırımğa 264 bin adam qaytıp keldi.
-Hal-azırda qırımtatarlar yarımada ehalisinin 12,7 fayızını teşkil eteler, lâkin bu sayı ket-kete arta (daha 12 yıl evelsi qırımtatarlar mında cemi ehalinin ancaq 0,1 fayızını teşkil ete ediler).
-Ustalar ve ressamlarnıh avdeti 1991 senesiniñ mart ayından son, yani Aqmescitte qırımtatar ressamlarının Birinci (1990 senesinifi fevrali) bütünittifaq sergisinden ve i.Gasprinskiyniñ 140 yıllığına bağışlanğan Halqara konferentsiyanıñ açıluvına keliştirilip ötkerilgen Ekinci bütünittifaq sergisinden son qulaç aldı.
-Sergide iştirak etmeğe hem Qırımnın özünden, hem başqa ülkelerden qırımtatar ressamları davet olundılar.
-Bu vaqiadan biraz evelce, yani 1990 senesinin mayıs ayında Aqmescitte cenkten soñki Qırım tarihında ilk kere qırımtatar ressamlarının Bütünittifaq sergisi ötkerilgen ve onda Qırımğa qaytıp kelgen ustalarnen bir sırada daha sürgünlikte bulunğan icatçılar da iştirak etken ediler.
-Birinci sergiden son 1993 senesinin baharinde daha bir sergi (205.248-nci sahife) ve 1994 senesi mayıs 14-te kene bir sergi ötkerildi.
-Bu sergilerden ğayrı, Qırım şeherlerinde ve Qırımdan tışta M.Çurlu, R.Netovkin, R.Useinov, Z.Trasinova, S.Osmanov, A.Baraş, N.Yaqubov, İ.Nafiyev, i.Ablayev kibi tanılğan ustalarnıñ ve diğerleriniñ şahsiy sergileri olıp keçti.
+Halqnıñ ömründe yüz bergen negiz denişmeler sayesinde, siyasiy ömürniñ faalleşmesi, qırımtatar halqınıñ bir talay demokratik serbestliklerni elde ete bilmesi neticesinde tasviriy sanatnıñ inkişaf etüv harakteri de deñişti.
+Milliy sanatnıñ şimdiki devirdeki inkişafı kimerde açıq-aydın siyasiy tüs taşıy, çünki bir çoq ressamlar milliy hareketniñ faal iştirakçileridirler.
+«Yañı mıntaqa»larnı menimsev ketişatında ille rastkelingen bütün teşkiliy meselelerni (mesken, ustahane meselesi, birinci sergilerni teşkilâtlandıruv, qırımtatar sanatını terğib etüv meseleleri) olar olduqça qısqa müddetlerde, mustaqil surette ya da qırımtatar halqı Meclisiniñ qoltutuvı sayesinde çeze bildiler.
+Sürgünlikten Qırımğa 264 biñ adam qaytıp keldi.
+Hal-azırda qırımtatarlar yarımada ehalisiniñ 12,7 faizini teşkil eteler, lâkin bu sayı ket-kete arta (daha 12 yıl evelsi qırımtatarlar mında cemi ehaliniñ ancaq 0,1 fayızını teşkil ete ediler).
+Ustalar ve ressamlarnıñ avdeti 1991 senesiniñ mart ayından soñ, yani Aqmescitte qırımtatar ressamlarınıñ Birinci (1990 senesiniñ fevrali) bütünittifaq sergisinden ve i.Gasprinskiyniñ 140 yıllığına bağışlanğan Halqara konferentsiyanıñ açıluvına keliştirilip ötkerilgen Ekinci bütünittifaq sergisinden soñ quvet aldı.
+Sergide iştirak etmege hem Qırımnıñ özünden, hem başqa ülkelerden qırımtatar ressamları davet olundılar.
+Bu vaqiadan biraz evelce, yani 1990 senesiniñ mayıs ayında Aqmescitte cenkten soñki Qırım tarihında ilk kere qırımtatar ressamlarınıñ Bütünittifaq sergisi ötkerilgen ve onda Qırımğa qaytıp kelgen ustalarnen bir sırada daha sürgünlikte bulunğan icatçılar da iştirak etken ediler.
+Birinci sergiden soñ 1993 senesiniñ baharinde daha bir sergi (205.248-nci sahife) ve 1994 senesi mayıs 14-te kene bir sergi ötkerildi.
+Bu sergilerden ğayrı, Qırım şeherlerinde ve Qırımdan tışta M.Çurlu, R.Netovkin, R.Useinov, Z.Trasinova, S.Osmanov, A.Baraş, N.Yaqubov, İ.Nafiyev, i.Ablayev kibi tanılğan ustalarnıñ ve digerleriniñ şahsiy sergileri olıp keçti.
 1995 senesinden itibaren her yıl Qırımda ve Qırımdan tışta qırımtatar ressamlarınıñ orta esapnen 10-15 sergisi ötkerile.
-Bu sergiler qırımtatar tasviriy sanatınıñ ayaqqa turması ve inkişaf etmesi içün negizni yaratuvğa doğrultılğan bütün teşkiliy işnifı başlanğıçı oldılar.
-1990 senelerinin başlarında Qırımtatar medeniyetini ğayrıdan tiklev boyunca koordinatsion merkez meydanğa ketirildi, biraz vaqıttan sofi bu merkez Qırımtatar medeniyet vaqufına çevirildi.
+Bu sergiler qırımtatar tasviriy sanatınıñ ayaqqa turması ve inkişaf etmesi içün negizni yaratuvğa doğrultılğan bütün teşkiliy işniñ başlanğıçı oldılar.
+1990 seneleriniñ başlarında Qırımtatar medeniyetini ğayrıdan tiklev boyunca koordinatsion merkez meydanğa ketirildi, biraz vaqıttan soñ bu merkez Qırımtatar medeniyet vaqufına çevirildi.
 1992 senesi Qırımtatar ressamlarınıñ assotsiatsiyası cedvelge alındı.
-Sözde onın tesisçisi Sürgün olunğan halqlarnın işleri boyunca cumhuriyet komiteti edi, lâkin Assotsiatsiyağa devlet tarafından amelde hiç bir türlü yardım kösterilmedi.
-Yaş teşkilâtnıñ öğünde kevdelenip turğan bütün teşkiliy meselelerni Assotsiatsiyanıñ yolbaşçılarına, qırımtatar ziyalılarınıñ vekillerine çezmek kerek oldı.
+Sözde onıñ tesisçisi Sürgün olunğan halqlarnıñ işleri boyunca cumhuriyet komiteti edi, lâkin Assotsiatsiyağa devlet tarafından amelde hiç bir türlü yardım kösterilmedi.
+Yaş teşkilâtnıñ ögünde kevdelenip turğan bütün teşkiliy meselelerni Assotsiatsiyanıñ yolbaşçılarına, qırımtatar ziyalılarınıñ vekillerine çezmek kerek oldı.
 Assotsiatsiyağa 1992 senesinden E.İzzetov reis oldı.
 Tek 1994 senesinden 1995 senesine qadar (E.İzzetov Özbekistanğa ketken edi) Assotsiatsiyağa İ.Şeyh-zade, F.Asanova, M.Çurlu yolbaşçılıq yaptılar.
 Assotsiatsiya faaliyet kösterip başlağanından berli Qırımda, Ukrainada ve çetelde 90-dan ziyade sergi ötkerildi.
 Aynı zamanda Qırımtatar milliy galereyası meydanğa ketirildi.
-1992 senesinden 1993 senesine qadar bu galereya öz faaliyetini Qırımtatar medeniyetini tiklev boyunca koordinatsion merkeznin çerçivesinde alıp bardı, galereyanın eksponatları ise Simferopol bediiy muzeyinde saqlanıldılar.
-1993 senesinden 1997 senesine qadar galereyanın fondlarını tekmillev, umumen om idare etüvnen Qırımtatar ressamlarınıñ assotsiatsiyası oğraştı.
-1990 senesi ise galereya Qırımtatar sanat muzeyine çevirilip, i.Gasprinskiy adına cumhuriyet qırımtatar kütüphanesiniñ erkânına başta bölük sıfatında, sonra filial sıfatında kirsetildi.
+1992 senesinden 1993 senesine qadar bu galereya öz faaliyetini Qırımtatar medeniyetini tiklev boyunca koordinatsion merkezniñ çerçivesinde alıp bardı, galereyanıñ eksponatları ise Simferopol bediiy muzeyinde saqlanıldı.
+1993 senesinden 1997 senesine qadar galereyanıñ fondlarını tekmillev, umumen om idare etüvnen Qırımtatar ressamlarınıñ assotsiatsiyası oğraştı.
+1990 senesi ise galereya Qırımtatar sanat muzeyine çevirilip, İ.Gasprinskiy adına cumhuriyet qırımtatar kütüphanesiniñ erkânına başta bölük sıfatında, soñra filial sıfatında kirsetildi.
 2002 senesi muzeyniñ statusı koterildi.
 Şimdilikte o — Cumhuriyet qırımtatar sanatı müzeyi adını taşıy.
-Mezkûr muzey teşkil olunğanı sayesinde qırımtatar sanatşınaslığındaki ilmiy mektepnin temelini professional tarzda qurmaq imkânı peyda oldı, yani XIX asırnıñ sonlarında — XX asımın başlarında U.Bodaninskiy ve O.Aqçoqraqlı başlağan işni devam ettirmek mümkün oldı.
-%Muzey direktsiyasınıñ fikirince o sanatşınaslıq boyunca milliy merkez olmalı.
+Mezkûr müzey teşkil olunğanı sayesinde qırımtatar sanatşınaslığındaki ilmiy mektepniñ temelini professional tarzda qurmaq imkânı peyda oldı, yani XIX asırnıñ soñlarında — XX asırnıñ başlarında U.Bodaninskiy ve O.Aqçoqraqlı başlağan işni devam ettirmek mümkün oldı.
+%Müzey direktsiyasınıñ fikirince o sanatşınaslıq boyunca milliy merkez olmalı.
 Bütün bu teşkiliy tedbirler böyle hallarda mıtlaqa ola turğan murekkepliklernen, ressamlar ve hakimler arasında zuur etken davalarnen özğarıldılar.
-Hem şusı quvançlı ki, Vatanğa qaytıp kelgen qırımtatar ustaları avdetnıñ ilk yıllarından başlap özlerini Qırımnıñ bediiy yüzüni şekillendirici ve belgileyici ciddiy icadiy quvet olaraq kostere bildiler.
+Hem şusı quvançlı ki, Vatanğa qaytıp kelgen qırımtatar ustaları avdetnıñ ilk yıllarından başlap özlerini Qırımnıñ bediiy yüzüni şekillendirici ve belgileyici ciddiy icadiy quvet olaraq köstere bildiler.
 Bundan ğayrı, qırımtatar sanatından bütün alem haberdar olıp başladı.
-Qırımtatar ressamlarının ortaqlıq ve şahsiy sergileri Moskvada, Peterburgda, Türkiyede, Almaniyada ötkerildi.
+Qırımtatar ressamlarınıñ ortaqlıq ve şahsiy sergileri Moskvada, Peterburgda, Türkiyede, Almaniyada ötkerildi.
 Meselâ, 1994 senesi Duysburg şeherinde (Almaniya) «Qırımtatar sanatı.
-Avropağa alıp barğan tikenli yol» serlevhalı sergi keçirildi, sonra onın esas qısımı Kölndeki Hungen qasrında nümayiş etildi.
-Hal-azırda qırımtatar ressamları öz eserlerini Qırımda, Ukrainada, Türkiyede, Almaniyada, Poloniyada, Romaniya, Rusiye ve Ozbekistanda faal nümayiş eteler.
-Bugünde-bugün qırımtatar tasviriy sanatı ğayet mürekkep bir devimi yaşap keçirmekte.
-Hem bunın sebebi ekseri ressamlarnıñ turmuş şaraitleri osal olğanında değil.
-Mesele şunda ki, onlarnen yıllar devam etken repressiyalar, taqipler, indemeyüvden sofi dünyada qırımtatarlarnıñ medeniyetine nisbeten meraq misilsiz derecede arttı, neticede bediiy eserlerni seçip aluv ve tenqid etüv seviyesi eksile.
-Sergilernin teşkilâtçıları kimerde ekspozitsiyalarnı ustalıq ve icracılıq seviyesi ile biri-birinden sezilirli derecede farq etken resimlerden tertip eteler, özlerince icadiy teşebbüske qoltutqan kibi olalar.
-Halbu ise, bunınnen zemaneviy qırımtatar tasviriy sanatının inkişaf tendentsiyalarına yanlış qıymet kesmek mümkün.
+Avropağa alıp barğan tikenli yol» serlevalı sergi keçirildi, soñra onın esas qısmı Kölndeki Hungen qasırında nümayış etildi.
+Hal-azırda qırımtatar ressamları öz eserlerini Qırımda, Ukrainada, Türkiyede, Almaniyada, Poloniyada, Romaniya, Rusiye ve Ozbekistanda faal nümayış eteler.
+Bugünde-bugün qırımtatar tasviriy sanatı ğayet mürekkep bir devirni yaşap keçirmekte.
+Hem bunıñ sebebi ekseri ressamlarnıñ turmuş şaraitleri osal olğanında degil.
+Mesele şunda ki, onlarnen yıllar devam etken repressiyalar, taqipler, indemeyüvden soñ dünyada qırımtatarlarnıñ medeniyetine nisbeten meraq misilsiz derecede arttı, neticede bediiy eserlerni seçip aluv ve tenqit etüv seviyesi eksile.
+Sergilerniñ teşkilâtçıları kimerde ekspozitsiyalarnı ustalıq ve icracılıq seviyesi ile biri-birinden sezilirli derecede farq etken resimlerden tertip eteler, özlerince icadiy teşebbüske qoltutqan kibi olalar.
+Halbu ise, bunıñnen zemaneviy qırımtatar tasviriy sanatınıñ inkişaf tendentsiyalarına yañlış qıymet kesmek mümkün.
 Demek, zemaneviy qırımtatar ressamlarınıñ icadı talil olunır eken, meselege olduqça ciddiy, obyektiv yanaşmaq zarur.
 
 ###2.3.1. RESSAMLIQ
