@@ -219,34 +219,34 @@ Ressam Şamil Muratov haqqında biz tek bir şeyni, yani 1944 senesi halq sürg�
 Ressam, yazıcı Ennan Alimovnıñ (1912-1941) icadiy ömüri de qısqa oldı.
 O, 1936 senesi Aqmescitteki ressamlıq tehnikumını bitire ve aynı şu yılı mezkûr tehnikumnıñ direktorı olaraq tayinlene.
 1941 senesi Donbassta olğan uruşlanıñ birinde helâk ola.(248.35-nci sahife).
-E. Alimovnın eserlerini «Yaş quvet», «Komsomolskaya pravda» gazetalarında basılğan (1933-1936) reproduktsiyalardan bilemiz.
-İşte, bu eserler sırasına «Yüzümci qızlar», «Dağda tan», «Qaytarmağa oynağan qız» kibi resimler kireler.
-Seithalil Osmanov (1919-1994) — Qırımda ta cenkten evel icat etip, sürgünlikten son Vatanğa avdet olğan yekâne qırımtatar ressamdır.
-Onın icadiy faaliyeti artistlikten başlandı
+E. Alimovnıñ eserlerini «Yaş quvet», «Komsomolskaya pravda» gazetalarında basılğan (1933-1936) reproduktsiyalardan bilemiz.
+İşte, bu eserler sırasına «Yüzümci qızlar», «Dağda tañ», «Qaytarma oynağan qız» kibi resimler kireler.
+Seithalil Osmanov (1919-1994) — Qırımda ta cenkten evel icat etip, sürgünlikten soñ Vatanğa avdet olğan yekâne qırımtatar ressamdır.
+Onıñ icadiy faaliyeti artistlikten başlandı
  %S.Osmanov 1937 senesi Aqmescitteki teatr tehnikumınıñ aktörlıq bölügini bitirdi ve şu yılı da N.S. Samokişniñ ressamlıq studiyasına qatnap başladı.
 1943 senesine qadar qırımtatar drama teatrinde artist ve rejissör olıp çalıştı, ressam sıfatında bir sıra spektakllerni yaraştırdı.
-Professional ressamlıqnen sürgünlikte meşğül oldı.
+Professional ressamlıqnen sürgünlikte meşğul oldı.
 Anda hem teatrde roller oynadı, hem Tacikistan Bediiy fondunda (Leninabad şeheri) çalıştı, cumhuriyet ve bütünittifaq sergilerinde iştirak etti.
-S. Osmanov 1962 senesinden SSSR Ressamlar birliğinin azası edi.
+S. Osmanov 1962 senesinden SSSR Ressamlar birliğiniñ azası edi.
 Onıñ bazı resimleri AQŞ, Rusiye, Yaponiya, Türkiye, Poloniyadaki hususiy kollektsiyalarda bulunalar.(248.157-nci sahife).
 Bular — esasen peyzajlar ve natürmortlardır («Çua çeçekler», «Qırmızı gül», 1980).
-Lâkin 1980-nci senelerde . yaratılğan en yahşi eserleri sırasına qırımtatar ziyalılarınıñ vekillerinden yazıcı Eşref Şemyi-zadenin (1980) ve bestekâr İlyas Bahşışmn (1986) portretlerini kirsetmek mümkün.
-Bu eserler diqqatımıznı, başta bir, tasvirlengen adamlarnıh degerliklerinen, halq arasındaki emiyetlerinen celp eteler.
-Ressamğa siyasiy taqipler şaraitinde bulunğan halqnıfi eh yahşi vekilleri öz istidatlarının tanılmasına irişe bilgenlerini köstermek mühim edi.
-Ressam yapqan «Elmira» adlı portrette (1983) zamandaşımız, dülber, oqumışlı, ülviy ve şairane mizaçlı qırımtatar qadımnın ideali mucessemleşkendir.
-Doğru, ressamnıñ bazı bir diğer portretlerinde tışqı yaldızlamalar, teatrcilik pası közge çarpa, belki de, bu şey resssamnın aktörlıq zenatının tesirinen bağlıdır.
+Lâkin 1980-nci senelerde yaratılğan eñ yahşı eserleri sırasına qırımtatar ziyalılarınıñ vekillerinden yazıcı Eşref Şemyi-zadeniñ (1980) ve bestekâr İlyas Bahşışnıñ (1986) portretlerini kirsetmek mümkün.
+Bu eserler diqqatımıznı, başta bir, tasvirlengen adamlarnıñ degerliklerinen, halq arasındaki emiyetlerinen celp eteler.
+Ressamğa siyasiy taqipler şaraitinde bulunğan halqnıñ eñ yahşı vekilleri öz istidatlarınıñ tanılmasına irişe bilgenlerini köstermek mühim edi.
+Ressam yapqan «Elmira» adlı portrette (1983) zamandaşımız, dülber, oqumışlı, ülviy ve şairane mizaçlı qırımtatar qadınnıñ idealı mucessemleşkendir.
+Doğru, ressamnıñ bazı bir diger portretlerinde tışqı yaldızlamalar, teatrcilik pası közge çarpa, belki de, bu şey resssamnıñ aktörlıq zenatınıñ tesirinen bağlıdır.
 Osmanovnıñ icadında Qırım mevzusı ayrıca yer tuta.
-Ressam sürgünlikte yaşar eken, Vatanına defalarca kele, mında peyzaj resimleri yaratmaq içün ilham ala, resimlerde Qırımnıñ eh körümü yerlerini tasvirley («Ayuvdağ», «Çehovnın Gurzuftaki evi», «Deniz ve qayalar», 1982).
-Ressam «Qırımnıñ yalıboyunda gece» adlı peyzaj resiminde Ayüvdağnın panoramalı körünişini bere.
-Dağ eteğindeki evçiklernin pencereleri gece qaranlığında yanıp turalar, ay nurları ise dalğasız deniz sathında, dersin, bir yol keçirip, seyircini tuvğan yalığa qaytmağa çağıralar.
-S.Osmanov Oırımğa 1988 senesi qaytıp keldi ve derhal faal icadiy işke kirişti — qırımtatar medeniyetinin ulu erbaplarından I.Gasprinskiy, N.Çelebicihan, B.Çoban-zade, U.İpçiğe bağışlanğan yübiley tantanalarını yaraştırdı.
+Ressam sürgünlikte yaşar eken, Vatanına defalarca kele, mında peyzaj resimleri yaratmaq içün ilham ala, resimlerde Qırımnıñ eh körüli yerlerini tasvirley («Ayuv-dağ», «Çehovnıñ Gurzuftaki evi», «Deñiz ve qayalar», 1982).
+Ressam «Qırımnıñ yalıboyunda gece» adlı peyzaj resiminde Ayuv-dağnıñ panoramalı körünişini bere.
+Dağ etegindeki evçiklerniñ pencereleri gece qaranlığında yanıp turalar, ay nurları ise dalğasız deñiz sathında, dersiñ, bir yol keçirip, seyircini tuvğan yalığa qaytmağa çağıralar.
+S.Osmanov Oırımğa 1988 senesi qaytıp keldi ve derhal faal icadiy işke kirişti — qırımtatar medeniyetiniñ ulu erbaplarından I.Gasprinskiy, N.Çelebicihan, B.Çoban-zade, U.İpçige bağışlanğan yübiley tantanalarını yaraştırdı.
 1990-ncı senelerde Aluştada (1991) ve Aqmescitte (1994) ressamnıñ şahsiy sergileri ötkerildi.
-Qırım devirine ait resimler esasen peyzaj ve natürmort janrında yapılğanlar, bu devirde yaratılğan peyzajlarnıñ ruhiyeti de denişe.
+Qırım devrine ait resimler esasen peyzaj ve natürmort janrında yapılğanlar, bu devirde yaratılğan peyzajlarnıñ ruhiyeti de denişe.
 80-nci senelerge ait eserlerde elegik duyğular üstün turğan olsa, 90-ncı senelerde yapılğan resimlerde artıq heyecanlı-patetik duyğular qabarıp çıqa.
-Vatanına qaytqan ressamnı sarıp alğan duyğularm deniz peyzajları seriyasında — doğayatqan küneşnin gülgülü şavleleri astında nazlanğan yalıdaki qayalarğa barıp urulğan şiddetli dalğalarda közetmek mümkün.
+Vatanına qaytqan ressamnı sarıp alğan duyğular deñiz peyzajları seriyasında — doğayatqan küneşniñ gülgülü şavleleri astında nazlanğan yalıdaki qayalarğa barıp urulğan şiddetli dalğalarda közetmek mümkün.
 Cenkten evel icat etken qırımtatar ressamları cümlesine qarasuvbazarlı Reşid Çelebiyevni de qoşmaq lâzim.
 Qırımtatar devlet teatri açılğan künden (1923) başlap şu teatrde ressam ve aktör olıp çalışqan (251.20-nci sahife).
- Bu adam Bağçasaray muzeyinifi direktorı Usein Bodaninskiy Qırım boylap teşkilâtlandırdığı meşhur etnografik eskpeditsiyada tasvirleyici ressam sıfatında iştirak etti.
+ Bu adam Bağçasaray muzeyiniñ direktorı Usein Bodaninskiy Qırım boylap teşkilâtlandırğanı meşhur etnografik eskpeditsiyada tasvirleyici ressam sıfatında iştirak etti.
 R. Çelebiyevnin resimleri şimdi Bağçasaray tarihiy-medeniy zapovedniginiñ fondlarında saqlanalar.
 Bağçasaray rayonınıñ Teberti köyünde doğğan Emir-Amet Parikov da 1920-1930-ncı senelerde tanılğan peyzaj ustalarından birisi edi.
 E-A.Parikov 1924 senesi Bağçasaraydaki bediiy-sanayı tehnikumını bitirgen son ressam hem de kemik ve ağaç üstünde oymacı diplomını aldı.
