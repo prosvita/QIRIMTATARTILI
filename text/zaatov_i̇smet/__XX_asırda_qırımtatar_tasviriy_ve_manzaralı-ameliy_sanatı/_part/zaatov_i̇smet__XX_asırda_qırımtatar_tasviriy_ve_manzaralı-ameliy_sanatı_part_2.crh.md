@@ -249,33 +249,33 @@ Qırımtatar devlet teatri açılğan künden (1923) başlap şu teatrde ressam 
  Bu adam Bağçasaray muzeyiniñ direktorı Usein Bodaninskiy Qırım boylap teşkilâtlandırğanı meşhur etnografik eskpeditsiyada tasvirleyici ressam sıfatında iştirak etti.
 R. Çelebiyevnin resimleri şimdi Bağçasaray tarihiy-medeniy zapovedniginiñ fondlarında saqlanalar.
 Bağçasaray rayonınıñ Teberti köyünde doğğan Emir-Amet Parikov da 1920-1930-ncı senelerde tanılğan peyzaj ustalarından birisi edi.
-E-A.Parikov 1924 senesi Bağçasaraydaki bediiy-sanayı tehnikumını bitirgen son ressam hem de kemik ve ağaç üstünde oymacı diplomını aldı.
+E-A.Parikov 1924 senesi Bağçasaraydaki bediiy-sanayı tehnikumını bitirgen soñ ressam hem de kemik ve ağaç üstünde oymacı diplomını aldı.
 O, özüni SSSR Ressamlar akademiyasınıñ muhbir azası Usein Bodaninskiy şegirti, dep saya edi.
 Lâkin 20-nci senelerniñ ekinci yarısında professional artistlikke ziyade berilgen Parikov ressamlıq işini çetke süre.
 Belli bir vaqıttan son meşhur qırımtаtar komik artistine çevirile.
 E-A.Parikov 1936 senesi vefat etti.
-Aqmescitnin Subhi soqağındakı qırımtatar mezarlığında defіn olundı.(250.45-nci sahife).
+Aqmescitniñ Subhi soqağındakı qırımtatar mezarlığında defіn olundı.(250.45-nci sahife).
 
 2.2.1950-1980 senelerindeki qırımtatar tasviriy sanatı
 Qırımtatar tasviriy sanatınıñ ayaqqa turuv ve inkişaf etüvindeki ekinci basqıç 50-80-nci senelerge, yani qırımtatarlarnıñ daha sürgünlikte.
 Еsasen Ozbekistanda, yaşağan yıllarına doğru keldi.
-E. Qudusov qayd etkeni kibi, sürgünlik yıllarında ümüt etilmegen şey yüz berdi: «qırımtatarlar diğer türkiy tilli halqlarnen qarışıp, yer yüzünden, umumen cihannın etnik haritasından yoq olmaq yerine özlerinin milliy şahsiyetini saqlap qalmaqnen bir sırada şaşılacaq derecede dayanıqlıq kösterip...dünyada en oqumış milletler sırasına çıqtılar».(90.28-nci sahife).
+E. Qudusov qayd etkeni kibi, sürgünlik yıllarında ümüt etilmegen şey yüz berdi: «qırımtatarlar diger türkiy tilli halqlarnen qarışıp, yer yüzünden, umumen cihannıñ etnik haritasından yoq olmaq yerine özleriniñ milliy şahsiyetini saqlap qalmaqnen bir sırada şaşılacaq derecede dayanıqlıq kösterip...dünyada eñ oqumış milletler sırasına kirdiler».(90.28-nci sahife).
 İcadiy yollarını cenkten evel Qırımda başlağan bazı qırımtatar ustaları özlerini Qırımdan tışta da tanıttılar, unvanlar qazandılar.
 Meselâ, ressam Kâzim Eminov Ozbekistanda nam qazanğan sanat erbabı unvanını birinci olıp alğanlar sırasında edi.
-Aluştada doğup ösken K.Eminov (1928-1976) bediiy tahsilni N.S. Samokişnin studiyasında alıp başladı (ta 1939 senesi o balalar icadiyatı olimpiadasında iştirak etip, birinci mukâfatnı qazanğan edi).
-1946 senesi Samarqand ressamlıq oquv yurtunıñ bir kereden 2-nci kursına qabul etildi, lâkin bir yıl keçer-keçmez, qırımtatar milletinden olğanı içün oquv yurtundan quvuldı, sonra Taşkentke köçti ve anda 1953 senesi P.Benkov adına cumhuriyet ressamlıq oquv yurtum alâ işaretlemen bitirdi.
+Aluştada doğıp ösken K.Eminov (1928-1976) bediiy tahsilni N.S. Samokişniñ studiyasında alıp başladı (ta 1939 senesi o balalar icadiyatı olimpiadasında iştirak etip, birinci mukâfatnı qazanğan edi).
+1946 senesi Samarqand ressamlıq oquv yurtunıñ bir kereden 2-nci kursına qabul etildi, lâkin bir yıl keçer-keçmez, qırımtatar milletinden olğanı içün oquv yurtundan quvuldı, soñra Taşkentke köçti ve anda 1953 senesi P.Benkov adına cumhuriyet ressamlıq oquv yurtunı alâ işaretlernen bitirdi.
 1954 senesinden cumhuriyet ve bütünittifaq sergilerinde muntazam iştirak etti.
 1955 senesi SSSR Ressamlar birliğiniñ azası oldı.
 Yıllar devamında Taşkent pedagogika institutınıñ bediiy grafika fakultetinde ders berdi.
-Amet Qalafatovğa soylığı olğan Kâzim an'aneviy qırımtatar sanatını seve ve teren his ete, burunğı qırımtatar medeniyetinin tiklenmesi haqqında arzu ete edi.
+Amet Qalafatovğa soylığı olğan Kâzim ananeviy qırımtatar sanatını seve ve teren his ete, burunğı qırımtatar medeniyetiniñ tiklenmesi haqqında arzu ete edi.
 O, sürgünlikte yaşap, Vatanına daima asret olsa da, Özbekistannı da yürekten sevdi.
-Özbek toprağında yaşağan adamlarnı alğışlağan, Özbekistannıñ tarihına bağışlanğan bir çoq acayip eserler yarattı («Uçaq uçup keçti», 1960; «Frunze ve Mirşarapov», 1960; «Qarılğaç», 1961; «Çırçıq vadiysi», 1969; «Çarvaq», 1972; «Uyanuv», «Emek», «Rahatlanuv» triptihi, 1972; «Parkent aqsaqalları», 1974).
+Özbek toprağında yaşağan adamlarnı alğışlağan, Özbekistannıñ tarihına bağışlanğan bir çoq acayip eserler yarattı («Uçaq uçıp keçti», 1960; «Frunze ve Mirşarapov», 1960; «Qarılğaç», 1961; «Çırçıq vadiysi», 1969; «Çarvaq», 1972; «Uyanuv», «Emek», «Rahatlanuv» triptihi, 1972; «Parkent aqsaqalları», 1974).
 1970-nci senelerde Eminov Qırım memurlarınıñ qarşılığına baqmadan, Oırımğa eki kere sefer yapıp oldı.
-Onın icadındaki bu sonki devir (1970-1976) ressam istidatınıñ gür çeçeklenmesinen, onın istidatı tuvğan topraqqa bitmez-tükenmez sevgi ile ğıdalanmasınen qayd oluna.
-Eminov Qırım mevzusında 30-ğa yaqın peyzaj resimleri yaptı, olarnıñ arasında «Cenüp hikâyesi.Ayüvdağ.Qırım» (1973), «Gurzuf.Zeytün terekleri» (1970) kibi eserler bar.
-«Ay-Petride ösken çamlar» (1973) adlı resim mezkûr seriyadaki eh güzel resimler cumlesindendir.
-Bu resim şimdilikte Taşkentteki devlet Sanat muzeyiniñ kollektsiyasında buluna.
-Vatanğa sevgisini boyalar tilinen ustalıq ile ifadelegen acayip ressam Kâzim Eminovnm ömüri avtomobil qazası neticesinde üzüldi.
+Onıñ icadındaki bu soñki devir (1970-1976) ressam istidatınıñ gür çeçeklenmesinen, onıñ istidatı tuvğan topraqqa bitmez-tükenmez sevgi ile ğıdalanmasınen qayd oluna.
+Eminov Qırım mevzusında 30-ğa yaqın peyzaj resimleri yaptı, olarnıñ arasında «Cenüp hikâyesi.Ayuv-dağ.Qırım» (1973), «Gurzuf.Zeytün terekleri» (1970) kibi eserler bar.
+«Ay-Petride ösken çamlar» (1973) adlı resim mezkûr seriyadaki eñ güzel resimler cümlesindendir.
+Bu resim şimdilikte Taşkentteki devlet Sanat müzeyiniñ kollektsiyasında buluna.
+Vatanğa sevgisini boyalar tilinen ustalıq ile ifadelegen acayip ressam Kâzim Eminovnıñ ömrü avtomobil qazası neticesinde üzüldi.
 Ulu Vatan cenkinin iştirakçisi, mimar İrfan Şemsedinov Ukraina Ressamlar akademiyasınıñ professorı, değen şerefli unvan taşıy.
 İ. Şemsedinov 1919 senesi Kezlevde doğdı.
  1935 senesinden 1941 senesine qadar Moskvada, Harkovda oqudı.
