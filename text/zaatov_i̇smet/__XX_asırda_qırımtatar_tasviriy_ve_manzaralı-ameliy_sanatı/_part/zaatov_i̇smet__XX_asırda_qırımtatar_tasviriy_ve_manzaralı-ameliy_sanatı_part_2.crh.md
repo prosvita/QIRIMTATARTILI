@@ -329,16 +329,16 @@ Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirgen (1955-
 Bu ressam bir çoq yıllar devamında şeherdeki orta mahsus oquv yurtlarında ders berdi.
  1975-80-nci senelerde şeherniñ Baş ressamı oldı.
 1962 senesinden itibaren cumhuriyet ve bütünittifaq sergilerinde iştirak etti.
- 1970 senesi SSSR Ressamlar birliğine qabul olundı.
-O, esasen peyzaj janrında çalışa — mimarcılıq ve lirik peyzajlar yarata hem de interyerlerni, muzey ekspozitsiyalarını bezetüvnen oğraşa.
-Onın belli resimleri sırasına «Agalıq.Qış» (1976), «Merangöl.Uyle» (1977), «Eski şeher» (1978), «Samarqandda qış» (1980), «Registan» (1985) kibi eserleri kireler.
-İşte, cenkten evel Qırımda doğğan qırımtatar ressamlarınıñ cedveli A.İsmailovmn adınen yekünlene.
-Cenkten evelki nesilge ait qırımtatar tasviriy sanatı ustalarınıñ icadını sanatşınas alimler daha endi öğrenip başladılar.
-Ayaqqa turayatqan qırımtatar sanatşınaslığı çerçivesinde bu mevzunın ileride tedqiq etilmesi neticesinde üyken nesil ressamlarımıznıñ cedveli bayağı kenişleycegi şubhesizdir.
-Sürgünlik yıllarında qırımtatarlarnıñ ekseri qısımı (70%) Ozbekistanda yaşadı, şu sebepten Özbekistan ressamlıq mektebinin qırımtatar kadrları şekillenmesinde oynağan rölüni ve qırımtatar sanat ustalarının icadına ğayet büyük tesir köstergenini qayd etmek zarur.
-Qırımtatar milletinden olğan yüzlernen yaş ve qızlar Taşkent ve Ferğananın ressamlıq oquv yurtlarında tahsil aldılar.
+ 1970 senesi SSSR Ressamlar birligine qabul olundı.
+O, esasen peyzaj janrında çalışa — mimarcılıq ve lirik peyzajlar yarata hem de interyerlerni, müzey ekspozitsiyalarını bezetüvnen oğraşa.
+Onıñ belli resimleri sırasına «Agalıq.Qış» (1976), «Merangöl.Uyle» (1977), «Eski şeher» (1978), «Samarqandda qış» (1980), «Registan» (1985) kibi eserleri kireler.
+İşte, cenkten evel Qırımda doğğan qırımtatar ressamlarınıñ cedveli A.İsmailovnıñ adınen yekünlene.
+Cenkten evelki nesilge ait qırımtatar tasviriy sanatı ustalarınıñ icadını sanatşınas alimler daha endi ögrenip başladılar.
+Ayaqqa turayatqan qırımtatar sanatşınaslığı çerçivesinde bu mevzunıñ ileride tedqiq etilmesi neticesinde üyken nesil ressamlarımıznıñ cedveli bayağı kenişleycegi şubhesizdir.
+Sürgünlik yıllarında qırımtatarlarnıñ ekseriy qısmı (70%) Ozbekistanda yaşadı, şu sebepten Özbekistan ressamlıq mektebiniñ qırımtatar kadrları şekillenmesinde oynağan rölüni ve qırımtatar sanat ustalarınıñ icadına ğayet büyük tesir köstergenini qayd etmek zarur.
+Qırımtatar milletinden olğan yüzlernen yaş ve qızlar Taşkent ve Ferğananıñ ressamlıq oquv yurtlarında tahsil aldılar.
  Işte, ilk qırımtatar heykeltraşları (A.Aliyev, Ş.Ahtemov), ekspozitsionistleri (A.Seit-Ametov), gobelen ustaları (M.Çurlu) Ozbekistanda peyda oldılar.
-Bundan ğayrı, Özbekistanda R.Useinov, A.Baraş kibi ressamlarımız, Z.Trasinova, E.İzzetov kibi grafikacılarımiz, S.Yaqubov, İ.Ablayev, F.Seithalilov kibi kirametçilerimiz yetişip çıqtılar.
+Bundan ğayrı, Özbekistanda R.Useinov, A.Baraş kibi ressamlarımız, Z.Trasinova, E.İzzetov kibi grafikacılarımız, S.Yaqubov, İ.Ablayev, F.Seithalilov kibi kirametçilerimiz yetişip çıqtılar.
 Bazı qırımtatar ressamları ise tahsilni Rusiyeniñ ve SNG devletlerinıñ yetekçi icadiy oquv yurtlarında aldılar.
 Meselâ, İ.Şeyh-zade ve N.Yaqubov Moskvada, L.Trasinova Leningradda, A.Belâlov, A.Seit-Ametov, R.Netovkin Ukrainada, İ.Veliullayev, K.Cepparov Gurcistanda oqudılar.
 Bu hal, sözsüz, qırımtatar professional sanatınıñ keyfiyetçe yukselüvinden delâlet bere.
