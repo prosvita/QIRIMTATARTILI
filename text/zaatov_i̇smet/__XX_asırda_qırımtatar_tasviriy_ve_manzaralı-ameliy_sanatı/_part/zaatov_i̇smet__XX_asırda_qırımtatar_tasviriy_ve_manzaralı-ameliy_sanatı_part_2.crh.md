@@ -276,28 +276,28 @@ Eminov Qırım mevzusında 30-ğa yaqın peyzaj resimleri yaptı, olarnıñ aras
 «Ay-Petride ösken çamlar» (1973) adlı resim mezkûr seriyadaki eñ güzel resimler cümlesindendir.
 Bu resim şimdilikte Taşkentteki devlet Sanat müzeyiniñ kollektsiyasında buluna.
 Vatanğa sevgisini boyalar tilinen ustalıq ile ifadelegen acayip ressam Kâzim Eminovnıñ ömrü avtomobil qazası neticesinde üzüldi.
-Ulu Vatan cenkinin iştirakçisi, mimar İrfan Şemsedinov Ukraina Ressamlar akademiyasınıñ professorı, değen şerefli unvan taşıy.
+Ulu Vatan cenkiniñ iştirakçisi, mimar İrfan Şemsedinov Ukraina Ressamlar akademiyasınıñ professorı, degen şerefli unvan taşıy.
 İ. Şemsedinov 1919 senesi Kezlevde doğdı.
  1935 senesinden 1941 senesine qadar Moskvada, Harkovda oqudı.
-Cenkten son Ukraina Ressamlar akademiyasında oquv-icadiy ustahaneniñ rehberi olıp çalıştı, 200-den ziyade mimar yetiştirdi.
-İ. Şemsedinov — qaraman şeher Sevastopol şerefine Hrustalnıy burunında qoyulğan abide leyhasınıñ, «1783-1944 seneleri qırımtatar halqına qarşı yapılğan genotsid qurbanlarına» memorial abide leyhasınıfi müellifidir.
+Cenkten soñ Ukraina Ressamlar akademiyasında oquv-icadiy ustahaneniñ rehberi olıp çalıştı, 200-den ziyade mimar yetiştirdi.
+İ. Şemsedinov — qaraman şeher Sevastopol şerefine Hrustalnıy burunında qoyulğan abide leyhasınıñ, «1783-1944 seneleri qırımtatar halqına qarşı yapılğan genotsid qurbanlarına» memorial abide leyhasınınıñ müellifidir.
 Soñki yıllarda Şemsedinov ressamlıq sahasına çoq diqqat ayıra.
-Böyleliknen, tuvğan Qırımınıñ tabiatına bağışlanğan «Bağçasaraydaki Hansaray», «Bağçasaraydaki Hancami», «Qapsıhor.Tatar qaraltısı», «Quru Özen.Tatar qaraltısı».«Koktebel.Voloşinnin evi», «Qaradağ.Yağmur aldından», «Deniz qayaları.Dalğalar», «Küçük Özen», «Erılğan destesi» kibi akvarel resimlerinin seriyasını yarattı.
-Usta özünin bu eserlerinde Qırımnıñ körümü yerlerini aks ettirmeknen sıhırlanmayıp, tuvğan halqnın turmuşına, tuvğan tabiatqa nisbeten aybetli münasebetini de nümayiş ete.
-Aqmescitteki qırımtatar sanatı müzeyi 1997 senesi irfan Şemsedinovnıñ akva-rel resimlerinden ibaret şahsiy sergisini teşkilâtlandırdı.
+Böyleliknen, tuvğan Qırımınıñ tabiatına bağışlanğan «Bağçasaraydaki Hansaray», «Bağçasaraydaki Hancami», «Qapsıhor.Tatar qaraltısı», «Quru Özen.Tatar qaraltısı».«Koktebel.Voloşinniñ evi», «Qaradağ.Yağmur aldından», «Deñiz qayaları.Dalğalar», «Küçük Özen», «Erılğan destesi» kibi akvarel resimleriniñ seriyasını yarattı.
+Usta özüniñ bu eserlerinde Qırımnıñ körümli yerlerini aks ettirmeknen sıñırlanmayıp, tuvğan halqnıñ turmuşına, tuvğan tabiatqa nisbeten aybetli münasebetini de numayış ete.
+Aqmescitteki qırımtatar sanatı müzeyi 1997 senesi irfan Şemsedinovnıñ akvarel resimlerinden ibaret şahsiy sergisini teşkilâtlandırdı.
 Bir çoq qırımtatar ressamları halqnıñ facialı taqdirini başından keçirerek, kendi istidatlarını tolu kölemde ömürge keçirip olamadılar.
-Hamdi Mustafayev (1918), işte, olarnın cumlesindendir.
-Cenkten evel bir qaç yıl devamında Aqmescitteki N.Samokiş adına ressamlıq oquv yurtunda tahsil alğan H.Mustafayev cenk başlanğanda oquvını bıraqıp, cebhege kete, cenkten zabit olıp qayta, Taşkentteki P.Benkov adına ressamlıq oquv yurtunda tahsilini devam ettire.Sonra bezetüv işlerinen oğraşa, manzaralı-ameliy işlenmeler içün örnekler yarata.
+Hamdi Mustafayev (1918), işte, olarnın cümlesindendir.
+Cenkten evel bir qaç yıl devamında Aqmescitteki N.Samokiş adına ressamlıq oquv yurtunda tahsil alğan H.Mustafayev cenk başlanğanda oquvını bıraqıp, cebhege kete, cenkten zabit olıp qayta, Taşkentteki P.Benkov adına ressamlıq oquv yurtunda tahsilini devam ettire, soñra bezetüv işlerinen oğraşa, manzaralı-ameliy işlenmeler içün örnekler yarata.
 Qırımğa 1968 senesi qaytıp kele.
-H. Muştafayevnin ressamlıq icadını çoqtan-çoq portretler, natürmortlar, peyzajlar teşkil eteler.
-Kimersi monumental, kimersi lirik, kimersi felsefiy olğan bu eserlerde tuvğan Oırımına meftün olğan, ömür hikmetini bilgen, öz halqınen üzviy bağlanğan ressamnın qalbi aks oluna («Bağçasaray», «Cuma cami», «Gurzuf», «i.Gasprinskiynin portreti», «Qadınımnın portreti», «A.Lâtif-zadenin portreti»).
-Cevdet Tahtarovnın (1926-1998) icadiy taliyi biraz uyğunca oldı.
+H. Muştafayevniñ ressamlıq icadını çoqtan-çoq portretler, natürmortlar, peyzajlar teşkil eteler.
+Kimersi monumental, kimersi lirik, kimersi felsefiy olğan bu eserlerde tuvğan Oırımına meftün olğan, ömür hikmetini bilgen, öz halqınen üzviy bağlanğan ressamnıñ qalbi aks oluna («Bağçasaray», «Cuma cami», «Gurzuf», «i.Gasprinskiyniñ portreti», «Qadınımnıñ portreti», «A.Lâtif-zadeniñ portreti»).
+Cevdet Tahtarovnıñ (1926-1998) icadiy taliyi biraz uyğunca oldı.
 O, 1955 senesi P.Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirip, 25 yıl devamında Özbekistan televideniyesinde sanalaştırıcı ressam olıp çalıştı.
-Anda A.Udalovnıfi «Sabır», Yu.Ahunbabayevniñ «Baba», M.Lermontovnıñ «Mtsıri», N.Dumbadzeniñ «Ebediyet qanunı» eserleri boyunca çıqarılğan filmlerniñ, hem de «Qarılğaç» videofilminin ressamı oldı.
+Anda A.Udalovnıñ «Sabır», Yu.Ahunbabayevniñ «Baba», M.Lermontovnıñ «Mtsıri», N.Dumbadzeniñ «Ebediyet qanunı» eserleri boyunca çıqarılğan filmlerniñ, hem de «Qarılğaç» videofilminiñ ressamı oldı.
 Fevzi Recepov (1923-1983) keniş, temelli tahsil alsa da, sürgünlik şaraitlerinde öz iqtidarını tolusınen kösterip olamadı.
-O, Aqmescitte, Qırım koy hocalığı institutının rektorı Arif Alimovnıñ ve qırımtatar tili ve edebiyatı ocapçesi Mümine Recepovanıñ qorantasında doğup östü.
+O, Aqmescitte, Qırım koy hocalığı institutınıñ rektorı Arif Alimovnıñ ve qırımtatar tili ve edebiyatı ocapçesi Mümine Recepovanıñ qorantasında doğıp östi.
 Aqmescitteki balalar ressamlıq studiyalarına qatnadı.
-Ta bala ekende belli ressamlarnın yağlı boyalarnen yapılğan eserlerinden eyi kopiyalar yapıp başladı.
+Ta bala ekende belli ressamlarnıñ yağlı boyalarnen yapılğan eserlerinden eyi kopiyalar yapıp başladı.
 1946 senesi F.Recepov trudarmiyadan Samarqand şeherine kele, çünki onın qorantası anda sürgün etilgen edi.
 Şeherdeki Bediiy fondğa işke kirip, ömürinin sohunace anda çalışa.
 1955 senesi qırımtatar ressamları arasında birinci olıp Taşkent teatrressamcılıq institutının kündüzki bölügine ressam mütehassıslığı boyunca oqumağa kire ve om muvafaqiyetnen bitirgen son.
