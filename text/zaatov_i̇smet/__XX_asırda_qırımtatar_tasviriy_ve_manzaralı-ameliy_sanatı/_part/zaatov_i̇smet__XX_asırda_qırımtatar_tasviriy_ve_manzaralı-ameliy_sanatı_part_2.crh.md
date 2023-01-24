@@ -598,16 +598,16 @@ Rustem Eminov — 1990 senesi qırımtatar ressamlarınıñ Aqmescitte ötkerilg
 Şimdi Bağçasaraydaki müzey-sarayda saqlanmaqta olğan «İsmail Gasprinskiyniñ portreti» Qırımnıñ en meşhur sımalarınıñ bütün bir türkümini başlay.
 %Bular individual ve gruppalar türkşınas alim ve şair Bekir Çoban-zadeniñ, publitsist Asan Sabrı Ayvazovnıñ, şair Abdulla Lâtif-zadeniñ, dramaturg Ümer İpçiniñ portretlerdir.
 Rustem Eminovnıñ portret eserleri sırasında zamandaşlarımızdan Eşref Şemyizadeniñ, Şamil Alâdinniñ, Musa Mamutnıñ obrazları da mevcut.
-Oz küçüni peyzaj, portret janrlarında sınap baqqan R.Eminov öğüne ğayet mürekkep vazife qoya — qırımtatar halqımn accı taqdiri haqqında hikâye etmek istey.
+Öz küçüni peyzaj, portret janrlarında sınap baqqan R.Eminov ögüne ğayet mürekkep vazife qoya — qırımtatar halqınıñ accı taqdiri haqqında hikâye etmek istey.
 Böylece, sürgünlik qurbanları haqqında monumental türküm doğa ki, ressam bu türküm üzerinde mına endi 10 yıldan ziyade çalışa.
 «Ümüt tek Allahqa», «Vatansız adamlar», «Sürgünlik balaları» triptihlerine (1992-1999) birleştirilgen resimlerde biz bir talay insan tiplerini, tekrarlanmaz mizaclarnı köremiz.
 Resimlerdeki adamlar hem konkret, hem umumiy bir obrazdalar.
 Eserlerniñ kompozitsiya cehetinden qurulması, iri planda, bütün tafsilâtları ile tasvirlengen sımalar R.Eminovnıñ realistik resimge meyilliginden delâlet bereler.
-1999 senesi Taşkentte R.Eminovmn şahsiy sergisi olıp keçti.
+1999 senesi Taşkentte R.Eminovnıñ şahsiy sergisi olıp keçti.
 Ali-Murat Bekirov 1945 senesi Özbekistanıñ Namangan vilâyetindeki Almaz köyünde doğdı.
 Koy mektebini bitirgen son Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtuna oqumağa kirdi.
-Oquv yurtum 1971 senesi bitirdi.
-1974 senesinden Özbekistan Bediiy fondunın ustahanelerinde çalıştı.
+Oquv yurtunı 1971 senesi bitirdi.
+1974 senesinden Özbekistan Bediiy fondunıñ ustahanelerinde çalıştı.
  Аynı vaqıtta Moskvadaki matbaacılıq institutında oqudı.
 Ressamnıñ «Abdullayevniñ portreti (1976), «Qartiyniñ portreti» (1974), «Bita» kibi eserleri defalarca şeher, vilâyet, cumhuriet sergilerinde nümayiş etildiler.
 Іcatçının Ozbekistanda yaratqan eserleri cümlesinde «Intıluv» (1976), «Uzaqta Tân-Şân körüne» (1979), «Vardik suv anbarı» (1979), «Yoldaş», «Gavdaki otrâd», «Kolhozğa», «Şan-Şuret ordeniniñ kavaleri Ergaşev», «Çorkisar» (1982), «Çadak» (1982), «Mezar» (1981), «Leylekler» (1981), «Çust madonnası», «Örüci», «Sosialist Emek Qaramanı M.Loginov», «istrahat bağçasında», «Suv haqqında ballada» kibi resimlerni qayd etmeli.
