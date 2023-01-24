@@ -649,54 +649,54 @@ Onıñ taqdiri pek zor ve facialı oldı.
 30-ncı senelerde «kulak» dep tanıla ve Tambov vilâyetine sürgün etile.
 %Andan onıñ qorantası Groznıy şeerine (Çeçen-Inguş ASSR) koçe.
 II Cihan cenkinde iştirak etken O.Çubarov 1943 senesi ağır yaralandı.
-1955 senesi Çubarov Rostov ressamlıq oquv yurtum, 1963 senesi ise i.Repin adına Leningrad ressamlıq ve mimarcılıq institutını bitirdi, anda E.Moiseyenkonıñ ustahanesinde tahsil aldı.
-1957 senesinden SSSR Ressamlar birliğinin azası olğan, Çeçen-inguş ASSRde nam qazanğan sanat erbabı unvanınen taqdirlengen, bir sıra cumhuriyet ve bütünittifaq sergilerinde iştirak etken O.
-Çubarov bütün vaqıt realizmniñ klassik an'anelerine sadıq olıp keldi.
-Ressamnıñ anlı icadiy ömüri Çeçenistanda keçti, işte, icadı da şu diyarnen bağlı oldı.
+1955 senesi Çubarov Rostov ressamlıq oquv yurtunı, 1963 senesi ise İ.Repin adına Leningrad ressamlıq ve mimarcılıq institutını bitirdi, anda E.Moiseyenkonıñ ustahanesinde tahsil aldı.
+1957 senesinden SSSR Ressamlar birliğiniñ azası olğan, Çeçen-inguş ASSRde nam qazanğan sanat erbabı unvanınen taqdirlengen, bir sıra cumhuriyet ve bütünittifaq sergilerinde iştirak etken 
+O.Çubarov bütün vaqıt realizmniñ klassik ananelerine sadıq olıp keldi.
+Ressamnıñ añlı icadiy ömrü Çeçenistanda keçti, işte, icadı da şu diyarnen bağlı oldı.
 Çubarov çeçen qadınlarına bağışlap portretler türkümini yarattı.
-Onıñ qaramanları — adiy, tıştan hiç bir şeynen ayırılıp turmağan adamlardır, lâkin ressam olarniñ içki dülberligini ve değerliğini kostere bildi.
+Onıñ qaramanları — adiy, tıştan hiç bir şeynen ayırılıp turmağan adamlardır, lâkin ressam olarnıñ içki dülberligini ve degerligini köstere bildi.
 Dağlı ülkeniñ tabiatını öz peyzajlarında terennüm etti.
-Çubarov esasen ressamlıq janrında çalışsa da, sanayi grafikası, ofort kibi janrlarnı da diqqattan çette qaldırmadı.
+Çubarov esasen ressamlıq janrında çalışsa da, sanayı grafikası, ofort kibi janrlarnı da diqqattan çette qaldırmadı.
 Ressamnıñ bir sıra deniz peyzajları, «Babamnıñ portreti» kibi eserleri tuvğan Qırımğa bağışlanğanlar.
-Ustanın Vatanğa avdeti ğayet facialı oldı.
-Çeçenistanda başlanğan cenk onın yaşayışını, icadını berbat etti.
-Böylece, ressam Çeçenistandan köçmege, öz eserlerinin ekseri qısımını bıraqıp ketmege mecbur oldı.
-O. Çubarov 1997 senesinden berli Oırımda yaşay.
+Ustanıñ Vatanğa avdeti ğayet facialı oldı.
+Çeçenistanda başlanğan cenk onıñ yaşayışını, icadını berbat etti.
+Böylece, ressam Çeçenistandan köçmege, öz eserleriniñ ekseri qısmını bıraqıp ketmege mecbur oldı.
+O. Çubarov 1997 senesinden berli Qırımda yaşay.
 Şevket Seydametovnıñ (1954 senesi doğdı) icadı qırımtatar tasviriy sanatında biraz ayrıca tura.
 Ş. Seydametov — özüni tolusınen sahna bezetüv sanatına bağışlağan yekâne qırımtatar ressamıdır.
-Professional qırımtatar teatrinin tarihi 100 yılm teşkil ete.
-Qırımğa qaytıp kelgen bir sıra yazıcılar, aktörlar, çalğıcılar Aqmescitte qırımtatar müzikali drama teatrini tiklemek içün çoq küç sarf ettiler.
+Professional qırımtatar teatriniñ tarihi 100 yılnı teşkil ete.
+Qırımğa qaytıp kelgen bir sıra yazıcılar, aktörlar, çalğıcılar Aqmescitte qırımtatar muzıkalı drama teatrini tiklemek içün çoq küç sarf ettiler.
 Işte, 1990 senesi teatr açıldı.
 Ş. Seydametov ise 1993 senesinden berli şu teatrniñ baş ressamı olıp çalışa.
 Bundan evel o Duşanbe şeherindeki Alimov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı.
  Soñra çoq yıllar devamında Leninabad şeherindeki Bediiy fondda çalıştı, anda sanatıñ deyerlik bütün sahalarında meharet arttırdı.
 Seydametov monumental süslev işlerinen oğraştı, şımarış boyunca portretler yaptı, gobelenler, makrameler toqudı, vilâyet, cumhuriyet sergilerinde iştirak etti (peyzaj resimleri, zamandaşlarnıñ portretleri).
-1992 senesi Qırımğa köçüp kelip, öz icadını yanı açılğan teatrnen bağladı.
+1992 senesi Qırımğa köçip kelip, öz icadını yañı açılğan teatrnen bağladı.
 Teessüf ki, keçmişte teatr temaşaları nasıl bezetilgenini kösterici misaller yahut numüneler elimizde yoqtır, lâkin bu sahada U.Bodaninskiy, A.Ustayev ve S.Osmanov kibi ressamlar çalışqanından delâlet berici vesiqalar mevcut.
-Işte, Ş.Seydametovğa öz işinde Avropanın sahna bezetüvdeki qazançlarına, an'aneviy qırımtatar medeniyetine ve professional ressam sıfatındaki kendi sezgilerine bazanmaq kerek ola.
-Teatrnin repertuarı ğayet keniştir.
-Mında halq efsaneleri, tarihiy eserler, cihan klassik edebiyatı, bala masalları esasında temaşalar, halq maişetinden piyesalar oynala.
+Işte, Ş.Seydametovğa öz işinde Avropanıñ sahna bezetüvdeki qazançlarına, ananeviy qırımtatar medeniyetine ve professional ressam sıfatındaki kendi sezgilerine bazanmaq kerek ola.
+Teatrniñ repertuarı ğayet keniştir.
+Mında halq efsaneleri, tarihiy eserler, cihan klassik edebiyatı, bala masalları esasında temaşalar, halq maişetinden pyesalar oynala.
 Olarnıñ her birine ayrıca yanaşmaq, tek şu temaşağa kelişikli çezimni tapmaq kerek.
-Ve umumen alğanda mına şu yanaşuvlar Seydametovnıñ icadiy ıntıluvlarını, onın qanaat esasını teşkil eteler.
-Ressam sahna bezetüvnin kolemli-alanlı usulından faydalanaraq, sahnanıñ art qısımında deyerlik resim yapmay.
-Aktörlar resim fonunın tesirine qapılmaylar ve, böylece, üç ölçüli sahna meydanında oynamaq imkânına malik olalar.
+Ve umumen alğanda mına şu yanaşuvlar Seydametovnıñ icadiy ıntıluvlarını, onıñ qanaat esasını teşkil eteler.
+Ressam sahna bezetüvnin kolemli-alanlı usulından faydalanaraq, sahnanıñ art qısmında deyerlik resim yapmay.
+Aktörlar resim fonunıñ tesirine qapılmaylar ve, böylece, üç ölçüli sahna meydanında oynamaq imkânına malik olalar.
 Meselâ, «Bağçasaray çeşmesi» spektaklinde (1999) dekoratsiyanı ince işlengen çilterler ve taslaq tarzında yapılğan çeşme teşkil eteler.
-Konstruktsiyalar tez dağıtıla, qolaylıqnen deniştirile ve artistlerge keder etmeyler.
-Şekiller şartlı tarzda kösterilgenine baqmadan, seyirciler Hansaray muhitini, saraynın harakterli siluetleri ve tafsillerini bir kereden tanıylar.
-«Mishor qızı» spektaklinde (2000) tavandan sarqıp turğan mavı-beyaz örtü (deniz ve dalğalar temsili) fonunda yerleştirilgen eki büyük gügüm seyircini guya deniz yalısına, Arzı qız alıp qaçılğan meşhur çeşme yanına keçire.
-Adeti üzre, boş sahna (anda tek bir qaç dane iri butaforiya şeyleri buluna) tem-tegiz, bir tüslü ya da körüner-körünmez art perde (meselâ, «Mamlük Beybars» spektaklindeki mısır freskaları) fonunda oynalğan ifadeli mizansenalar içün keniş imkânlar aça.
-Seydametov tasviriy cehetten mevhum, lâkin obraz cehetinden işançlı muhit yaratmağa bile.
+Konstruktsiyalar tez dağıtıla, qolaylıqnen deñiştirile ve artistlerge keder etmeyler.
+Şekiller şartlı tarzda kösterilgenine baqmadan, seyirciler Hansaray muhitini, saraynıñ harakterli siluetleri ve tafsillerini bir kereden tanıylar.
+«Mishor qızı» spektaklinde (2000) tavandan sarqıp turğan mavı-beyaz örtü (deñiz ve dalğalar temsili) fonunda yerleştirilgen eki büyük gügüm seyircini guya deñiz yalısına, Arzı qız alıp qaçılğan meşhur çeşme yanına keçire.
+Adeti üzre, boş sahna (anda tek bir qaç dane iri butaforiya şeyleri buluna) tem-tegiz, bir tüslü ya da körüner-körünmez art perde (meselâ, «Mamlük Beybars» spektaklindeki mısır freskaları) fonunda oynalğan ifadeli mizanstsenalar içün keniş imkânlar aça.
+Seydametov tasviriy cehetten mevhum, lâkin obraz cehetinden işançlı muhit yarata bile.
 Deyik, «Mamlük Beybars» spektaklinde sahna muhiti muhteşem-monumental ruhta olsa, «Mishor qızı» temaşasında nefasetli-koterinki, balalar içün temaşalarda ise letafetli-tılsımlı ruhta ola.
 Şubhesiz, bugünde-bugün qırımtatar sahna bezetüv sanatı haqqında aytmağa daha erte.
- Аmma Ş.Seydametovnıñ icadı — böyle soy sanat özünin ilk emin adımlarını atayatqanının bivasta numünesidir.
+ Аmma Ş.Seydametovnıñ icadı — böyle soy sanat özüniñ ilk emin adımlarını atayatqanınıñ bivasta numünesidir.
 «Ressamlıq» bölügini endi rahmetli olğan ve icadiy asabalığı pek çoq resimlerden ibaret olğan ressamnıñ adınen yekünleymiz.
 Bu adam — Kâzim Cepparovdır (1947-1998).
-K.Cepparov ana-babası Qırımdan sürgün etildigi Voljsk şeherinde doğdı.
+K.Cepparov ana-babası Qırımdan sürgün etilgeni Voljsk şeherinde doğdı.
  Balalıq ve ösmürlik çağı Suhumi şeherinde keçti, anda ressamlıq oquv yurtunı bitirdi ve ressamlıq ustahanelerinde çalıştı.
-1990 senesi Ressamlar birliğine aza olaraq qabul olundı.
-K. Cepparovnıñ resimleri süjet, bediiy usul cehetinden çoq çeşitliler, lâkin mevzu ve üslübiyet boyunca umumiyleştirilgende olar bütün bir türkümlerni teşkil ete ve ressam icadının esas yönelişlerini köstereler.
-Onıñ «Tilenci», «Muhacirler», «Zona» kibi keskin sosial resimlerinde «küçük adam» mevzusı yahğıray.
-Adamlarnıñ ğayrıtabiiy biçimde tasvirlenmesi ise muellifnin adiy adamlar içün yüreği yanğanını bildire.
+1990 senesi Ressamlar birligine aza olaraq qabul olundı.
+K. Cepparovnıñ resimleri süjet, bediiy usul cehetinden çoq çeşitliler, lâkin mevzu ve üslübiyet boyunca umumiyleştirilgende olar bütün bir türkümlerni teşkil ete ve ressam icadınıñ esas yönelişlerini köstereler.
+Onıñ «Tilenci», «Muhacirler», «Zona» kibi keskin sotsial resimlerinde «küçük adam» mevzusı yañğıray.
+Adamlarnıñ ğayrıtabiiy biçimde tasvirlenmesi ise muellifniñ adiy adamlar içün yüregi yanğanını bildire.
 Ressam accı barlıqnı yumor ve kinayenen yımşataraq, şu «küçük adamlar»nı merhametli, efsaneviy qaramanlarğa çevire («Azbar sipirici», «Ammal»).
 Cepparov temiz ressamlıq vazifelerini «Balıqlar», «Tarih sarmalı», «Mavi çeçek», «Yeşil ada», «Horaz» kibi abstrakt-manzaralı kompozitsiyalar vastasınen çeze.
 Mezkûr resimler de gür renkli impressionistik tarzda, de sert, torsluqlı konstruktivizm an aneleri esasında icra olunğanlar.
