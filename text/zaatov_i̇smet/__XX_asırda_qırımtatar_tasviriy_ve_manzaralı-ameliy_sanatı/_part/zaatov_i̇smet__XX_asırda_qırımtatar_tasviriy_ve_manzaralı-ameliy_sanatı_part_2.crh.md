@@ -465,38 +465,38 @@ Onıñ Qırımı — sarsıntı ve belâlarsız Qırımdır, yerdeki cennet haqq
 N.Yaqubov tasviriy sanattaki şarq nazmiyetini canlandırmaq içün miniatüra ressamlığınıñ ananelerini icadiy idrak etip, olarnı bugünki künge keliştirmek kerek, dep saya.
  Іşte, onıñ eserlerindeki sızıqlarnıñ zarifligi, şekillerniñ nefaseti şundan kelip çıqadır.
 Fikirimizni isbatlamaq içün «Çeşme yanındaki qız» (1995), «Bağçasaray» (1991) kibi resimlerni ketire bilemiz.
-Şarq miniatüralarında yapılğanı kibi, N.Yaqubov öz eserleriniñ süetlerindeki elementlerni tantiminen qayd ete, çünki bu elementler — qızlarnıri kiyimleri, ilvanları, olarnın suv aldıqları baqır savutları, adeti üzre, çoqraq taşında yapıla turğan oymalı örnekler, çilterli pencereler — an'aneviy şarq medeniyetine aittirler.
+Şarq miniatüralarında yapılğanı kibi, N.Yaqubov öz eserleriniñ süjetlerindeki elementlerni tantiminen qayd ete, çünki bu elementler — qızlarnıñ kiyimleri, ilvanları, olarnıñ suv alğanları baqır savutları, adeti üzre, çoqraq taşında yapıla turğan oymalı örnekler, çilterli pencereler — ananeviy şarq medeniyetine aittirler.
 Ressam, miniatüra ananelerini devam ettirerek, meyillikni saf lokal renklerge bere.
-N.Yaqubovnın sonki yıllarda yaratqan eserleri cümlesine Gurzufqa bağışlanğan resimler türkümi kire — «Gurzufta bahar manzarası», «Gurzuf soqağı», «Özençik», «Gurzuf.Deniz boyundaki soqaq», «Gurzuf» (hepisi resimler 1999 senesi yaratılğandır).
+N.Yaqubovnıñ soñki yıllarda yaratqan eserleri cümlesine Gurzufqa bağışlanğan resimler türkümi kire — «Gurzufta bahar manzarası», «Gurzuf soqağı», «Özençik», «Gurzuf.Deñiz boyundaki soqaq», «Gurzuf» (hepisi resimler 1999 senesi yaratılğandır).
 Ressam öz icadında peyzaj janrından ğayrı, temsiliy resimler de yarata.
 Meselâ, «Muqaddes kitap» (1998).
- Аdlı natürmortta Qırımdaki ananeviy İslâm medeniyetinin aydın numüneleri tasvirlengen — masa üstünde arap yazıları ile açıq kitap yata, guya daha şimdi bu kitapnı oquğan adam tespi çekken son, tespisini kitap üstünde qaldırğan, bundan ğayrı, masa üstüne oyma nağışlı baqır çaynik ve şamdan qoyulğan, mavi renk üzre arapça yazıları olğan çiniy tabaq köz qamaştırıp tura.
-Resimnin tasviriy değerlikleri seyircini hayrette qaldıralar — altın nağışlarnen işlengen masa örtüsinin gabari fakturası, kitap sahifelerinin ipranğanlığı, oyma nağışlarnıñ boğuq yıltıravı ğayet işançlı tarzda aks ettirilgen.
+ Аdlı natürmortta Qırımdaki ananeviy İslâm medeniyetiniñ aydın nümüneleri tasvirlengen — masa üstünde arap yazıları ile açıq kitap yata, guya daha şimdi bu kitapnı oquğan adam tespi çekken soñ, tespisini kitap üstünde qaldırğan, bundan ğayrı, masa üstüne oyma nağışlı baqır çaynik ve şamdan qoyulğan, mavi renk üzre arapça yazıları olğan çiniy tabaq köz qamaştırıp tura.
+Resimniñ tasviriy degerlikleri seyircini hayrette qaldıralar — altın nağışlarnen işlengen masa örtüsiniñ gabarı fakturası, kitap sahifeleriniñ ipranğanlığı, oyma nağışlarnıñ boğuq yıltıravı ğayet işançlı tarzda aks ettirilgen.
 Umumen, resim yüzüniñ her bir santimetri misilsiz tantim ve sevgi ile sızılğan.
-Nuri Yaqubovnın resimlerinde coşqunlıq ve lirika ile ifadelengen Vatan mevzusı İrfan Nafiyevnin icadında başqacasına yanğıray.
-İrfan Nafiyev 1951 senesi Taşkent oblastının Mırzaçöl rayonında doğdı, 1968-1975 seneleri devamında P.Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı.
-Qrımğa avdet olğanğa qadar Samarqanddaki Bediiy fondnın istihsal ustahanelerinde çalıştı.
-%Onın o devirde yarıtılğan eserleri Orta Asiyanın tarihına bağışlanğanlar.
+Nuri Yaqubovnıñ resimlerinde coşqunlıq ve lirika ile ifadelengen Vatan mevzusı İrfan Nafiyevniñ icadında başqacasına yanğıray.
+İrfan Nafiyev 1951 senesi Taşkent oblastınıñ Mırzaçöl rayonında doğdı, 1968-1975 seneleri devamında P.Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı.
+Qrımğa avdet olğanğa qadar Samarqanddaki Bediiy fondnıñ istihsal ustahanelerinde çalıştı.
+%Onıñ o devirde yarıtılğan eserleri Orta Asiyanıñ tarihına bağışlanğanlar.
 % Meselâ, 1975-1976 senelerinde Samarqanddaki Uluğbek müzeyi içün yapılğan «Orta asır müneccimleri» adlı portretler seriyası, «Qaraqumnıñ sırları» (1980).
-1992 senesi i.Nafiyev Qırımğa köçüp kele, 1995 senesi Ukraina Ressamlar birliğinin azası ola.
-90-ncı senelernin başlarından itibaren onın eserleri keskin içtimaiy yöneliş alalar.
-«Uyanuv (1995), «Balalıq» (1995), «Qorqunçlı tüş» (1996), «Sabahnın sahar vaqtında» (1996), «Bismillah» (1996) kibi resimler seyircini qarsanbalı cenk muhitine daldırıp, qrımtatar halqının zemaneviy tarihim aks ettireler.
-İ. Nafiyevnin eserlerinde onın icadına has olğan daha bir harakterli çizgi közge çarpa.
-Ressam özünin mevzuiy eserlerinde en büyük rölni tabiatqa ayıra, tabiat ressam içün fon ya da vaqia yüz bereyatqan muhit değil de, ifade vastasıdır.
-Nafiyev Qırım tabiatını yılmn her bir feslinde hem yağlı boyalarnen, hem akvarel boyalarnen tasvirley, kendi duyğuları ve fikirlerine aenkdaş cehetlerni, işte, şu tabiattan tapa («Ecdatlar yolu», 1996; «Qadimiy Salğır», 1997; «Eski Kermen», 1997; «Küneş uvası», 1999).
+1992 senesi i.Nafiyev Qırımğa köçip kele, 1995 senesi Ukraina Ressamlar birliğiniñ azası ola.
+90-ncı senelerniñ başlarından itibaren onıñ eserleri keskin içtimaiy yöneliş alalar.
+«Uyanuv (1995), «Balalıq» (1995), «Qorqunçlı tüş» (1996), «Sabahnıñ sahar vaqtında» (1996), «Bismillah» (1996) kibi resimler seyircini qarsanbalı cenk muhitine daldırıp, qrımtatar halqınıñ zemaneviy tarihini aks ettireler.
+İ. Nafiyevniñ eserlerinde onıñ icadına has olğan daha bir harakterli çizgi közge çarpa.
+Ressam özüniñ mevzuiy eserlerinde eñ büyük rölni tabiatqa ayıra, tabiat ressam içün fon ya da vaqia yüz bereyatqan muhit degil de, ifade vastasıdır.
+Nafiyev Qırım tabiatını her bir feslinde hem yağlı boyalarnen, hem akvarel boyalarnen tasvirley, kendi duyğuları ve fikirlerine aenkdaş cehetlerni, işte, şu tabiattan tapa («Ecdatlar yolu», 1996; «Qadimiy Salğır», 1997; «Eski Kermen», 1997; «Küneş uvası», 1999).
 1998 senesi Aqmescitte i. Nafiyevniñ birinci şahsiy sergisi olıp keçti.
 2000 senesi o, başlanğıç sınıf talebeleri içün qırımtatar tilinde «Tasviriy sanat» adlı qullanma çıqardı.
-80-nci senelernin sonlarında — 90-ncı senelernin başlarında çalışqan qırımtatar ressamlarınıñ icadiy yüzleri biri-birinden ne qadar farq etmesin, olarnı, hepisi bir, yekâne çizgi, yani içtimaiy harakterdeki mevzularnı ögge sürgen munderice ceheti birleştire.
+80-nci senelerniñ soñlarında — 90-ncı senelerniñ başlarında çalışqan qırımtatar ressamlarınıñ icadiy yüzleri biri-birinden ne qadar farq etmesin, olarnı, hepisi bir, yekâne çizgi, yani içtimaiy harakterdeki mevzularnı ögge sürgen munderice ceheti birleştire.
 Qırımtatar ressamlarınıñ ekseri eserleri daha yaqın keçmişte yasaq sayılğan vaqialarnen, yani sürgünlik ve avdetnen bağlıdır.
-Işte, ressam Alim Useinov öz icadında bu mevzuğa birincilerden olıp müracaat etti.
-Alim Useinov 1941 senesi Bağçasaray rayomnın Avcı köyünde doğdı.
-Bala ekende ana-babasız qalıp, sürgünlik yıllarında bir mucize ile sağaman qaldı ve balalar evine tüşti.
-1963 senesi Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtum bitirdi.
+Işte, ressam Alim Useinov öz icadında bu mevzuğa birincilerden olıp muracaat etti.
+Alim Useinov 1941 senesi Bağçasaray rayonınıñ Avcıkoy köyünde doğdı.
+Bala ekende ana-babasız qalıp, sürgünlik yıllarında bir mücize ile sağ-aman qaldı ve balalar evine tüşti.
+1963 senesi Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirdi.
  Orta mektepte ders berdi ve aynı vaqıtta icatnen faal oğraştı.
 Taşkentte U.Alimovnıñ eki şahsiy sergisi ötkerildi.
-Onıñ «Avtoportret» (1968), «Mışıq tutıp turğan oğlan» (1972), «Lâleler cıyğan qart» (1974) kibi resimleri tasvirledigi adamnın içki dünyasını teren his etken ressamnın icadiy ferdini köstereler.
+Onıñ «Avtoportret» (1968), «Mışıq tutıp turğan oğlan» (1972), «Lâleler cıyğan qart» (1974) kibi resimleri tasvirlengeni adamnıñ içki dünyasını teren his etken ressamnıñ icadiy ferdini köstereler.
 70-nci senelerde Useinov «Ev-barqsızlar» seriyasını yarata.
- bu seriyada balalıqnıñ ağır hatıraları, sanki dersin, canlanalar.
+ bu seriyada balalıqnıñ ağır hatıraları, sanki dersiñ, canlanalar.
 A. Useinov 1994 senesinden berli kene Qırımda yaşay, esasen grafika janrında çalışa.
 Halqnın başına tüşken belâlarnın accısı, Vatanına qaytıp olğan semetdeşlerniñ ekseryieti ale daha ğayet müşkül halda bulunğanına qarşı narazılıq duyğusı Asan Seydametovnıñ(1962 senesi doğdı) icadında esas yer tutalar.
 Ressamnıñ «Koy ömüri» adlı resiminde (1993) «Sçastlivoye» (Bahıtlı) değen koynin adınen bu köyde yaşağanlarnıñ bahıtsız ömüri arasındaki zıddiyet közge çarpa.
