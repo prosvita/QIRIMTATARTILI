@@ -498,26 +498,26 @@ Onıñ «Avtoportret» (1968), «Mışıq tutıp turğan oğlan» (1972), «Lâl
 70-nci senelerde Useinov «Ev-barqsızlar» seriyasını yarata.
  bu seriyada balalıqnıñ ağır hatıraları, sanki dersiñ, canlanalar.
 A. Useinov 1994 senesinden berli kene Qırımda yaşay, esasen grafika janrında çalışa.
-Halqnın başına tüşken belâlarnın accısı, Vatanına qaytıp olğan semetdeşlerniñ ekseryieti ale daha ğayet müşkül halda bulunğanına qarşı narazılıq duyğusı Asan Seydametovnıñ(1962 senesi doğdı) icadında esas yer tutalar.
-Ressamnıñ «Koy ömüri» adlı resiminde (1993) «Sçastlivoye» (Bahıtlı) değen koynin adınen bu köyde yaşağanlarnıñ bahıtsız ömüri arasındaki zıddiyet közge çarpa.
-«Mavi qavehane» (1994) resimindeki beşaretler — asırlarca devam etip kelgen uyğunlıqnı bözğan zalımlar; qonaqbaylarnı kendi evlerinden quvıp çıqarıp, evlerni ast-üst etken «musafirlerdir».
+Halqnıñ başına tüşken belâlarnıñ accısı, Vatanına qaytıp olğan semetdeşlerniñ ekseryieti ale daha ğayet müşkül halda bulunğanına qarşı narazılıq duyğusı Asan Seydametovnıñ(1962 senesi doğdı) icadında esas yer tutalar.
+Ressamnıñ «Koy ömüri» adlı resiminde (1993) «Sçastlivoye» (Bahıtlı) degen koyniñ adınen bu köyde yaşağanlarnıñ bahıtsız ömrü arasındaki zıddiyet közge çarpa.
+«Mavi qavehane» (1994) resimindeki beşaretler — asırlarca devam etip kelgen uyğunlıqnı bozğan zalımlar; qonaqbaylarnı kendi evlerinden quvıp çıqarıp, evlerni ast-üst etken «musafirlerdir».
 A. Seydametovnıñ fantasmagorik resimlerinde accı kinaye, barlıqnı kesenkes itiraf etüv ve mısqıl sezile.
-Ressam, umumen alğanda, avangardlıq üslübine meyil bere, çünki bu üslüpnin ğayet ince mecaziy şekili oha yüreğindeki dertlerni ifade etmeğe yardım ete.
-Asan Seydametov (Baraş) — Taşkent şeherinde doğup östü.
- 1982 senesi P.Benkov adına cumhuriyet ressamlıq oquv yurtum, 1989 senesi ise A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi.
-1992 senesi Qırımğa köçüp kelgen son bediiy sergilernin faal iştirakçisi oldı.
- Aqmescitte ve Aqyarda ötkerilgen şahsiy sergileri ise om her keşke tanıttı ve muhlislerniñ alğışını bağışladılar.
-A.Baraş özünin «Arılar» (1991), «Apofeoz» (1990-1991), «Arabacı»(1996), «Dürbe» (1998), «Ressamnın tüşü» (1999), «Şairnin tüşü» (1999) kibi eserlerinde etik-felsefiy meselelerni koterip, qırımtatar halqının ve onın medeniyetiniñ keçmişi ve kelecegi haqqında fikir yürsete.
+Ressam, umumen alğanda, avangardlıq üslübine meyil bere, çünki bu üslüpniñ ğayet ince mecaziy şekli oña yüreğindeki dertlerni ifade etmege yardım ete.
+Asan Seydametov (Baraş) — Taşkent şeherinde doğıp östi.
+ 1982 senesi P.Benkov adına cumhuriyet ressamlıq oquv yurtunı, 1989 senesi ise A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi.
+1992 senesi Qırımğa köçip kelgen soñ bediiy sergilerniñ faal iştirakçisi oldı.
+ Aqmescitte ve Aqyarda ötkerilgen şahsiy sergileri ise onı her keşke tanıttı ve muhlislerniñ alğışını bağışladılar.
+A.Baraş özüniñ «Arılar» (1991), «Apofeoz» (1990-1991), «Arabacı»(1996), «Dürbe» (1998), «Ressamnıñ tüşü» (1999), «Şairniñ tüşü» (1999) kibi eserlerinde etik-felsefiy meselelerni köterip, qırımtatar halqınıñ ve onıñ medeniyetiniñ keçmişi ve kelecegi haqqında fikir yürsete.
 Resimlerniñ renk qurumı büyük mana taşıy.
-Erılğan tüsnin portaqal tüsnen, al qan tüsnin zümrüt tüsnen ümüt etilmegen birikmesi bir baqıştan, diqqatnı özünin gür renklerinen celp ete, asılında ise muellifnin rahatsız içki dünyasını, onın qaâr-qasevetlerini açıp kostere («Bağçada», 1998; «Saat», 1998).
+Erılğan tüsniñ portaqal tüsnen, al qan tüsniñ zгmrгt tüsnen ümüt etilmegen birikmesi bir baqıştan, diqqatnı özüniñ gür renklerinen celp ete, asılında ise muellifniñ rahatsız içki dünyasını, onıñ qaar-qasevetlerini açıp köstere («Bağçada», 1998; «Saat», 1998).
 Ressam İsmet Şeyh-zade qırımtatar sanatında parlaq, tekrarlanmaz bir şahs sıfatında bellidir.
- Іstidatlı, ğayretli, daima icadiy araştıruvlarda bulunğan, original leyhalarnıñ ve cesürane aktsiyalarnıñ müellifi olğan bu icatçı Qırımnıñ siyasiy ve medeniy ömürinde faal iştirak ete.
-İsmet Şeyh-zade 1965 senesi Taşkent oblastının Çırçıq şeherinde doğdı.
- 1984 senesi P. Benkov adına cumhuriyet ressamlıq oquv yurtum, 1993 senesi ise Moskvadaki V.i. Surikov adına devlet ressamlıg institutını alâ işaretlemen bitirdi.
-i.Şeyh-zadenin icadiy yolu — yorğunlıq bilmegen tedqiqatçınıñ yoludır.
-Ressam sanatnıñ çeşit janrları ve çeşitlerine müracaat eterek, hem keçmişniñ klassik tecribesinden, hem zemaneviy avangardnıñ usullarından faydalana.
+ Іstidatlı, ğayretli, daima icadiy araştıruvlarda bulunğan, original leyhalarnıñ ve cesürane aktsiyalarnıñ müellifi olğan bu icatçı Qırımnıñ siyasiy ve medeniy ömründe faal iştirak ete.
+İsmet Şeyh-zade 1965 senesi Taşkent oblastınıñ Çırçıq şeherinde doğdı.
+ 1984 senesi P. Benkov adına cumhuriyet ressamlıq oquv yurtunı, 1993 senesi ise Moskvadaki V.i. Surikov adına devlet ressamlıq institutını alâ işaretlernen bitirdi.
+i.Şeyh-zadeniñ icadiy yolu — yorğunlıq bilmegen tedqiqatçınıñ yoludır.
+Ressam sanatnıñ çeşit janrları ve çeşitlerine muracaat eterek, hem keçmişniñ klassik tecribesinden, hem zemaneviy avangardnıñ usullarından faydalana.
 Ta Moskvada oquğan yıllarında o, Surikov institutınıñ foyesinde «Vatan çeşmesi» adlı monumental panno yarattı, SSSR Malie nazirliginiñ rahatlıq evindeki balalar kompleksini süsledi.
-Onın küçlü ifadeli monumental şekillerge meyilligi sonundan genotsid ve sürgünlik qurbanlarına bağışlanğan abidelerniñ leyhalarında (Yalta, Aqmescit) da, 90-ncı senelerniñ sonlarında yapqan toquma pannolarında («Solomon», Qırımda auktsion», «B.G. — Qırımdaki siluet») da aks olundı.
+Onıñ küçlü ifadeli monumental şekillerge meyilligi soñundan genotsid ve sürgünlik qurbanlarına bağışlanğan abidelerniñ leyhalarında (Yalta, Aqmescit) da, 90-ncı senelerniñ soñlarında yapqan toquma pannolarında («Solomon», Qırımda auktsion», «B.G. — Qırımdaki siluet») da aks olundı.
 i.Şeyh-zadeniñ ressamlıq icadı çeşit janrlarnı, yani portret, peyzaj, mevzuiy resim kibi janrlarnı qavrap ala.
 Onıñ «Feodosiya.Küneş qonğanda» (1989), «Qırım peyzajı.Qale» (1989), «Koreiz.Damlar» (1992), «Mayıs sabası» (1993), «Koreiz qasabası» (1993) kibi peyzaj resimleri Qırım manzaralarınıñ ancaq tasviri olıp qalmadan, aynı vaqıtta, asırlarca yaşağan adamlarından mahrum olğan güzel topraq haqqında efkârnen hikâye eteler.
 %Bu al azbarlarda ve soqaqlarda adamlarnıñ olmağanlarından qayd etile.
