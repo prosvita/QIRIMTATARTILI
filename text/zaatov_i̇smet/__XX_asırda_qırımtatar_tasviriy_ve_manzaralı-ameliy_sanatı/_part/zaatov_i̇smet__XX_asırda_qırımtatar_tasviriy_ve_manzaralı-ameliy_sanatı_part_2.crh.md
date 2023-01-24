@@ -549,55 +549,55 @@ Ressam öz eserleriniñ süjetlerini işler eken, süjetniñ vesiqalı olmasına
 Onıñ resimlerinde hareket sezile, ressam öz üslübinen hem içtimaiy resimlerge has ruhiy kerginlikni, hem qırımtatarlarnıñ turmuşı ve bayramlarına bağışlanğan resimlerniñ neşesini aks ettire bile.
 Elmaz Osmanova Qırımda 2000 senesinden berli yaşay.
 O, 1962 senesi Taşkent vilâyetiniñ Orta Saray köyünde doğdı.
-İhtisaslaştırılan sanat mektebinde oquğan sofi A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi (1985).
+İhtisaslaştırılan sanat mektebinde oquğan soñ A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi (1985).
 Bir sıra yıllar devamında Cumhuriyet tasviriy ve ameliy sanat litseyinde çalıştı, anda hem ocalıq yaptı, hem icatnen oğraştı.
-1998 senesi Özbekistan Ressamlar birliğinin azası oldı.
- Ozbekistanda ve diğer cumhuriyetlerde olıp keçken sergilernin daimiy iştirakçisi olaraq tanıldı.
-1995 senesi ressamnın Vatanda, Aqmescit şeherinde ilk şahsiy sergisi ötkerildi.
-%E. Osmanovanın sevip çalışqan üslübini koterinki romantik üslüp.
+1998 senesi Özbekistan Ressamlar birliğiniñ azası oldı.
+ Ozbekistanda ve diger cumhuriyetlerde olıp keçken sergilerniñ daimiy iştirakçisi olaraq tanıldı.
+1995 senesi ressamnıñ Vatanda, Aqmescit şeherinde ilk şahsiy sergisi ötkerildi.
+%E. Osmanovanıñ sevip çalışqan üslübini koterinki romantik üslüp.
 Bular — şarq efsaneleri, halq rivayetleri ve muellifniñ kendi hayalları tesirinde doğğan süjetli ve süjetsiz kompozitsiyalardır.
-Resimlerde muellifniñ güzellikke temennası, baht ve sevgi haqqında arzuları mucessemleşkendir.
+Resimlerde muellifniñ güzellikke temennası, baht ve sevgi haqqında arzuları mücessemleşkendir.
 Onıñ zamandaşlarımızğa bağışlanğan eserlerinde bile kene de şu romantika pası duyula.
-Ressamnıñ esas işleri cümlesine «Haq yol» (1994), «Gençlik» (1995), «ûave telbesinde fal baquv» (1997), «Beyaz yollar» (1997), «Kelin» (1997), «Yaslılar» (1998), «Büllür aqım» (1998), «Küz meleği» (1999), «Çoqraq başında» (1999), «Cennet bağçası» (1994), «Barışuv»(1999), «Uyle» (1999), «Qum saat» (1999), «Küz çeçeklerinden deste» (1999), «Yansılar» (2000) kibi resimler kireler.
+Ressamnıñ esas işleri cümlesine «Haq yol» (1994), «Gençlik» (1995), «Qave telbesinde fal baquv» (1997), «Beyaz yollar» (1997), «Kelin» (1997), «Yaslılar» (1998), «Büllür aqım» (1998), «Küz melegi» (1999), «Çoqraq başında» (1999), «Cennet bağçası» (1994), «Barışuv»(1999), «Üyle» (1999), «Qum saat» (1999), «Küz çeçeklerinden deste» (1999), «Yansılar» (2000) kibi resimler kireler.
 E. Osmanovanıñ eserleri Özbekistan, Rusiye, Ukraina, Frantsiya, Almaniya, Türkiye, Koreyadaki hususiy kollektsiyalarda saqlanalar.
 2000 senesi Ankarada E.Osmanovanıñ şahsiy sergisi olıp keçti.
-Qırımtatar ressamlarının çoqusı artıq Vatanğa qaytıp keldi, lâkin bir çoq ressamlarımız daha Qırımdan tışta yaşaylar.
+Qırımtatar ressamlarınıñ çoqusı artıq Vatanğa qaytıp keldi, lâkin bir çoq ressamlarımız daha Qırımdan tışta yaşaylar.
 Rustem Eminov, Vyaçeslav Useinov, Inessa Cetere, Abib ismailov, Seyran Qurtcemil şimdi Ozbekistanda yaşay ve çalışalar.
 Özbek diyarı qırımtatar ziyalılarınıñ bayağı bir qısımım yetiştirdi.
-Zemaneviy qırımtatar sanatınınıñ tedqiqatçısı S.Çervonnayanın qayd etkeni kibi, qırımtatar sanatı 1980-nci senelernin sonlarına qadar milliy çizgileri resmiy surette tanılmağanı halda yaşadı — «qırımtatar milletine mensüp ressamlar sergilerde, sanatşınaslıq tedqiqatlarında, matbuat maqalelerinde bir de-bir milletniñ vekilleri sıfatında değil de, ait cumhuriyet ve şeherlernin vekilleri sıfatında anılalar, olarnin milleti ise hiç bir katalogda, hiç bir maqalede bir kere bile qayd olunmağan edi».(205.240-241-nci sahifeler).
-Kerçekten de, Özbek sanatşınaslığında, meselâ, Mamut Çurluğa qırımtatar halqınıñ Özbekistanda yaşap, çalışqan vekili sıfatında değil de, başta bir gobelen janrında çalışqan acayip usta sıfatında qıymet kesile edi.
-Özbek sanatşınasları M.Çurlunıñ icadiy yenişlerini hesapqa alır ekenler, om sadece yüksek professional seviyede turğan usta sıfatında, Özbekistannıñ çoq milletli sanatının vekillerinden birisi sıfatında tamy ediler.
-Hem bugün de Özbekistanda qırımtatar ustalarına münasebet olarnin milletinen değil, professionallıq derecesinen belgilene.
+Zemaneviy qırımtatar sanatınınıñ tedqiqatçısı S.Çervonnayanıñ qayd etkeni kibi, qırımtatar sanatı 1980-nci senelerniñ soñlarına qadar milliy çizgileri resmiy surette tanılmağanı halda yaşadı — «qırımtatar milletine mensüp ressamlar sergilerde, sanatşınaslıq tedqiqatlarında, matbuat maqalelerinde bir de-bir milletniñ vekilleri sıfatında degil de, ait cumhuriyet ve şeherlerniñ vekilleri sıfatında anılalar, olarnıñ milleti ise hiç bir katalogda, hiç bir maqalede bir kere bile qayd olunmağan edi».(205.240-241-nci sahifeler).
+Kerçekten de, Özbek sanatşınaslığında, meselâ, Mamut Çurluğa qırımtatar halqınıñ Özbekistanda yaşap, çalışqan vekili sıfatında degil de, başta bir gobelen janrında çalışqan acayip usta sıfatında qıymet kesile edi.
+Özbek sanatşınasları M.Çurlunıñ icadiy yeñişlerini hesapqa alır ekenler, onı sadece yüksek professional seviyede turğan usta sıfatında, Özbekistannıñ çoq milletli sanatınıñ vekillerinden birisi sıfatında tanıy ediler.
+Hem bugün de Özbekistanda qırımtatar ustalarına münasebet olarnıñ milletinen degil, professionallıq derecesinen belgilene.
 Vyaçeslav Useinov 1962 senesi Ferğana şeherinde doğdı.
-1985 senesi Bobruysk (Belorusiye) ressamlıq oquv yurtum bitirdi.
-M. Çurlunıñ şegirti olğan V.Useinov, ustazı kibi, öz icadiy yolum ameliy ressam olaraq başladı.
-1986 senesi ferğanalı ressamlamıñ Taşkentte olıp keçken sergisinde özüni faal icatçı sıfatında kosterdi.
+1985 senesi Bobruysk (Belorusiye) ressamlıq oquv yurtunı bitirdi.
+M. Çurlunıñ şegirti olğan V.Useinov, ustazı kibi, öz icadiy yolunı ameliy ressam olaraq başladı.
+1986 senesi ferğanalı ressamlarnıñ Taşkentte olıp keçken sergisinde özüni faal icatçı sıfatında kösterdi.
 V.Useinovnıñ resimleri figurativ harakterdedir.
-Lâkin o, kerçek alemge ait nesnelerni tasvirler eken, şartlı kompozitsiyalar yarata ve bu kompozitsiyalar sonundan çeşit türlü manalarnen ve temsiliy telqinlernen tolup taşqan işaretler sistemasına çevirile.
-«Vaqıt toqtadı» (1986), «Sabiynin işmarı» (1993), «Beş küneş» (1996), «Sabah avası mezarcınıñ ayaqları astına töşele» (1998) kibi resimler — muellifnin olıp keçeyatqan vaqialarğa seslenüvi, içki dünyasının ifadesi hem de onın felsefiy umumiyleştirmeleridir.
+Lâkin o, kerçek alemge ait nesnelerni tasvirler eken, şartlı kompozitsiyalar yarata ve bu kompozitsiyalar soñundan çeşit türlü manalarnen ve temsiliy telqinlernen tolıp taşqan işaretler sistemasına çevirile.
+«Vaqıt toqtadı» (1986), «Sabiyniñ işmarı» (1993), «Beş küneş» (1996), «Sabah avası mezarcınıñ ayaqları astına töşele» (1998) kibi resimler — muellifniñ olıp keçeyatqan vaqialarğa seslenüvi, içki dünyasınıñ ifadesi hem de onın felsefiy umumiyleştirmeleridir.
 %Useinovnıñ tasvirat eserlerinde üstün turğan telâşlı duyğusı halqınıñ başına tüşken facialı adaletsizlikni añlamağa ve onıñ sebeplerini qıdırmağa mecbur ete.
 Useinov — bir sıra cumhuriyet ve halqara sergilerniñ iştirakçisidir.
-Onın resimleri AOŞta, italiyada, Hindistanda, Rusiyede nümayiş etildiler.
+Onıñ resimleri AOŞta, İtaliyada, Hindistanda, Rusiyede nümayış etildiler.
 1994, 1997 seneleri Sankt-Peterburgda ve Taşkentte V.Useinovnıñ şahsiy sergileri olıp keçti.
-Onın elinen yaratılğan eserler SNG memleketlerinde ve çeteldeki muzeylerde hem de hususiy kollektsiyalarda saqlanalar.
-Seyran Ourtcelilniñ (1967 senesi doğdı) resimleri V.Useinovıñ resimlerinden bütünley farq eteler.
+Onıñ elinen yaratılğan eserler SNG memleketlerinde ve çeteldeki muzeylerde hem de hususiy kollektsiyalarda saqlanalar.
+Seyran Ourtcelilniñ (1967 senesi doğdı) resimleri V.Useinovnıñ resimlerinden bütünley farq eteler.
 Olarda bam-başqa hayalet, bam-başqa ruhiyet sezile.
 S. Qurtcelilniñ eserleri ömür mücadelelerinden uzaq turalar, daha yaqın keçmişte yahut da bizim devirimizde yüz bergen vaqialar aks olunmaylar.
 Dünya güzelligini ve uyğunlığını araştırıp tapuv, ebediy aqiqatnı idrak etüv meselesi ressam içün birinci yerde tura.
 S. Qurtcemilniñ peyzaj, natürmort resimlerini manzaralıq, boyalarnıñ parlaqlığı, yanğıravuqlığı ayırıp tura.
-Onıñ her bir resimi — renkler taşqını, tasviriy akkordlarnın uyğunlığıdır.
-S. Qurtcemilniñ en yahşi eserleri cümlesine «Sevimliler içün geçekler» (1993), «Aq quş peşinde» (1994), «Balıq avı» (1994), «Sabah» (1995), «Toqunuv» (1995), «Aqşam» (1995), «Küneşli kün» (1998), «Sarı natürmort» (1999) kibi resimler kireler.
-S.Qurtcemil Taşkent vilâyetinin Yanıyol şeherinde doğup östü.
+Onıñ her bir resimi — renkler taşqını, tasviriy akkordlarnıñ uyğunlığıdır.
+S. Qurtcemilniñ en yahşı eserleri cümlesine «Sevimliler içün geçekler» (1993), «Aq quş peşinde» (1994), «Balıq avı» (1994), «Sabah» (1995), «Toqunuv» (1995), «Aqşam» (1995), «Küneşli kün» (1998), «Sarı natürmort» (1999) kibi resimler kireler.
+S.Qurtcemil Taşkent vilâyetiniñ Yañıyol şeherinde doğıp östi.
  1990 senesi Nizamiy adına Taşkent devlet pedagogika institutınıñ bediiy grafika fakultetini bitirdi.
-O, Taşkentte ve çetelde ötkerilgen sergilerniñ daimiy iştirakçisidir ve onın icadı öz tedqiqatçısını bekley.
-Özbekistan Ressamlar akademiyasınıñ azası Rustem Eminov (1950 senesi doğdı) 1973 senesi Nizamiy adına Taşkent devlet pedagogika institutınıñ bediiy grafika fakultetini bitirdi, hal-azırda Özbekistan Ressamlar akademiyasınıñ cumhuriyet ressamlıq kollecinde (sabıq P.
-Benkov adına cumhuriyet ressamlıq oquv yurtu) ders bere.
-R.Eminovın icadiy yolu aileviy an'anelernen belgilene.
+O, Taşkentte ve çetelde ötkerilgen sergilerniñ daimiy iştirakçisidir ve onıñ icadı öz tedqiqatçısını bekley.
+Özbekistan Ressamlar akademiyasınıñ azası Rustem Eminov (1950 senesi doğdı) 1973 senesi Nizamiy adına Taşkent devlet pedagogika institutınıñ bediiy grafika fakultetini bitirdi.
+Hal-azırda Özbekistan Ressamlar akademiyasınıñ cumhuriyet ressamlıq kollecinde (sabıq P. Benkov adına cumhuriyet ressamlıq oquv yurtu) ders bere.
+R.Eminovın icadiy yolu aileviy ananelernen belgilene.
 Ozbekistanda nam qazanğan sanat erbabı Kâzim Eminovnıñ oğludır.
 Rustem Eminov — 1990 senesi qırımtatar ressamlarınıñ Aqmescitte ötkerilgen birinci bütün ittifaq sergisiniñ iştirakçisidir.
-Şimdi Bağçasaraydaki muzey-sarayda saqlanmaqta olğan «İsmail Gasprinskiyniii portreti» Qırımnıñ en meşhur sımalarınıñ bütün bir türkümini başlay.
-%Bular individual ve gruppalar türkşınas alim ve şair Bekir Çoban-zadenin, publitsist Asan Sabrı Ayvazovmn, şair Abdulla Lâtif-zadenin, dramaturg Umer ipçinin portretlerdir.
-Rustem Eminovnıñ portret eserleri sırasında zamandaşlarımızdan Eşref Şemyizadenin, Şamil Alâdinnin, Musa Mamutnm obrazları da mevcut.
+Şimdi Bağçasaraydaki müzey-sarayda saqlanmaqta olğan «İsmail Gasprinskiyniñ portreti» Qırımnıñ en meşhur sımalarınıñ bütün bir türkümini başlay.
+%Bular individual ve gruppalar türkşınas alim ve şair Bekir Çoban-zadeniñ, publitsist Asan Sabrı Ayvazovnıñ, şair Abdulla Lâtif-zadeniñ, dramaturg Ümer İpçiniñ portretlerdir.
+Rustem Eminovnıñ portret eserleri sırasında zamandaşlarımızdan Eşref Şemyizadeniñ, Şamil Alâdinniñ, Musa Mamutnıñ obrazları da mevcut.
 Oz küçüni peyzaj, portret janrlarında sınap baqqan R.Eminov öğüne ğayet mürekkep vazife qoya — qırımtatar halqımn accı taqdiri haqqında hikâye etmek istey.
 Böylece, sürgünlik qurbanları haqqında monumental türküm doğa ki, ressam bu türküm üzerinde mına endi 10 yıldan ziyade çalışa.
 «Ümüt tek Allahqa», «Vatansız adamlar», «Sürgünlik balaları» triptihlerine (1992-1999) birleştirilgen resimlerde biz bir talay insan tiplerini, tekrarlanmaz mizaclarnı köremiz.
