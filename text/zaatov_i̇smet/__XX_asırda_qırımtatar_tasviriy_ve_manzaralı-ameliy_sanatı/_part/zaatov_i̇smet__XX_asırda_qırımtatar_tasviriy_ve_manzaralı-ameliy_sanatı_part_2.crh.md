@@ -521,32 +521,32 @@ Onıñ küçlü ifadeli monumental şekillerge meyilligi soñundan genotsid ve s
 i.Şeyh-zadeniñ ressamlıq icadı çeşit janrlarnı, yani portret, peyzaj, mevzuiy resim kibi janrlarnı qavrap ala.
 Onıñ «Feodosiya.Küneş qonğanda» (1989), «Qırım peyzajı.Qale» (1989), «Koreiz.Damlar» (1992), «Mayıs sabası» (1993), «Koreiz qasabası» (1993) kibi peyzaj resimleri Qırım manzaralarınıñ ancaq tasviri olıp qalmadan, aynı vaqıtta, asırlarca yaşağan adamlarından mahrum olğan güzel topraq haqqında efkârnen hikâye eteler.
 %Bu al azbarlarda ve soqaqlarda adamlarnıñ olmağanlarından qayd etile.
-Resim yapuvnın kefi, pastoz usulı ressamğa tacialı barlıq obrazını yaratmağa yardım ete.
-Onın «Qartanamnıñ Kefedeki evi» (1989), «Mayıs 18» (1992) kibi resimlerini hatırlav resimleri, umumiyleştirüv resimleri, demek mümkün.
-İ.Şeyh-zade Qırım tarihim pek yahşi bile, halqnıh medeniyetini ve özüniri genealogik tamırlarını ögrene.
-«Zincirli» (1993) adlı avtobiografik resimde biz medreseniñ qadimiy divarları fonunda insan kevdesiniñ hıra körünişini közetemiz. 
+Resim yapuvnıñ keyfi, pastoz usulı ressamğa facialı barlıq obrazını yaratmağa yardım ete.
+Onıñ «Qartanamnıñ Kefedeki evi» (1989), «Mayıs 18» (1992) kibi resimlerini hatırlav resimleri, umumiyleştirüv resimleri, demek mümkün.
+İ.Şeyh-zade Qırım tarihını pek yahşı bile, halqnıñ medeniyetini ve özüniñ genealogik tamırlarını ögrene.
+"Zıncırlı" (1993 s.) dep adlandırılğan avtobiografik polotnosında medreseniñ qadimiy divarlarınıñ fonunda zar-zornen körüngen insan silueti de közden ğayıp olıp kete.
 %Кörüniş vaqıt sisi arasından de peyda ola, de yoq olıp kete.
-Böylece, ressam kendi qartbabasınıñ — öz devirinin maarifperver insanlarından biri sayılğan, lâkin İstanbulğa muhacirlikke ketmege mecbur olğan adamnın obrazını canlandırmağa tırışa.
-1995 senesi Parijde akademik sergi olıp keçken son İ.Şeyh-zade Rusiye Ressamlar akademiyasınıñ diplomınen taqdirlendi.
+Böylece, ressam kendi qartbabasınıñ — öz devriniñ maarifperver insanlarından biri sayılğan, lâkin İstanbulğa muhacirlikke ketmege mecbur olğan adamnıñ obrazını canlandırmağa tırışa.
+1995 senesi Parijde akademik sergi olıp keçken soñ İ.Şeyh-zade Rusiye Ressamlar akademiyasınıñ diplomınen taqdirlendi.
 Ali Belâlov (1963 senesi doğdı) — tahsilni Kiyevdeki Sanat akademiyasında alğan ilk qırımtatar ressamlarınıñ birisidir (1995).
-%Namangan şeherinde doğup ösken Ali Belâlov mahalliy sanat oquv yurtunı bitirdi.
+%Namangan şeherinde doğıp ösken Ali Belâlov mahalliy sanat oquv yurtunı bitirdi.
  %1990 senesinden berli Qırımda yaşay.
-Belâlovmn «Kefe» (1996), «Bağçasaray» (1996), «Ay yarıq gecesinde» (1996), «Çeşme» (1997) kibi peyzaj resimleri Oırımmh tanış köşelerini aks ettireler; «Musafirlerge qave» (1990), «Qartanamnıñ qavesi» (1990) kibi natürmortları seyirci közüni yaqın, balalıqtan tanış olğan nesnelernen quvandıralar.
+Belâlovnıñ «Kefe» (1996), «Bağçasaray» (1996), «Ay yarıq gecesinde» (1996), «Çeşme» (1997) kibi peyzaj resimleri Oırımnıñ tanış köşelerini aks ettireler; «Musafirlerge qave» (1990), «Qartanamnıñ qavesi» (1990) kibi natürmortları seyirci közüni yaqın, balalıqtan tanış olğan nesnelernen quvandıralar.
 Ressam tuvğan yurtqa sevgisi haqqında bağırıp-çağırmay.
-Resimlemiñ bir baqıştan adiy motivleri artında öz tarihi ve an'aneviy urf-adetlerine malik olğan halqnın ömüri tura.
-A. Belâlovmn sonki eserlerinde ressamnıñ realistik süjetlerden manzaralı kompozitsiyalarğa — allegoriyalarğa keçkeni körünip tura.
-Ressam özünih «Elvira», «Tamila», «Niyara», «Zelfira», «Leylâ» kibi portret resimlerinde qırımtatar qadınııñ obrazmı yarata.
+Resimlemiñ bir baqıştan adiy motivleri artında öz tarihi ve ananeviy urf-adetlerine malik olğan halqnıñ ömrü tura.
+A. Belâlovnıñ soñki eserlerinde ressamnıñ realistik süjetlerden manzaralı kompozitsiyalarğa — allegoriyalarğa keçkeni körünip tura.
+Ressam özüniñ «Elvira», «Tamila», «Niyara», «Zelfira», «Leylâ» kibi portret resimlerinde qırımtatar qadınınıñ obrazını yarata.
 Yımşaq, pastel negizinde icra olunğan portretler qırımtatar qadınına temenna ile aşlanğanlar.
-Ressam İsmet Veliullayev 1953 senesi Özbekistannın Namangan vilâyetindeki Uçqurğan şeherinde doğdı. 
-1972 senesi Duşanbedeki M. Alimov adına cumhuriyet ressamlıq oquv yurtum bitirdi.
-1988 senesi Qırımğa, Bağ-çasaray şeherine köçüp keldi.
-1994 senesi Ukraina Ressamlar birliğiniñ azası oldı.
-i. Veliullayev — halqara, bütünittifaq, cumhuriyet sergilerinin daimiy iştirakçisidir.
-Onıñ icadı öz halqının tarihi, medeniyetinen sıqı bağlıdır.
-«Rahmetli alamnıñ Qırımğa avdeti» (1987), «Ûırımtatar halqınıñ sürgünligi» (1994), «Musa Mamutnın şehit ketüvi» (1994), «Avdet» (1996), «Ümüt» (1998) kibi eserler zorbalıqnen sürgün etilgen ve ğayet büyük meşaqatlar ile Vatanına qaytıp keleyatqan halqnıñ facialı taliyine bağışlanğandır.
-Qırımtatarlarnıñ zengin medeniy asabalığınıñ bir qısımı sayılğan halq bayramları, urf-adetler Veliullayevniñ icadında daha bir sahifeni teşkil eteler: «Qurban bayramı» (1983), «Qaytarma» (1987), «Toy» (1996-1997).(88.20-21-nci sahifeler).
-Ressam öz eserleriniñ süjetlerini işler eken, süjetnin vesiqalı olmasına, vaqianıñ tafsilâtlı hikâye etilmesine qattı riayet ete, amma barlıqnı doğrudan-doğru köçürip almay.
-Onıñ resimlerinde hareket sezile, ressam öz üslübinen hem içtimaiy resimlerge has ruhiy kerginlikni, hem qırımtatarlarnın turmuşı ve bayramlarına bağışlanğan resimlerniñ neşesini aks ettirmeğe bile.
+Ressam İsmet Veliullayev 1953 senesi Özbekistannıñ Namangan vilâyetindeki Uçqurğan şeherinde doğdı. 
+1972 senesi Duşanbedeki M. Alimov adına cumhuriyet ressamlıq oquv yurtunı bitirdi.
+1988 senesi Qırımğa, Bağçasaray şeherine köçip keldi.
+1994 senesi Ukraina Ressamları birliğiniñ azası oldı.
+İ. Veliullayev — halqara, bütünittifaq, cumhuriyet sergileriniñ daimiy iştirakçisidir.
+Onıñ icadı öz halqınıñ tarihı, medeniyetinen sıqı bağlıdır.
+«Rahmetli alamnıñ Qırımğa avdeti» (1987), «Qırımtatar halqınıñ sürgünligi» (1994), «Musa Mamutnıñ şehit ketüvi» (1994), «Avdet» (1996), «Ümüt» (1998) kibi eserler zorbalıqnen sürgün etilgen ve ğayet büyük meşaqatlar ile Vatanına qaytıp keleyatqan halqnıñ facialı taliyine bağışlanğandır.
+Qırımtatarlarnıñ zengin medeniy asabalığınıñ bir qısmı sayılğan halq bayramları, urf-adetler Veliullayevniñ icadında daha bir sahifeni teşkil eteler: «Qurban bayramı» (1983), «Qaytarma» (1987), «Toy» (1996-1997).(88.20-21-nci sahifeler).
+Ressam öz eserleriniñ süjetlerini işler eken, süjetniñ vesiqalı olmasına, vaqianıñ tafsilâtlı hikâye etilmesine qattı riayet ete, amma barlıqnı doğrudan-doğru köçürip almay.
+Onıñ resimlerinde hareket sezile, ressam öz üslübinen hem içtimaiy resimlerge has ruhiy kerginlikni, hem qırımtatarlarnıñ turmuşı ve bayramlarına bağışlanğan resimlerniñ neşesini aks ettire bile.
 Elmaz Osmanova Qırımda 2000 senesinden berli yaşay.
 O, 1962 senesi Taşkent vilâyetiniñ Orta Saray köyünde doğdı.
 İhtisaslaştırılan sanat mektebinde oquğan sofi A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi (1985).
