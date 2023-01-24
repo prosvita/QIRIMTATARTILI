@@ -448,22 +448,22 @@ Avdet ve öz toprağında yaşav quvançı, Qırımnıñ tabiatından ayretlenü
 Ressam özüniñ soñki yıllarda yaratqan resimlerinde halq sanatına (hususan toqumacılıq sanatına) has olğan ananeviy tamğalardan ve nazarlıq emiyetini taşığan temsillerden faydalana.
 Bu esnada onıñ «Çöl» (1997), «Sımalar» (1997), «Nazarlıq» (1997), «Qorçalayıcı hareketler» (1997) kibi resimlerini añmalı.
 Bular manzaralı kompozitsiyalar olıp, olarda işaretli piktogrammalarğa, tamğa timsallerine hem de geometrik örnekli parça tehnikasına has ananeler biriktirilgen.
-M. Çurlu arhetip şekillernin — romblar, üçköşelikler — çeşit kombinatsiyalarından faydalanaraq, renk hem de ritmika cehetinden uyğun kompozitsiyalar yarata.
-Ressam M.Çurlunın icat yılları Taşkentte ve Moskvada, Sankt-Peterburgda, Kiyevde, Aqmescitte, Almaniyanıñ Köln, Duysburg, Haydelberg kibi şeherlerinde ötkerilgen şahsiy sergilerinde aks olunğandır.
+M. Çurlu arhetip şekillerniñ — romblar, üçköşelikler — çeşit kombinatsiyalarından faydalanaraq, renk hem de ritmika cehetinden uyğun kompozitsiyalar yarata.
+Ressam M.Çurlunıñ icat yılları Taşkentte ve Moskvada, Sankt-Peterburgda, Kiyevde, Aqmescitte, Almaniyanıñ Köln, Duysburg, Haydelberg kibi şeherlerinde ötkerilgen şahsiy sergilerinde aks olunğandır.
 Nuri Yaqubov (1963 senesi doğdı) — qırımtatar ressamlığındaki realistik yöneliş vekilidir.
-O, Taşkent oblastının Yanıyol şeherinde doğdı, Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtunı, sonra Moskvadaki V.Surikov adına devlet ressamlıq institutını alâ işaretlemen bitirdi.
+O, Taşkent oblastınıñ Yañıyol şeherinde doğdı, Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtunı, soñra Moskvadaki V.Surikov adına devlet ressamlıq institutını alâ işaretlernen bitirdi.
 1992 senesinden berli Qırımda yaşay.
 Onıñ 90-ncı senelerde yaratqan eserleri — plener ressamlığına has mükemmel numünelerdir.
- («Taldalı soqaçıq», 1991; «Denizge», 1991; «Koreizde ay yarıq gecesi», 1991; «Varisler», 1992; «Güller hiyabanı», 1992; «Gülgülü basamaq», 1992; «Ömür menbası», 1993; «Badem çeçek aça», 1995).
+ («Taldalı soqaçıq», 1991; «Deñizge», 1991; «Koreizde ay yarıq gecesi», 1991; «Varisler», 1992; «Güller hiyabanı», 1992; «Gülgülü basamaq», 1992; «Ömür menbası», 1993; «Badem çeçek aça», 1995).
 Ressam özüniñ bir sıra peyzaj resimlerini Türkiye seferinde yapıp («Safranbolu.Türkiye», 1999).
-Аnda Qırımnı aridırğan, közüne sıcaq körüngen manzaralarnı seçip aldı.
-Yaqubovmn resimleri tolu manada havanen ve küneş nurunen sinirilgenler.
-Resimlerdeki ışıq terek yapraqlarınıñ çilterinden keçip, yerde ve binalarnıñ divarlarında ğarayib örnekler tize.
-Yaqubovnın peyzaj resimlerinde bir baqıştan adiy olıp körüngen, sahte debdebeden mahrum olğan şamatasız yeşil soqaçıqlar ve cıynaqlı azbarçıqlar asayiş ve sükünet keyfini bağışlaylar.
-Qırımnıñ her bir köşesi, olsun tınç koy soqağı, olsun orta asır binalarının eybetli divarları, ressanıñ sınırsız meftün ete.
-Onın Qırımı — sarsıntı ve belâlarsız Qırımdır, yerdeki cennet haqqında hayallarnı mucessemleştirgen bir diyardır.
-N.Yaqubov tasviriy sanattaki şarq nazmiyetini canlandırmaq içün miniatüra ressamlığınıñ an'anelerini icadiy idrak etip, olarnı bugünki künge keliştirmek kerek, dep saya.
- Іşte, onın eserlerindeki sızıqlarnıri zarifliği, şekillerniñ nefaseti şundan kelip çıqadır.
+Аnda Qırımnı añdırğan, közüne sıcaq körüngen manzaralarnı seçip aldı.
+Yaqubovnıñ resimleri tolu manada havanen ve küneş nurunen tolu.
+Resimlerdeki ışıq terek yapraqlarınıñ çilterinden keçip, yerde ve binalarnıñ divarlarında dülbet örnekler tize.
+Yaqubovnıñ peyzaj resimlerinde bir baqıştan adiy olıp körüngen, sahte debdebeden mahrum olğan şamatasız yeşil soqaçıqlar ve cıynaqlı azbarçıqlar acayip ve sükünet keyfini bağışlaylar.
+Qırımnıñ her bir köşesi, olsun tınç köy soqağı, olsun orta asır binalarınıñ eybetli divarları, ressamnıñ sıñırsız meftün ete.
+Onıñ Qırımı — sarsıntı ve belâlarsız Qırımdır, yerdeki cennet haqqında hayallarnı mucessemleştirgen bir diyardır.
+N.Yaqubov tasviriy sanattaki şarq nazmiyetini canlandırmaq içün miniatüra ressamlığınıñ ananelerini icadiy idrak etip, olarnı bugünki künge keliştirmek kerek, dep saya.
+ Іşte, onıñ eserlerindeki sızıqlarnıñ zarifligi, şekillerniñ nefaseti şundan kelip çıqadır.
 Fikirimizni isbatlamaq içün «Çeşme yanındaki qız» (1995), «Bağçasaray» (1991) kibi resimlerni ketire bilemiz.
 Şarq miniatüralarında yapılğanı kibi, N.Yaqubov öz eserleriniñ süetlerindeki elementlerni tantiminen qayd ete, çünki bu elementler — qızlarnıri kiyimleri, ilvanları, olarnın suv aldıqları baqır savutları, adeti üzre, çoqraq taşında yapıla turğan oymalı örnekler, çilterli pencereler — an'aneviy şarq medeniyetine aittirler.
 Ressam, miniatüra ananelerini devam ettirerek, meyillikni saf lokal renklerge bere.
