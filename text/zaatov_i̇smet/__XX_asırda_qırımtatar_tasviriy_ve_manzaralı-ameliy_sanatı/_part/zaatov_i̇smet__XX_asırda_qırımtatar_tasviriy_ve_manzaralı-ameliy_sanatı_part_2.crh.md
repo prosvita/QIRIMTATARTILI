@@ -778,26 +778,26 @@ Soñki bir qaç yıl içinde o mına böyle kitaplarnı bezetti: «Bu nasıl ol�
 2000 senesi Aqmescitte orta asırlarğa ait qırımtatar şiiriyetiniñ «Gülşen hayalları» adlı antologiyası neşir etildi.
 Bu kitapnıñ özgünligini çoqusı cehetten Zarema Trasinovanıñ yapqan illüstratsiyaları belgilediler.
 Ressam öyle tasviriy muhitni yarata bilgen ki, bu muhitte ayan şekilge kirgen nazm sözleriniñ nağmesi oquyıcı ve seyircini meftün etici Şarq alemine daldıra.
-Z.Trasinovanın grafikası janr, tehnika, icracılıq usulı (akvarel, monotipiya, qarışıq tehnika) boyunca ğayet çeşitlidir.
-Onın tezya grafikası ressammn istidatını bir daha isbatlay.
-Trasinova «I.Gasprinskiynin portreti», «Namaz» (1990), «Gurzuf hatırası» (1991) kibi eserlerde, bir taraftan, adamlar ve şeylernin real tasvirini bere, yani konkret ola, diğer taraftan, allegoriyalar ve halq rivayetlerine kendi münasebetini bildirerek, romantizmge dala.
-%Trasinova qırımtatar halqının tarihi ve medeniyetini pek yahşı bilgen insandır.
-Ressam bir de-bir kitapnı bezetkende ya da grafika tabaqları üzerinde çalışqanda halq kiyimlerini, turmuş eşyalarını, örneklernin simvolikasını tafsilâtlı surette ögrene.
-İşte, olıp keçken sergiler, onın eli astından çıqqan kitaplar, seyircilernin alğışları Z.Trasinovanı qırımtatar sanatının klassikleri sırasına qoyalar.
+Z.Trasinovanıñ grafikası janr, tehnika, icracılıq usulı (akvarel, monotipiya, qarışıq tehnika) boyunca ğayet çeşitlidir.
+Onıñ tezya grafikası ressamnıñ istidatını bir daha isbatlay.
+Trasinova «I.Gasprinskiyniñ portreti», «Namaz» (1990), «Gurzuf hatırası» (1991) kibi eserlerde, bir taraftan, adamlar ve şeylerniñ real tasvirini bere, yani konkret ola, diger taraftan, allegoriyalar ve halq rivayetlerine kendi munasebetini bildirerek, romantizmge dala.
+%Trasinova qırımtatar halqınıñ tarihı ve medeniyetini pek yahşı bilgen insandır.
+Ressam bir de-bir kitapnı bezetkende ya da grafika tabaqları üzerinde çalışqanda halq kiyimlerini, turmuş eşyalarını, örneklerniñ simvolikasını tafsilâtlı surette ögrene.
+İşte, olıp keçken sergiler, onıñ eli astından çıqqan kitaplar, seyircilerniñ alğışları Z.Trasinovanı qırımtatar sanatınıñ klassikleri sırasına qoyalar.
 Ressam Alim Useinov (1941 senesi doğdı) haqqında bundan evelki bölükte hikâye etken edik.
-Lâkin Useinovnın icadının daha bir cehetini grafika janrı teşkil ete.
-A. Useinovnın akvarel resimleri az sözli ve zarif yapon gravyüralarına oşap keteler.
-Olar bir baqıştan, sade ve mahfiyetliler, lâkin diqqatlıca baqsan — teren manalı, cazibeli ekenini anlaysın.
-Useinov azğana bediiy usulnen: bir qaç sızıq ve olduqça az renknen hem suvuq qışnın ayazını, hem yağmurlı künnin rutubetini, hem bahar tereklerinin çeçeklenüvini kostere.
-Onın adiy süjetleri artında ressamnın etraf muhitke aybetli münasebeti duyula, иunda her şey mühim, qıymetlidir, çünki bütün bu şeyler — seyyaremizdir («Yıl mevsimleri», «Qış peyzajı» türkümleri, 1998-2000).
-2000 senesi Aqmescitteki bediiy muzeyde olıp keçken Oırım akvarelleri biyennalesinde A.Useinov konkursnın baş mükâfatını qazandı.
-Z.Trasinovanm qızı Leylâ Trasinova istidatlı grafik, dizayncı olaraq bellidir.
+Lâkin Useinovnıñ icadınıñ daha bir cehetini grafika janrı teşkil ete.
+A. Useinovnıñ akvarel resimleri az sözlü ve zarif yapon gravyüralarına oşap keteler.
+Olar bir baqıştan, sade ve mahfiyetliler, lâkin diqqatlıca baqsañ — teren manalı, cazibeli ekenini anlaysıñ.
+Useinov azğana bediiy usulnen: bir qaç sızıq ve olduqça az renknen hem suvuq qışnıñ ayazını, hem yağmurlı künniñ rutubetini, hem bahar terekleriniñ çeçeklenüvini köstere.
+Onıñ adiy süjetleri artında ressamnıñ etraf muhitke aybetli munasebeti duyula, bunda her şey mühim, qıymetlidir, çünki bütün bu şeyler — seyyaremizdir («Yıl mevsimleri», «Qış peyzajı» türkümleri, 1998-2000).
+2000 senesi Aqmescitteki bediiy müzeyde olıp keçken Oırım akvarelleri biyennalesinde A.Useinov konkursnıñ baş mükâfatını qazandı.
+Z.Trasinovanıñ qızı Leylâ Trasinova istidatlı grafik, dizayncı olaraq bellidir.
 O, 1964 senesi Taşkentte doğdı.
- Başta P.Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı, sonra V.Muhina adına Leningrad ressamlıq-sanayı oquv yurtunın sanayi grafikası bölügini bitirdi (1982-1987).
+ Başta P.Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil aldı, soñra V.Muhina adına Leningrad ressamlıq-sanayı oquv yurtunıñ sanayı grafikası bölügini bitirdi (1982-1987).
 işte, o vaqıttan berli Sankt-Peterburgda yaşay ve çalışa.
-L. Trasinovanın esas eserleri cümlesine «44 senesi» türkümi (1990), dört grafik tabaqtan ibaret «Şeher ve quşlar» türkümi (1990), «Avtoportret» (1990), «Mavi urba kiygen men ve patlaqçanaqlar»» avtoportreti, «Şeherli portreti», «Oırımtatarlarnın tipleri» adlı grafika tabaqları türkümi (1991), «Men qafesteki bir quşım» türkümi (1991), «Bu nasıl olğan edi (SSSRde milliy repressiyalar.1919-1952 seneleri)» kitabının Zarema Trasinovanen birlikte yapılğan maketi kireler.
-Anasının etnografik cehetten tam, realistik grafikasından farqlı olaraq, Leylânın grafika eserlerinde uydurma ve rüyalar tekmil qarışıp ketkenler.
-Bir baqıştan tonuq, veciz olıp körüngen resimler asılında hareketli, mundericeliler ve olar muellifnin tesirçen, ihtiraslı şahs olğanını köstereler.
+L. Trasinovanıñ esas eserleri cümlesine «44 senesi» türkümi (1990), dört grafik tabaqtan ibaret «Şeher ve quşlar» türkümi (1990), «Avtoportret» (1990), «Mavı urba kiygen men ve patlaqçanaqlar»» avtoportreti, «Şeherli portreti», «Oırımtatarlarnıñ tipleri» adlı grafika tabaqları türkümi (1991), «Men qafesteki bir quşım» türkümi (1991), «Bu nasıl olğan edi (SSSRde milliy repressiyalar.1919-1952 seneleri)» kitabınıñ Zarema Trasinovanen birlikte yapılğan maketi kireler.
+Anasınıñ etnografik cehetten tam, realistik grafikasından farqlı olaraq, Leylânıñ grafika eserlerinde uydurma ve ruyalar tekmil qarışıp ketkenler.
+Bir baqıştan tonuq, veciz olıp körüngen resimler asılında hareketli, mundericeliler ve olar müellifniñ tesirçen, ihtiraslı şahs olğanını köstereler.
 %Keçmiş tarihiy mevzular, qırimtatar halqınıñ öz Vatanına qaytuvınen bağlı problemalar aynı zamanda em grafiklerni, em de boyalı resimnen oğraşqan ressamlarnı da bir çeşit raatsızlaylar.
 Yaya Temirqayayev 1935 senesi Qırımda doğdı, 1944 senesi bütün halqnen beraber sürgün olundı.
 1966 senesi P.Benkov adına Taşkent ressamla oquv yurtunı.
