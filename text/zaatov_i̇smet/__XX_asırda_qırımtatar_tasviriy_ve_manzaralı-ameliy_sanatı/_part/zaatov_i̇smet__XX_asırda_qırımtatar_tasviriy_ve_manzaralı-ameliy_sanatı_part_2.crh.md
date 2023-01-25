@@ -758,26 +758,26 @@ Meselâ, Hyüznıñ şiirlerindeki ömürlik serseriylikke hüküm etilgen seyya
 Böyle serseriylik haletini ressam sözniñ tam manasında köstere: ğarip personajnıñ ayagları avada sarqıp tura, onıñ durğunsız vaziyetini ana-mına yıqılacaq köpçek qayd ete.
 Resimde tasvirlengen qaraman (halq dep añlamalı) «vatan» añlamına kirgen bütün şeylerni kendi sırtına yüklep alıp kete: balaban qaburçaq içinde harakterli tüz damları olğan şarq şeheri kösterilgen.
 «Basamaqlar» türkümine kirgen diger bir resim de ğayet temsiliydir.
-Bu resimnin qaramanı — qırmızı kiygen er kişi qolunda qurbanlıq çalınacaq qara horazm tutıp tura.
-Erkek üzerinde tasvirlengen evlernifi damları, balasını sallağan qadın — ömürdir, aşağıda tasvirlengen adhesapsız qozaqlar ve olarnın içindeki cefakârlarnın ruhları ise — ölümdir.
-Esernih baş mevzusı — günahlardan arınmaq, ömürni devam ettire bilmek içün qurban çalmaq zarurlığıdır.
-E.izzetov tezya grafikasından ğayrı, mecmua ve kitap grafikası sahasında da çalışa.
-Ozbekistanda ekende onın işleri «Zvezda Vostoka» mecmuasında sıq-sıq basılıp tura edi.
-Oırımda ise E.izzetovnın resimleri bir çoq deviriy neşirlernin, bilhassa «Oasevet» mecmuasının bediiy obrazını belgileyler.
-E.izzetov cumhuriyet ve halqara sergilernin iştirakçisidir, onın eserleri Brnoda olıp keçken grafika biyennalesinde nümayiş etildi.
+Bu resimnin qaramanı — qırmızı kiygen er kişi qolunda qurbanlıq çalınacaq qara horaznı tutıp tura.
+Erkek üzerinde tasvirlengen evlerniñ damları, balasını sallağan qadın — ömürdir, aşağıda tasvirlengen adhesapsız qozaqlar ve olarnıñ içindeki cefakârlarnıñ ruhları ise — ölümdir.
+Eserniñ baş mevzusı — günahlardan arınmaq, ömürni devam ettire bilmek içün qurban çalmaq zarurlığıdır.
+E.İzzetov tezya grafikasından ğayrı, mecmua ve kitap grafikası sahasında da çalışa.
+Ozbekistanda ekende onıñ işleri «Zvezda Vostoka» mecmuasında sıq-sıq basılıp tura edi.
+Oırımda ise E.İzzetovnıñ resimleri bir çoq devriy neşirlerniñ, bilhassa «Oasevet» mecmuasınıñ bediiy obrazını belgileyler.
+E.İzzetov cumhuriyet ve halqara sergilernin iştirakçisidir, onıñ eserleri Brnoda olıp keçken grafika biyennalesinde numayış etildi.
 Zarema Trasinova 1939 senesi Aqmescitte doğdı.
 Beş yaşlı bala ekende öz halqınen beraber sürgün olunğan Zarema hiç bir şeyge baqmadan yüksek tahsil aldı.
- О, P.Benkov adına cumhuriyet ressamlıq oquv yurtunın kitap grafikası bölügini ve A.N. Ostrovskiy adına Taşkent devlet teatr-ressamlıq institutını bitirdi.
-%SSSR Ressamlar birliğine 1976 senesinden aza ola.
- Zarema Trasinova Ozbekistanda en büyük neşriyat sayılğan GGulam adına kitap neşriyatında çoq yıllar devamında çalışıp, 200-ge yaqın kitap bezetti.
-Bu kitaplarnın 20-den ziyadesi halqara, cumhuriyet ve cumhuriyetlerara konkurslarda fahriy diplomlarnen taqdirlendi.
-Z. Trasinovanın bezetken kitapları arasında hususan «Çınlar ve maneler», Özbek edebiyatının klassigi Muqimiynin şiirler cıyıntığını, qırımtatar şiiriyetinin klassigi Aşıq Umernin şiirler kitabını, «Tapmacalar», «Qırımtatarlarnıh efsaneleri ve masalları», «Ahmet ahay lâtifeleri» kibi kitaplarnı anmalı.
-Ressam sonki eki kitapnı bezetir eken, özüni qırımtatarlarnıh tarihi ve medeniyetini yahşi bilgen adam sıfatında kosterdi.
-Z. Trasinova 1994 senesi Qırımğa köçüp kelgen son da icatnen faal oğraşa, qırımtatar tilinde çıqqan kitaplar, dersliklerni bezete.
-Sonki bir qaç yıl içinde o mına böyle kitaplarnı bezetti: «Bu nasıl olğan edi» (SSSRde milliy repressiyalar.1919-1952 seneleri.) üç tom, (1993); M.Sergeyev.«Grünvald haçı» (1995); B.Mambet «Qoz efsanesi» (1995); A.Puşkin, «Quranğa taqlid» (1997).
-2000 senesi Aqmescitte orta asırlarğa ait qırımtatar şiiriyetinin «Gülşen hayalları» adlı antologiyası neşir etildi.
-Bu kitapnın özgünligini çoqusı cehetten Zarema Trasinovanın yapqan illüstratsiyaları belgilediler.
-Ressam öyle tasviriy muhitni yarata bilgen ki, bu muhitte ayan şekilge kirgen nazm sözlerinin nağmesi oquyıcı ve seyircini meftün etici Şarq alemine daldıra.
+ О, P.Benkov adına cumhuriyet ressamlıq oquv yurtunıñ kitap grafikası bölügini ve A.N. Ostrovskiy adına Taşkent devlet teatr-ressamlıq institutını bitirdi.
+%SSSR Ressamlar birligine 1976 senesinden aza ola.
+ Zarema Trasinova Özbekistanda eñ büyük neşriyat sayılğan G.Ğulam adına kitap neşriyatında çoq yıllar devamında çalışıp, 200-ge yaqın kitap bezetti.
+Bu kitaplarnıñ 20-den ziyadesi halqara, cumhuriyet ve cumhuriyetlerara konkurslarda fahriy diplomlarnen taqdirlendi.
+Z. Trasinovanıñ bezetken kitapları arasında hususan «Çınlar ve maneler», Özbek edebiyatınıñ klassigi Muqimiyniñ şiirler cıyıntığını, qırımtatar şiiriyetiniñ klassigi Aşıq Umerniñ şiirler kitabını, «Tapmacalar», «Qırımtatarlarnıñ efsaneleri ve masalları», «Ahmet ahay lâtifeleri» kibi kitaplarnı añmalı.
+Ressam soñki eki kitapnı bezetir eken, özüni qırımtatarlarnıñ tarihi ve medeniyetini yahşi bilgen adam sıfatında kösterdi.
+Z. Trasinova 1994 senesi Qırımğa köçip kelgen soñ da icatnen faal oğraşa, qırımtatar tilinde çıqqan kitaplar, dersliklerni bezete.
+Soñki bir qaç yıl içinde o mına böyle kitaplarnı bezetti: «Bu nasıl olğan edi» (SSSRde milliy repressiyalar.1919-1952 seneleri.) üç tom, (1993); M.Sergeyev.«Grünvald haçı» (1995); B.Mambet «Qoz efsanesi» (1995); A.Puşkin, «Quranğa taqlid» (1997).
+2000 senesi Aqmescitte orta asırlarğa ait qırımtatar şiiriyetiniñ «Gülşen hayalları» adlı antologiyası neşir etildi.
+Bu kitapnıñ özgünligini çoqusı cehetten Zarema Trasinovanıñ yapqan illüstratsiyaları belgilediler.
+Ressam öyle tasviriy muhitni yarata bilgen ki, bu muhitte ayan şekilge kirgen nazm sözleriniñ nağmesi oquyıcı ve seyircini meftün etici Şarq alemine daldıra.
 Z.Trasinovanın grafikası janr, tehnika, icracılıq usulı (akvarel, monotipiya, qarışıq tehnika) boyunca ğayet çeşitlidir.
 Onın tezya grafikası ressammn istidatını bir daha isbatlay.
 Trasinova «I.Gasprinskiynin portreti», «Namaz» (1990), «Gurzuf hatırası» (1991) kibi eserlerde, bir taraftan, adamlar ve şeylernin real tasvirini bere, yani konkret ola, diğer taraftan, allegoriyalar ve halq rivayetlerine kendi münasebetini bildirerek, romantizmge dala.
