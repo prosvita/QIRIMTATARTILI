@@ -698,40 +698,40 @@ K. Cepparovnıñ resimleri süjet, bediiy usul cehetinden çoq çeşitliler, lâ
 Onıñ «Tilenci», «Muhacirler», «Zona» kibi keskin sotsial resimlerinde «küçük adam» mevzusı yañğıray.
 Adamlarnıñ ğayrıtabiiy biçimde tasvirlenmesi ise muellifniñ adiy adamlar içün yüregi yanğanını bildire.
 Ressam accı barlıqnı yumor ve kinayenen yımşataraq, şu «küçük adamlar»nı merhametli, efsaneviy qaramanlarğa çevire («Azbar sipirici», «Ammal»).
-Cepparov temiz ressamlıq vazifelerini «Balıqlar», «Tarih sarmalı», «Mavi çeçek», «Yeşil ada», «Horaz» kibi abstrakt-manzaralı kompozitsiyalar vastasınen çeze.
-Mezkûr resimler de gür renkli impressionistik tarzda, de sert, torsluqlı konstruktivizm an aneleri esasında icra olunğanlar.
-K. Cepparovnıh icadında hem real, tanış peyzajlar («Ayüvdağ»), hem Pirosmani ve Şagal ruhunda yapılğan uydurma, ideallaştırılğan levhalar («Alim», «Beklev», «Qırmızı kiygen qadın») rastkelineler.
+Cepparov temiz ressamlıq vazifelerini «Balıqlar», «Tarih sarmalı», «Mavı çeçek», «Yeşil ada», «Horaz» kibi abstrakt-manzaralı kompozitsiyalar vastasınen çeze.
+Mezkûr resimler de gür renkli impressionistik tarzda, de sert, torsluqlı konstruktivizm ananeleri esasında icra olunğanlar.
+K. Cepparovnıñ icadında hem real, tanış peyzajlar («Ayгv-dağ»), hem Pirosmani ve Şagal ruhunda yapılğan uydurma, ideallaştırılğan levhalar («Alim», «Beklev», «Qırmızı kiygen qadın») rastkelineler.
 K. Cepparovnıñ özü qayd etkeni kibi, «bu resimler adamlarğa quvanç ve zevq bağışlamaq kerekler».
-K.Cepparovnıñ eserleri Sankt-Peterburgda, Qırımda, Yunanistanda ötkerilgen sergilerde defalarca nümayiş etildi.
+K.Cepparovnıñ eserleri Sankt-Peterburgda, Qırımda, Yunanistanda ötkerilgen sergilerde defalarca numayış etildi.
 Olarnı AQŞ, Şvetsiya, Yunanistan, İsrail, Frantsiyadaki kollektsionerler satın aldılar.
 
 2.3.2.Grafika
 
-Grafika bütün zamanlarda, hususan içtimaiy-siyasiy münasebetler kerginleşken ve içtimaiy buhranlar yüz bergen devirlerde ayrıca talap olunğan sanat janrı olıp keldi.
-Bundan evelki bölükte icatlarını aydınlattığımız deyerlik bütün yetekçi qırımtatar ressamları mezkûr janrğa o ya da bu derecede müracaat eteler, sergilerde özlerinin grafika eserlerini de seyirci hükümine çıqaralar.
-İşbu bölükte biz grafikanı yetekçi tasviriy janr, dep sayğan ve kendisinin icadiy ferdini belgilegen ressamlar haqqında hikâye etecekmiz.
-Bediiy çezimlerde, icracılıq seviyesinde mevcut olğan çeşitlilikni ise grafikağa çeşit türlü ustalar müracaat etkeninen ve olarnın professional cehetten azırlığı da çeşit türlü olğanınen anlatmaq mümkün.
-Zemaneviy qırımtatar grafikasında «bir taraftan, hem açıq-açıqtan terğibiy çezimler, hem bidad stilizafsiyalar, diğer taraftan — halqnıñ faciasını, milliy hareketnin insanperver ideallarını açıp kösterüvge nisbeten ğayet ince, ğayet nefasetli, teren yanaşuvlar rastkeline».(205.268-nci sahife).
-Lâkin, hepisi bir, qırımtatar grafikasınıñ en yahşi numüneleri siyasiylikten iraq olıp, olar «ahlâq ve medeniyetnin «yüksek», «ebediy» değerliklerine bağışlanğanlar.(205.268nci sahife).
+Grafika bütün zamanlarda, hususan içtimaiy-siyasiy munasebetler kerginleşken ve içtimaiy buhranlar yüz bergen devirlerde ayrıca talap olunğan sanat janrı olıp keldi.
+Bundan evelki bölükte icatlarını aydınlatqanımız deyerlik bütün yetekçi qırımtatar ressamları mezkür janrğa o ya da bu derecede muracaat eteler, sergilerde özleriniñ grafika eserlerini de seyirci hükümine çıqaralar.
+İşbu bölükte biz grafikanı yetekçi tasviriy janr, dep sayğan ve kendisiniñ icadiy ferdini belgilegen ressamlar haqqında hikâye etecekmiz.
+Bediiy çezimlerde, icracılıq seviyesinde mevcut olğan çeşitlilikni ise grafikağa çeşit türlü ustalar muracaat etkeninen ve olarnıñ professional cehetten azırlığı da çeşit türlü olğanınen añlatmaq mümkün.
+Zemaneviy qırımtatar grafikasında «bir taraftan, hem açıq-açıqtan terğibiy çezimler, hem bidad stilizatsiyalar, diğer taraftan — halqnıñ faciasını, milliy hareketniñ insanperver ideallarını açıp kösterüvge nisbeten ğayet ince, ğayet nefasetli, teren yanaşuvlar rastkeline».(205.268-nci sahife).
+Lâkin, hepisi bir, qırımtatar grafikasınıñ eñ yahşı numüneleri siyasiylikten iraq olıp, olar «ahlâq ve medeniyetnin «yüksek», «ebediy» degerliklerine bağışlanğanlar.(205.268nci sahife).
 Grafika sahasında çalışqan yetekçi ustalar sırasına Ramiz Netovkin kire.
 O, 1960 senesi Taşkent vilâyetiniñ Almazar qasabasında doğdı,
  1975 senesi Vatanğa qaytıp olğan siyrek-sepelek qırımtatar qorantaları arasında Netovkinlernin ailesi de bar edi.
-O yıllarda Qırımda qırımtatarlarğa münasebet, yımşaqça etip aytqanda, pek de yahşi değil edi.
+O yıllarda Qırımda qırımtatarlarğa munasebet, yımşaqça etip aytqanda, pek de yahşı degil edi.
 Ne ise de Ramiz Aqmescitteki N.Samokiş adına ressamlıq oquv yurtuna kirmege muvaffaq ola ve onı 1980 senesi bitire.
-Şu yıldan başlap cumhuriyette ve çetelde ötkerilgen sergilerde iştirak ete, 1989 senesi ise Ukraina Ressamlar birliğine aza olıp kire.
-Sonki 15 yıl içinde Qırımnıñ çeşit şeherlerinde hem de Estoniya, Poloniya, Türkiye kibi memleketlerde R.Netovkinnin 10-dan ziyade şahsiy sergisi olıp keçti.
-2000 senesi cumhuriyet qırımtatar sanatı muzeyinde ressamnıh 40 yıllığına bağışlanğan şahsiy sergisi ötkerildi.
-R.Netovkinniñ grafikasında yetekçi mevzum Qırım mevzusı teşkil ete.
-Ressam özünin eh sevgen şeheri Bağçasaraynı, bu şeherniñ silingen taş basamaqlı tar soqaçıqlarını, virane alına kelgen çeşmelerini, biri-birinin damına tırınaşqan campi evçiklerini, camilerinin süyrü uçlu minarelerini, yantayğan ağaç balkonlarını ayrıca zevq ile tasvirley.
-O, çoqtan-çoq bukletlerde tasvirlenip, endi her keşke belli olğan Bağçasaray abidelerini ve diqqatqa lâyıq yerlerini kör-körane aks ettirmeğe istemey, aksine, bizni taş yılnamelerinde qadim zamanlarnın aks-sedaları saqlanıp qalğan eski şeherge alıp kete.
-O şeherniñ soqaçıqlarında adam körünmey, sükünet hüküm süre, o şeher şimdi uyquda olıp, ana-mına uyanacaq güzel melekniñ qasrını andıra.
-Ressam «Küneşli Bağçasaray» (1988), «Hansaray» (1990), «Taraqtaş köyündeki cami» (1990), «Kokköz», (1990), «Cuma cami» (1996), «Kemer» (1997) kibi resimlerni qalem ve çin merekebinen, özü içün eh kelişikli üslüpte yapqan.
-Ressamnıñ eli qalemni yılıştırır eken, sanki dersin, zarif sızılardan qara-beyaz renkli ince işlemeler toquy, şarq evleri, mahalleleri, şeherlerinin obrazlarını şekillendire.
-Ressam özünin monohromlı grafikasına kimerde bir nazik akvarel ve pastel boyaları qatıp, bu resimlerge aleihusus yımşaqlıq ve cilve bağışlay.
-Netovkinniñ mimarcılıq peyzajları — abideler ve binalarmn ancaq tasviri değil de, aynı vaqıtta halq tarihiniñ, halq medeniyetiniñ şaatlıqlarıdır.
+Şu yıldan başlap cumhuriyette ve çetelde ötkerilgen sergilerde iştirak ete, 1989 senesi ise Ukraina Ressamlar birligine aza olıp kire.
+Soñki 15 yıl içinde Qırımnıñ çeşit şeherlerinde hem de Estoniya, Poloniya, Türkiye kibi memleketlerde R.Netovkinniñ 10-dan ziyade şahsiy sergisi olıp keçti.
+2000 senesi cumhuriyet qırımtatar sanatı müzeyinde ressamnıñ 40 yıllığına bağışlanğan şahsiy sergisi ötkerildi.
+R.Netovkinniñ grafikasında yetekçi mevzu Qırım mevzusı teşkil ete.
+Ressam özüniñ eñ sevgen şeheri Bağçasaraynı, bu şeherniñ silingen taş basamaqlı tar soqaçıqlarını, virane alına kelgen çeşmelerini, biri-biriniñ damına tırınaşqan campi evçiklerini, camileriniñ süyrü uçlu minarelerini, yantayğan ağaç balkonlarını ayrıca zevq ile tasvirley.
+O, çoqtan-çoq bukletlerde tasvirlenip, endi her keşke belli olğan Bağçasaray abidelerini ve diqqatqa lâyıq yerlerini kör-körane aks ettirmege istemey, aksine, bizni taş yılnamelerinde qadim zamanlarnıñ aks-sedaları saqlanıp qalğan eski şeherge alıp kete.
+O şeherniñ soqaçıqlarında adam körünmey, sükünet hüküm süre, o şeher şimdi yuquda olıp, ana-mına uyanacaq güzel melekniñ qasrını andıra.
+Ressam «Küneşli Bağçasaray» (1988), «Hansaray» (1990), «Taraqtaş köyündeki cami» (1990), «Kokköz», (1990), «Cuma cami» (1996), «Kemer» (1997) kibi resimlerni qalem ve çin merekebinen, özü içün eñ kelişikli üslüpte yapqan.
+Ressamnıñ eli qalemni yılıştırır eken, sanki dersiñ, zarif sızılardan qara-beyaz renkli ince işlemeler toquy, şarq evleri, mahalleleri, şeherleriniñ obrazlarını şekillendire.
+Ressam özüniñ monohromlı grafikasına kimerde bir nazik akvarel ve pastel boyaları qatıp, bu resimlerge alelhusus yımşaqlıq ve cilve bağışlay.
+Netovkinniñ mimarcılıq peyzajları — abideler ve binalarnıñ ancaq tasviri degil de, aynı vaqıtta halq tarihınıñ, halq medeniyetiniñ şaatlıqlarıdır.
 Olar tabiiy muhitke uyğun bir tarzda bulunalar, ressam ise, öz nevbetinde, bu tabiiy muhitni büyük tantimlik ve sevgi ile aks ettire.
-Netovkinniñ grafika eserleri de monumental muhteşem, de kamerli mahrem, de meşhum susqun, de debdebeli ve quvançlı olalar, çünki olarda ressamnıñ özü, onın haleti, ruhiyeti aks oluna.
-Netovkinnin mimarcılıq kompozitsiyaları o derece ifadeli ki, resimlerde insan oğlu insan olmağanııñ hatta abaylamaysınю
+Netovkinniñ grafika eserleri de monumental muhteşem, de kamerli mahrem, de meşhum susqun, de debdebeli ve quvançlı olalar, çünki olarda ressamnıñ özü, onıñ haleti, ruhiyeti aks oluna.
+Netovkinniñ mimarcılıq kompozitsiyaları o derece ifadeli ki, resimlerde insan oğlu insan olmağanınıñ hatta abaylamaysıñ.
  Аksine, resimde adamlar da tasvirlengendir, şunın içün olardan böyle cıllılıq kele, dep belleysin.
 Ramiz Netovkinniñ grafika tabaqlarından çoqusı hallarda seriyalar, türkümler asıl ola.
  meselâ: «Leningrad» (1981), «Orta Asiya» (1984-1988), «Moskva» (1985-1986), «Qazan» (1988).
