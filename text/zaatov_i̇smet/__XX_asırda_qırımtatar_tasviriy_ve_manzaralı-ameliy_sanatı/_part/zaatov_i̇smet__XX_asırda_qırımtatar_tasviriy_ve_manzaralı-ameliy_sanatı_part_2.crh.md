@@ -732,32 +732,32 @@ Netovkinniñ mimarcılıq peyzajları — abideler ve binalarnıñ ancaq tasviri
 Olar tabiiy muhitke uyğun bir tarzda bulunalar, ressam ise, öz nevbetinde, bu tabiiy muhitni büyük tantimlik ve sevgi ile aks ettire.
 Netovkinniñ grafika eserleri de monumental muhteşem, de kamerli mahrem, de meşhum susqun, de debdebeli ve quvançlı olalar, çünki olarda ressamnıñ özü, onıñ haleti, ruhiyeti aks oluna.
 Netovkinniñ mimarcılıq kompozitsiyaları o derece ifadeli ki, resimlerde insan oğlu insan olmağanınıñ hatta abaylamaysıñ.
- Аksine, resimde adamlar da tasvirlengendir, şunın içün olardan böyle cıllılıq kele, dep belleysin.
+ Аksine, resimde adamlar da tasvirlengendir, şunıñ içün olardan böyle cıllılıq kele, dep belleysiñ.
 Ramiz Netovkinniñ grafika tabaqlarından çoqusı hallarda seriyalar, türkümler asıl ola.
  meselâ: «Leningrad» (1981), «Orta Asiya» (1984-1988), «Moskva» (1985-1986), «Qazan» (1988).
-Tuvğan Qırımğa «Uzaqlaşhayatqan Qırım» (90-ncı seneler) adlı grafik eserler türkümi bağaşlanıp, oha «Bağçasaray», «Aluşta» kibi albomlar kirdiler.
+Tuvğan Qırımğa «Uzaqlaşayatqan Qırım» (90-ncı seneler) adlı grafik eserler türkümi bağışlanıp, oña «Bağçasaray», «Aluşta» kibi albomlar kirdiler.
 «Kostamonu» (1998) albomı ise Türkiyeniñ orta asırlarğa ait mimarcılığına bağışlanğandır.
 R.Netovkinniñ icadiy faaliyetinde kitap grafikası ayrıca yer tuta.
-Bugünde-bugün Qırımnıñ tarihi ve medeniyeti boyunca kitaplarğa olğan meraq pek büyüktir, hem böyle kitaplarnı «Vozrojdeniye» Halqara fondu Qırım regional bölüginin maddiy yardımı ile neşir etmek imkânları açıldı.
- Іşte, Netovkin bir sıra kitaplarnı bezetti ki, olarnin arasında hem bediiy, hem publitsistik edebiyat mevcut.
-Onıñ soñki işleri cümlesinde V.B. Savenkovnıñ «Aqşam şiirleri» (1990) ve E.Qudusovnıñ «Qırımtatar milletiniñ şekillenüv tarihi» (1996) kitaplarını anmaq mümkün.
-Bundan ğayrı, R.Netovkinnin grafika janrında yapılğan peyzaj resimleri ayrı albom olaraq dere olunıp, mezkûr neşir ustanın tekrarlanmaz istidatını açıq-aydın nümayiş ete.
+Bugünde-bugün Qırımnıñ tarihi ve medeniyeti boyunca kitaplarğa olğan meraq pek büyüktir, hem böyle kitaplarnı «Vozrojdeniye» Halqara fondu Qırım regional bölüginiñ maddiy yardımı ile neşir etmek imkânları açıldı.
+ Іşte, Netovkin bir sıra kitaplarnı bezetti ki, olarnıñ arasında hem bediiy, hem publitsistik edebiyat mevcut.
+Onıñ soñki işleri cümlesinde V.B. Savenkovnıñ «Aqşam şiirleri» (1990) ve E.Qudusovnıñ «Qırımtatar milletiniñ şekillenüv tarihi» (1996) kitaplarını añmaq mümkün.
+Bundan ğayrı, R.Netovkinniñ grafika janrında yapılğan peyzaj resimleri ayrı albom olaraq derc olunıp, mezkür neşir ustanıñ tekrarlanmaz istidatını açıq-aydın numayış ete.
 Enver İzzetov 1955 senesi Ferğana şeherinde doğdı.
 şeherdeki sanat oquv yurtunıñ ressamlıq bölügini bitirdi.
 Qırımda 1992 senesinden berli yaşağan ressam bütün küçüni icadiy ve teşkiliy işlerge sarf ete (Enver izzetov — Qırımtatar ressamları assotsiatsiyasınıñ reisidir).
 Özbekistanda ekende E.İzzetov bediiy multiplikatsiya sahasında çalıştı.
-Mütehassıslar «Özbekfilm» kinostudiyasında çıqarılğan «Yabancı» (1987), «Tahir ve Zohre» (1989), «Kontsert» (1990) kibi multiplikatsion filmlemin ressamı Enver İzzetov olğanını yahşi bileler.
-Özüne has kinematografiya üslübi, «kadr»nın ifadeli cazibesi İzzetovnıri tezya grafikasına da tesir etmey qalmadılar.
-Onıñ eserleri — sızma resimleri, akvarelleri, renkli gravyüraları abul-qubul közden keçirüvge qararlaştırılmağan.
-Müellif, simvolizm, ekspressionizmninıñ bediiy usularından faydalanaraq, seyircini ilk daqqalarda şaşırtqan kibi ola, lâkin resimlerge diqqatlıca köz taşlar ekensin, tasvirlengen şeylernin manasını anlap başlaysm.
-İzzetovnın grafika eserlerinin süjetlerini real ömür levhaları değil de, bu ömürnin subyektiv, allegorik idrak etilüvi teşkil eteler.
-Klassik nazmiyetnin sevdası olğan E.İzzetov R.M. Rilkenin (1981) ve Р.P. Pazolininin (1983) şiirlerine resimler yaptı.
-Ted Hyüznıh şiiriyetine ise ressam özüniii «Basamaqlar» adını alğan bütün bir türkümini bağışladı.
-Umumen, T.Hyüznıh icadı E.Izzetovm telâşlandırğan meselelerge aenkdaş olıp çıqtı.
-Meselâ, Hyüznıh şiirlerindeki ömürlik serseriylikke hüküm etilgen seyyah obrazında öz tuvğan toprağından ayırılğan halqnın umumiyleştirilgen obrazını tanımaq küç değil.
-Böyle serseriylik haletini ressam söznin tam manasında kostere: ğarip personajmn ayagları avada sarqıp tura, onın durğunsız vaziyetini ana-mına yıqılacaq kopçek qayd ete.
-Resimde tasvirlengen qaraman (halq dep anlamalı) «vatan» anlamına kirgen bütün şeylerni kendi sırtına yüklep alıp kete: balaban qaburçaq içinde harakterli tüz damları olğan şarq şeheri kösterilgen.
-«Basamaqlar» türkümine kirgen diğer bir resim de ğayet temsiliydir.
+Mütehassıslar «Özbekfilm» kinostudiyasında çıqarılğan «Yabancı» (1987), «Tahir ve Zohre» (1989), «Kontsert» (1990) kibi multiplikatsion filmlerniñ ressamı Enver İzzetov olğanını yahşı bileler.
+Özüne has kinematografiya üslübi, «kadr»nıñ ifadeli cazibesi İzzetovnıñ tezya grafikasına da tesir etmey qalmadılar.
+Onıñ eserleri — sızma resimleri, akvarelleri, renkli gravüraları abul-qubul közden keçirüvge qararlaştırılmağan.
+Müellif, simvolizm, ekspressionizmninıñ bediiy usularından faydalanaraq, seyircini ilk daqqalarda şaşırtqan kibi ola, lâkin resimlerge diqqatlıca köz taşlar ekensiñ, tasvirlengen şeylerniñ manasını anlap başlaysıñ.
+İzzetovnıñ grafika eserleriniñ süjetlerini real ömür levhaları degil de, bu ömürniñ subyektiv, allegorik idrak etilüvi teşkil eteler.
+Klassik nazmiyetniñ sevdası olğan E.İzzetov R.M. Rilkeniñ (1981) ve Р.P. Pazolininiñ (1983) şiirlerine resimler yaptı.
+Ted Hyüznıñ şiiriyetine ise ressam özüniñ «Basamaqlar» adını alğan bütün bir türkümini bağışladı.
+Umumen, T.Hyuznın icadı E.Izzetovnıñ telâşlandırğan meselelerge aenkdaş olıp çıqtı.
+Meselâ, Hyüznıñ şiirlerindeki ömürlik serseriylikke hüküm etilgen seyyah obrazında öz tuvğan toprağından ayırılğan halqnıñ umumiyleştirilgen obrazını tanımaq küç degil.
+Böyle serseriylik haletini ressam sözniñ tam manasında köstere: ğarip personajnıñ ayagları avada sarqıp tura, onıñ durğunsız vaziyetini ana-mına yıqılacaq köpçek qayd ete.
+Resimde tasvirlengen qaraman (halq dep añlamalı) «vatan» añlamına kirgen bütün şeylerni kendi sırtına yüklep alıp kete: balaban qaburçaq içinde harakterli tüz damları olğan şarq şeheri kösterilgen.
+«Basamaqlar» türkümine kirgen diger bir resim de ğayet temsiliydir.
 Bu resimnin qaramanı — qırmızı kiygen er kişi qolunda qurbanlıq çalınacaq qara horazm tutıp tura.
 Erkek üzerinde tasvirlengen evlernifi damları, balasını sallağan qadın — ömürdir, aşağıda tasvirlengen adhesapsız qozaqlar ve olarnın içindeki cefakârlarnın ruhları ise — ölümdir.
 Esernih baş mevzusı — günahlardan arınmaq, ömürni devam ettire bilmek içün qurban çalmaq zarurlığıdır.
