@@ -876,28 +876,28 @@ D. Seitaptiyevniñ esas eserleri sırasına «Sevişkenler» (1991), «Toy» (19
 #### 2.3.3. Heykelcilik, ufaq şekiller plastikası
 
 Heykelcilik sanatı mustaqil janr olaraq Qırımda heppeyi keç şekillendi.
- Lâkın taşnı bediiy işlev sanatı öz tamırlarınen asırlar terenligine barıp çıqa ve biz bu sanatnıñ durğun an'aneleri olğanını bilemiz.
-Taşnı işlev sanatı — qırımtatar halqının turmuşı ve medeniyetinıñ ayırılmaz bir qısımıdır.
-Böyle soy sanatnı anar ekenmiz, közümiz öğünde mezar abideleri (baştaşlar), binalarnıñ manzaralı bezetilüvi, ufaq şekildeki inşaatlar kevdelene.
-XX asımın başlarında, yani Qırımda tasviriy sanatnın bütün çeşitleri gür inkişaf etip başlağanda, qırımtatar heykelciliğinıñ kendi mektebini meydanğa ketirmek içün bütün imkânlar bar edi.
+ Lâkın taşnı bediiy işlev sanatı öz tamırlarınen asırlar terenligine barıp çıqa ve biz bu sanatnıñ durğun ananeleri olğanını bilemiz.
+Taşnı işlev sanatı — qırımtatar halqınıñ turmuşı ve medeniyetinıñ ayırılmaz bir qısmıdır.
+Böyle soy sanatnı añar ekenmiz, közümiz ögünde mezar abideleri (baştaşlar), binalarnıñ manzaralı bezetilüvi, ufaq şekildeki inşaatlar kevdelene.
+XX asırnıñ başlarında, yani Qırımda tasviriy sanatnıñ bütün çeşitleri gür inkişaf etip başlağanda, qırımtatar heykelciliginıñ kendi mektebini meydanğa ketirmek içün bütün imkânlar bar edi.
 Hem qırımtatar ustaları bu janrda muvafaqiyetnen çalışaraq, devir ve mefküre talap etken eserlerni yarata, mahalliy ve bütün ittifaq sergilerinde iştirak ete ediler.
-Keçken asırnıñ 30-ncı senelerinde qırımtatar heykeltraşlarının bir qısımını repressiyalar dalğası yuvup ketti, diğer bir qısımı ise sürgünlik yerlerinde ğayıp oldı.
-Böyleliknen, qırımtatar sanatında mevcut olğan taş işlev ananeleri üzüldi, hem tek bu değil.
- Umumen halqmn cemi medeniy yenişleri yoqqa çıqarıldı.
-Heykelcilik mevzusı — mezkûr kitabımızda en zayıf aydınlatılğan mevzudır.
-Lâkin bunıri sebebi qırımtatar heykeltraşlarınıñ bediiy seviyesi ve professionalizmi ğayet alçaq olğanında değil, de, kene de şu yuqarıda andığımız meselelerde ve qırımtatar heykeltraşları pek az sayıda olğanlarındadır.
+Keçken asırnıñ 30-ncı senelerinde qırımtatar heykeltraşlarınıñ bir qısmını repressiyalar dalğası yuvup ketti, diger bir qısımı ise sürgünlik yerlerinde ğayıp oldı.
+Böyleliknen, qırımtatar sanatında mevcut olğan taş işlev ananeleri üzüldi, hem tek bu degil.
+ Umumen halqnıñ cemi medeniy yeñişleri yoqqa çıqarıldı.
+Heykelcilik mevzusı — mezkür kitabımızda eñ zayıf aydınlatılğan mevzudır.
+Lâkin bunıñ sebebi qırımtatar heykeltraşlarınıñ bediiy seviyesi ve professionalizmi ğayet alçaq olğanında degil, de, kene de şu yuqarıda añğanımız meselelerde ve qırımtatar heykeltraşları pek az sayıda olğanlarındadır.
 Bugünde-bugün Qırımda milliy sanatnı canlandıruv ceryanı vira qulaç ala.
-Heykelcilik sahasında çalışqan ustalarımız — esasen daha endi ayaqqa turayatqan yaş icatçılar olıp.
- Оlar sanatnıñ bu janrında özlerinin salmaqlı sözlerini daha aytacaqtırlar.
+Heykelcilik sahasında çalışqan ustalarımız — esasen daha endi ayaqqa turayatqan yaş icatçılardır.
+ Оlar sanatnıñ bu janrında özleriniñ salmaqlı sözlerini daha aytacaqtırlar.
 Qırımtatar ressamları kibi, zemaneviy heykeltraşlarımız da professional tahsilni Qırımdan tışta aldılar.
-Vatanğa qaytıp kelgen son öglerinde bayağı yüksek içtimaiy ve turmuş harakterindeki sedler peyda olğanına baqmadan, olar kendi icadiy faaliyetlerini usanmadan devam ettireler.
-Ayder Aliyev Qırımnın yetekçi heykeltraşları sırasına kire.
-O, 1952 senesi Mari ASSRde doğdı (onın ana-babası Qırımdan anda sürgün etilgen edi), Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtum, sonra A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirip (1977), alâ derecede professional bilgiler aldı.
-1988 senesi SSSR Ressamlar birliğinin azası oldı.
-Daha Ozbekistanda ekende özüni her hangi materialnen — taş, ağaç, madennen çalışa bilgen usta olaraq kosterdi.
-Ozbekistanda yaşağan devirinde «Qonuşuv» (1984, tökme maden), «Bereket» (1984, alüminiy), «Analıq» (1985, mermer) kibi acayip eserler yarattı.
+Vatanğa qaytıp kelgen soñ öglerinde bayağı yüksek içtimaiy ve turmuş harakterindeki sedler peyda olğanına baqmadan, olar kendi icadiy faaliyetlerini usanmadan devam ettireler.
+Ayder Aliyev Qırımnıñ yetekçi heykeltraşları sırasına kire.
+O, 1952 senesi Mari ASSRde doğdı (onıñ ana-babası Qırımdan anda sürgün etilgen edi), Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtunı, soñra A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirip (1977), alâ derecede professional bilgiler aldı.
+1988 senesi SSSR Ressamlar birliginiñ azası oldı.
+Daha Ozbekistanda ekende özüni her hangi materialnen — taş, ağaç, madennen çalışa bilgen usta olaraq kösterdi.
+Özbekistanda yaşağan devirinde «Qonuşuv» (1984, tökme maden), «Bereket» (1984, alüminiy), «Analıq» (1985, mermer) kibi acayip eserler yarattı.
 A.Aliyev Qırımda 1992 senesinden berli yaşay.
-Öz icadında zamannın en hayatiy mevzularına — sevgi, aile, tuvğan topraq mevzularına toquna.
+Öz icadında zamannıñ eñ hayatiy mevzularına — sevgi, aile, tuvğan topraq mevzularına toquna.
 Aliyev bütünlikli, umumiyleştirilgen obrazlar yaratmağa seve.
 Onın «Tirilgen hatıra» (1993, dögme maden), «Ustanın qaytuvı» (1995, tunç), «Köçüv» («Aile» seriyası, 1995, tunç) kibi eserleri tuvğan medeniyetnin, qırımtatar Qırımınıñ canlanuvına bağışlanğandır.
 Bunınnen birlikte Aliyevnin diğer bir sıra eserlerini közden keçirir ekensin, muellifnin nazik duyğulı, ince hayaletli bir adam olğanını sezesin.
