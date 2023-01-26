@@ -899,48 +899,48 @@ Daha Ozbekistanda ekende özüni her hangi materialnen — taş, ağaç, madenne
 A.Aliyev Qırımda 1992 senesinden berli yaşay.
 Öz icadında zamannıñ eñ hayatiy mevzularına — sevgi, aile, tuvğan topraq mevzularına toquna.
 Aliyev bütünlikli, umumiyleştirilgen obrazlar yaratmağa seve.
-Onın «Tirilgen hatıra» (1993, dögme maden), «Ustanın qaytuvı» (1995, tunç), «Köçüv» («Aile» seriyası, 1995, tunç) kibi eserleri tuvğan medeniyetnin, qırımtatar Qırımınıñ canlanuvına bağışlanğandır.
-Bunınnen birlikte Aliyevnin diğer bir sıra eserlerini közden keçirir ekensin, muellifnin nazik duyğulı, ince hayaletli bir adam olğanını sezesin.
-Aliyevniñ qadın personajları hususan heyecanlılar ki, olarniñ cazibesi, plastikası ayrıca qayd oluna.
+Onıñ «Tirilgen hatıra» (1993, dögme maden), «Ustanıñ qaytuvı» (1995, tunç), «Köçüv» («Aile» seriyası, 1995, tunç) kibi eserleri tuvğan medeniyetniñ, qırımtatar Qırımınıñ canlanuvına bağışlanğandır.
+Bunıñnen birlikte Aliyevniñ diger bir sıra eserlerini közden keçirir ekensiñ, muellifniñ nazik duyğulı, ince hayaletli bir adam olğanını sezesiñ.
+Aliyevniñ qadın personajları hususan heyecanlılar ki, olarnıñ cazibesi, plastikası ayrıca qayd oluna.
 Olarnıñ tışqı hikâyesi yoqtır, amma içten ğayet teren manalı, ihtiraslı ve felsefiydirler.
 Fikirimizni «Ayneni» (1993, qaburçaq, qarışıq tehnika), «Uçup keteyatqan quşlar» (1996, tunç), «Süt ana» (1997, tunç), «Ada» (1996, tunç), «Dağlı tatar qadını» (1997, tunç), «Model» (1998, tunç), «Oturğan qadın» (1999, alüminiy), «Yatqan qadın» (1999, mermer), «Aile» (1999, Afrika taşı) kibi eserler isbatlay bileler.
-Qırımtatarlarnıñ meşhur erbaplarına bağışlap memorial abideler yaratuv -Aliyevnin icadındaki daha bir mühim cehettir.
-Onıñ abidelerini hiç bir qabartuvsız haqiqiy sanat numüneleri, dep aytmaq mümkün (İ.Gasprinskiynin, A.Özenbaşlının mezarlarındaki baştaşlar, 2000).
-Diniy qaidelerge tolusınen riayet etilgeni halda yapılğan bu mermer baştaşlar özüni halq an anelerinden ayırıp olamağan zemaneviy ustanın içki dünyasını aks ettireler.
-Ayder Aliyevnin monumental eserleri sırasında ulu maarifperverimiz İsmail Gasprinskiynin şerefine 1998 senesi Aqmescitte qoyulğan heykelni de anmalımız.
-Mermer taştan yapılğan bu abide Qırımnın medeniy ömürinde büyük bir vaqia oldı, halqmn öz oğulları haqqında hatırası silinmegenini kosterdi.
-Abide yerleştirilmezden evel leyha işleri boyunca konkurs ötkerilgen ve bu konkursta A.Aliyevnin teklif ettiği variant ğalip çıqqan edi.
-Şunı da qayd etmeli ki, Qırımda qırımtatar medeniyetiniñ canlanmasına bağışlanğan memorial inşaatlar quruv biz içün yanı bir iş olıp, o, tarihiy ve ahlâqiy cehetten ğayet büyük emiyetke malik ola.
-Deyik, ilk abidelerni (esasen hatıra nişanları) aveskâr ustalar öz aqçasına yapqanı ve böyle abidelerniñ değeri olmağanı halda i.Gasprinskiyniñ heykelini tiklev ğayesine cemaatçılıq büyük mesuliyetnen yanaştı.
-Bundan ğayrı, 1944 senesi sürgünliginin qurbanlarına bağışlanğan abidenin eh yahşi leyhası içün konkurs ilân etildi, onda sabıq SSSRnin çeşit ülkelerinde yaşağan ustalar iştirak ettiler.
+Qırımtatarlarnıñ meşhur erbaplarına bağışlap memorial abideler yaratuv -Aliyevniñ icadındaki daha bir mühim cehettir.
+Onıñ abidelerini hiç bir qabartuvsız haqiqiy sanat nümüneleri, dep aytmaq mümkün (İ.Gasprinskiyniñ, A.Özenbaşlınıñ mezarlarındaki baştaşlar, 2000).
+Diniy qaidelerge tolusınen riayet etilgeni halda yapılğan bu mermer baştaşlar özüni halq ananelerinden ayırıp olamağan zemaneviy ustanıñ içki dünyasını aks ettireler.
+Ayder Aliyevniñ monumental eserleri sırasında ulu maarifperverimiz İsmail Gasprinskiyniñ şerefine 1998 senesi Aqmescitte qoyulğan heykelni de añmalımız.
+Mermer taştan yapılğan bu abide Qırımnıñ medeniy ömründe büyük bir vaqia oldı, halqnıñ öz oğulları haqqında hatırası silinmegenini kösterdi.
+Abide yerleştirilmezden evel leyha işleri boyunca konkurs ötkerilgen ve bu konkursta A.Aliyevniñ teklif etkeni variant ğalip çıqqan edi.
+Şunı da qayd etmeli ki, Qırımda qırımtatar medeniyetiniñ canlanmasına bağışlanğan memorial inşaatlar quruv biz içün yañı bir iş olıp, o, tarihiy ve ahlâqiy cehetten ğayet büyük emiyetke malik ola.
+Deyik, ilk abidelerni (esasen hatıra nişanları) aveskâr ustalar öz aqçasına yapqanı ve böyle abidelerniñ degeri olmağanı halda İ.Gasprinskiyniñ heykelini tiklev ğayesine cemaatçılıq büyük mesüliyetnen yanaştı.
+Bundan ğayrı, 1944 senesi sürgünliginiñ qurbanlarına bağışlanğan abideniñ eñ yahşı leyhası içün konkurs ilân etildi, onda sabıq SSSRnin çeşit ülkelerinde yaşağan ustalar iştirak ettiler.
 Konkursqa hepisi olıp 26 leyha taqdim etildi ki, olar Qırımnıñ özünden, Moskvadan, Ukraina, Qazahistandan kelip tüştiler.
 Qırımtatar ustalarından konkursta İsmet Şeyh-zade iştirak etti.
-Onın leyhası dürbe modelinden ibaret olıp, Zincirli medreseniñ binasını andıra edi, çünki kompozitsiyada merkeziy qubbe planından ğayrı, Zincirli medresedeki kibi, zincir da işletilip, o bu yerde temsiliy bir mana taşıy edi.
-Leyhanıñ müellifi qayd etkeni kibi, «Halq — bir sarqaç kibidir, om qayda sürmesinler, o, hepisi bir, özünin asıl yerine qaytıp tura.
+Onıñ leyhası dürbe modelinden ibaret olıp, Zıncırlı medreseniñ binasını añdıra edi, çünki kompozitsiyada merkeziy qubbe planından ğayrı, Zıncırlı medresedeki kibi, zıncır da işletilip, o bu yerde temsiliy bir mana taşıy edi.
+Leyhanıñ müellifi qayd etkeni kibi, «Halq — bir sarqaç kibidir, onı qayda sürmesinler, o, hepisi bir, özüniñ asıl yerine qaytıp tura.
 Hem uzaqlaşuvı ne qadar çoq olsa, tuvğan yemin çeküvi de şu qadar büyük ola» (205.280-nci sahife).
-Qırımtatar halqınıñ tarihiy taliyine bağışlanıp, Yaltada qoyulması qararlaştırılğan abidenin leyhasını, işte, İ.Şeyh-zade ve N.Yaqubov işlediler.
+Qırımtatar halqınıñ tarihiy taliyine bağışlanıp, Yaltada qoyulması qararlaştırılğan abideniñ leyhasını, işte, İ.Şeyh-zade ve N.Yaqubov işlediler.
 İlmiy Ametov monumental heykelcilik sahasında çalışa.
-O, 1947 senesi Özbekistanıñ Kattaqurğan şeherinde doğdı, 1974 senesi Bakudaki ressamla oquv yurtum bitirdi.
-90-ncı senelerde Krasnodar ülkesinden Qırımğa köçüp keldi.
-I. Ametovnıñ faaliyeti, eh evelâ, ahlâq-etika cehetinden diqqatqa lâyıqtır.
-Usta öz öğüne «musülman mezarlıglarını münasip halğa ketirmek» maqsadını qoydı.
+O, 1947 senesi Özbekistanıñ Kattaqurğan şeherinde doğdı, 1974 senesi Bakudaki ressamlar oquv yurtunı bitirdi.
+90-ncı senelerde Krasnodar ülkesinden Qırımğa köçip keldi.
+I. Ametovnıñ faaliyeti, eñ evelâ, ahlâq-etika cehetinden diqqatqa lâyıqtır.
+Usta öz ögüne «musulman mezarlıqlarını munasip halğa ketirmek» maqsadını qoydı.
 O, Qırım boylap pek çoq seferler yapa, unutılğan mezarlıqlarnı araştırıp tapa.
-Ana-babasınıñ tuvğan koyu Taraqtaşta harabege çevirilgen mezarlıqtaki ölülernin qalımtılarını yanıdan kömüp, bu yerde öz parası hesabına «Yaralı taş» (1994) adlı hatıra nişanı qoydı.
+Ana-babasınıñ tuvğan koyu Taraqtaşta harabege çevirilgen mezarlıqtaki ölülerniñ qalımtılarını yanıdan kömip, bu yerde öz parası hesabına «Yaralı taş» (1994) adlı hatıra nişanı qoydı.
 I. Ametov böyle nişanlarnı Qırımnıñ endi bir qaç rayonında yerleştirdi.
-Ametovnıñ abideleri janrnın bütün qaidelerine riayet etilgeni halda yapılğanlar.
+Ametovnıñ abideleri janrnıñ bütün qaidelerine riayet etilgeni halda yapılğanlar.
 Bular — alçaq negiz üstüne qoyulğan tikme taşlar olıp, olar tabiiy ve mimarcılıq muhitine ğayet uyğun tarzda kirsetileler.
 Abideler kendi sert geometrik şekilleri boyunca monumentaller, taş tüsünin özü (işlengen ve işlenmegen mermer) olarğa ayrıca ifade bağışlay.
-İnşaatlarnın manzaralı bezetilüvi pek sade, tek kimerde bir taşnın yekpareligini nasıldır şarqiy örnek ya da temsiliy belgi (tamğa) boza.
+İnşaatlarnıñ manzaralı bezetilüvi pek sade, tek kimerde bir taşnıñ yekpareligini nasıldır şarqiy örnek ya da temsiliy belgi (tamğa) boza.
 İ.Ametov qırımtatar cemaat erbabı Seit oğlu Seydametke (1998) ve general Pyotr Grigorenkoğa (1999) bağışlap heykeller yarattı.
-Vladıka Klimentnin ricasını yerine ketirip, Ukrain avtokefal kilsesi içün taştan haç yasadı (1999).
+Vladıka Klimentniñ ricasını yerine ketirip, Ukrain avtokefal kilsesi içün taştan haç yasadı (1999).
 Bugünde-bugün usta Sudaqta «Qadimiy türk eykelciligi müzeyi» üzerinde çalışa.
-Bu muzey açıq avada yerleşecek, onda qadimiy türk mabudeleri, taşnı işlev sanatının numüneleri, qısqası, zemaneviy qırımtatar sanatına ğıda bergen qadimiy medeniyetniñ şaatları nümayiş etilecekler.
+Bu muzey açıq avada yerleşecek, onda qadimiy türk mabudeleri, taşnı işlev sanatınıñ numüneleri, qısqası, zemaneviy qırımtatar sanatına ğıda bergen qadimiy medeniyetniñ şaatları numayış etilecekler.
 Heykeltraş Şevket Ahtemov (1937 senesi doğdı) şimdi Taşkent şeherinde yaşay.
 O ta bala ekende ağaç üstünde oyuvnen meraqlandı, Toqumacılar medeniyet sarayındaki tasviriy sanat tögeregine qatnadı.
-Ağaçm qayta işlev zavodınıh mebel tsehinde çalışışır eken, professional heykeltraş olmaq qararına kelip, 1970 senesi A.N. Ostrovskiy adına teatr-ressamlıq oquv yurtunın heykelcilik bölügine oqumağa kirdi (1970-1975).
+Ağaç qayta işlev zavodınıñ mebel tsehinde çalışışır eken, professional heykeltraş olmaq qararına kelip, 1970 senesi A.N. Ostrovskiy adına teatr-ressamlıq oquv yurtunıñ heykelcilik bölügine oqumağa kirdi (1970-1975).
 Ahtemov esasen skulptura portretleri yarata.
-Onın kompozitsiyalarını eki yöneliş teşkil ete.
-Birinci yönelişke kirgen soyları — kamer lirik eserlerdir («Ana ve onın balaları», 1979, mermer; «Zarema» adlı qızınıh portreti, 1985, mermer) diğer yönelişke ise medeniyet ve ilimnin körümü erbaplarına bağışlanğan eserler kireler (Oıbray qasabasında N.i.Vavilovnıñ barelyefi, 1978; «İsmail Gasprinskiynin portreti», 1989, mermer; Aqmescit şeheri içün İ.Gasprinskiy abidesinin leyhası, 1991).
+Onıñ kompozitsiyalarını eki yöneliş teşkil ete.
+Birinci yönelişke kirgen soyları — kamer lirik eserlerdir («Ana ve onıñ balaları», 1979, mermer; «Zarema» adlı qızınıñ portreti, 1985, mermer) diпer yönelişke ise medeniyet ve ilimniñ körüli erbaplarına bağışlanğan eserler kireler (Qıbray qasabasında N.İ.Vavilovnıñ barelyefi, 1978; «İsmail Gasprinskiyniñ portreti», 1989, mermer; Aqmescit şeheri içün İ.Gasprinskiy abidesiniñ leyhası, 1991).
 Ş. Ahtemov — bir çoq cumhuriyet ve bütünittifaq sergilerinin iştirakçisidir.
 Ressam, Ukraina Ressamlıq akademiyasınıñ mezunı Ali Belâlovnın icadında apansızdan bir burulış yüz berdi.
 2001 senesi sentâbr 12 künü qadimiy Qarasuvbazar şeherinde qırımtatarlarnıñ klassik şairi, cihanda tanılğan türkşınas alim Bekir Çoban-zadenin mermer abidesi açıldı.
