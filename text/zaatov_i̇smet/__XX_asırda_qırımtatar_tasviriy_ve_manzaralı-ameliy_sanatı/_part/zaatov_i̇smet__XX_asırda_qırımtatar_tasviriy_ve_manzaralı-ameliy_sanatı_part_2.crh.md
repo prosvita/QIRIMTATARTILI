@@ -848,29 +848,28 @@ Elmira Seit-Ametova kibi yaş, lâkin özlerini endi tanıta bilgen ressamlar �
 2000 senesi olıp keçken Qırım akvarel biyennalesinde C.Alibekov «Çufut-Qale» (1999), «Alupka.Eski soqaq» (2000) adlı akvarel resimlerinden ibaret türküm içün «Debüt» degen nufuzlı mükâfat qazandı.
 Ridvan Baliç 1980 senesi Tacikistannıñ Leninabad (şimdiki Hocent) şeherinde doğdı.
  2001 senesi N.Samokiş adına ressamlıq oquv yurtu mezunlarınıñ eserlerinden teşkil olunğan sergiden soñ tanıldı.
-O sergide Ridvannm «Bogdan Hmelnitskiy Qırım hanı İslâm Geray saniy III uzurında» adlı diplom işi nümayiş etilip, serginin baş mükâfatını qazanğan edi.
+O sergide Ridvannıñ «Bogdan Hmelnitskiy Qırım hanı İslâm Geray saniy III uzurında» adlı diplom işi nümayiş etilip, serginiñ baş mükâfatını qazanğan edi.
 Bundan son Ridvan Ukraina Ressamlar ve mimarlar Milliy akademiyasına yollanma alıp, şu akademiyanıñ talebesi oldı.
 R. Baliçniñ «Qırım yalısı» (2001) adlı peyzajı ve «Şarq natürmortı» (1998) ğayet cazibeliler.
-Yuqarıda adları anılğan ustalar Qırımda yaşay ve çalışalar,Lâkin Qırımdan tışta da bir çoq semetdeşlerimiz bardır ki, olar özlerini qırımtatar ressamlarınıñ cümlesine qoşalar.
+Yuqarıda adları añılğan ustalar Qırımda yaşay ve çalışalar,Lâkin Qırımdan tışta da bir çoq semetdeşlerimiz bardır ki, olar özlerini qırımtatar ressamlarınıñ cümlesine qoşalar.
 İnessa Cetere dizayn ve kompyüter grafikasınen oğraşa.
-Sonki yıllar devamında o, Taşkentte qadın-qızlar içün çıqarılğan «Saida» mecmuasında çalışa.
-A.N. Ostrovskiy adına Taşkent teatr-ressamlıq institutının mezum Zaur İbragimov (1937 senesi doğdı) 1969 senesinden berli Biysk şeherinde (Rusiye) yaşay ve şimdi Biysk devlet pedagogika institutınıñ ressamlıq fakultetinde ocalıq yapa.
-O bir çoq cumhuriyet, bütünittifaq ve halqara sergilerinin iştirakçisi, 1980 senesinden SSSR Ressamlar birliğiniñ azasıdır.
-Onıñ «metstso-tinto» tehnikası esasında qarandaş, kömür ve akvarel boyalarnen yapqan grafika resimleri Altaynm qadimiy medeniyetine bağışlanğandır («Katun özeni», 1985; «Rerih Altayda» türkümine kirgen «Taş mabude», 1989; «Cin qasrları», 1992; «Uspeniye kilsesi», 1990).
-1990-ncı senelernin ortalarında yaratqan «Balalıq hatıraları» türkümi Zaur Ibragimovnıii icadında ayırıca yer tutıp, onda qırımtatar halqı içün facialı olğan 30-40-ncı senelernin bütün qarsanbaları aks olunğanlar.
-Ressamnıñ «Babamnen vedalaşuv» (1996), «Sürgünlik» (1996), «Mobilizatsiya» (1996), «Mahsus köçürilgenler» (1996) kibi resimleri — «o deşetli devimin özüne has yılnamesidir» (88.25-nci sahife).
+Soñki yıllar devamında o, Taşkentte qadın-qızlar içün çıqarılğan «Saida» mecmuasında çalışa.
+A.N. Ostrovskiy adına Taşkent teatr-ressamlıq institutınıñ mezunı Zaur İbragimov (1937 senesi doğdı) 1969 senesinden berli Biysk şeherinde (Rusiye) yaşay ve şimdi Biysk devlet pedagogika institutınıñ ressamlıq fakultetinde ocalıq yapa.
+O bir çoq cumhuriyet, bütünittifaq ve halqara sergileriniñ iştirakçisi, 1980 senesinden SSSR Ressamlar birliginiñ azasıdır.
+Onıñ «metstso-tinto» tehnikası esasında qarandaş, kömür ve akvarel boyalarnen yapqan grafika resimleri Altaynıñ qadimiy medeniyetine bağışlanğandır («Katun özeni», 1985; «Rerih Altayda» türkümine kirgen «Taş mabude», 1989; «Cin qasrları», 1992; «Uspeniye kilsesi», 1990).
+1990-ncı senelerniñ ortalarında yaratqan «Balalıq hatıraları» türkümi Zaur Ibragimovnıñ icadında ayrıca yer tutıp, onda qırımtatar halqı içün facialı olğan 30-40-ncı senelernin bütün qarsanbaları aks olunğanlar.
+Ressamnıñ «Babamnen vedalaşuv» (1996), «Sürgünlik» (1996), «Mobilizatsiya» (1996), «Mahsus köçürilgenler» (1996) kibi resimleri — «o deşetli devirniñ özüne has yılnamesidir» (88.25-nci sahife).
 Ayder Beşirov 1954 senesi Marğılan şeherinde (Özbekistan) doğdı.
- 1973 senesi P.Benkov adına Taşkent ressamlıq oquv yurtum.
+ 1973 senesi P.Benkov adına Taşkent ressamlıq oquv yurtunı bitirdi.
  1982 senesi ise Bütünittifaq kinematografiya institutınıñ kino, teatr ve televideniye ressamlığı fakultetini bitirdi.
-A. Beşirovnın icadındaki esas mevzunı Moskva soqaqlarının urbanistik nefaseti teşkil ete («Moskva soqaçığı», «Kommunalkada»).
-Ressamnıñ qarandaşnen, çin merekebi, qalemnen icra olunğan grafika tabaqları defalarca.
- Cumhuriyet ve bütünittifaq sergilerinde nümayiş etildiler.
+A. Beşirovnıñ icadındaki esas mevzunı Moskva soqaqlarınıñ urbanistik nefaseti teşkil ete («Moskva soqaçığı», «Kommunalkada»).
+Ressamnıñ qarandaşnen, çin merekebi, qalemnen icra olunğan grafika tabaqları defalarca Cumhuriyet ve bütünittifaq sergilerinde nümayiş etildiler.
 Beşirov şimdi Moskva şeherinde yaşay ve çalışa.
-Matbaa grafikasınen oğraşqan Rustem Abdurahmanov (1961) Ukrainanın Melitopol şeherinde yaşay.
+Matbaa grafikasınen oğraşqan Rustem Abdurahmanov (1961) Ukrainanıñ Melitopol şeherinde yaşay.
 O, öz vaqtında Lvov matbaacılıq institutınıñ grafika bölügini bitirgen edi.
 Rustem Melitopolde ve Aqmescitte ötkerilgen bir sıra sergilerde faal iştirak etti.
-Onıñ eñ yahşi eserleri cümlesinde Andrey Belıynıñ şiirleri esasında yaratılğan «Şimal simfoniyası» (1993) adlı grafik seriyasını, «Dafnis ve Hloya» (1991) türkümini, Bora Gazı Geraynın şiirleri mevzusında yapılğan «Dolap» (1997) türkümini ahmaq zarur.
-Grafik Dilâver Seitaptiyev 1971 senesi Özbekistannıñ Gülistan şeherinde doğdı, P.Benkov adına cumhuriyet ressamlıq oquv yurtum bitirdi, halazırda Harkovdaki bediiy-sanayı institutınıñ tezya grafikası bölüginde oquy.
+Onıñ eñ yahşı eserleri cümlesinde Andrey Belıynıñ şiirleri esasında yaratılğan «Şimal simfoniyası» (1993) adlı grafik seriyasını, «Dafnis ve Hloya» (1991) türkümini, Bora Gazı Geraynıñ şiirleri mevzusında yapılğan «Dolap» (1997) türkümini añmaq zarur.
+Grafik Dilâver Seitaptiyev 1971 senesi Özbekistannıñ Gülistan şeherinde doğdı, P.Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirdi, hal-azırda Harkovdaki bediiy-sanayı institutınıñ tezya grafikası bölüginde oquy.
 Onıñ ressamlıq stajı pek büyük olmasa da, o bir çoq cumhuriyet sergilerinde iştirak etti.
 D. Seitaptiyevniñ esas eserleri sırasına «Sevişkenler» (1991), «Toy» (1991), «Eki içkici» (1993), «Nazlılıq» (1995), «1-nci sanlı manzaralı kompozitsiya» (1995), «2-nci sanlı manzaralı kompozitsiya» kibi akvarel resimleri, «Metamorfoz» (1996) adında manzaralı grafik tabaqlar türkümi kireler.(88.43-44-nci sahifeler).
 
