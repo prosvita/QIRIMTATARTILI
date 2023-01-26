@@ -798,56 +798,56 @@ işte, o vaqıttan berli Sankt-Peterburgda yaşay ve çalışa.
 L. Trasinovanıñ esas eserleri cümlesine «44 senesi» türkümi (1990), dört grafik tabaqtan ibaret «Şeher ve quşlar» türkümi (1990), «Avtoportret» (1990), «Mavı urba kiygen men ve patlaqçanaqlar»» avtoportreti, «Şeherli portreti», «Oırımtatarlarnıñ tipleri» adlı grafika tabaqları türkümi (1991), «Men qafesteki bir quşım» türkümi (1991), «Bu nasıl olğan edi (SSSRde milliy repressiyalar.1919-1952 seneleri)» kitabınıñ Zarema Trasinovanen birlikte yapılğan maketi kireler.
 Anasınıñ etnografik cehetten tam, realistik grafikasından farqlı olaraq, Leylânıñ grafika eserlerinde uydurma ve ruyalar tekmil qarışıp ketkenler.
 Bir baqıştan tonuq, veciz olıp körüngen resimler asılında hareketli, mundericeliler ve olar müellifniñ tesirçen, ihtiraslı şahs olğanını köstereler.
-%Keçmiş tarihiy mevzular, qırimtatar halqınıñ öz Vatanına qaytuvınen bağlı problemalar aynı zamanda em grafiklerni, em de boyalı resimnen oğraşqan ressamlarnı da bir çeşit raatsızlaylar.
+%Keçmiş tarihiy mevzular, qırımtatar halqınıñ öz Vatanına qaytuvınen bağlı problemalar aynı zamanda em grafiklerni, em de boyalı resimnen oğraşqan ressamlarnı da bir çeşit raatsızlaylar.
 Yaya Temirqayayev 1935 senesi Qırımda doğdı, 1944 senesi bütün halqnen beraber sürgün olundı.
-1966 senesi P.Benkov adına Taşkent ressamla oquv yurtunı.
+1966 senesi P.Benkov adına Taşkent ressamlar oquv yurtunı bitirdi.
  1972 senesi ise A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi.
-1979 senesi SSSR Ressamlar birliğine qabul olunğan sofi
-Ressamnı hususan 70-80nci senelerde mot olğan plakat janrı tanıttı («Sionizm — bugünnin faşizmidir», «Diqqat!Atılmasın!», «Livandan elinizni çekiniz!»).
-Ya.Temirqayayevnin siyasiy hem de reklam plakatları bütünittifaq ve halqara sergilerde defalarca nümayiş etildiler (Moskva, 1982-1983).
-Temirqayayev icadının mühim bir qısımını Qırım mevzusına bağışlanğan resimler teşkil eteler, Söz kelimi, ressam özü içün aziz olğan bu mevzum hem grafika janrında, hem ressamlıq janrında aydınlata.
-Sürgünliknin ne ekenini ta balalıq çağında bilgen Temirqayayev aqılında qalğan, şahsen özü şaat olğan vaqialamı tantiminen tasvirley.
+1979 senesi SSSR Ressamlar birligine qabul olunğan soñ Özbekistan grafikleri arasında yetekçilerden birisi edi.
+Ressamnı hususan 70-80nci senelerde mot olğan plakat janrı tanıttı («Sionizm — bugünniñ faşizmidir», «Diqqat!Atılmasın!», «Livandan eliñizni çekiñiz!»).
+Ya.Temirqayayevniñ siyasiy hem de reklama plakatları bütünittifaq ve halqara sergilerde defalarca numayış etildiler (Moskva, 1982-1983).
+Temirqayayev icadınıñ mühim bir qısmını Qırım mevzusına bağışlanğan resimler teşkil eteler, Söz kelimi, ressam özü içün aziz olğan bu mevzunı hem grafika janrında, hem ressamlıq janrında aydınlata.
+Sürgünlikniñ ne ekenini ta balalıq çağında bilgen Temirqayayev aqlında qalğan, şahsen özü şaat olğan vaqialarnı tantiminen tasvirley.
 Ressam mühim tafsilâtlarnı qaçıracağından saqınıp, olarnı birer-birer qayd ete.
-İşte, onın eserlerinin tafsilâtlı, taarifleyici mizacı da şundan kelip çıqalar.
-Qırım tabiatı, Qırım tarihi, Qırımda yaşağan adamlar haqqında «Ay-Petri» (1990), «Qarılğaç yüvası» (1990), «Mayıs 18 sabası» (1991), «Yoldaki ölüm» (1993), «Bir avuç tuvğan topraq» (1994) kibi resimler, medeniyet erbapları içün ekslibrisler seriyası hikâye eteler.
-Umumen, onın kotergen mevzularının özü ressamının icadına diqqat etmek içün esas ola bileler.
+İşte, onıñ eserleriniñ tafsilâtlı, taarifleyici mizacı da şundan kelip çıqalar.
+Qırım tabiatı, Qırım tarihi, Qırımda yaşağan adamlar haqqında «Ay-Petri» (1990), «Qarılğaç yuvası» (1990), «Mayıs 18 sabası» (1991), «Yoldaki ölüm» (1993), «Bir avuç tuvğan topraq» (1994) kibi resimler, medeniyet erbapları içün ekslibrisler seriyası hikâye eteler.
+Umumen, onıñ kötergen mevzularınıñ özü ressamınıñ icadına diqqat etmek içün esas ola bileler.
 Amet Seit-Ametov 1935 senesi Yaltada doğdı.
 Bütün semetdeşleri kibi, Qırımdan sürgün olundı.
-Bediiy tahsilni Özbekistanda aldı, anda 1964 senesi P.Benkov adına cumhuriyet ressamlıq oquv yurtum ve 1972 senesi A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi.
+Bediiy tahsilni Özbekistanda aldı, anda 1964 senesi P.Benkov adına cumhuriyet ressamlıq oquv yurtunı ve 1972 senesi A.N. Ostrovskiy adına teatr-ressamlıq institutını bitirdi.
 Seit-Ametov dizayncı sıfatında mevzuiy ve yübiley sergilerini bezetti, plakatçı sıfatında cumhuriyet ve halqara sergilerde iştirak etti (AQŞ, Şvetsiya, Rusiye, Özbekistan).
-80-nci senelernin sonlarında Oırımğa köçüp kelgen sofi tezya grafikası sahasında pek çoq çalışaraq, esasen akvarel resimleri yapa.
-Ressam sıq-sıq seferlerge çıqa, tuvğan topraqnıh özü içün hep yahı-yam köşelerini aça.
-Ruhiyet cehetinden çeşit-çeşit olğan akvarelleri (kamer, epik, monumental resimler) — Qırımnıh büyük sevgi ile tasvirlengen manzaralarıdır («Çufut-Oale», «Ceneviz qalesi», «Ayvasıl», 90-ncı seneler).
-A. Seit-Ametovmh saf, aydın natürmortları da çevredeki ömürge sevgi ile aşlanğanlar.
-Ya.Temirqayayev, A.Seit-Ametovnm nesiline Remzi Aliyev ve Şevket Dervişev kibi ressamlar da mensüpler.
-Remzi Aliyev (1939 senesi doğdı) — P.Benkov adına cumhuriyet ressamla oquv yurtunın ve A.N. Ostrovskiy adına devlet teatr-ressamlıq institutının mezunıdır (1966-1970).
-Hal-azırda o, Aqmescit rayonının Mazanka köyünde yaşay ve çalışa.
-R. Aliyev eh evelâ plakatçı sıfatında bellidir.
-Onın eserleri qırımtatarlarğa — II Cihan cenkinin qaramanlarına, qırımtatar medeniyetinin erbaplarına bağışlanğan olıp, böyle eserlerden onın «Amethan Sultan» (1989), «Alime Abdennanova» (1990) kibi plakatlarını anmaq kerek.
+80-nci senelerniñ soñlarında Oırımğa köçip kelgen soñ tezya grafikası sahasında pek çoq çalışaraq, esasen akvarel resimleri yapa.
+Ressam sıq-sıq seferlerge çıqa, tuvğan topraqnıñ özü içün hep yañı-yañı köşelerini aça.
+Ruhiyet cehetinden çeşit-çeşit olğan akvarelleri (kamer, epik, monumental resimler) — Qırımnı büyük sevgi ile tasvirlengen manzaralarıdır («Çufut-Qale», «Ceneviz qalesi», «Ayvasıl», 90-ncı seneler).
+A. Seit-Ametovnıñ saf, aydın natürmortları da çevredeki ömürge sevgi ile aşlanğanlar.
+Ya.Temirqayayev, A.Seit-Ametovnıñ nesline Remzi Aliyev ve Şevket Dervişev kibi ressamlar da mensüpler.
+Remzi Aliyev (1939 senesi doğdı) — P.Benkov adına cumhuriyet ressamlar oquv yurtunıñ ve A.N. Ostrovskiy adına devlet teatr-ressamlıq institutınıñ mezunıdır (1966-1970).
+Hal-azırda o, Aqmescit rayonınıñ Mazanka köyünde yaşay ve çalışa.
+R. Aliyev eñ evelâ plakatçı sıfatında bellidir.
+Onıñ eserleri qırımtatarlarğa — II Cihan cenkiniñ qaramanlarına, qırımtatar medeniyetiniñ erbaplarına bağışlanğan olıp, böyle eserlerden onıñ «Amethan Sultan» (1989), «Alime Abdennanova» (1990) kibi plakatlarını añmaq kerek.
 Grafik ressam Şevket Dervişev (1935-2000) de tahsilni P.Benkov adına cumhuriyet ressamlıq oquv yurtunda aldı (1955-1960).
-1990 senesi Cankoy rayonının Zareçnoye koyune köçüp keldi ve anda pedagogik hem de icadiy faaliyetnen oğraşıp başladı, cumhuriyet sergilerinde iştirak etti.
-1980-nci senelerde grafikanen faal meşğül olğan Ş.Dervişev (1980 senesi Moskvada ötkerilgen Olimpiya oyunları içün plakat, 1980; Olimpiadanın embleması, 1980) 1990-ncı senelerde esasen akvarelnen oğraştı («Oara haber», 1984; «Uçucılar ölmeyler» (Amethan Sultanğa bağışlana), 1995; «Dostumnıh portreti», 1996).
-A. Seit-Ametovnın balaları — Abdül ve Elmira da baba izinden kettiler.
+1990 senesi Canköy rayonınıñ Zareçnoye koyune köçip keldi ve anda pedagogik hem de icadiy faaliyetnen oğraşıp başladı, cumhuriyet sergilerinde iştirak etti.
+1980-nci senelerde grafikanen faal meşğul olğan Ş.Dervişev (1980 senesi Moskvada ötkerilgen Olimpiya oyunları içün plakat, 1980; Olimpiadanıñ embleması, 1980) 1990-ncı senelerde esasen akvarelnen oğraştı («Qara haber», 1984; «Uçucılar ölmeyler» (Amethan Sultanğa bağışlana), 1995; «Dostumnıñ portreti», 1996).
+A. Seit-Ametovnıñ balaları — Abdül ve Elmira da baba izinden kettiler.
 Abdül Seit-Ametovnı zemaneviy qırımtatar sanatında hiç de körülmegen kalligrafik abstraktsionizm yönelişi celp etti.
 Dizayncı ve grafik A.SeitAmetov P.Benkov adına cumhuriyet ressamlıq oquv yurtunda tahsil alğan son Harkov bediiy-sanayı institutını bitirdi (1994).
 Hattatlıq sanatını Abdül mustaqil menimsedi.
-Qırımtatarlarnın an'aneviy sanatını öğrenir eken, bu esnada hattatlıq yetekçi yer tutqanını anladı.
+Qırımtatarlarnın ananeviy sanatını ögrenir eken, bu esnada hattatlıq yetekçi yer tutqanını añladı.
 Böylece, yaş grafik hattatlıq sanatını canlandırmağa tutundı.
-O kendi eserlerinde arap hariflerinih örmelerini klassik qırımtatar örneklerinen biriktirerek, tekrarlanmaz kompozitsiyalar yarata ki, olar seyircini tek öz dülberligi ve manzaralılığınen meftün etip qalmadan, halqnın tarihi, an'aneleri haqqında tüşüncelerge dalmağa da mecbur eteler.
+O kendi eserlerinde arap harifleriniñ örmelerini klassik qırımtatar örneklerinen biriktirerek, tekrarlanmaz kompozitsiyalar yarata ki, olar seyircini tek öz dülberligi ve manzaralılığınen meftün etip qalmadan, halqnıñ tarihı, ananeleri haqqında tüşüncelerge dalmağa da mecbur eteler.
 Böyleleri sırasında «Kalligrafik abstraktsiya: «A harifi sahrada» (1994), «Kalligrafik abstraktsiya (adsız)» (1994), dört tabaqtan ibaret ornamental kompozitsiyalar türkümi (1995), arap harifleri mevzusında eki tabaqtan ibaret abstrakt kompozitsiyalar (1996), «Quran sureleri» adlı kalligrafik kompozitsiyalar (1997), «Allahınıñ 99 adından birisi» (1997) kireler.
-Seit-Ametov özünin grafika kompozitsiyalarını çin merekebi, guaşnen icra eterek, aynı vaqıtta suvlama ve süslemelerden faydalana.
+Seit-Ametov özüniñ grafika kompozitsiyalarını çin merekebi, guaşnen icra eterek, aynı vaqıtta suvlama ve süslemelerden faydalana.
 Abdül grafikadan ğayrı, ananeviy qırımtatar çölmekçiligini de ögrene ve özü de çamurdan şeyler yasay.
 Lâkin bu aqta laqırdı «Manzaralı-ameliy sanat» bölüginde olacaq.
 Elmira Seit-Ametova 1973 senesi Taşkentte doğdı.
- şimdi Oırımda yaşay.
+ şimdi Qırımda yaşay.
 O, Taşkentteki P.Benkov adına cumhuriyet ressamlıq oquv yurtunı bitirdi.
  Hal-azırda kitap grafikası sahasında çalışa.
  Esasen bala kitapları ve derslikler içün resimler yapa (E.Selâmet.«Altın balta haqqında masal» (1993); C.Kence.«Bala şiirleri» (1995); «Tuvğan edebiyat» (1998); S.Harahadı.«Elifbe» (2000).
-E. Seit-Ametovanıñ grafika eserleri Kiyevde, Aqmescitte ötkerilgen sergilerde nümayiş etildiler (1993, 1996, 1997).
-Elmira Seit-Ametova kibi yaş, lâkin özlerini endi tanıta bilgen ressamlar — Aqmescitteki N.S. Samokiş adına ressamlıq oquv yurtunıri mezunları Cemal Alibekov (1979 senesi doğdı) ve Ridvan Baliç sanattaki kendi icadiy yollarını daha araştıracaqlar.
-2000 senesi olıp keçken Qırım akvarel biyennalesinde C.Alibekov «Çufut-Qale» (1999), «Alupka.Eski soqaq» (2000) adlı akvarel resimlerinden ibaret türküm içün «Debüt» değen nufuzlı mükâfat qazandı.
+E. Seit-Ametovanıñ grafika eserleri Kiyevde, Aqmescitte ötkerilgen sergilerde numayış etildiler (1993, 1996, 1997).
+Elmira Seit-Ametova kibi yaş, lâkin özlerini endi tanıta bilgen ressamlar — Aqmescitteki N.S. Samokiş adına ressamlıq oquv yurtunıñ mezunları Cemal Alibekov (1979 senesi doğdı) ve Ridvan Baliç sanattaki kendi icadiy yollarını daha araştıracaqlar.
+2000 senesi olıp keçken Qırım akvarel biyennalesinde C.Alibekov «Çufut-Qale» (1999), «Alupka.Eski soqaq» (2000) adlı akvarel resimlerinden ibaret türküm içün «Debüt» degen nufuzlı mükâfat qazandı.
 Ridvan Baliç 1980 senesi Tacikistannıñ Leninabad (şimdiki Hocent) şeherinde doğdı.
- 2001 senesi N.Samokiş adına ressamlıq oquvyurtu mezunlarınıñ eserlerinden teşkil olunğan sergiden son tanıldı.
+ 2001 senesi N.Samokiş adına ressamlıq oquv yurtu mezunlarınıñ eserlerinden teşkil olunğan sergiden soñ tanıldı.
 O sergide Ridvannm «Bogdan Hmelnitskiy Qırım hanı İslâm Geray saniy III uzurında» adlı diplom işi nümayiş etilip, serginin baş mükâfatını qazanğan edi.
 Bundan son Ridvan Ukraina Ressamlar ve mimarlar Milliy akademiyasına yollanma alıp, şu akademiyanıñ talebesi oldı.
 R. Baliçniñ «Qırım yalısı» (2001) adlı peyzajı ve «Şarq natürmortı» (1998) ğayet cazibeliler.
