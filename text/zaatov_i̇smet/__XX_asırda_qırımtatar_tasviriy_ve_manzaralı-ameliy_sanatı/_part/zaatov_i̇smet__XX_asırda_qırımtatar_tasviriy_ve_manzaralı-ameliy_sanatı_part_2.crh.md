@@ -941,52 +941,52 @@ Ağaç qayta işlev zavodınıñ mebel tsehinde çalışışır eken, profession
 Ahtemov esasen skulptura portretleri yarata.
 Onıñ kompozitsiyalarını eki yöneliş teşkil ete.
 Birinci yönelişke kirgen soyları — kamer lirik eserlerdir («Ana ve onıñ balaları», 1979, mermer; «Zarema» adlı qızınıñ portreti, 1985, mermer) diпer yönelişke ise medeniyet ve ilimniñ körüli erbaplarına bağışlanğan eserler kireler (Qıbray qasabasında N.İ.Vavilovnıñ barelyefi, 1978; «İsmail Gasprinskiyniñ portreti», 1989, mermer; Aqmescit şeheri içün İ.Gasprinskiy abidesiniñ leyhası, 1991).
-Ş. Ahtemov — bir çoq cumhuriyet ve bütünittifaq sergilerinin iştirakçisidir.
-Ressam, Ukraina Ressamlıq akademiyasınıñ mezunı Ali Belâlovnın icadında apansızdan bir burulış yüz berdi.
-2001 senesi sentâbr 12 künü qadimiy Qarasuvbazar şeherinde qırımtatarlarnıñ klassik şairi, cihanda tanılğan türkşınas alim Bekir Çoban-zadenin mermer abidesi açıldı.
-Bu abidenin müellifi, işte, A.Belâlov edi, mezkûr abideni endi monumental heykeltraş adını da qazanğan Ali Belâlovnıñ ğayet muvafaqiyetli eseri, dep bilmek mümkün.
-Taşkentteki P.Benkov adına ressamlıq oquv yurtunın, sonra ise A.Ostrovskiy adına teatr-ressamlıq institutının mezunı olğan Enver Zaydullayev (1947) realistik portret janrında çalıştı.
-Heykeltraşnın icadındaki toqtaluvnı onın daha yaqında Qırımğa köçmesinen anlatmaq mümkün.
+Ş. Ahtemov — bir çoq cumhuriyet ve bütünittifaq sergileriniñ iştirakçisidir.
+Ressam, Ukraina Ressamlıq akademiyasınıñ mezunı Ali Belâlovnıñ icadında apansızdan bir burulış yüz berdi.
+2001 senesi sentâbr 12 künü qadimiy Qarasuvbazar şeherinde qırımtatarlarnıñ klassik şairi, cihanda tanılğan türkşınas alim Bekir Çoban-zadeniñ mermer abidesi açıldı.
+Bu abideniñ müellifi, işte, A.Belâlov edi, mezkûr abideni endi monumental heykeltraş adını da qazanğan Ali Belâlovnıñ ğayet muvafaqiyetli eseri, dep bilmek mümkün.
+Taşkentteki P.Benkov adına ressamlıq oquv yurtunıñ, soñra ise A.Ostrovskiy adına teatr-ressamlıq institutınıñ mezunı olğan Enver Zaydullayev (1947) realistik portret janrında çalıştı.
+Heykeltraşnın icadındaki toqtaluvnı onıñ daha yaqında Qırımğa köçmesinen anlatmaq mümkün.
 Rustem Ablâyevniñ taş, ağaç, balçıqtan yapılğan eserleri — folklor, masal personajları ve hayatiy levhalardır.
 Onıñ çalğıcı, çoban, türlü-türlü hayvan figuraçıqları ufaq plastika janrına mensüpler.
 Heykelcilik — icadatnıñ bayağı paalığa oturğan bir çeşitidir.
- %Аbideler paalı materiallardan yapıla, aynı vaqıtta tehnologik ceryannın özü de bayağı maddiy ve cismaniy masraflarnı talap ete.
-Bundan ğayrı, resimlerge köre, heykeller azca satıla, şunın içün heykeltraşlarğa öz işinin maddiy semeresine ümüt etmeğe sıra tüşmey.
-Ne ise de, qırımtatar heykeltraşları mürekkep iqtisadiy vaziyetke baqmadan icatnın yanı usul ve vastalarını araştıraraq, zamannen bir adımlamağa, qırımtatar sanatına özlerinin münasip hisselerini qoşmağa tırışalar.
+ %Аbideler paalı materiallardan yapıla, aynı vaqıtta tehnologik ceryannıñ özü de bayağı maddiy ve cismaniy masraflarnı talap ete.
+Bundan ğayrı, resimlerge köre, heykeller azca satıla, şunıñ içün heykeltraşlarğa öz işiniñ maddiy semeresine ümüt etmege sıra tüşmey.
+Ne ise de, qırımtatar heykeltraşları mürekkep iqtisadiy vaziyetke baqmadan icatnıñ yañı usul ve vastalarını araştıraraq, zamannen bir adımlamağa, qırımtatar sanatına özleriniñ münasip hisselerini qoşmağa tırışalar.
 
 Hulâsalar:
 
-Sanatnıñ Qırım içün yanı olğan avropaca numüneleri mında rus medeniyetinin tesirinde, an'aneviy medeniyet buhranğa oğrağan bir devirde kirip keldiler.
-Bu ceryan Rusiyenin erkânına kirsetilgen diğer musülman ülkelerine baqqanda, deyik, Ozbekistanğa baqqanda, Qırımda biraz evelce ve bayağı kenişçe keçti.
-Öz faaliyetini XX asımın ilk yıllarında başlağan qırımtatar icatçıları tahsilni çetelde aldılar.
-Olarnıñ pek çoqları kendi istidatlarını açıp olamadılar, olarnın taqdiri ğayet facialı oldı.
+Sanatnıñ Qırım içün yañı olğan avropaca numüneleri mında rus medeniyetiniñ tesirinde, ananeviy medeniyet buhranğa oğrağan bir devirde kirip keldiler.
+Bu ceryan Rusiyeniñ erkânına kirsetilgen diger musulman ülkelerine baqqanda, deyik, Özbekistanğa baqqanda, Qırımda biraz evelce ve bayağı kenişçe keçti.
+Öz faaliyetini XX asırnıñ ilk yıllarında başlağan qırımtatar icatçıları tahsilni çetelde aldılar.
+Olarnıñ pek çoqları kendi istidatlarını açıp olamadılar, olarnıñ taqdiri ğayet facialı oldı.
 Lâkin olar qırımtatar medeniyetinin tarihında parlaq iz qaldırıp yetiştirdiler.
 Ekinci nesilge mensüp icatçılar ise tahsilni Qırımda, esasen N.Samokişniñ studiyasında aldılar.
-Kimersi icatçılar hatta kendi-kendine resim öğrendiler.
+Kimersi icatçılar hatta kendi-kendine resim ögrendiler.
 Olarnıñ taliyi de facialı oldı, olar da bütün halqnen beraber sürgün etildiler.
 Cenkten evelki qırımtatar tasviriy sanatı sovet medeniyeti ve mefküresiniñ umumiy bir aqımında inkişaf etti.
-Eserlernin mundericesini belgilegen sosialistik realizm, bir taraftan, yanı, daha belli olmağan ufuqlamı aça, diğer taraftan ise mecburiy resmiy yöneliş çerçivelerinen icatnı boğa edi.
-Cenkten son onlarnen yıl devam etken çetin devir halqnıh güzellikke ıntıluvını yoq etip olamadı, аksine, qırımtatar ressamları, heykeltraşlarının yanı bir nesili yetişip çıqtı ki, olar özlerinin tekrarlanmaz eserlerini yaratalar.
-Teessüf ki, icatçılarımız bir yerde değiller, çeşit memleketlerde, çeşit şeherlerde yaşaylar.
+Eserlerniñ mundericesini belgilegen sosialistik realizm, bir taraftan, yañı, daha belli olmağan ufuqlrnı aça, diger taraftan ise mecburiy resmiy yöneliş çerçivelerinen icatnı boğa edi.
+Cenkten soñ onlarnen yıl devam etken çetin devir halqnıñ güzellikke ıntıluvını yoq etip olamadı, аksine, qırımtatar ressamları, heykeltraşlarınıñ yañı bir nesili yetişip çıqtı ki, olar özleriniñ tekrarlanmaz eserlerini yaratalar.
+Teessüf ki, icatçılarımız bir yerde degiller, çeşit memleketlerde, çeşit şeherlerde yaşaylar.
 Olarnıñ icadı tanılsa da, çoq yıllar devamında öz toprağı, öz halqı haqqında sanat vastasınen aytmaq imkânından mahrum ediler.
 Atta bugünde bile Qırımdan tışta yaşağan bir çoq ressamlarımıznıñ icadı milliy medeniy ayniyetten ayrı halda şekillene.
-Faqat qırımtatarlar Vatanğa qaytıp başlağanlarından soñ qırımtatar tasviriy sanatınıñ yañı, sonki yüz yıl içinde endi ekinci canlanuvı hususında laf yürütmek mümkün oldı.
-Söz kelimi, 1990-ncı senelernin canlanuvı 1920-30-ncı senelerniñ canlanuvından keyfiyetçe farq ete.
-Zaten, 1920-30-ncı senelerde «canlanuv» termininiñ özü qırımtatar medeniyeti içün şartlı bir tüs taşığanı halda (çünki medeniyetimiz milliy tamırlar, milliy sanat an aneleri esasında değil de, rus ve avropaca tesir neticesinde inkişaf ete edi).
+Faqat qırımtatarlar Vatanğa qaytıp başlağanlarından soñ qırımtatar tasviriy sanatınıñ yañı, soñki yüz yıl içinde endi ekinci canlanuvı hususında laf yürütmek mümkün oldı.
+Söz kelimi, 1990-ncı senelerniñ canlanuvı 1920-30-ncı senelerniñ canlanuvından keyfiyetçe farq ete.
+Zaten, 1920-30-ncı senelerde «canlanuv» termininiñ özü qırımtatar medeniyeti içün şartlı bir tüs taşığanı halda (çünki medeniyetimiz milliy tamırlar, milliy sanat an aneleri esasında degil de, rus ve avropaca tesir neticesinde inkişaf ete edi).
  90-ncı senelerniñ canlanuvı haqiqiy milliy negizge esaslanğanı haqqında ayta bilemiz.
-Bu devirde sanatta sürgünlik, avdet mevzuları üstün tura; tuvğan yurtta deyerlik yoq etilgen milliy medeniy asabalıqnı öğrenmek imkânları doğa.
-İçtimaiy anda yüz bergen haqiqiy inqilâp bediiy ifadenin yanı vastaları doğmasına alıp kele — sahte-patetik sosialistik realizm yerine yanı, qırımtatar sanatında körülmegen yönelişler (simvolizm, kalligrafik abstraktsionizm, milliy romantizm) keleler.
-Bunınnen birlikte menfiy cehetler de yoq değil, kimersi eserlernin siyasiyligi professsional seviyeni bastıra.
+Bu devirde sanatta sürgünlik, avdet mevzuları üstün tura; tuvğan yurtta deyerlik yoq etilgen milliy medeniy asabalıqnı ögrenmek imkânları doğa.
+İçtimaiy anda yüz bergen haqiqiy inqilâp bediiy ifadeniñ yañı vastaları doğmasına alıp kele — sahte-patetik sosialistik realizm yerine yañı, qırımtatar sanatında körülmegen yönelişler (simvolizm, kalligrafik abstraktsionizm, milliy romantizm) keleler.
+Bunıñnen birlikte menfiy cehetler de yoq degil, kimersi eserlerniñ siyasiyligi professsional seviyeni bastıra.
 Şimdiki zamanda zemaneviy qırımtatar sanatında bir qaç yöneliş ayırılıp tura.
 Olarnıñ arasında realizm yetekçi yer tuta.
-Bu yöneliş Vatanğa qaytıp kelgen ve pek çoq yıllar devamında terennüm etip olamağan tuvğan topraqnın, tuvğan adamlarnın dülberligini sinirip, sonundan om aks ettirmeğe tırışqan icatçılar içün özüne has tayanç noqtası sıfatında hizmet ete.
-İşte, bizge faqat Qırım tabiatını, Qırım adamlarını köstergen peyzaj ve portret janrları da şu yönelişniñ baş janrları oldılar (ressamlar, grafiklerden S.Osmanov, N.Yaqubov, R.Netovkin, i.Şeyh-zade, i.Nafiyev ve diğerleri).
+Bu yöneliş Vatanğa qaytıp kelgen ve pek çoq yıllar devamında terennüm etip olamağan tuvğan topraqnıñ, tuvğan adamlarnıñ dülberligini sinirip, soñundan onı aks ettirmege tırışqan icatçılar içün özüne has tayanç noqtası sıfatında hizmet ete.
+İşte, bizge faqat Qırım tabiatını, Qırım adamlarını köstergen peyzaj ve portret janrları da şu yönelişniñ baş janrları oldılar (ressamlar, grafiklerden S.Osmanov, N.Yaqubov, R.Netovkin, i.Şeyh-zade, i.Nafiyev ve digerleri).
 Emiyeti cehetinden ekinci yerde turğan yöneliş — simvolizmdir.
 Bu yöneliş qırımtatar tarihiniñ qocaman problemleri haqqında nasiatlarsız hikâye etmek imkânını bere.
-Simvolizm yönelişinde icat etken ressamlar (ressamlardan M.Çurlu, R.Useinov, A.Baraş, E.izzetov ve diğerleri) tosat-tosat sathiylik ve dekorativizmniñ üslübiy usullarından faydalanalar.
-Bum bazıda resim sızuvda professional mahirlik yetişmegeninen.
-(meselâ, M.Çurlunın resimlerinde professional mahirlik yetişmese de, olarnin teren felsefiyligini kimse inkâr etip olamaz), kimerde ise bediiy ifade vastası olaraq anlı surette seçilip alınmasınen (R.Useinov) anlatmaq mümkün.
-Yanı, daha doğrusı, endi çoqtan unutılıp, şimdi yanıdan canlanmaqta olğan icat çeşitleri cümlesine hattatlıq sanatı (A.Seit-Ametov) da kire.
+Simvolizm yönelişinde icat etken ressamlar (ressamlardan M.Çurlu, R.Useinov, A.Baraş, E.İzzetov ve digerleri) tosat-tosat sathiylik ve dekorativizmniñ üslübiy usullarından faydalanalar.
+Bum bazıda resim sızuvda professional mahirlik yetişmegeninen bağlı.
+Meselâ, M.Çurlunıñ resimlerinde professional mahirlik yetişmese de, olarnıñ teren felsefiyligini kimse inkâr etip olamaz), kimerde ise bediiy ifade vastası olaraq añlı surette seçilip alınmasınen (R.Useinov) añlatmaq mümkün.
+Yañı, daha doğrusı, endi çoqtan unutılıp, şimdi yañıdan canlanmaqta olğan icat çeşitleri cümlesine hattatlıq sanatı (A.Seit-Ametov) da kire.
 Nihaet, milliy romantizm yönelişini A.Belâlov, E.Osmanova, tarihiy romantizm yönelişini yaş ressam R.Baliç küteler.
-Bugünde-bugün qırımtatarlar özlerinin icadiy imkânlarını kendi topularında serbest açıp kostere bileler.
-Bu hal ise — qırımtatar milliy medeniyeti muvafaqiyetnen inkişaf eteceginin reinidir.
+Bugünde-bugün qırımtatarlar özleriniñ icadiy imkânlarını kendi topraqlarında serbest açıp kostere bileler.
+Bu hal ise — qırımtatar milliy medeniyeti muvafaqiyetnen inkişaf eteceginiñ reinidir.
