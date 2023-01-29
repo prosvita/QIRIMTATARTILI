@@ -23,9 +23,10 @@ async function run() {
         const issues = await getIssues(octokit, owner, repo)
         const data = await getSyncedFileList(issues, metaFiles)
 
-        mixWithFiles(data, 'crh')
-        mixWithFiles(data, 'crh-RU')
-        mixWithFiles(data, 'crh-Cyrl')
+        // Enable corpus genegation from all existing files
+        // mixWithFiles(data, 'crh')
+        // mixWithFiles(data, 'crh-RU')
+        // mixWithFiles(data, 'crh-Cyrl')
 
         const targetDir = path.join(process.cwd(), 'target')
         if (fs.existsSync(targetDir)) {
