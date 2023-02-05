@@ -5,7 +5,7 @@ Olarnıñ ortasında kotlovan qazıla.
 Topraq yığınları üstünden toqtamay-tınmay avtomaşinalar qatnaşalar.
 Evelde nizamsız yüre ediler, çünki özen boyunda yol fena, bayırlı-çuqurlı...
 Pek çoq maşinalar batıp, sançılıp qala, areketniñ tertibini boza ediler.
-Bunıñ içün yolnı kenişletmek, keçidniñ eki yanında yol kösterici kişiler qoymaq kerek oldı.
+Bunıñ içün yolnı kenişletmek, keçitniñ eki yanında yol kösterici kişiler qoymaq kerek oldı.
 Kestirmelerden biriniñ üstünde demir yol yerleştirildi.
 Onıñnen sağ yalığa... derivatsion kanal qurucılığına keçile.
 Sağ yalı qurucılığına Menjevetskiy başlıq oldı.
@@ -19,7 +19,7 @@ Kündüzleri mında kelip, stol başında, Nu — Tufanından qalğan yüksek ar
 İstraattan soñ, er vaqıttaki kibi, tendiris ve areketçen olıp, tekrar işke cöney.
 
 Birinci odada, idarede gece ve kündüz elektrik ocaq yanıp, qızarıp tura.
-Buña itiyac büyük.
+Buña ihtiyac büyük.
 Adamlar qızınmağa ve suv qaynatıp içmege keleler.
 Mında qıçırıp laqırdı etmek, sigar içmek olmay.
 
@@ -27,15 +27,15 @@ Mında qıçırıp laqırdı etmek, sigar içmek olmay.
 Men bu... ne deyim sizge, apartamentlerde iç bir vaqıt özüme sigar içmege musaade etmeyim.
 Amma...— o elini manalı surette kötere,— men, er kes şaat, az çalışmayım ve tütünni de az içmeyim!
 Lâkin mında degil.
-İnsan yaşağan yerda ava mutlaqa temiz olmaq kerek.
+İnsan yaşağan yerde ava mıtlaqa temiz olmaq kerek.
 Öyle degilmi?
 
 Böyle tazirden soñ qabaatlı kişi nege oğrağanını bilmey, Menjevetskiyniñ közlerine qaç daqiqalar baqıp tura, soñ omuzlarını qısa, indemey çıqıp kete ve bir daa tüteyyatqan sigarnen mında kirmey.
 
-Men bunıñ ile, Menjevetskiyniñ göñülinde işçiler içün saf duyğu barlığını aytmaq isteyim.
+Men bunıñ ile, Menjevetskiyniñ göñlünde işçiler içün saf duyğu barlığını aytmaq isteyim.
 Onıñ qılıqları er kesni taaciplendire, lâkin sögünçten yahşı tesir eteler.
 
-Bir kün Nikolaynı, Hristofornı, Raşidni ve meni eki yeñi trosnen Menjevetskiyge yolladılar.
+Bir kün Nikolaynı, Hristofornı, Raşidni ve meni eki yañı trosnen Menjevetskiyge yolladılar.
 Onıñ uçastkasına demir yol platformasında eki ekskavator keldi, lâkin troslar ipranğanlar, deñiştirmek kerek oldı.
 Biz troslarnı idareniñ ögünde tüşürgen soñ, Menjevetskiyni qıdırmağa kettik.
 Yüksek yarnıñ ucunda taş üstünde... desâtnikler arasında taptıq.
@@ -51,26 +51,25 @@ Birinci sarsıntınıñ artından ekinci sartsıntı duyuldı.
 Bir-birimizge baqıştıq, közlerimizni aqaytıp, susıp qaldıq.
 Sarsıntılar pek küçlü degil edi.
 
-— Olucı şeyler,— dedi Raşid. — bir defa men qır üstünde tura edim.
-Öyle silkitti ki... şaşmalap, balaban qayanıñ yanına yuvurıp keldim, biraz turğan soñ, onıñ astına kirdim.
+— Olucı şeyler,— dedi Raşid.
+— Bir defa men qır üstünde tura edim ,öyle silkitti ki... şaşmalap, balaban qayanıñ yanına yuvurıp keldim, biraz turğan soñ, onıñ astına kirdim.
 Niçün?
 Bar añla!
 Bir daa, bayırnıñ töpesinden aşağı qar obaları taya başladılar.
 Qaydan çıqtılar, bilmeyim?
-Qar, buz parçaları iñildep, gürüldep aşağı yuvarlandılar.
 
 Raşid qar aqıntısını ikâye etip turğanda, ayaqlarımıznıñ astında — yer üstünde, yılan keçip ketken kibi, tar çatlaq asıl oldı.
 Menjevetskiy betteki yüksek bayırnıñ, aşağı, özenge taba cılışa başlağanını kördik.
 
 Desâtniklerden biri kiyik-kiyik qıçırdı.
-Yüksek qırnıñ ucundan, büyük topraq kesekleri qopıp, tüpke tayıp keteyatqanda, bizim ayaqlarımıznıñ astındaki aralıq kenişledi, topraqnıñ aşağı qısımı çökti.
+Yüksek qırnıñ ucundan, büyük topraq kesekleri qopıp, tüpke tayıp keteyatqanda, bizim ayaqlarımıznıñ astındaki aralıq kenişledi, topraqnıñ aşağı qısmı çökti.
 Bir daqiqa evelsi özen ile uçurım arasında yigirmi adımlıq mesafe bar edi.
 
 Bayırnıñ töpesinde desâtnik ve Menjevetskiy, evel nasıl turğan olsalar, şimdi de öyle turmaqtalar.
 Yel onıñ plaşçınıñ eteklerini ep yelpiretmekte.
 
 Raşid er kesten cesaretli çıqtı.
-Töpeden bayırnıñ üstüne sıçrap tüşti... ayaqları tizlerine qadar diyerlik yımşaq topraq içine kirip kettiler.
+Töpeden bayırnıñ üstüne sıçrap tüşti... ayaqları tizlerine qadar deyerlik yımşaq topraq içine kirip kettiler.
 Tırmalanıp, dörtayaqlap töpege çıqqan soñ, Sigizmund Genrihoviçke doğru çaptı.
 Yalığa er kes öz bilgenince çıqacaq oldı, lâkin kimse çıqalmadı.
 
@@ -80,9 +79,11 @@ Suv bayırnıñ etrafını yuvdı, kemirdi, bayır yarım adadan — bütün ada
 Biz idare ögüne kelgende, Menjevetskiy desâtnikni tazirlemekte edi.
 
 — Men sizni tenbiylegen edim.
-Bu — seysmik rayon, yalını bekitmek kerek degen edim.
-Şimdi, kördiñizmi, ne olıp çıqtı? — Bizge muracaat etip, sözüne devam etti: — Biz yalıda tura edik.
-Men olarğa yalını nasıl etip bekitmek mümkünligini añlata, Aleksey İvanoviç ise — Menjevetskiy desâtnikni körsetti,— maña itiraz eteyata edi: yalı qaviy, bir şey olmaz, dey edi.
+Bu — seysmik rayon, yalını pekitmek kerek degen edim.
+Şimdi, kördiñizmi, ne olıp çıqtı?
+— Bizge muracaat etip, sözüne devam etti:
+— Biz yalıda tura edik.
+Men olarğa yalını nasıl etip pekitmek mümkünligini añlata, Aleksey İvanoviç ise — Menjevetskiy desâtnikni körsetti,— maña itiraz eteyata edi: yalı qaviy, bir şey olmaz, dey edi.
 İşte, kördiñizmi?..
 
 Desâtnik indemedi.
@@ -90,7 +91,9 @@ Desâtnik indemedi.
 
 — Canlarıñız sağ qalğanı içün idareñizniñ içinde bir sigar içmege ruhset etiñiz! — dedi o.
 
-— Bu da ne? — Sigizmund Genrihoviçniñ qaşları mañlayınıñ töpesine çıqtılar. — Niçün eken? — Qart injener öz printsipine sadıq qaldı.
+— Bu da ne? — Sigizmund Genrihoviçniñ qaşları mañlayınıñ töpesine çıqtılar.
+— Niçün eken?
+— Qart injener öz printsipine sadıq qaldı.
 Ruhset etmedi.
 
 Biz, ekskavatorlarnıñ troslarını deñiştirgen soñ, onı haberdar etmege kettik, lâkin ne uçastkada, ne idarede — iç bir yerde tapalmadıq.
@@ -99,7 +102,7 @@ Biz, ekskavatorlarnıñ troslarını deñiştirgen soñ, onı haberdar etmege ke
 — Kirmege mümkünmi? — dep soradım yavaştan.
 
 — Yoq,— dep cevap berdi injener,— men raatlanam.
-Bu yarım saat — menim muqaddes vaqıtım.
+Bu yarım saat — menim muqaddes vaqtım.
 Sabır etiñiz!
 
 ...O vaqıtta men Menjevetskiyniñ qılıqlarını yahşı bilmey edim.
@@ -111,8 +114,7 @@ Barakqa qaytıp keldik.
 Urbalarımıznı deñiştirdik — kimerde deñiştirmey edik — çay içmege oturdıq.
 Hristofor ile Karim aşhanege ketkenler.
 
-Ötmekni qalay içindeki sıcaq suvğa batırıp aşasañ, şekerni tişlep, artından bir yutum sıcaq suv içseñ…
-bu dünyada eñ lezetli şey.
+Ötmekni qalay içindeki sıcaq suvğa batırıp aşasañ, şekerni tişlep, artından bir yutum sıcaq suv içseñ…bu dünyada eñ lezetli şey.
 Çavdar ötmegi olsa, daa yahşı.
 
 Men Nikolayğa köz ettim.
@@ -130,7 +132,9 @@ Lâkin küzgüge bu qadar çoq baqıp oturmaq mümkünmi?
 
 — Can sıqıntısı! — dedi o keñ kevdesini doğrultıp,— Cevdet şimdi ne yapmaq istey? — dep soradı.
 
-— Yuqlamaq! — dedim men. — Daa ne yapmaq mümkün.
+— Yuqlamaq! — dedim men.
+
+— Daa ne yapmaq mümkün.
 
 — Yuqlamaq?
 Yoq, men öyle yapıp olamayım ve... sevmeyim.
@@ -140,29 +144,34 @@ Daa erte.
 Tarağını tumboçkanıñ çekmecesine, küzgüsini yastığınıñ astına tıqtı, özü qapuğa doğrulayatqanda qapu qaqıldı.
 Nikolay açtı.
 Bosağa üstünde Valâ Sinitskaya köründi.
-Üstünde temiz beyaz kofta, ve yeñi mavı yubka.
+Üstünde temiz beyaz kofta, ve yañı mavı yubka.
 
-— Rica etem! — Nikolay qıznı içeri davet etti ve onı, özüne sezdirmey, közden keçirdi. — Nasıl ülkelerden keldiñ?
+— Rica etem! — Nikolay qıznı içeri davet etti ve onı, özüne sezdirmey, közden keçirdi.
 
-— Özümizniñ yaqlardan...
+— Nasıl ülkelerden keldiñ?
+
+%
 Saña keldim, Nikolay!
 Elbette beklemegendirsiñ?!
 
 — Beklemegen?..
-Er vaqıt bekley edim. — Kandıba bugün tınç ve şeñ edi. — Oturıñız!
+Er vaqıt bekley edim. — Kandıba bugün tınç ve şeñ edi.
+
+— Oturıñız!
 Nice yazlar, nice qışlar keçti... kim içün rica etmege keldiñ, miledi?
 
 — Öyle demege utanmaysıñmı, Nikolay? — Valânıñ canı ağırdı.
 Atta sesi bile qaltırap ketti.
 Az qaldı, ağlaycaq edi.
-Amma ağlamadı,— eñ olmağanda bir kereçik te olsa, kirip baqmaysıñ...
+Amma ağlamadı,
+— eñ olmağanda bir kereçik de olsa, kirip baqmaysıñ...
 Valâ, işleriñ, sağlığıñ nasıl, dep soramaysıñ!
 
 — Kimden?
 Muşuq endi zuvdı.
-Arhipka özü-özlüginden ğaip oldı.
-Bir kere aylanma kanal bayramında, kelip, hatirimizni sorap ketti.
-Ondan beri ses-soluq yoq.
+Arhipka özü-özlüginden ğayıp oldı.
+Bir kere aylanma kanal bayramında, kelip, hatrimizni sorap ketti.
+Ondan berli ses-soluq yoq.
 
 — Muşuq? — Valâ küldi,— özüñ bilesiñ, Muşuq maña ücüm etti, qorquzmaq istedi.
 Bir şey çıqmadı.
@@ -170,16 +179,21 @@ Arhipka ise...
 Men kimseden qorqmayım.
 Men olardan qorqmayım.
 
-— Yok, men şay, özüm... — Nikolay lafnı uzatmaq istemedi.
+— Yoq, men şay, özüm... — Nikolay lafnı uzatmaq istemedi.
 
-— Men kettim... — dedim men Nikolayğa,— biraz dolanıp keleyim. — Krovat üstünden turdım.
+— Men kettim... — dedim men Nikolayğa,— biraz dolanıp keleyim.
+
+— Krovat üstünden turdım.
 
 — Otur! — Nikolay razı olmadı,— bir yaqqa ketmeyceksiñ!
 Laf bar.
 
 Tekrar oturdım.
 
-— Men seni unutmadım. — O Valânen sözüni devam etti. — Bir kere kommutatornıñ qapusını qaqıp baqtım, yoq ediñ.
+— Men seni unutmadım.
+— O Valânen sözüni devam etti.
+
+— Bir kere kommutatornıñ qapusını qaqıp baqtım, yoq ediñ.
 
 — Ne vaqıt?
 
@@ -192,13 +206,13 @@ Daa qaqqan olsañ, belki tapar ediñ.
 — Sen büyük adam oldıñ, Valâ!
 Raatsızlamaq istemedim.
 
-— Özüñ de naçalnik ekensiñ... işittim.
+— Özüñ de naçalnik ekensiñ... eşittim.
 
 — Men?
 Ebet, maşinist yardımcısım.
 Mında yaşaymız... demek, pek büyük naçalnik degilim.
 
-— Men qadınlar barağından ketkenimden beri epiñiz deñişkensiñiz.
+— Men qadınlar barağından ketkenimden berli epiñiz deñişkensiñiz.
 
 — Biz?..
 
@@ -206,8 +220,8 @@ Mında yaşaymız... demek, pek büyük naçalnik degilim.
 Şimdi nezaketli kişiler olğansıñız.
 Seni tanımaq mümkün degil, Nikolay!
 Seni de, Cevdet...— Valâ tiklenip maña baqtı,— sizge asıl ne oldı?
-İlki kelgen küniñ hatiriñdemi?
-Men kerçek sarğuş edim... amma episi aqılımda.
+İlki kelgen künüm hatriñdemi?
+Men kerçek sarğuş edim... amma episi aqlımda.
 
 Nikolay kerçekten taaciplendi.
 Ne demek olsun?
@@ -216,7 +230,6 @@ Endi bizni öpkeley: deñiştiñiz, nezaketli oldıñız.
 
 — Biz kim edik,— dedi Kandıba,— aydutlarmı?
 Hırsızlarmı?
-Yol basarlarmı?
 A?
 
 — Pâtireçyede kim ediñ?
@@ -246,7 +259,6 @@ O, artıq, qurucılıqta yoq.
 
 — Kim?
 Arhipkamı?
-Saña bir şeyler oldımı şu, Nikolay?!
 Arhipka bir yaqqa ketmedi.
 O mında senden intiqam aluv peşinde.
 
@@ -264,8 +276,8 @@ Bu nasıl oldı? — Nikolay taaciplendi.
 — Çıqtı.
 Demek, insan...— Valâ onıñ qulağına gizliden bir şeyler söyledi.
 
-Aqılıma Nikolaynıñ sevgi ve sadaqat aqqında aytqan fikirleri keldi.
-O maña: em Hristoforğa, em Arhipkağa, em Raşidke — episine birden alicenaplıq köstermek olmaz degen edi.
+Aqlıma Nikolaynıñ sevgi ve sadaqat aqqında aytqan fikirleri keldi.
+O maña: em Hristoforğa, em Arhipkağa, em Raşidge — episine birden alicenaplıq köstermek olmaz degen edi.
 Özü Rahilge qarşı, amma onı acıy.
 Demek, başqa çare yoq.
 Rahil özü Arhipkağa qarşı çıqtı.
@@ -293,10 +305,11 @@ Niçün?
 Seni körmek... saña qaytıp kelmek, adam olmaq istedim.
 Men!
 
-— Sen nasıl insansıñ, Nikolay?! — Artıq özümni tutalmadım. — Qız derdiñden ölecek.
+— Sen nasıl insansıñ, Nikolay?! — Artıq özümni tutalmadım. 
 Özüñni sıqmaysıñ!?
 
-— Qarışma, Cevdet,— dedi Nikolay qaba davuşnen. — Bu Krasnânskayanıñ kabinetindeki meclis degil.
+— Qarışma, Cevdet,— dedi Nikolay qaba davuşnen.
+— Bu Krasnânskayanıñ kabinetindeki meclis degil.
 Bunda reislikni yürek yapa.
 Aşıquv er vaqıt faydalı netice bermey.
 Sen Valânı bilmeysiñ!
@@ -318,11 +331,13 @@ Amma Valâ terk etti... andan çıqıp ketti.
 
 Valâ aqqında öyle laqırdı ettik ki, güya özü yanımızda yoq edi.
 
-— Valâ qayda yaşay, bilesiñmi?..— Men sözümni devam ettim,— Bilmeysiñ!
+— Valâ qayda yaşay, bilesiñmi?..
+— Men sözümni devam ettim,
+— Bilmeysiñ!
 
 — Baraktan köçkenimni Muşuq bilgen.
-Meni tenbiylemege kelgen edi...— Valâ şınşıqlay berdi,— menim aqqımda ağızıñdan bir söz çıqar, seni eki qısımğa bölerim...— dedi maña,— Başıñ sağda, ayaqlarıñ solda!
-Sen suv qıdırıp kelgen ediñ, hatiriñdemi, Cevdet?
+Meni tenbiylemege kelgen edi...— Valâ şınşıqlay berdi,— menim aqqımda ağzıñdan bir söz çıqar, seni eki qısımğa bölerim...— dedi maña,— Başıñ sağda, ayaqlarıñ solda!
+Sen suv qıdırıp kelgen ediñ, hatriñdemi, Cevdet?
 Nikolay bir şey bilmey.
 
 Men Valânı tınçlandırmaq istedim.
@@ -336,50 +351,51 @@ Bizim laqırdımızğa diñlenip turdı.
 
 Valâ Sırdarya bette rus qışlağında doğğan.
 Dört sınıf bitirgen.
-Babası inqlâbdan soñ, açlıq ve yıqıntı yıllarında ölgen.
+Babası inqlâptan soñ, açlıq ve yıqıntı yıllarında ölgen.
 Aptesi ve özü anasınıñ ihtiyarında qalğan.
 Yıllar keçkenler.
 Bir defa bazarda pirniç hırsızlağanda yaqalanıp, Belomor qurucılığına tüşken.
 
-— Menim hucur taqdirim bar...— dedi Sinitskaya. — Nikolay ise buña ep külkünen baqıp keldi.
+— Menim hucur taqdirim bar...— dedi Sinitskaya.
+— Nikolay ise buña ep külkünen baqıp keldi.
 
 Taqdiri, kerçekten de, başqalarınıñkine çoq beñzemey edi.
 O, kanalda ekende, yahşı çalışqan, mektepte oquğan.
 
 Bir defa derske lager başlığı kirgen... onıñnen yüksek boylu arıq kişi de bar eken.
 Dersni toqtatqanlar.
-Yeñi adam talebelernen laqırdı etken.
+Yañı adam talebelernen laqırdı etken.
 Valânıñ sözlerini diqqatnen diñlegen.
-Musaabe vaqıtında adamnıñ mıyığı qıbırday bergen.
+Musaabe vaqtında adamnıñ mıyığı qıbırday bergen.
 Bu Valânıñ alâ esinde.
-Kişi Valânıñ taqdiri içün eecanlanğan.
+Kişi Valânıñ taqdiri içün eyecanlanğan.
 Qız oña doğmuş aptesi hususında ikâye etken.
-Aptesi "Martin İden" ni oquy eken.
+Aptesi "Martin İden"ni oquy eken.
 Anası bir kün: "Bıraq bu kitapnı!
 Ket, keziñiz!
 Yoqsa, Yaşkanı elden qaçırırsıñ" degen.
 Aptesi kerçekten de, Yaşanı elden qaçırğan.
 
-Lager başlığı yeñi adamğa: — Sinitskaya Valâ pek terbiyeli,— degen. — Berilgen işni namusnen eda ete.
+Lager başlığı yañı adamğa: — Sinitskaya Valâ pek terbiyeli,— degen, — Berilgen işni namusnen eda ete.
 Bu hususta anasına mektüp yazdıq.
 Cevabını da aldıq.
 
 Arıq kişi Valânen çoq şeyler hususında laqırdı etken.
 O Valâdan: — maña iç bir türlü ricañ yoqmı? — dep sorağan.
-Valâ: bar! — degen. — Bir qaç funt şeker alıp, evge — anama yollamaq isteyim.
+% — Bir qaç funt şeker alıp, evge — anama yollamaq isteyim, — degen Valâ. 
 Amma aqçam yoq.
 Lager başlığı külümsiregen, lâkin arıq adamnıñ ökünçli yüzüni körgen soñ susqan.
 
 Bir aydan soñ Valânı lagerden azat etkenler.
 
-O, Pâtireçye özeni boyundaki, yeñi qışlaqqa kelgen.
+O, Pâtireçye özeni boyundaki, yañı qışlaqqa kelgen.
 Doğmuşları o vaqıtta anda yaşay ekenler.
 Valâ aşhanağa işke kirgen.
 Anda Nikolaynen tanış olğan.
 
 Valâ özüniñ lagerden niçün müddetten evel azat etilgenini bilmey.
 Bir sene taaciplenip yürgen.
-Bir kün kitaphanede kitapnıñ içinde arıq betli, uzun mıyıqlı kişiniñ suretini körgen.
+Bir kün kitaphanede kitapnıñ içinde arıq betli, uzun mıyıqlı kişiniñ süretini körgen.
 Ayrette qalğan... ebet, onıñ özü.
 Maksim Görkiy.
 
@@ -387,15 +403,17 @@ Valânıñ sözleri maña pek tesir etti.
 Tek maña degil...
 Nikolay yerinden qalqtı, Valânıñ yanına kelip, elini onıñ omuzına qoydı.
 
-— Valüha...— dedi kederli davuşnen. — Niçün bu vaqıtqa qadar bu hususta maña bir şey aytmadıñ?
+— Valüha...— dedi kederli davuşnen, — Niçün bu vaqıtqa qadar bu hususta maña bir şey aytmadıñ?
 
 Qıznıñ omuzları qaltıramaqta edi.
 
-— Men saña daa çoq şeylerni aytmadım...— dedi o ve maña çevirilip, sözüni devam etti. — O vaqıtta bunı — Valâ başınıñ areketinen Nikolaynı kösterdi,— men bunı sevdim ve o da, ğaliba, meni sevdi...
+— Men saña daa çoq şeylerni aytmadım...— dedi o ve maña çevirilip, sözüni devam etti. 
+— O vaqıtta bunı — Valâ başınıñ areketinen Nikolaynı kösterdi,— men bunı sevdim ve o da, ğaliba, meni sevdi...
 Bir kün baqam, Nikolay yoq...
 Çar-Çaqqa ketken.
 
-— Men saña ayttım...— Nikolay tekrar qaytıp, öz koykası üstüne oturdı. — Ketecegim dedim.
+— Men saña ayttım...— Nikolay tekrar qaytıp, öz koykası üstüne oturdı.
+— Ketecegim dedim.
 
 — Seniñ yüregiñ taştan, Nikolay.
 Sen bayat insansıñ!
@@ -403,7 +421,7 @@ Sen bayat insansıñ!
 Men Valânıñ Nikolayğa aytqan sözlerine diqqat ettim.
 Qız, elbet de, Nikolaynı seve.
 Onı Pâtireçyeden mında sevgi ketirgen.
-Ya İradanı sevgi qayda?
+Ya İradanıñ sevgisi qayda?
 Nege ketirdi?
 Bir kişi ile diger kişi arasında dolana berüvgemi?
 Adam, kimni sevgenini bilmese, ne qadar qıyın eken!?
@@ -412,7 +430,8 @@ Valâ devam etti:
 
 — Öyle, hırsız kibi, gizliden çıqıp ketmek...
 
-— Bu öpke niçün, Valâ? — dep soradı Kandıba. — Men saña: evlenirmiz... bir yaqlarğa ketermiz degenmi edim?
+— Bu öpke niçün, Valâ? — dep soradı Kandıba.
+— Men saña: evlenirmiz... bir yaqlarğa ketermiz degenmi edim?
 Seni işandırğanmı edim?
 
 — Yoq.
@@ -468,34 +487,42 @@ Yañlış yaptı!
 
 — Özünden qaçqan sevgini qıdırmaq... ne kerek?
 
-— Bunı sen söyleysiñ, öylemi? — Nikolay küldi. — Demek, sevgi senden ketse, onı qıdırmaq kerekmey?
-Men başqa türlü tüşüne edim. — Qayda köçtiñ? — dep soradı Nikolay Valâdan.
+— Bunı sen söyleysiñ, öylemi? — Nikolay küldi.
+— Demek, sevgi senden ketse, onı qıdırmaq kerekmey?
+Men başqa türlü tüşüne edim.
+— Qayda köçtiñ? — dep soradı Nikolay Valâdan.
 
-— Men o vaqıtta sarğuş edim...— dedi Valâ. — Ve bütün ayatıma tükürmege azır edim.
+— Men o vaqıtta sarğuş edim...— dedi Valâ. 
+— Ve bütün ayatıma tükürmege azır edim.
 Em tükürir edim…
 
 — Kim keder etti?
 Menmi?
 
-— Yoq, İra,— dedi Valâ. — O Petâ emcenen beraber barakqa kelgende meni kördi.
+— Yoq, İra,— dedi Valâ. 
+— O Petâ emcenen beraber barakqa kelgende meni kördi.
 Men, ğaliba, sögündim, İranı aqaretledim.
 İra maña bir şey demedi.
 İndemey çıqıp ketti.
 Aqşam Petâ emce keldi, eşyalarımnı komsomol yataqhanesine alıp ketti.
 Ondan soñ, meni kommutatorğa işke qoydılar.
 
-— Demek...— Nikolay şay degen soñ sustı, sözüni kesmek istedi, lâkin kesmedi, devam etti,— Ana!
-Seniñ ve Cevdetniñ peyğamberi keleyata.
+— Demek...— Nikolay şay degen soñ sustı, sözüni kesmek istedi, lâkin kesmedi, devam etti,
+— Ana, Seniñ ve Cevdetniñ peyğamberi keleyata.
 
 Qapuğa çevirilip baqtıq.
 İçeri Hristofor kirdi.
 
-— Qaçtı,— dedi o birden,— Karimnen beraber aşhanede edi.
-Çekkelep mında ketireyata edim, qurtuldı, qaçıp ketti. — O, tek şimdi, Valânı esledi: — Men kimni körem?
+— Qaçtı,— dedi o birden,
+— Karimnen beraber aşhanede edi.
+Çekkelep mında ketireyata edim, qurtuldı, qaçıp ketti.
+— O, tek şimdi, Valânı esledi: 
+— Men kimni körem?
 Selâm, Valâ!
 
 — Aleyküm selâm, Hristofor!
-Sizni sağınıp keldim,— qız qızara berip külümsiredi. — Meni tekmil unuttıñız!
+Sizni sağınıp keldim,— qız qızara berip külümsiredi. 
+— Meni tekmil unuttıñız!
 İşleriñ nasıl, Hrist?
 
 — Bir coruq,— Duranidi üstümdeki brezent çekmenni çıqarmaq istedi, soñ bu fikirden vazgeçip, öz koykasına doğrulganda sağ omuzı, elektrik urğan kibi, qaqınıp aldı,— şikâyetlenmege şey yoq!
@@ -515,7 +542,7 @@ O zenaattan çaqasıñmı?
 Yedi sınıf bitirgen edim.
 
 — Yedi sınıf?
-Birinci sefer işitem... 
+Birinci sefer eşitem...
 Duranidi çekmenini ve çızmalarını zar-zorına çıqardı, koykanıñ üstüne yantaymaq istedi, soñ toqtaldı, cebini qarıştıra başladı, Örselı yeşil kâğıt çıqarıp, maña uzattı.
 
 — Ma!
@@ -534,17 +561,19 @@ Beklerim..."
 Yekaterina Vasilyevnanıñ kâğıtı hatrime keldi.
 Tekrar oqup baqtım, soñ qatlap, cebime qoydım.
 
-— Saña ne oldı? — dep soradı Nikolay. — Yüzüñ ap-aq kesildi?
+— Saña ne oldı? — dep soradı Nikolay. 
+— Yüzüñ ap-aq kesildi?
 
 — Bir şey de...
 
-— Men, ğaliba, meseleni añladım,— dedi Valâ ve maña közüni qıptı. — Acizlenmeñiz, Cevdet!
+— Men, ğaliba, meseleni añladım,— dedi Valâ ve maña közüni qıptı.
+— Acizlenmeñiz, Cevdet!
 Er şey sırasında olur.
-Menim sizge tevsiyem şu: sevmek isteseñiz — seviñiz, lâkin menim kibi, başıñıznı ğayip etmeñiz!
+Menim sizge tevsiyem şu: sevmek isteseñiz — seviñiz, lâkin menim kibi, başıñıznı ğayıp etmeñiz!
 
 Ayaqqa qalqtı, menimnen ve Hristofornen sağlıqlaşqan soñ Kandıbağa çevirildi.
 
-— Men kettim...— dedi Valâ Nikolayğa,— yapmak istegen işimni yaptım.
+— Men kettim...— dedi Valâ Nikolayğa,— yapmaq istegen işimni yaptım.
 Bir daa seni raatsızlamaycağım!
 
 — Selâm! — dedi Nikolay, yerinden qıbırdamadı,— men seniñ canıñnı ağırtmaq istemedim.
@@ -553,11 +582,15 @@ Qız indemedi.
 Qatıy areketnen qapuğa çevirildi, baraktan çıqıp ketti.
 
 — Bir şey añlamayım! — dedi Hristofor.
-Özüniñ yekâne közüni ziyade tögereklendirip baqtı. — Mında ne oldı?
+Özüniñ yekâne közüni ziyade tögereklendirip baqtı.
+— Mında ne oldı?
 
-— Yeñi iç bir şey olmadı! — dedi Nikolay. — Sen bugün niçün erte qayttıñ?
+— Yañı iç bir şey olmadı! — dedi Nikolay. 
+— Sen bugün niçün erte qayttıñ?
 
-— Elim... sızlay bere,— dedi Hristofor, soñ menden: — İra ne yaza? — dep soradı.
+— Elim... sızlay bere,— dedi Hristofor, 
+soñ menden:
+ — İra ne yaza? — dep soradı.
 
 — Evine çağıra...
 
@@ -572,6 +605,7 @@ Ne qararğa keldiñ?
 Keteceksiñmi?
 
 — Yoq,— dedim men,— ketmeycegim. 
+
 Em ketmedim.
 Koykamnıñ üstüne sozulıp yattım.
 İndemedim.
@@ -597,14 +631,13 @@ O evniñ içini közden keçirdi, soñ üstündeki paltosınıñ etegini azaçı
 Seyyare boyunçığını egiltip, külümsiredi.
 Valâğa baqtım — çırayı ap-aq, közleri sönük.
 Laqırdını başlamağa mecalı yoq.
-Ağızını açsa, ökürip ağlaycaq.
+Ağzını açsa, ökürip ağlaycaq.
 Men onı añladım.
 
 — Çoqtanmı? — dep soradım.
 
 O eski-püskü redikulinden kâğıt çıqardı.
-Blanknıñ üstünde "Gvardiyalı üyken serjant Kandıba N.
-N." dep yazılı edi.
+Blanknıñ üstünde "Gvardiyalı üyken serjant Kandıba N.N." dep yazılı edi.
 
 — Cayav askerde hızmet ete edimi? 
 Valâ başını salladı: "ebet!"
@@ -638,13 +671,15 @@ Valâ köz yaşlarını gizliden silip aldı.
 
 Divar artından:
 
-— Beşincide — yedinci ve sekizinci nomererge yumurta unı berilecek,— degen yırtıq davuş işitildi,— talonğa yüzer gramm.
+— Beşincide — yedinci ve sekizinci nomererge yumurta unı berilecek,— degen yırtıq davuş eşitildi,— talonğa yüzer gramm.
 
-— Men almaycağım,— dep cevap berdi tınç, yaş qadın sesi,— belki soñundan yağ ketirirler. 
+— Men almaycağım,— dep cevap berdi tınç, yaş qadın sesi,
+— belki soñundan yağ ketirirler.
 Laqırdı eteyatqanlar — eki student qızlar edi.
 
 — Men yoruldım.
-Sabırım qalmadı,— dedi Valâ. — Böriskanı Karamatqa qaldırıp, özüm orduğa ketmek isteyim.
+Sabırım qalmadı,— dedi Valâ.
+— Böriskanı Karamatqa qaldırıp, özüm orduğa ketmek isteyim.
 Çıdayalmayım... almasalar, partizanlıqqa keterim.
 
 — Niçün, Valâ?
@@ -658,7 +693,7 @@ Karamat Böriskanı özüne almağa razı oldı.
 Böriskanı da yollaya bile...
 Onı zavoddan boşamaylar.
 
-— Sen de zavodqa kir!
+— Sen de zavodğa kir!
 Bir yerde olursıñız.
 
 — Yoq, men cebe arqasında oturalmayım. 
@@ -673,10 +708,10 @@ Ergaş şimdi bizim Seyyare ile oquy.
 Böris ise yaqında arbiy mektepni bitirdi.
 
 Karamat bizim evge çoq kelip kete.
-O, alâ, İradanıñ dostı.
+O, alâ, İradanıñ dostu.
 
 ..."Sevgi senden qaçsa, onıñ peşinden quvmaq kerekmi!..." Men bu sözlerni çoq hatırlayım.
 
 Amma öyle degil.
 Eger sevseñ... kerçekten sevseñ, onıñ içün yaşa — onıñ içün öl!
-Bütün dünya, ana topraq, ayatıñ ve adamlar ögündeki borcıñ, vicdanıñ ve bahtıñ — episi onıñ içün.
+Bütün dünya, ana topraq, ayatıñ ve adamlar ögündeki borcuñ, vicdanıñ ve bahtıñ — episi onıñ içün.
