@@ -6,7 +6,7 @@ The sun was gone behind the hill and there was a shadow all across the plain and
 
 The birds no longer waited on the ground.
 
-They were all perched heavily in a tree.
+They sat on the branches of trees,placing their heavy bodies.
 
 There were many more of them.
 
@@ -16,15 +16,15 @@ His personal boy was sitting by the bed.
 
 "Does Bwana want?"
 
-"Nothing."
+ — No, I don't want nothing.
 
 She had gone to kill a piece of meat and, knowing how he liked to watch the game, she had gone well away so she would not disturb this little pocket of the plain that he could see.
 
-She was always thoughtful, he thought.
+- She was always thought about what she has done,- such a thought came to his mind.
 
 On anything she knew about, or had read, or that she had ever heard.
 
-It was not her fault that when he went to her he was already over.
+By the time he met the woman,his inner world was now completely empty, and she had nothing to do with it.
 
 How could a woman know that you meant nothing that you said; that you spoke only from habit and to be comfortable?
 After he no longer meant what he said, his lies were more successful with women than when he had told them the truth.
@@ -36,7 +36,6 @@ He had had his life and it was over and then he went on living it again with dif
 You kept from thinking and it was all marvellous.
 
 You were equipped with good insides so that you did not go to pieces that way, the way most of them had, and you made an attitude that you cared nothing for the work you used to do, now that you could no longer do it.
-
 But, in yourself, you said that you would write about these people; about the very rich; that you were really not of them but a spy in their country; that you would leave it and write of it and for once it would be written by some one who knew what he was writing of.
 
 But he would never do it, because each day of not writing, of comfort, of being that which he despised, dulled his ability and softened his will to work so that, finally, he did no work at all.
@@ -55,7 +54,7 @@ She had liked it.
 
 She said she loved it.
 
-She loved anything that was exciting, that involved a change of scene, where there were new people and where things were pleasant.
+She went to every interesting,wonderful and unfamiliar place,and saw there new,completely unfamiliar places where people live,and in those parts she liked the fact that every thing seemed beautiful.
 
 And he had felt the illusion of returning strength of will to work.
 
@@ -79,6 +78,7 @@ Why should he blame this woman because she kept him well?
 He had destroyed his talent by not using it, by betrayals of himself and what he believed in, by drinking so much that he blunted the edge of his perceptions, by laziness, by sloth, and by snobbery, by pride and by prejudice, by hook and by crook.
 
 What was this?
+
 A catalogue of old books?
 What was his talent anyway?
 It was a talent all right but instead of using it, he had traded on it.
@@ -88,17 +88,17 @@ It was never what he had done, but always what he could do.
 And he had chosen to make his living with something else instead of a pen or a pencil.
 
 It was strange, too, wasn't it, that when he fell in love with another woman, that woman should always have more money than the last one?
-But when he no longer was in love, when he was only lying, as to this woman, now, who had the most money of all, who had all the money there was, who had had a husband and children, who had taken lovers and been dissatisfied with them, and who loved him dearly as a writer, as a man, as a companion and as a proud possession; it was strange that when he did not love her at all and was lying, that he should be able to give her more for her money than when he had really loved.
+But when he no longer was in love, when he was only lying, as to this woman, now, who had the most money of all, who had all the money there was, who had had a husband and children, who had taken lovers and been dissatisfied with them, and who loved him dearly as a writer, as a man, as a companion, and as a proud possession; it was strange that when he did not love her at all and was lying, that he should be able to give her more for her money than when he had really loved.
 
 We must all be cut out for what we do, he thought.
 
 However you make your living is where your talent lies.
 
-He had sold vitality, in one form or another, all his life and when your affections are not too involved you give much better value for the money.
+He had sold vitality, in one form or another, all his life.
 
-He had found that out but he would never write that, now, either.
+Аnd when your affections are not too involved you give much better value for the money.
 
-No, he would not write that, although it was well worth writing.
+He had found that out but he would never write that, now, either,no, he would not write that, although it was well worth writing.
 
 Now she came in sight, walking across the open toward the camp.
 
@@ -130,7 +130,7 @@ Suddenly, she had been acutely frightened of being alone.
 
 But she wanted some one that she respected with her.
 
-It had begun very simply.
+Everything became very easy and simple.
 
 She liked what he wrote and she had always envied the life he led.
 
@@ -139,6 +139,7 @@ She thought he did exactly what he wanted to.
 The steps by which she had acquired him and the way in which she had finally fallen in love with him were all part of a regular progression in which she had built herself a new life and he had traded away what remained of his old life.
 
 He had traded it for security, for comfort too, there was no denying that, and for what else?
+
 He did not know.
 
 She would have bought him anything he wanted.
@@ -149,15 +150,13 @@ She was a damned nice woman too.
 
 He would as soon be in bed with her as any one; rather with her, because she was richer, because she was very pleasant and appreciative and because she never made scenes.
 
-And now this life that she had built again was coming to a term because he had not used iodine two weeks ago when a thorn had scratched his knee as they moved forward trying to photograph a herd of waterbuck standing, their heads up, peering while their nostrils searched the air, their ears spread wide to hear the first noise that would send them rushing into the bush.
-
-They had bolted, too, before he got the picture.
+And now this life that she had built again was coming to a term because he had not used iodine two weeks ago when a thorn had scratched his knee as they moved forward trying to photograph a herd of waterbuck standing, their heads up, peering while their nostrils searched the air, their ears spread wide to hear the first noise that would send them rushing into the bush. They had bolted, too, before he got the picture.
 
 Here she came now.
 
 He turned his head on the cot to look toward her.
 
-"Hello," he said.
+-Hello,- he said.
 
 "I shot a Tommy ram," she told him.
 
@@ -174,9 +173,9 @@ You were sleeping when I left."
 
 "I had a good sleep.
 
-Did you walk far?"
+Were you far?
 
-"No.
+— No.
 
 Just around behind the hill.
 
@@ -194,7 +193,7 @@ If you're all right it's the most fun that I've ever had.
 
 You don't know the fun it's been to shoot with you.
 
-I've loved the country."
+I've loved the country.
 
 "I love it too."
 
@@ -203,15 +202,14 @@ I've loved the country."
 I couldn't stand it when you felt that way.
 
 You won't talk to me like that again, will you?
-Promise me?"
+You promise?
 
 "No," he said.
 
 "I don't remember what I said."
 
-"You don't have to destroy me.
+"You don't have to destroy me. Do you?
 
-Do you?
 I'm only a middle-aged woman who loves you and wants to do what you want to do.
 
 I've been destroyed two or three times already.
@@ -220,7 +218,7 @@ You wouldn't want to destroy me again, would you?"
 
 "I'd like to destroy you a few times in bed," he said.
 
-"Yes.
+- Yes.
 
 That's the good destruction.
 
@@ -230,9 +228,9 @@ The plane will be here tomorrow."
 
 "How do you know?"
 
-"I'm sure.
+-I'm sure.
 
-It's bound to come.
+He must come.
 
 The boys have the wood all ready and the grass to make the smudge.
 
@@ -242,9 +240,9 @@ There's plenty of room to land and we have the smudges ready at both ends."
 
 "What makes you think it will come tomorrow?"
 
-"I'm sure it will.
+- I'm sure.
 
-It's overdue now.
+He will come.It's overdue now.
 
 Then, in town, they will fix up your leg and then we will have some good destruction.
 
@@ -255,7 +253,7 @@ The sun is down."
 
 "Do you think you should?"
 
-"I'm having one."
+-I drank one shot.
 
 "We'll have one together.
 
@@ -263,10 +261,7 @@ Molo, letti dui whiskey-soda!" she called.
 
 "You'd better put on your mosquito boots," he told her.
 
-"I'll wait till I bathe .
-
-.
-."
+"I'll wait till I bathe..."
 
 While it grew dark they drank and just before it was dark and there was no longer enough light to shoot, a hyena crossed the open on his way around the hill.
 
@@ -276,7 +271,7 @@ While it grew dark they drank and just before it was dark and there was no longe
 
 "He's the one makes the noise at night.
 
-I don't mind it.
+%
 
 They're a filthy animal though."
 
@@ -294,27 +289,25 @@ It came with a rush; not as a rush of water nor of wind; but of a sudden, evil-s
 
 "What is it, Harry?" she asked him.
 
-"Nothing," he said.
+- Nothing,- he said.
 
-"You had better move over to the other side.
+You had better move over to the other side.
 
-To windward."
+Sit on the side of the wind.
 
 "Did Molo change the dressing?"
 
-"Yes.
-
-I'm just using the boric now."
+"Yes. I'm just using the boric now."
 
 "How do you feel?"
 
-"A little wobbly."
+- Again a little weak.
 
 "I'm going in to bathe," she said.
 
 "I'll be right out.
 
-I'll eat with you and then we'll put the cot in."
+I'll eat with you,then we'll put the cot in.
 
 So, he said to himself, we did well to stop the quarrelling.
 
@@ -325,11 +318,9 @@ He had loved too much, demanded too much, and he wore it all out.
 He thought about alone in Constantinople that time, having quarrelled in Paris before he had gone out.
 
 He had whored the whole time and then, when that was over, and he had failed to kill his loneliness, but only made it worse, he had written her, the first one, the one who left him, a letter telling her how he had never been able to kill it ...
-
 How when he thought he saw her outside the Regence one time it made him go all faint and sick inside, and that he would follow a woman who looked like her in some way, along the Boulevard, afraid to see it was not she, afraid to lose the feeling it gave him.
 
 How every one he had slept with had only made him miss her more.
-
 How what she had done could never matter since he knew he could not cure himself of loving her.
 
 He wrote this letter at the Club, cold sober, and mailed it to New York asking her to write him at the of fice in Paris.
@@ -350,11 +341,11 @@ The gunner hit him in the body, then beside his eye.
 
 He swung with his left again and landed and the gunner fell on him and grabbed his coat and tore the sleeve off and he clubbed him twice behind the ear and then smashed him with his right as he pushed him away.
 
-When the gunner went down his head hit first and he ran with the girl because they heard the M.P.
+When the gunner went down his head hit first and he ran with the girl because they heard the M.P. 's coming.
 
-'s coming.
-
-They got into a taxi and drove out to Rimmily Hissa along the Bosphorus, and around, and back in the cool night and went to bed and she felt as over-ripe as she looked but smooth, rose-petal, syrupy, smooth-bellied, big-breasted and needed no pillow under her buttocks, and he left her before she was awake looking blousy enough in the first daylight and turned up at the Pera Palace with a black eye, carrying his coat because one sleeve was missing.
+They got into a taxi and drove out to Rimmily Hissa along the Bosphorus, and around, and back in the cool night and went to bed and she felt as over-ripe as she looked but smooth, rose-petal, syrupy, smooth-bellied, big-breasted and needed no pillow under her buttocks.
+He left her before she was awake looking blousy enough in the first daylight.
+He turned up at the Pera Palace with a black eye, carrying his coat because one sleeve was missing.
 
 That same night he left for Anatolia and he remembered, later on that trip, riding all day through fields of the poppies that they raised for opium and how strange it made you feel, finally, and all the distances seemed wrong, to where they had made the attack with the newly arrived Constantine officers, that did not know a god-damned thing, and the artillery had fired into the troops and the British observer had cried like a child.
 
@@ -382,7 +373,6 @@ He had never written any of that because, at first, he never wanted to hurt any 
 But he had always thought that he would write it finally.
 
 There was so much to write.
-
 He had seen the world change; not just the events; although he had seen many of them and had watched the people, but he had seen the subtler change and he could remember how the people were at different times.
 
 He had been in it and he had watched it and it was his duty to write of it; but now he never would.
@@ -391,9 +381,11 @@ He had been in it and he had watched it and it was his duty to write of it; but 
 
 She had come out from the tent now after her bath.
 
-"All right."
+- Good.
 
-"Could you eat now?" He saw Molo behind her with the folding table and the other boy with the dishes.
+"Could you eat now?"
+
+He saw Molo behind her with the folding table and the other boy with the dishes.
 
 "I want to write," he said.
 
@@ -406,6 +398,7 @@ She had come out from the tent now after her bath.
 "Don't be melodramatic, Harry, please," she said.
 
 "Why don't you use your nose?
+
 I'm rotted half way up my thigh now.
 
 What the hell should I fool with broth for?
@@ -413,7 +406,7 @@ Molo bring whiskey-soda."
 
 "Please take the broth," she said gently.
 
-"All right."
+- All right.
 
 The broth was too hot.
 
