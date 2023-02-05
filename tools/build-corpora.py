@@ -262,6 +262,7 @@ def create_reg_files(langs, align_files, attribute_names, registry_path, vertica
         'crh-Cyrl': 'Tatar',
         'crh-RU': 'Tatar',
         'crh': 'Crimean Tatar',
+        'en': 'English',
         'uk': 'Ukrainian',
         'ru': 'Russian'
       }
