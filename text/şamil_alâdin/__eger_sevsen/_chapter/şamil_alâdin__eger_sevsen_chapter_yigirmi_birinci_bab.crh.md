@@ -2,23 +2,23 @@
 
 Dört kün, dört gece keçti.
 Buzlu avalarda, daa qızıp yetişmegen töşeklerimizni terk etip, dumanlı uçurımlar astında sırımlarnı ep patlata ve bayırlarnı-qırlarnı qaza, yıqamız.
-Quşlıq maalinde işni bitirip, yorğun ayaqlarımıznı zar-zorına süyreklep, barakqa qaytıp kelgende, uçurımlar astında diger smena kişileriniñ davuşları yañğıraylar.
+Quşluq maalinde işni bitirip, yorğun ayaqlarımıznı zar-zorına süyreklep, barakqa qaytıp kelgende, uçurımlar astında diger smena kişileriniñ davuşları yañğıraylar.
 
-Aylanma kanalnıñ aşağı qısımında çalışqan maşinistler işlerini bitirdi, ekskavatorlarını uzaqqa alıp ketmek içün endi demir yol yasaylar.
-Demir yolnıñ proyektini idaredeki konstruktorlıq bürosı tertip etti, proyekt içün materialnı geologlar ve topograflar azırladılar, relsler qoyılacaq topraqnı tedqiq ettiler.
+Aylanma kanalnıñ aşağı qısmında çalışqan maşinistler işlerini bitirdi, ekskavatorlarını uzaqqa alıp ketmek içün endi demir yol yasaylar.
+Demir yolnıñ proektini idaredeki konstruktorlıq bürosı tertip etti, proekt içün materialnı geologlar ve topograflar azırladılar, relsler qoyulacaq topraqnı tedqiq ettiler.
 Yol dos-doğru kotlovannıñ içine barıp tüşecek.
-Kişilerniñ ağızından bu söz endi sıq işitile başlay.
+Kişilerniñ ağzından bu söz endi sıq işitile başlay.
 Kotlovan!
-O eki yüksek qayanıñ ağızında olacaq.
+O eki yüksek qayanıñ ağzında olacaq.
 Lâkin suvnıñ aqıntısı musaade etecekmi?
 Aylanma kanal bitken ve oña suv yiberilgen soñ bilinecek.
 
-Ekskavatorımız tar topraq yolağı üstünde çoñqayıp qaldı... bir yaqta aylanma kanalnıñ ağızı, diger yaqta — Çar-Çaq.
+Ekskavatorımız tar topraq yolağı üstünde çoñqayıp qaldı... bir yaqta aylanma kanalnıñ ağzı, diger yaqta — Çar-Çaq.
 Sağ tarafta özen iñley, sol tarafta teren aylanma kanal sozulıp yata.
 Eki kovş topraq alınsa, Çar-Çaqnıñ suvu kanalğa aqacaq.
 
-Soñki künlerde epimiz Curayevniñ smenasında galışamız.
-Men onıñ tabiatında yeñi hususiyetler taptım.
+Soñki künlerde epimiz Curayevniñ smenasında çalışamız.
+Men onıñ tabiatında yañı hususiyetler taptım.
 Smena vaqtında bizim maşinamızğa kelip, uzaqta topraq yığını üstünde turıp, işniñ ketişatına köz ete, kabinağa minerek, yelquvannıñ areketini teşkere, soñ maña sezdirmey, tüşip kete.
 İrada maşinanıñ vaziyetini Almazovdan sorap bile turğan, Curayev özü kelip teşkere.
 
@@ -28,16 +28,16 @@ Curayev plotina içün bloklar azırlayıcı armaturcılarnıñ yanından ketmey
 İrada — çevik ve talapkâr.
 İşten küç acımay.
 Plan tolmadı degen şeyni bilmey.
-Amma soñki künlerde, Curayevniñ smenasında çalışqan vaqıtımızda biz, Basit degeni kibi, reberimiz erkek kişi ekenini sezip turdıq.
+Amma soñki künlerde, Curayevniñ smenasında çalışqan vaqtımızda biz, Basit degeni kibi, reberimiz erkek kişi ekenini sezip turdıq.
 Bunı aytıp añlatmaq qıyın.
 Karnakeryan kelip ventilâtornı, motornı teşkere, Nikolayğa bir şeyler aytıp kete.
 Keteyatqanda menden: "Curayev daa kelgeni yoqmı?" dep soray.
 Curayev kelgen soñ, aynı şu motornı ve ventilâtornı teşkerip, montörlarnıñ defterine nasıldır qaydlar yazıp qoya.
 
-İşleyatqan vaqtımızda topraq içinden balaban taş çıqsa, yer patlatıcılar özleri kelip patlatıp keteler.
+İşleyatqan vaqtmızda topraq içinden balaban taş çıqsa, yer patlatıcılar özleri kelip patlatıp keteler.
 Curayev olarnı qıdırıp yürmey.
 Soñra taşlarnı yer patlatıcılarnıñ yardımı sayesinde platformağa yükley, motovoz kelip olarnı, taşkeser tezyalar ustahanesine alıp kete.
-İş vaqıtında terekler, çalılar rastkelse, dülgerler kelip, olarnı kese, soñra kommunhoznıñ arabası peyda ola.
+İş vaqtında terekler, çalılar rastkelse, dülgerler kelip, olarnı kese, soñra kommunhoznıñ arabası peyda ola.
 Bu terekler furun yahut aşhana içün kerekler.
 Adamlar bu işlerniñ episini özleri yapalar, olarnıñ başları üstünde turğan kişi yoq.
 
@@ -52,16 +52,17 @@ Men onı töpege çağırmaq içün yerge tüştim.
 
 — Bittimi?— dep soradı Raşid.
 
-— Bitti,— dedim men. — Kanal bitti!
+— Bitti,— dedim men.
+— Kanal bitti!
 
-Tünevin gece men rıçag başında oturğanda: "Barıp ta kanal yarın geceniñ bir vaqıtında bitse, Kandıba, kim bile, nasıl deşetli sadalar çıqarır?.." dep tüşüngen edim.
+Tünevin gece men rıçag başında oturğanda: "Barıp ta kanal yarın geceniñ bir vaqtında bitse, Kandıba, kim bile, nasıl deşetli sadalar çıqarır?.." dep tüşüngen edim.
 Endi bitti... kimse indemedi.
 
 — Bitken olsa, motorlar niçün işleyler?
 
 — A-a — men ayretke keldim,— unutqanım... 
 Maşina bölügine kirip, rubilnikni çıqardım.
-Gurulti toqtalğan soñ Bassaraba ve Kandıba uyandılar. 
+Gürülti toqtalğan soñ Bassaraba ve Kandıba uyandılar.
 — Bittimi?!
 
 — Bitti.
@@ -71,9 +72,11 @@ Gurulti toqtalğan soñ Bassaraba ve Kandıba uyandılar.
 Bu arada topraq yığını üstünde adam peyda oldı.
 
 — Ne toqtadıñız?
-Tros qoptımı?— Karimniñ mısqıllı davuşı işitildi.
+Tros qoptımı?— Karimniñ mısqıllı davuşı eşitildi.
 
-— Kene tros... ne yapmalı bilmem…— Kandıba ilekârlıqqa ilekârlıqnen cevap berdi. — Belâ.
+— Kene tros... 
+ne yapmalı bilmem…— Kandıba ilekârlıqqa ilekârlıqnen cevap berdi. 
+— Belâ.
 Ya siz?
 Çalışasıñızmı?
 
@@ -84,17 +87,17 @@ Ya siz?
 — Elektrik küçü yoq.
 
 Karimniñ maşinası bütün gece işlep çıqtı.
-Biz işittik.
+Biz eşittik.
 Şimdi elektrik küçü yoq eken...
 Ekskavatornıñ töpesine çıqıp Ayıq-Burun betke baqtım.
-Yalı tüm-tüz.
+%
 Ekskavatornıñ saçağında çıraq yanmaqta.
 Aşağı tüştim.
 
-— Maşinañız bozıq, öylemi?— dedim men ve Karimniñ o yaqqa, bu yaqqa aylana bergen közlerine baqtım.
+— Maşinañız bozuq, öylemi?— dedim men ve Karimniñ o yaqqa, bu yaqqa aylana bergen közlerine baqtım.
 
 — E!— dedi Karim,— çalışalmadıq. 
-Lâkin böyle teatr levhası köstermek içün ne onda, ne mende istidad yoq edi.
+Lâkin böyle teatr levhası köstermek içün ne onda, ne mende istidat yoq edi.
 Ekimiz de şah-şahetip küldik.
 Başta Karim küldi.
 
@@ -102,7 +105,8 @@ Onıñ ekskavatorı özenniñ yalısında tura, astında Çar-Çaq uvulday.
 Ayıq-Burun artıq dünyada yoq.
 Andrey Zaharoviç rıçag başında, sigar içmekte.
 
-— Bizimki azır,— dedi o, külümsirep,— siziñki?
+— Bizimki azır,— dedi o, külümsirep,
+— siziñki?
 
 — Biz gece çalışmadıq,— dedi Nikolay,— yarıq olmadı.
 Yarıq olğan soñ, tros üzüldi.
@@ -114,11 +118,13 @@ Sizden yardım istep keldik.
 Yalıdaki şpallar artından İrada köründi.
 
 — Ne oldı?
-Ne toplandıñız?— dep qıçırdı o, uzaqtan. — Smenanıñ bitmesine üç saat daa bar!
+Ne toplandıñız?— dep qıçırdı o, uzaqtan.
+— Smenanıñ bitmesine üç saat daa bar!
 
 — Qayda ediñ, İra?— dedi Almazov,— dört künden berli kimsege körünmediñ!
 
-— Sizge kerek oldımmı?— bizge şübeli-şübeli baqtı,— Curayev yanıñızda, Toqtabayev daima telefon başında.
+— Sizge kerek oldımmı?— bizge şübeli-şübeli baqtı,
+— Curayev yanıñızda, Toqtabayev daima telefon başında.
 Sizge daa ne kerek?
 
 — Bilem.
@@ -140,11 +146,12 @@ Bir özüm çalıştım.
 — Bir şeyden haberiñiz yoq,— dedi İrada, kögertege çıqqan soñ,— men sizge geceleri üç defa kelip kettim.
 Kimsege körünmedim.
 Curayev: "maña işanmay, kelip teşkerip yüre" beller dep saqındım.
-Gizliden kelem, yığınnıñ artında pusup, çalışqanıñıznı baqıp turam.
+Gizliden kelem, yığınnıñ artında pısıp, çalışqanıñıznı baqıp turam.
 Yaş ekskavatorcılarnen işlemek qolay degil.
 Sergeyev ağır adam.
 Sizde... yardımcıñız..?
-Kerçek, endi yardımcıñız degil, ekinci maşinist... nasıl?— Bu endi maña ait edi,— onı, ğaliba, qarardan ziyade maqtadıñız!— İrada, şay der eken, gizliden maña koz etip aldı.
+Kerçek, endi yardımcıñız degil, ekinci maşinist... nasıl?
+— Bu endi maña ait edi,— onı, ğaliba, qarardan ziyade maqtadıñız!— İrada, şay der eken, gizliden maña koz etip aldı.
 
 — Güzel...— dedi Almazov,— maşinistlerniñ episi onıñ kibi çalışsa... umumen, bu soñki künlerde kişiler büyük reberler olıp kettiler.
 Bunı bir qayd etmek kerek edi.
@@ -179,7 +186,8 @@ Keyfi yerinde edi.
 
 — Bundan nasıl haberiñiz oldı? — dep soradım men.
 
-— Curayev ayttı,— dedi Mavlân aka,— plotinada körüştik.
+— Curayev ayttı,— dedi Mavlân aka,
+— plotinada körüştik.
 Şadmanovanı tapıp, sizge yollamamnı rica etti.
 
 Evge kelgen soñ epimiz koykalar üstüne yıqıldıq.
@@ -188,15 +196,16 @@ Divardaki saat sert-sert tıqılday edi.
 Zıncırına, demir anahtardan ve teneke meşrebeden ğayrı, üç dane saksaul parçası da taqqanlar.
 Endi beş...
 
-— Bugün aşhanede, acarlar aytqanı kibi, palevezeli plâv olmaq kerek...— dedi Nikolay, rezina çızmalarını çıqarayatqanda. — Men yuqlaycağım.
+— Bugün aşhanede, acarlar aytqanı kibi, palevezeli plâv olmaq kerek...— dedi Nikolay, rezina çızmalarını çıqarayatqanda.
+— Men yuqlaycağım.
 
-— Palevezesini bilmeyim,— dedi Raşid,— lâkin palov pişirgenler.
+— Palevezesini bilmeyim,— dedi Raşid,— lâkin plov pişirgenler.
 
 — Men yuqlamaycağım... kezecegim,— dedim men, amma içimden: "belki yolda İradanı rastketiririm" dep tüşündim.
 
 — Kezecek...— bu Ataqulovnıñ oşına ketti,— oña ne deyler?
 Sen aşhanağa bar!
-Sabira halağa ayt, bizge ekişer çanaq palov qaldırsın!
+Sabira halağa ayt, bizge ekişer çanaq plov qaldırsın!
 Kanalnı bitirgen bizmiz.
 
 — Menim işim bar, Basit!
@@ -210,7 +219,7 @@ Yolda öz başıma dolanıp bezgen soñ, ister-istemez, aşhanege doğruldım.
 Sabira hala qapunı açtı.
 
 — Otur!— dedi maña,— şimdi aş ketiririm! 
-Stol üstünde, kerçekten de, palov peyda oldı.
+Stol üstünde, kerçekten de, plov peyda oldı.
 Semiz etnen qave renkte pişirilgen.
 İçinde pişik sarımsaq başları.
 
@@ -236,10 +245,10 @@ Maña bir danesi kâfi.
 Yekaterina Vasilyevna öz derdini maña kelip töke... ağlana.
 Ber çanağıñnı, daa qoyayım!
 
-Sabira hala tekaran palov daa qoyıp ketirdi.
-Bu sefer eti çoq, semiz ve palovnıñ özü yağlı... birinci çanaq öyle degil edi.
+Sabira hala tekaran plov daa qoyıp ketirdi.
+Bu sefer eti çoq, semiz ve plovnıñ özü yağlı... birinci çanaq öyle degil edi.
 
-— ...Kele, ağlana otura,— o sözini devam etti,— men elbette, bu laqırdılarnı bir sebepsiz... bedava diñlemeyim.
+— ...Kele, ağlana otura,— o sözüni devam etti,— men elbette, bu laqırdılarnı bir sebepsiz... bedava diñlemeyim.
 Laqırdı etmek isteysiñmi, menimnen beraber çalış!
 Qazanlarnı yuv, qartop arçı, diñlerim...
 Ya Valka?
@@ -247,13 +256,13 @@ Ya Valka?
 Kim ekenini aytmay.
 Özü er ay yañısını qabul ete, dep tüşüngen edim.
 Albu ise başqa türlü eken.
-İçkeni doğru, lâkin Nikolay oña: içme dese, ağızına ölgence bir damla raqı almaycaqqa beñzey.
+İçkeni doğru, lâkin Nikolay oña: içme dese, ağzına ölgence bir damla raqı almaycaqqa beñzey.
 Onı sıylaylar.
 Bilesiñmi kim?
-Dostı Rahil.
+Dostu Rahil.
 Rahil aqıllı qız.
 Amma — başqa.
-Ömürinde oyle çoq şeyler körgen ki, tasavur etmek qıyın.
+Ömründe oyle çoq şeyler körgen ki, tasavur etmek qıyın.
 O da sevginen çekişe.
 Sevgi olsa, qadın güzel körüne.
 Qadın sevgisiz yaşayalmay.
@@ -282,7 +291,7 @@ Menim közlerim er şeyni köre.
 İndemeseñ, başıña minecek.
 Seniñ artıñdan keze.
 Evini-barqını bıraqıp, peşiñden Solomon adalarına ketecek.
-Siziñ nesilni pek seve, lâkin seniñnen ayrıca isap kesmek istey.
+Siziñ nesilni pek seve, lâkin seniñnen ayrıca esap kesmek istey.
 O saña pek inana.
 Bir fena ceeti — çalışmay, erkeklerniñ başlarını aylandırıp yüre.
 Amma özü güzel şeyçik.
@@ -297,10 +306,10 @@ Böyle sevgi olamı?
 Kerçek, siz erkekler içün bunıñ farqı yoq, özüñiz sevseñiz oldı.
 Yekaterina Vasilyevna seni seve.
 Men bilem.
-Ber, biraz palov daa qoyayım!
+Ber, biraz plov daa qoyayım!
 
 Sabira hala bugün menim ile niçün bu qadar nezaketli..?
-Farqına baralmadım.
+%
 Oña sertiydim bile!
 Yekaterina Vasilyevna menim içün kim olğan?
 Belki o, Solomon adalarına başqa adamlarnen de ketmege azırdır?!
@@ -308,22 +317,25 @@ Soñundan episini añladım.
 Sabira halanıñ bu felsefesi menim ögümde İradanıñ itibarını kötermek içün eken.
 Lâkin bu meselede bizim aramızda pek çoq añlaşamamazlıqlar oldı.
 Sabira hala ilki devirde maña, İrada içün lâyıq kişi degil, dep baqa edi.
-Bugün ise qadınlar aqqında mıtlaqa fikirimni işitmek istedi.
-Ve işitti.
+Bugün ise qadınlar aqqında mıtlaqa fikrimni eşitmek istedi.
+Ve eşitti.
 
 — Sabira hala!
 Men Yekaterina Vasilyevnañıznı iç bir vaqıt sevmedim ve sevmeycegim.
-Özüne aytıñız, onıñ maña kerekligi yoq,— dedim men, soñ aciz göñülnen ilâve ettim:— Menim hayalım — İrada.
+Özüne aytıñız, onıñ maña kerekligi yoq,— dedim men, soñ aciz göñülnen ilâve ettim:
+— Menim hayalım — İrada.
 O da meni sevmey...
 
 Sabira hala maña inanmay-inanmay baqtı, lâkin inandı.
 
-— Öylemi?— dedi o. — Men bir baqışta siziñ, erkeklerniñ, yürekleriñizde ne barlığını bilem.
+— Öylemi?— dedi o. 
+— Men bir baqışta siziñ, erkeklerniñ, yürekleriñizde ne barlığını bilem.
 İçiñizni-bağrıñıznı körem.
 Men İrada içün raatsızlanam.
 Daa qoyıp bereyimmi?
 
-Aşayımmı eken?— dep tüşündim men,— Aydı, olmasa, bir çanaq daa!..
+Aşayımmı eken?— dep tüşündim men.
+— Aydı, olmasa, bir çanaq daa!..
 
 — İrada menim öz balam kibi...— Sabira hala tınmadı,— onıñ anası aqayım tarafından maña soy.
 İrada pek inançaq qız.
@@ -333,7 +345,7 @@ Aşayımmı eken?— dep tüşündim men,— Aydı, olmasa, bir çanaq daa!..
 — Lâkin Katânıñ aytqanlarına inandı qoydı belleme!
 Siz erkekler...
 
-Kene palov ketirecekmi ne, dep qorqtım.
+Kene plov ketirecekmi ne, dep qorqtım.
 Yoq, Sabira hala endi, ğaliba, istegen şeyleriniñ episini sorap bilgen ve aytıp bitirgen edi.
 Yanaşamda biraz daa turğan soñ, kuhnâğa kirdi.
 Men barakqa qayttım.
