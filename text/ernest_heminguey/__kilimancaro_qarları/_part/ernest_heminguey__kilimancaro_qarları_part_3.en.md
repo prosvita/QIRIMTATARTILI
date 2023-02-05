@@ -1,7 +1,5 @@
 She looked at him with her well-known, well-loved face from Spur and Town & Country, only a little the worse for drink, only a little the worse for bed, but Town & Country never showed those good breasts and those useful thighs and those lightly small-of-back-caressing hands, and as he looked and saw her well-known pleasant smile, he felt death come again.
 
-in.
-
 This time there was no rush.
 
 It was a puff, as of a wind that makes a candle flicker and the flame go tall.
@@ -18,11 +16,11 @@ There won't be any rain."
 
 So this was how you died, in whispers that you did not hear.
 
-Well, there would be no more quarrelling.
+Well, now the end of quarrels.
 
 He could promise that.
 
-The one experience that he had never had he was not going to spoil now.
+He will not spoil what he has not experienced.
 
 He probably would.
 
@@ -44,7 +42,7 @@ There was a bell on a pole by the door to call the people in to meals.
 
 Behind the house were fields and behind the fields was the timber.
 
-A line of lombardy poplars ran from the house to the dock.
+A line of poplars ran from the house to the dock.
 
 Other poplars ran along the point.
 
@@ -114,27 +112,27 @@ The rest was plaster walls and the windows of the neighbors.
 
 The neighbors who, at night, when some one lay drunk in the street, moaning and groaning in that typical French ivresse that you were propaganded to believe did not exist, would open their windows and then the murmur of talk.
 
-''Where is the policeman?
+- Where did  the policeman go?
 When you don't want him the bugger is always there.
 
 He's sleeping with some concierge.
 
 Get the Agent.
 
-" Till some one threw a bucket of water from a window and the moaning stopped.
+Till some one threw a bucket of water from a window and the moaning stopped.
 
-''What's that?
+— What's that?
 Water.
+Ah, very intelligent.
+And then the sound of closing windows is heard.
 
-Ah, that's intelligent." And the windows shutting.
-
-Marie, his femme de menage, protesting against the eight-hour day saying, ''If a husband works until six he gets only a riffle drunk on the way home and does not waste too much.
+Marie, his femme de menage, protesting against the eight-hour day saying,
+''If a husband works until six he gets only a riffle drunk on the way home and does not waste too much.
 
 If he works only until five he is drunk every night and one has no money.
 
 It is the wife of the working man who suffers from this shortening of hours.
 
-'
 "Wouldn't you like some more broth?" the woman asked him now.
 
 "No, thank you very much.
@@ -147,7 +145,7 @@ It is awfully good."
 
 "It's not good for you."
 
-"No.
+- No.
 
 It's bad for me.
 
@@ -157,7 +155,7 @@ This knowledge that you're going mad for me."
 
 "You know I like you to drink."
 
-"Oh yes.
+-Oh yes.
 
 Only it's bad for me."
 
@@ -169,11 +167,11 @@ Ayee he was tired.
 
 Too tired.
 
-He was going to sleep a little while.
+He was going to get some sleep.
 
 He lay still and death was not there.
 
-It must have gone around another street.
+She must have turned down another street.
 
 It went in pairs, on bicycles, and moved absolutely silently on the pavements.
 
@@ -197,7 +195,7 @@ About the half-wit chore boy who was left at the ranch that time and told not to
 
 The boy refusing and the old man saying he would beat him again.
 
-The boy got the rifle from the kitchen and shot him when he tried to come into the barn and when they came back to the ranch he'd been dead a week, frozen in the corral, and the dogs had eaten part of him.
+When the man returned to the farm, a week passed since the old man had died, and he was all cold in the cage,and the dogs had eaten some of his parts.
 
 But what was left you packed on a sled wrapped in a blanket and roped on and you got the boy to help you haul it, and the two of you took it out over the road on skis, and sixty miles down to town to turn the boy over.
 
@@ -215,23 +213,25 @@ He knew at least twenty good stories from out there and he had never written one
 
 Why?
 
-"You tell them why," he said.
+- Explain to them why it happened,- said the man(talking to himself).
 
 "Why what, dear?"
 
-"Why nothing."
+- Nothing.
 
 She didn't drink so much, now, since she had him.
 
 But if he lived he would never write about her, he knew that now.
 
-Nor about any of them.
+He wouldn't write about others like her.
 
 The rich were dull and they drank too much, or they played too much backgammon.
 
-They were dull and they were repetitious.
+They were boring and similar to each other.
 
-He remembered poor Julian and his romantic awe of them and how he had started a story once that began, "The very rich are different from you and me." And how some one had said to Julian, Yes, they have more money.
+He remembered poor Julian and his romantic awe of them and how he had started a story once that began, "The very rich are different from you and me."
+
+And how some one had said to Julian, Yes, they have more money.
 
 But that was not humorous to Julian.
 
@@ -239,11 +239,11 @@ He thought they were a special glamourous race and when he found they weren't it
 
 He had been contemptuous of those who wrecked.
 
-You did not have to like it because you understood it.
+Whether I understand this situation or not, it doesn`t matter/
 
 He could beat anything, he thought, because no thing could hurt him if he did not care.
 
-All right.
+All right,very good.
 
 Now he would not care for death.
 
@@ -257,9 +257,7 @@ He was a fat man, very brave, and a good officer, although addicted to fantastic
 
 But that night he was caught in the wire, with a flare lighting him up and his bowels spilled out into the wire, so when they brought him in, alive, they had to cut him loose.
 
-Shoot me, Harry.
-
-For Christ sake shoot me.
+"Shoot me, Harry, For Christ sake shoot me",- she shouted.
 
 They had had an argument one time about our Lord never sending you anything you could not bear and some one's theory had been that meant that at a certain time the pain passed you out automatically.
 
@@ -273,7 +271,7 @@ Except that he would rather be in better company.
 
 He thought a little about the company that he would like to have.
 
-No, he thought, when everything you do, you do too long, and do too late, you can't expect to find the people still there.
+"No", he thought, when everything you do, you do too long, and do too late, you can't expect to find the people still there.
 
 The people all are gone.
 
@@ -299,7 +297,7 @@ He heard the hyena make a noise just outside the range of the fire.
 
 "Do you think you will be able to sleep?"
 
-"Pretty sure.
+- Pretty sure.
 
 Why don't you turn in?"
 
@@ -307,9 +305,9 @@ Why don't you turn in?"
 
 "Do you feel anything strange?" he asked her.
 
-"No.
+- No.
 
-Just a little sleepy."
+Just a little sleepy.
 
 "I do," he said.
 
@@ -321,12 +319,12 @@ He had just felt death come by again.
 
 You're the most complete man I've ever known."
 
-"Christ," he said.
+- Christ,- he said.
 
 "How little a woman knows.
 
 What is that?
-Your intuition?"
+Are these your inner feelings?
 
 Because, just then, death had come and rested its head on the foot of the cot and he could smell its breath.
 
@@ -348,15 +346,17 @@ It did not go away but moved a little closer.
 
 "You stinking bastard."
 
-It moved up closer to him still and now he could not speak to it, and when it saw he could not speak it came a little closer, and now he tried to send it away without speaking, but it moved in on him so its weight was all upon his chest, and while it crouched there and he could not move or speak, he heard the woman say, "Bwana is asleep now.
+It moved up closer to him still and now he could not speak to it, and when it saw he could not speak it came a little closer, and now he tried to send it away without speaking, but it moved in on him so its weight was all upon his chest, and while it crouched there and he could not move or speak, he heard the woman say,
 
-Take the cot up very gently and carry it into the tent."
+"Bwana is asleep now.
+
+Take the cot up gently and carry it into the tent.
 
 He could not speak to tell her to make it go away and it crouched now, heavier, so he could not breathe.
 
 And then, while they lifted the cot, suddenly it was all right and the weight went from his chest.
 
-It was morning and had been morning for some time and he heard the plane.
+It was morning and  he heard the plane.
 
 It showed very tiny and then made a wide circle and the boys ran out and lit the fires, using kerosene, and piled on grass so there were two big smudges at each end of the level place and the morning breeze blew them toward the camp and the plane circled twice more, low this time, and then glided down and levelled off and landed smoothly and, coming walking toward him, was old Compton in slacks, a tweed jacket and a brown felt hat.
 
@@ -366,13 +366,13 @@ It showed very tiny and then made a wide circle and the boys ran out and lit the
 
 "Will you have some breakfast?"
 
-"Thanks.
+- Thanks.
 
 I'll just have some tea.
 
 It's the Puss Moth you know.
 
-I won't be able to take the Memsahib.
+%
 
 There's only room for one.
 
@@ -402,7 +402,9 @@ Compton started the motor and got in.
 
 He waved to Helen and to the boys and, as the clatter moved into the old familiar roar, they swung around with Compie watching for warthog holes and roared, bumping, along the stretch between the fires and with the last bump rose and he saw them all standing below, waving, and the camp beside the hill, flattening now, and the plain spreading, clumps of trees, and the bush flattening, while the game trails ran now smoothly to the dry waterholes, and there was a new water that he had never known of.
 
-The zebra, small rounded backs now, and the wildebeeste, big-headed dots seeming to climb as they moved in long fingers across the plain, now scattering as the shadow came toward them, they were tiny now, and the movement had no gallop, and the plain as far as you could see, gray-yellow now and ahead old Compie's tweed back and the brown felt hat.
+The zebra, small rounded backs now, and the wildebeeste, big-headed dots seeming to climb as they moved in long fingers across the plain.
+
+Now scattering as the shadow came toward them, they were tiny now, and the movement had no gallop, and the plain as far as you could see, gray-yellow now and ahead old Compie's tweed back and the brown felt hat.
 
 Then they were over the first hills and the wildebeeste were trailing up them, and then they were over mountains with sudden depths of green-rising forest and the solid bamboo slopes, and then the heavy forest again, sculptured into peaks and hollows until they crossed, and hills sloped down and then another plain, hot now, and purple brown, bumpy with heat and Compie looking back to see how he was riding.
 
@@ -432,15 +434,13 @@ She could see his bulk under the mosquito bar but somehow he had gotten his leg 
 
 The dressings had all come down and she could not look at it.
 
-"Molo," she called, "Molo!
-Molo!"
+"Molo," she called, "Molo! Molo!"
 
 Then she said, "Harry, Harry!" Then her voice rising, "Harry!
-Please.
-Oh Harry!"
+Please. Oh Harry!"
 
 There was no answer and she could not hear him breathing.
 
 Outside the tent the hyena made the same strange noise that had awakened her.
 
-But she did not hear him for the beating of her heart.
+But woman, didn't hear him for the beating of her heart.
