@@ -1,7 +1,7 @@
 ## Otuzınci bab — Zina yenge bizni çağıra
 
 Vaqıt tez keçmekte.
-Er kün dünya qadar yeñi vaqia.
+Er kün dünya qadar yañı vaqia.
 Barakqa kelseñ: onı bitirdik, bunı başladıq,— laqırdısı.
 Torizo keldi, Tursunov ketti...
 Ay keçe, artıña aylanıp baqsañ, güya bir türlü deñişme yoq.
@@ -13,39 +13,39 @@ Kendimizniñ bir qaç ay, evelsi kim olğanımıznı ve şimdi kim ekenimizni, a
 
 Emek hususında çeşit atalar sözleri bar.
 Atalarımız aqıllı adamlar olğan ve alicenap sözler söylegenler.
-Men felsefelik satmaq istemeyim, lâkin, er alde, emek çeşit türlü ola, dep tüşünem.
-Bir çeşidi para qazanmaq, keçinmek içün, diger çeşidi yüksek hızmet içün.
+Men felsefelik satmaq istemeyim, lâkin, er alda, emek çeşit türlü ola, dep tüşünem.
+Bir çeşiti para qazanmaq, keçinmek içün, diger çeşiti yüksek hızmet içün.
 Kimerde adamnı çalıştırmaq içün türlü usullar qullanmaq kerek ola.
 
 Bizim emegimiz... qurucılıqta çalışayatqan kişilerniñ emegi yalıñız para içün degil, yahud mecburiy emek degil.
 Ne?
-Para qazanmaq... dedimmi?
+Para qazanmaq... dediñmi?
 Bizim qazanğan paramız yemekke, tütünge, yahud bir qaç şişe raqığa, İskander magazininde ordernen berilgen basma kölmekke zornen yetişe.
 Biz para qazanuv aqqında tüşünmey, para toplamağa tırışmaymız.
 Qafamızda tek qurucılıq vazifeleri turalar.
 Biz özenni kendimizge itaat ettirmek ve avadan mineral kübre yasamaq isteymiz.
 Bu — Orta Asiya içün, er birimiz içün büyük iş.
-Yüreklerimiz bu işniñ alicenap ğayeleri ve romantikasınen beraber urmaqta; men umumiy maqsad deyim, amma o — er birimizniñ kendi maqsadı.
+Yüreklerimiz bu işniñ alicenap ğayeleri ve romantikasınen beraber urmaqta; men umumiy maqsat deyim, amma o — er birimizniñ kendi maqsadı.
 Umumiy ğayemizniñ tantanası bundan ibaret.
 O, areket etici büyük quvetke çevirilerek, bu qurucılıqta toplanğan çeşit taqdirli, çeşit nazarlı, çeşit adetli adamlarnı umumiy istekke ve ilhamğa tabi büyük bir kollektivge qoşulmağa sebepçi oldı.
 
 Şimdi, aradan yigirmi beş sene keçken soñ, men o vaqialarnı kâğıt üzerinde yazayatqan vaqıtımda, er bir areketimizni tüşünip baqam ve qıymet kesem.
-Ne Andrey Almazov, ne Karim Yoldaşev, ne Mihail Bassaraba — iç birimiz entuziazm aqqında laqırdı etkenimiz ve tüşüngenimiz yoq; kimerde bizni gazetada entuziastlar... dep yazsalar, biz diger, biñlerce kişiler kibi, memnuniyetsiz alda çıraylarımıznı sıta ve mırıldana edik: "Bizden entuziast olamı?
+Ne Andrey Almazov, ne Karim Yoldaşev, ne Mihail Bassaraba — iç birimiz entuziazm aqqında laqırdı etkenimiz ve tüşüngenimiz yoq; kimerde bizni gazetada entuziastlar... dep yazsalar, biz diger, biñlerce kişiler kibi, memnüniyetsiz alda çıraylarımıznı sıta ve mırıldana edik: "Bizden entuziast olamı?
 Çalışamız... plannı eda etemiz.
 Başqa şey yoq!" Çar-Çaqta böyle adamlar çalıştılar.
 Çar-Çaq böyle adamlarnı doğurdı ve terbiyeledi.
 
 ...Vaqıt tez keçmekte, dedim men.
-Biz endi.
-Almazovqa ekskavator parkını qabul etmesini teklif etkenlerini unuttıq.
-Aylanma kanal bitken soñ Mansurov Baş Dugümden ketmek içün ariza bergenini işittik.
+Biz endi Almazovğa ekskavator parkını qabul etmesini teklif etkenlerini unuttıq.
+Aylanma kanal bitken soñ Mansurov Baş Dügümden ketmek içün ariza bergenini eşittik.
 Bu vaqia bizni çoq meraqlandırdı.
-"Özü ketmek isteymi, yoqsa ketmege mecburmı?" Özü...
+"Özü ketmek isteymi, yoqsa ketmege mecburmı?" 
+Özü...
 Özü ketmek istey.
-O, Yekaterina Vasilyevnanıñ facialı elâkinden soñ, çoq iprandı, çoq deñişti.
+O, Yekaterina Vasilyevnanıñ facialı elâkından soñ, çoq iprandı, çoq deñişti.
 Vadim Semönoviç oña özünde, tehnika bölüginde, injener-konsultant vazifesini teklif etken.
 Bilmeyim...
-Tursunov Almazovnı öz kabinetine çağırıp, yeñi vazife hususında laqırdı etken vaqıtta, Andrey Zaharoviç, ınq-şınq degen, çeşit sebepler tapqan, qısqası, red etken.
+Tursunov Almazovnı öz kabinetine çağırıp, yañı vazife hususında laqırdı etken vaqıtta, Andrey Zaharoviç, ınq-şınq degen, çeşit sebepler tapqan, qısqası, red etken.
 Ondan soñ Tursunov tutqan, Almazovnıñ ekskavator parkı başlığı vazifesine tayin etilüvi hususında şart dep emir imzalağan.
 Ondan soñ Andrey Zaharoviç qatiyetlik körsetti.
 Curayevniñ adına "protest" yazdı.
@@ -58,7 +58,7 @@ Almazovnı qandırmaq mümkün olmadı.
 
 Ekskavator parkınıñ başlığı vazifesinde kene Mansurov qaldı.
 
-Çoqqa barmay, derivatsion kanal içün yeñi ekskavatorlar keldi.
+Çoqqa barmay, derivatsion kanal içün yañı ekskavatorlar keldi.
 Maşinistler kene yetişmedi.
 İrada bu munasebetnen elverişli usul tüşünip çıqardı.
 Er ekskavatorda üçer maşinist degil de... birer maşinist olsun, dedi.
@@ -68,8 +68,8 @@ Evel er ekskavatorda üç maşinist, üç yardımcı çalışa edi.
 Yardımcınıñ vazifesi — maşina bölügi işine ve köpçekler astındaki demir yol qurucılığına köz-qulaq olmaq edi.
 Kimerde yardımcı maşinistniñ yerinde çalışa, kimerde nijniklerge yardım ete.
 
-Şimdi bir maşinist er üç smenada üçer saat çalışmağa borclı.
-Bu saatler içinde yardımcı, mehanizmni maylav ve teşkerüv işini eda etip yetiştire ve qalğan vaqıtında maşinist vazifesini yapa.
+Şimdi bir maşinist er üç smenada üçer saat çalışmağa borclu.
+Bu saatler içinde yardımcı, mehanizmni maylav ve teşkerüv işini eda etip yetiştire ve qalğan vaqtında maşinist vazifesini yapa.
 
 Almazovnıñ yardımcıları Raşid Mahkamov, Nikolay Kandıba ve men — üçümiz oldıq.
 Basit Ataqulov ve eki yaş yigit Mihail Bassarabanıñ yardımcıları...
@@ -85,7 +85,7 @@ Söz, elbette, Karamat hususında kete.
 Olarnıñ işleri menimkinden güzel.
 Maña çoq şeyler keder etti.
 Karimge?
-Etmedimi?
+%
 Onıñ yolu ortasında da bir Tursunov bar edi.
 Raşid Mahkamov...
 Lâkin iş mürekkepleşmezden evel, çezilip ketti.
@@ -111,11 +111,11 @@ Bu endi plotina.
 
 Betoncılar kimerde bizge: davran, davran, dep qıçıralar.
 Tezden kotlovanda beton qoymağa yer tapılmaycaq!
-Yağma yoq.
+%
 Aramızda mesafe büyük.
 Bu qadar teren uçastkada negiz qoymaq ve divar qalamaq içün çoq vaqıt kerek.
 
-Aylanma kanal qazğan vaqıtımızda ekskavator işleri — eñ esas, eñ yetekçi zenaat yesap etile edi, şimdi eñ müim zenaat — beton qoyuv.
+Aylanma kanal qazğan vaqtımızda ekskavator işleri — eñ esas, eñ yetekçi zenaat esap etile edi, şimdi eñ müim zenaat — beton qoyuv.
 Ekskavatorcı degen ad kişiler arasında endi az işitilip başlay.
 
 Beton zavodınen plotina arasında toqtamay poezd qatnay.
@@ -142,15 +142,16 @@ Raşid ve Basit çay içeyata ediler.
 
 — Kimni? — dep soradım men.
 
-— Seni! — burunı ile maña işaret etti. 
+— Seni! — burunı ile maña işaret etti.
 Biz yoq vaqıtta Valâ Sinitskaya kelip ketken.
-Menim aqqımda yeñi haber işitken...
+Menim aqqımda yañı haber eşitken...
 Curayev güya menim, Mansurovnıñ muavini tayin etilmemni teklif etken.
 
 — Bizim köyde buña üfürtme, deyler...— dedim men.
 
 — Üfürtme?
-Niçün üfürtme olsun? — dedi Nikolay, açuvlanıp,— maşinanı yahşı bilesiñ.Ondan soñ... men, reberler arasında bizim qardaştan da bir adam olğanını çoqtan istey edim.
+Niçün üfürtme olsun? — dedi Nikolay, açuvlanıp,— maşinanı yahşı bilesiñ.
+Ondan soñ... men, reberler arasında bizim qardaştan da bir adam olğanını çoqtan istey edim.
 
 — Zan etsem, reberler arasında bizim qardaştan bir adam barlığı çoqtan...— dedi Raşid,— Sinitskaya şimdi Tursunovnıñ qabulhanesinde sekretar.
 Bu yetrlik degilmi?
@@ -160,36 +161,42 @@ Valâ tek bizni sevindirmek içün kelip kettimi?
 — Men bir şey bellemeyim...— dedi Nikolay,— tek Valkanıñ hızmette ğayretli ekenini bilem.
 İçüvni bıraqtı.
 Amma evlenmek içün bu, zanımca, yeterlik degil.
-Ondaki ne?
+%
 Sevgimi, intiqammı?
 Alla bilsin...
 
 — İntiqam? — Raşid ayretlendi,— nasıl intiqam?
 
-— Men ne yapmaq kerekim? — dep soradım men. — Bir şeyler tüşünesiñizmi?
+— Men ne yapmaq kerekim? — dep soradım men.
+— Bir şeyler tüşünesiñizmi?
 
-— Senmi? — Raşid telqin bere başladı. — Saña çoq tüşünip oturmaq kerekmey.
+— Senmi? — Raşid telqin bere başladı.
+— Saña çoq tüşünip oturmaq kerekmey.
 Qabul et... vesselâm!
 Naçalnik olacaq olğan soñ, birden olmaq kerek.
 Andrey kibi, yüz yıl rıçag başında oturmaqta mana yoq.
 
-— Ne yapmaq kerek? — Nikolay menim sualimni başqa türlü añladı. — Seniñ hastalığıña retsept berilmey.
+— Ne yapmaq kerek? — Nikolay menim sualimni başqa türlü añladı.
+— Seniñ hastalığıña retsept berilmey.
 Evelleri İradağa olğan muameleñe men çoqtan inanmay edim.
 Amma şimdi...
 
-— A-a! — dedi Basit ve küldi. — Cevdet başqa şeyni sorağan ekende?!
+— A-a! — dedi Basit ve küldi.
+— Cevdet başqa şeyni sorağan ekende?!
 
 — Ebet!
 Men de oña başqa şey hususında cevap berem,— dedi Nikolay.
 
 — Men İradanen laqırdı ettim...— dedim men.
 
-— Soñ? — Nikolay menim sevgi meselemnen pek meraqlana ve onıñ içün çoq eecanlana edi. — Soñ, nasıl?
+— Soñ? — Nikolay menim sevgi meselemnen pek meraqlana ve onıñ içün çoq eecanlana edi.
+— Soñ, nasıl?
 
 — Mesele çezildi.
 Bundan soñ aramızda qara mışıq keçmeycekke beñzey.
 
-— Öyle ise, senden yahşı naçalnik olur...— Kandıba zornen küldi,— ya Tursunov?
+— Öyle ise, senden yahşı naçalnik olur...
+— Kandıba zornen küldi,— ya Tursunov?
 O endi büyük adam.
 Bu hususta tüşünip baqtıñmı?
 
@@ -204,13 +211,13 @@ Kene Hristofornen ekimiz qalacaqmız.
 Bizni unuta başladıñ, Cevdet!
 Yalıñız İra hususında tüşünesiñ.
 Dostluğımız sarsıldı.
-Qorqam, onı tezden ğaip etecekmiz.
-Men ömürimde çoq şey kördim, çoq şey bilem.
+Qorqam, onı tezden ğayıp etecekmiz.
+Men ömrümde çoq şey kördim, çoq şey bilem.
 Dostlarsız saña ve sensiz dostlarğa yaşamaq qıyın olur.
-Kişiniñ yolunda dostı olğanı kibi, duşmanı da bar... duşman birden bitip ketmey.
+Kişiniñ yolunda dostu olğanı kibi, duşmanı da bar... duşman birden bitip ketmey.
 
 — Arhipka?!
-Alâ teslim olmadımı? 
+Alâ teslim olmadımı?
 Nikolay başını tersine salladı: "yoq!"
 
 — Muşuq.
@@ -223,8 +230,10 @@ Arhipka da onıñnen beraber, em yuqsıramay!
 Onıñ beti endi bayağı tögereklengen ve evelki boyanı qabul etken: omuzınıñ ağrısı içün siyrek şikâyetlenmekte.
 
 — Sizge ne oldı?
-Yüzleriñiz ekşigen! — o ocaq yanında toqtaldı, tez-tez soyuna başladı. — çamurğa lânet olsun!
-E! Qavğa ettiñizmi, ne yaptıñız şu?!
+Yüzleriñiz ekşigen! — o ocaq yanında toqtaldı, tez-tez soyuna başladı. 
+— çamurğa lânet olsun!
+E! 
+Qavğa ettiñizmi, ne yaptıñız şu?!
 Doğru yolnen keleyim dedim, suvğa battım.
 Çızmamnıñ içi toldı.
 Ne indemeysiñiz?
@@ -236,7 +245,7 @@ Bizge mal bölüşmek qaldımı?
 Sizden sorayım.
 Alla belâñıznı bersin... niçün indemeysiñiz? — Hristofor kerçekten açuvlanıp qıçırdı, ayağınen kürsüni tepip attırdı, tekrar cekirdi,— men böyle tüşkünlikke çıdayalmayım!
 
-— Hristofor! — dedi Nikolay saburlı davuşnen,— çoq öküre berme!
+— Hristofor! — dedi Nikolay sabırlı davuşnen,— çoq öküre berme!
 Şimdi vaqıtı degil.
 Ondan da başqa, biz sağır degilmiz.
 Söyle, bizden ne isteysiñ?
@@ -245,23 +254,27 @@ Sen qapudan kirgende, ayaqqa turıp tişlerimizni sırıtmaq kerekmizmi?
 Duranidi başını aşağı sarqıttı.
 Nikolaynıñ sualine cevap bermedi.
 
-— Karimni kördim,— dedi o, birazdan soñ,— gidromonitorlarnıñ maşinasınen bardım...— soñ, Raşidke çevirilip, eleslenip baqtı,— seni de kördim!
+— Karimni kördim,— dedi o, birazdan soñ,— gidromonitorlarnıñ maşinasınen bardım...— soñ, Raşidge çevirilip, eleslenip baqtı,— seni de kördim!
 Basitnen beraber ediñiz.
 
-— Bizge qulaq asma! — dedi Raşid. — Bizim işimiz başqa.
+— Bizge qulaq asma! — dedi Raşid.
+— Bizim işimiz başqa.
 
 — Karim nasıl? — dep soradı Kandıba.
 
-Hristofor yoq közündeki qara bagnı tüzetti ve bar közüni eki-üç kere lipildetip aldı.
+Hristofor yoq közündeki qara bağnı tüzetti ve bar közüni eki-üç kere lipildetip aldı.
 
 — Oña kvartira bergenler.
 Sizge pek darıla... kelmeyler imansızlar, dey.
 
-— Darıla!? — Nikolay taaciplendi. — Biz ne yapamız?
+— Darıla!? — Nikolay taaciplendi. 
+— Biz ne yapamız?
 Restoranlarda keyflenip yüremizmi?
-Ya siz? — O Basitke hucur-hucur baqtı. — Bu çamurda anda ne işiñiz bar edi?
+Ya siz? — o Basitke hucur-hucur baqtı.
+— Bu çamurda anda ne işiñiz bar edi?
 
-— Bizni çağırdılar! — dedi Basit. — Öz başımızğa çapqanımız yoq.
+— Bizni çağırdılar! — dedi Basit. 
+— Öz başımızğa çapqanımız yoq.
 
 — Kimge kerek oldıñız?
 
@@ -271,11 +284,13 @@ Ya siz? — O Basitke hucur-hucur baqtı. — Bu çamurda anda ne işiñiz bar e
 
 — Kişi,— dep cevap berdi Raşid.
 
-— Sevgi meselesi...— dep ilâve etti Basit. — Biz ekimiz... ne deyim saña, kiyevler olıp bardıq.
+— Sevgi meselesi...— dep ilâve etti Basit. 
+— Biz ekimiz... ne deyim saña, kiyevler olıp bardıq.
 
 — Kim evlenmek istey?
 
-— Raşid,— dedi Basit. — Kim olacaq?
+— Raşid,— dedi Basit. 
+— Kim olacaq?
 
 — Soñ?
 Yahşı sıyladımı?
@@ -285,7 +300,7 @@ Közleriñiz alaq-bulaq!
 Tekarançıq attıq,— dedi Raşid.
 
 — Samogon...
-Ar-ram şey eken!..
+Aram şey eken!..
 
 Basit soyunıp yattı.
 Raşid çaynikten qalayğa suvuq çay qoydı, afön patlatam dep, basıp içti.
@@ -299,24 +314,26 @@ Basit hırıldadı.
 
 Biz böyle yaşadıq.
 Dostluqnı muafaza ettik, kimerde sevgi aqqında qonuştıq, türkü ayttıq ve... yuqladıq.
-Kotlovanda işler ağır qıbırdağanda sıtıq çıraynen yurdik, işler çığırına mingende — çerelerimiz küldi.
-Böyle muabbet studentlerde, soldatlarda, geologlarda ola.
+Kotlovanda işler ağır qıbırdağanda sıtıq çıraynen yürdik, işler çığırına mingende — çerelerimiz küldi.
+Böyle muabbet studentler de, soldatlar da, geologlar da ola.
 Biz ziyadesinen soldatlarğa beñzey edik.
-Geceniñ bey vaqıtında bizni uyantıp, Çar-Çaqnıñ birde-bir tirseginde ökeli dalğalar içinde yüz bergen qazanı yoq etmek, yahut bir yalıdan diger yalığa parovoz keçirmek içün bizni çağıracaqlarını bile, lâkin bu işlerden iç qaçınmay edik.
+Geceniñ bey vaqtında bizni uyatıp, Çar-Çaqnıñ birde-bir tirseginde ökeli dalğalar içinde yüz bergen qazanı yoq etmek, yahut bir yalıdan diger yalığa parovoz keçirmek içün bizni çağıracaqlarını bile, lâkin bu işlerden iç qaçınmay edik.
 Biz — ekskavatorcılarmız, bu iş — bizge ait,— bu — ait degil, demey edik.
 Kimerde, iş ayatımız içün havflı olsa bile... kete edik.
 Çar-Çaq qurucılığınıñ romantikası öyle edi.
 
-Bugün... yarı gece maalinde barakqa Tursunovnıñ küryeri keldi.
+Bugün... yarı gece maalinde barakqa Tursunovnıñ kuryeri keldi.
 
-— Raşid Mahkamov ve Cevdet Bekirov,— dedi qadın. — Tez!
+— Raşid Mahkamov ve Cevdet Bekirov,— dedi qadın. 
+— Tez!
 
-— Daa ne oldı? — Raşid yuqusını açalmay mıdırdandı. — Sel tüştimi?
+— Daa ne oldı? — Raşid yuqusını açalmay mıdırdandı. 
+— Sel tüştimi?
 
-Qırq yaşlarında, iri suyekli Zina yeñge ögümizge çıqtı, qaranlıq gecede, balçıqqa ve oba-çuqurğa qulaq asmay, acele-acele ketti.
+Qırq yaşlarında, iri süyekli Zina yeñge ögümizge çıqtı, qaranlıq gecede, balçıqqa ve oba-çuqurğa qulaq asmay, acele-acele ketti.
 Biz onıñ peşinden yuvurdıq.
 
-İdarege kirgen soñ ekimizniñ qollarımızdan tutıp, qaranlıq köridor boyu yürsetti, naçalnik-niñ qabulhanesine kirgen soñ Zina yeñge aralıq qapunıñ yanına barıp, içerige:
+İdarege kirgen soñ ekimizniñ qollarımızdan tutıp, qaranlıq köridor boyu yürsetti, naçalnikniñ qabulhanesine kirgen soñ Zina yeñge aralıq qapunıñ yanına barıp, içerige:
 
 — Vahid Samatoviç, ketirdim!..— dep qıçırdı.
 
@@ -331,17 +348,17 @@ Mahorka tütüni içinde olarnı zornen seçtik.
 Afu etiñiz, lâkin siziñnen aqıl tanışmasak olmaycaq.
 Yarın saba erte Hoca-Kend deresine çıqmaq kerek!
 Mından, tahminen, yigirmi beş kilometr uzaqta... dağda.
-Bu, ne deycekmiz oña... küçük ekspeditsiyanıñ reberi injener Menjevetskiy tain etile.
+Bu, ne deycekmiz oña... küçük ekspeditsiyanıñ reberi injener Menjevetskiy tayin etile.
 Yardımcısı injener Şadmanova.
 
 O gizliden menim közlerime baqtı, azaçıq da külümsirep aldı.
 Men episini sezdim.
 
-— Mansurovqa eki kişi tapuv vazifesi avale etildi.
+— Mansurovğa eki kişi tapuv vazifesi avale etildi.
 Almazov siziñ ekiñizni tevsiye etken.
 Şadmanovanıñ haberi yoq, lâkin hızmet.
 ...Siz, ekiñiz, olarnen ketecek ve işlerine yardım eteceksiñiz.
-İnjenerler karyerde zaruriy tedqiqatlarnı yapadajq, siz olarnıñ yanında olacaqsıñız.
+İnjenerler karyerde zaruriy tedqiqatlarnı yapacaq, siz olarnıñ yanında olacaqsıñız.
 Yük, men bellesem, aytılacaq qadar büyük olmaz... nasıl, Sigizmund Genrihoviç?
 Olmasa kerek, öyle degilmi?
 
@@ -350,14 +367,17 @@ Qart injener közlerini poldan zar-zorına qurtardı.
 — Bir dane ufaq yaşçik...— dedi o,— yalpaq, bilesiñizmi?
 Soñ baqarmız!
 
-— Karyerge yük maşinanen ketmek mümkün degil...— dep ilâve etti Curayev. — Cayav ketilecek.
+— Karyerge yük maşinanen ketmek mümkün degil...— dep ilâve etti Curayev.
+— Cayav ketilecek.
 Er itimalğa qarşı yanıñızğa silâ alıñız!
 
-— Mesele añlaşıldımı? — dep soradı Tursunov ve ayaqqa turdı. — Seferniñ muvafaqiyetli bitüvi sizge bağlı!
+— Mesele añlaşıldımı? — dep soradı Tursunov ve ayaqqa turdı. 
+— Seferniñ muvafaqiyetli bitüvi sizge bağlı!
 
 Bu sözlerni diñlegende zeinimde Vahid Tursunov hususında alicenap isler uyandılar.
-"Onıñ yerine men olğan olsam, böyle şey yapa bilirmi edim?" — dep soradım özüm özümden, soñ: ebet, yapa bilir edim!" dep cevap berdim.
-Yüzüne baqtım: o, menim közlerimni körgende, özü aqqındaki fikirimni bildi.
+"Onıñ yerine men olğan olsam, böyle şey yapa bilirmi edim?" — dep soradım özüm özümden, soñ: 
+ebet, yapa bilir edim!" dep cevap berdim.
+Yüzüne baqtım: o, menim közlerimni körgende, özü aqqındaki fikrimni bildi.
 "Bu adamda irade ve alicenaplıq küçlü eken" dep tüşüneyata edim:
 
 — Sualleriñiz olmasa, cöneñiz! — Tursunov yerinden köçti, laqırdı bitkenini bildirdi.
@@ -390,13 +410,14 @@ Ya men?
 — Qaydan bileyim?
 Yaşçikler çeşit türlü olalar.
 
-— Onı mıtlaqa menim yüklenmem şartmı? — dep cekirdi Raşid. — Sen, ekspeditsiya dep, İradanen kezintige barıp keleceksiñ.
+— Onı mıtlaqa menim yüklenmem şartmı? — dep cekirdi Raşid.
+— Sen, ekspeditsiya dep, İradanen kezintige barıp keleceksiñ.
 Maña böyle kezinti kerekmey.
 
 — Silâ?
-Silânı qaydan alacaqmız? — dedim men, Raşidni işitmegen oldım.
+Silânı qaydan alacaqmız? — dedim men, Raşidni eşitmegen oldım.
 
-— Tüfekni men tapayım,— dedi menim dostım,— yaşçik ise sende olsun.
+— Tüfekni men tapayım,— dedi menim dostum,— yaşçik ise sende olsun.
 Razısıñmı?
 
 — Razım!
