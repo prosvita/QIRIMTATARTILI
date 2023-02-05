@@ -1,19 +1,20 @@
-## Yigirmi beşinci bab — Musairhanede
+## Yigirmi beşinci bab — Musafirhanede
 
-Oquğan kitaplarımnıñ qaramanlarını hatirime ketirem.
+Oquğan kitaplarımnıñ qaramanlarını hatrime ketirem.
 Olar menim ayatımda teren izler qaldırdılar.
-İslaat yılları Rusiyesiniñ ömürini tasavur etmek kerek olsa, Konstantin Levinni eske tüşürmek mümkün.
+İslaat yılları Rusiyesiniñ ömrüni tasavur etmek kerek olsa, Konstantin Levinni eske tüşürmek mümkün.
 Birinci cian muarebesi Grigoriy Melehov simasında temsil etilgen.
 Vatandaş cenki seneleri Pavel Korçagin, sovet ükümetiniñ tamır atqan deviri Semön Davıdov vastası ile kösterilgen.
 Bu adamlarnıñ yüzlerinde devirler aks olunğanlar.
 
-Vahid Tursunovnıñ ayatını da Şarq adamınıñ, Asiya adamınıñ, ösümini aks etici devir isap etmek mümkün.
-Men eminim ki, Tursunov bu satırlarnı oqusa: "Siz, qıymetli Cevdet, biraz alıp qaçqansıñız...— der. — Men devir olğanım ne?
+Vahid Tursunovnıñ ayatını da Şarq adamınıñ, Asiya adamınıñ, ösümini aks etici devir esap etmek mümkün.
+Men eminim ki, Tursunov bu satırlarnı oqusa: "Siz, qıymetli Cevdet, biraz alıp qaçqansıñız...— der.
+— Men devir olğanım ne?
 Olsam bile, maña beñzegenler azmı?"
 
 Onıñ çalarıp başlağan gür saçlarını ve külüp turğan tınç çeresini hatırlayım.
 Hızmetteki cıynaqsız, büyük kabineti pencere yanındaki tahta, bütün bir divarnı qaplağan memleket haritası... onıñ üstünde al-azırki vaziyetni ve kelecekni körsetici bayraçıqlar.
-Köşede avtomatik telefon stantsiyası — kiçkene rıçagnı bursañ, Orta Asiyada istegen elektrostantsiyañnen, istegen energetik qurucılığıñnen laqırdı etmek mümkün.
+Köşede avtomatik telefon stantsiyası — kiçkene rıçagnı bursañ, Orta Asiyada istegen elektrostantsiyanen, istegen energetik qurucılığınen laqırdı etmek mümkün.
 
 Tursunov çoq deñişmegen.
 Evelkisi kibi işkir ve nezaketli.
@@ -39,7 +40,7 @@ Munaqaşada men de bulundım.
 Zayıf inkişaf etken memleketlerdeki özen suvlarınıñ energetika işlerine hızmet ettirilmesini teklif ettim.
 Bunıñ Asiya ve Afrika memleketlerinde ömürge keçirilmesi mümkün tanıldı.
 
-Menim nutqımdan soñ Avropadaki büyük firma prezidentlerinden biri yerinden turdı ve maña sual bermek içün ruhset istedi.
+Menim nutqumdan soñ Avropadaki büyük firma prezidentlerinden biri yerinden turdı ve maña sual bermek içün ruhset istedi.
 Suali zevqlı edi:
 
 "Biz, sovet energetikleri, neft vastasınen çalışıcı araret elektrostantsiyaları qurulışına qarşı degilmizmi?
@@ -53,9 +54,10 @@ Neft çoq çıqarılğan yerde energiya az olmaq kerekmi?"
 Prezident, taşçıqnıñ öz bostanına atılğanını añladı.
 Müstemlekeciler az berip, çoq almağa seveler.
 
-Zalda elçırpmaları işitildi.
+Zalda elçırpmaları eşitildi.
 
-— Sen onıñ çırayını körgen olsañ...— dedi Tursunov, aqşam evge kelgen soñ. — Çiy canerik çaynayyatqan kibi edi.
+— Sen onıñ çırayını körgen olsañ...— dedi Tursunov, aqşam evge kelgen soñ.
+— Çiy canerik çaynayyatqan kibi edi.
 Prezident niçün cümert olıp ketti?
 Niçün birden Asiya ve Afrikanıñ elektrikleştirilüvi içün raatsızlandı?
 Öz nefti içün qasevetlengeni içün degilmi?
@@ -63,9 +65,13 @@ Niçün birden Asiya ve Afrikanıñ elektrikleştirilüvi içün raatsızlandı?
 Qazanlarnı menim neftimnen qızdırıñız.
 Men — merametli emcem... tek maña toqunmañız!" — Tursunov odanıñ içinde keniş adımlarnen yürmekte ve qıçırıp-qıçırıp böyle muzakere etmekte edi.
 
-— Prezident bizim fikirimizge de razı olur.
-Ebet, ebet, körersiñ! — Tursunov bala kibi, şaqıldap küldi. — Bir vaqıtlarda ressamlar olarnı başlarında tsilindrleri, şişman kişiler etip körsete ediler.
-Şimdi başqa... şimdi olar: "Biz ruslarnıñ tarafdarlarımız" — deyler. — Ruslar acaip yigitler..." Bu efendiler, biz birevge tehnikiy ve iqtisadiy yardım köstergen vaqıtımızda niyetimiz fenalıq degilligini bileler.
+— Prezident bizim fikrimizge de razı olur.
+Ebet, ebet, körersiñ! 
+— Tursunov bala kibi, şaqıldap küldi.
+— Bir vaqıtlarda ressamlar olarnı başlarında tsilindrleri, şişman kişiler etip körsete ediler.
+Şimdi başqa... şimdi olar: "Biz ruslarnıñ tarafdarlarımız" — deyler.
+— Ruslar acayip yigitler..." 
+Bu efendiler, biz birevge tehnikiy ve iqtisadiy yardım köstergen vaqtımızda niyetimiz fenalıq degilligini bileler.
 Özleriniñ qurnaz yardımlarını da bizim şiar astında tadbiq etmek isteyler.
 İş bundan ibaret.
 
@@ -73,74 +79,78 @@ Tursunov laqırdı etkende, özüni unuta, meseleni büyük terenliginen muzaker
 
 Biz daima iş hususında laqırdı ettik.
 O İradanı iç bir defa soramadı.
-Belki onı, Çar-Çaqtan ketkeninden beri iç körmegendir.
+Belki onı, Çar-Çaqtan ketkeninden berli iç körmegendir.
 İtimal, syezdlerde, sessiyalarda körüşip alğandırlar.
 
 Lâkin bir defa bir adise olıp keçti.
 Bu adise Tursunovnıñ bu ceetten de nasıl adam ekenini körsetti.
-Respublika gazetalarnıñ birinde İradanıñ sureti ve Aliy Sovet sessiyasında söylegen nutqı derc etilgen edi.
-Gazetanı Tursunovnıñ stolı üstünde kördim.
-İradanıñ sureti gazetanıñ içine qoyılğan ayrı saifesinde basılğan ve bu saife gazetalarnıñ eñ üstünde bulunmaqta edi.
+Respublika gazetalarnıñ birinde İradanıñ sureti ve Aliy Sovet sessiyasında söylegen nutqu derc etilgen edi.
+Gazetanı Tursunovnıñ stolu üstünde kördim.
+İradanıñ sureti gazetanıñ içine qoyulğan ayrı saifesinde basılğan ve bu saife gazetalarnıñ eñ üstünde bulunmaqta edi.
 Tursunov menim oña köz etip alğanımnı esledi, maña sezdirmey, gazetanı alıp, stolnıñ orta çekmecesine tıqtı: bu — menim şahsiy işim... degen manada.
 Bir qaç daqiqa indemey turdıq.
 Bu vaqıt içinde biz sanki çoq şeyler hususında: İrada aqqında, sevginiñ qıyınlıqları, qartlıq çağında bile unutılmağan yaşlıq duyğuları hususında laf etip aldıq.
 Soñ men ondan bir şeyler soradım.
 O cevap berdi, amma çar-çabik lafnı deñiştirdi, başqa şey hususında söz açtı.
-Ekimiz de, bu olıp keçken şey hususında daa çoq vaqıtlar tüşünip yurdik.
+Ekimiz de, bu olıp keçken şey hususında daa çoq vaqıtlar tüşünip yürdik.
 
-Biz siyrek körüşe edik, lâkin er alde körüşe edik...
+Biz siyrek körüşe edik, lâkin er alda körüşe edik...
 Ayat kimerde bizni bir-birimiznen toquştırmağa unutmay edi.
 Bir defa "Moskva" musafirhanesinde, kene nomerde rastkeliştik.
-Aqşam Tursunov stol başında pek çoq oturdı, özüniñ nutqına azırlandı.
+Aqşam Tursunov stol başında pek çoq oturdı, özüniñ nutquna azırlandı.
 Kremlde energetiklerniñ umum ittifaq muşaveresi keçmekte edi.
 
-— Bir qaç sene içinde yapılğan işni beş daqiqada aytıp añlatmaq kerek, haberiñ barmı? — dedi Tursunov,— eki daqiqa içinde, kelecekteki büyük işler aqqında söylemege borclısıñ.
-Er sözni isapqa almağa mecbursıñ.
+% — Bir qaç sene içinde yapılğan işni beş daqiqada aytıp añlatmaq kerek, haberiñ barmı? — dedi Tursunov,— eki daqiqa içinde, kelecekteki büyük işler aqqında söylemek kereksiñ.
+Er sözni esapqa almağa mecbursıñ.
 
-Men Tursunovnıñ nutqını büyük sabırsızlıqnen bekledim.
+Men Tursunovnıñ nutqunı büyük sabırsızlıqnen bekledim.
 O aqşam meclisiniñ soñunda sözge çıqtı.
 Zalda oturğanlarnıñ episi yorğun edi.
 Tursunovğa söz berilgende, oña kimse qulaq asmadı.
 Minberde nevbetiy natıq peyda oldı, başqa şey degil, dep baqtılar.
 Büyük Kreml zalındaki bu minber epimizge tanış.
+
 Tursunov laqırdı etip başlağan edi, kişiler eleslendi, közlerini minberge tiklediler.
 
-Tursunovnıñ nutqı meraqlı tizilgen edi: bütün raqamlarda ve yekünlerde yerli şarait isapqa alınğan.
+Tursunovnıñ nutqu meraqlı tizilgen edi: bütün raqamlarda ve yekünlerde yerli şarait esapqa alınğan.
 O yüksek Tân-Şañ etegindeki Çar-Çaq özeni ve onıñ boyundaki tar boğazlar hususında ayttı.
 Bu özen boyunda endi on altı gidroelektrostantsiya qurulğan.
 Dört stantsiya daa qurulacaq.
 Tek Çar-Çaqtamı?
-Vahş boyundaki Nurekte büyük gidroelektrostantsiya qurmaq mümkün.
+
 Kuybışev stantsiyasından da küçlü...
 Bunda suv eki yüz metr yükseklikke köterilecek ve plotina seksen qatlı ev yüksekliginde olacaq.
-Yüksek qayalar arasında granitli yalılar patlatılacaq, ucuz elektrik küçü elde etilecek: bir kilovatt elektrik küçü içün bir kapikniñ beşte bir qısımı sarf etilecek.
-Stantsiyalarnı progressiv usullar ve yeñi tehnika vastasınen tez ve ucuz qurmaq kerek.
-Kömür, gaz ve atom energiyasınen çalışıcı araret stantsiyaları quruv demek — yeñi topraqlarnı, çöllerni ve sahralarnı elektrik ve suvnen temin etüv demek, yeñi şeerler, yeñi sovhozlar meydanğa ketirüv demek.
-Orta Asiya ve Qazahstanda energetik alqasını birleştirüv demek.
+Yüksek qayalar arasında granitli yalılar patlatılacaq, ucuz elektrik küçü elde etilecek: bir kilovatt elektrik küçü içün bir kapikniñ beşte bir qısmı sarf etilecek.
+Stantsiyalarnı progressiv usullar ve yañı tehnika vastasınen tez ve ucuz qurmaq kerek.
+Kömür, gaz ve atom energiyasınen çalışıcı araret stantsiyaları quruv demek — yañı topraqlarnı, çöllerni ve sahralarnı elektrik ve suvnen temin etüv demek, yañı şeerler, yañı sovhozlar meydanğa ketirüv demek.
+Orta Asiya ve Qazahistanda energetik alqasını birleştirüv demek.
 
-Tursunov öz nutqınen bütün auditoriyanı elge aldı.
-Prezidiumda oturğan Ministrler Soveti Reisi, közlerinen Tursunovğa işaret etip, bir şeyler qayd etip aldı, başını aşağı egiltip, omuzınen mikrofon trubkasını çetke çekti: onıñ aytqanını yalıñız Tursunov ve prezidium işitti.
+Tursunov öz nutqunen bütün auditoriyanı elge aldı.
+Prezidiumda oturğan Ministrler Soveti Reisi, közlerinen Tursunovğa işaret etip, bir şeyler qayd etip aldı, başını aşağı egiltip, omuzınen mikrofon trubkasını çetke çekti: onıñ aytqanını yalıñız Tursunov ve prezidium eşitti.
 
 Men Tursunovnıñ söylegen fikirlerini bir tüşünip baqmaq istedim.
-Belki, iş elektrostantsiyalarnıñ qayda, ne vaqıt ve nasıl qudrette qurulacağında degil de, Tursunovnıñ nutqında tasvir etilgen işler — memleketimizdeki devlet qurumı hassiyetleriniñ üstünligindedir, degen neticege keldim.
+Belki, iş elektrostantsiyalarnıñ qayda, ne vaqıt ve nasıl qudrette qurulacağında degil de, Tursunovnıñ nutqunda tasvir etilgen işler — memleketimizdeki devlet qurumı hassiyetleriniñ üstünligindedir, degen neticege keldim.
 
-Men onıñ nutqında soñ asıl olğan umumiy teessuratnı özüne söylegende:
+Men onıñ nutqunda soñ asıl olğan umumiy teessuratnı özüne söylegende:
 
 — Kerçek aytasıñmı? — dedi maña, taaciplenip.
-Çırayı ciddiy ve tüşünceli körüniş aldı. — Ayta berdim, begendilermi-begenmedilermi?
-Bilmeyim. — O devlet plan idaresi hadimlerinen energetika problemaları aqqında laqırdı etmek endi qolay olur dep tüşündi, ğaliba.
+Çırayı ciddiy ve tüşünceli körüniş aldı.
+— Ayta berdim, begendilermi-begenmedilermi?
+Bilmeyim.
+— O devlet plan idaresi hadimlerinen energetika problemaları aqqında laqırdı etmek endi qolay olur dep tüşündi, ğaliba.
 
-Tursunovnıñ bütün tüşüncesi yarınki kün aqqında, yarın olacaq işlerniñ yeñi proyektlerini qorçalav aqqında, yeñi qurucılıqlar aqqında edi.
+Tursunovnıñ bütün tüşüncesi yarınki kün aqqında, yarın olacaq işlerniñ yañı proyektlerini qorçalav aqqında, yañı qurucılıqlar aqqında edi.
 
-Biz yeñi istisal komandirleri terbiyelep çıqardıq, deymiz.
+Biz yañı istisal komandirlerini terbiyelep çıqardıq, deymiz.
 Doğru, terbiyelep çıqardıq.
 Böyleleri bizde, kerçekten de, çoq.
-Olarnı Turkstanda sanayınıñ inkişaf deviri doğurdı.
+
+Olarnı Turkstanda sanayınıñ inkişaf devri doğurdı.
 
 Tursunov özü aqqında söylep olamay, külümsirey bere.
 "Evellerde adamlar zevqlı ola ediler..." dey, laqırdı şunıñnen bitip kete.
 
-O babasınen qışlaqtan ilkide Taşkentke kelgende ondört yaşında eken.
+O babasınen qışlaqtan ilkide Taşkentke kelgende on dört yaşında eken.
 Taşkent endi qızıl gvardiyalı, işçi, proletar şeeri olğan.
 Teessurat büyük, lâkin eñ küçlü teessurat doğurğan şey tramvay oldı.
 Babası — qışlaq demircisi, oğlu ne sorasa, episine cevap berdi.
@@ -149,12 +159,12 @@ Bütün iş direklerde, dedi o.
 Direkler çoqlar... onıñ içün tramvay bir direkten diger direkke yüre bere.
 Tramvay niçün telge asılı?
 Belli mesele.
-Elektrik küçü degen şçey bar.
+Elektrik küçü degen şey bar.
 O adamnı öldüre bile... tramvaynı ise çekip alıp kete.
 Babası demirci... elektrik küçü ne ekenini bile: "tramvay yolu boyunda turğan direkke parmaqnen toqunsañ — öldürir!
 Vahid babasınıñ sözlerine inandı: elektrik direklerine toqunmağa qorqtı.
 
-Amma qalbinde, er alde, şübe qaldı.
+Amma qalbinde, er alda, şübe qaldı.
 Bir defa, Vahid qorqunı yeñip, parmağınen elektrik diregine tiyip baqtı.
 Ölmedi.
 
@@ -164,7 +174,7 @@ Onı evelâ mektepke, soñra rabfakqa yollağanlar.
 Onda tehnikağa meyil barmı-yoqmı?
 Kimse sorap oturğanı yoq.
 
-Bir defa elektrik stantsiyasında turbina podşipnigi aşalıp, bozılğanı hatirimde.
+Bir defa elektrik stantsiyasında turbina podşipnigi aşalıp, bozulğanı hatrimde.
 Qıdırdılar-qıdırdılar, sebebini tapalmadılar.
 Qaç kereler açıp, podşipnikni baqtıq, bir türlü defekt yoq.
 Tursunov er bir detalni teşkerdi, sürtti, az qaldı, tilinen yalayyazdı: faydası olmadı.
@@ -190,12 +200,12 @@ Bir kün çölde küçlü yel elektrik diregini urıp yıqtı.
 Ekskavatorlarda iş toqtadı.
 Tulumbalarnıñ motorları tındı.
 Baş Dugümde ayat sustı.
-Baraklarnıñ içinde, soqurlar kibi, ellerimizni ögge uzatıp, qorqa-qorqa yurdik.
+Baraklarnıñ içinde, soqurlar kibi, ellerimizni ögge uzatıp, qorqa-qorqa yürdik.
 Yarıq tek eki evde bar edi.
 Aşhanede ve "Mavı qaya"da.
 Sabira hala ve Toqtabayev kerosin lampaları yaqqanlar.
 Bassaraba konserva qutusından, ukrainalılarnıñ kaganets degen çırağını yasadı.
-Bu, inqlâbdan evel bizim köylerde ola turğan... qandil dey turğanlar.
+Bu, inqlâptan evel bizim köylerde ola turğan... qandil dey turğanlar.
 Maşina mayında yanğan fitil, tek tütey, yarığı az çıqa edi.
 
 Soñundan haberimiz oldı...
@@ -203,7 +213,7 @@ Tursunov öz adamlarını alıp, direk yıqılğan yerge ketken, elektrik büros
 Baş Dugümde bir gece, bir kün iş toqtap turdı.
 
 Amma daima böyle yaşamaq mümkün degil.
-Yüksek voltlı tel yekâne elektrik yolu isap etilse, o başqa mesele.
+Yüksek voltlı tel yekâne elektrik yolu esap etilse, o başqa mesele.
 Şimdi öz çöyün qazanlarımız ve turbogeneratorlarımız bar.
 Olarnı çabik-çabik işke qoymaq kerek.
 
@@ -214,15 +224,15 @@ Endi bayağı ipranğan.
 
 — Tez-tez!
 Binanı qurıp, montajını bitirmek kerek.
-Çöyün qazanlar astındaki ocaqlar ve sal-qınlandıruv sisteması tüzetilmekte.
+Çöyün qazanlar astındaki ocaqlar ve salqınlandıruv sisteması tüzetilmekte.
 Diger ceetten, çöyün qazanlar öz negizleri üzerine yerleştirilmekte ve üstlerine demir qazanlar tizilmekte.
 
 Tez, tez, tez!
 Tursunov özüniñ küçük ustahanesini donata bere.
-Amma, asıl da, zavod qurmak kerek.
+Amma, asıl da, zavod qurmaq kerek.
 Bir soy detallerni Taşkentke, başqalarını merkeziy mehanika ustahanelerine alıp ketmek kerek ola.
 Nege yapışsañ — küç ve vaqıt talap ete.
-Elli adam çalışması kerek yerde yüz kişi türtüne, lâkin bu yüz adam tapılmağan vaqıtta, Petâ emce talağı qatıp, solıqlap, terlep baraklarğa yuvurıp kele, terden bunarlanğan közlügini çıqarıp, yaqından körmez közlerini aqayta:
+Elli adam çalışması kerek yerde yüz kişi türtüne, lâkin bu yüz adam tapılmağan vaqıtta, Petâ emce talağı qatıp, soluqlap, terlep baraklarğa yuvurıp kele, terden bunarlanğan közlügini çıqarıp, yaqından körmez közlerini aqayta:
 
 — Kim bar mında? — dep qıçıra o,— tez, Tursunovğa cöneñiz!
 
@@ -232,7 +242,7 @@ Tursunov endi familiya degil, parol olıp qaldı.
 
 Kimerde:
 
-— Şimdi Tursunovda çöyün qırşav meselesi güzel, lâkin ğıda berici tulumba bir şeyge ilişe bere...— degen davuşlar da işitile.
+— Şimdi Tursunovda çöyün qırşav meselesi güzel, lâkin ğıda berici tulumba bir şeyge ilişe bere...— degen davuşlar da eşitile.
 
 Niayet, qazanlar ve ocaqlar turğan oda donatılıp bitirildi.
 Maşinalar bölüginde buhar turbinası ve generator yerleştirildi.
@@ -240,13 +250,14 @@ Taqsimat şçitiniñ montajı bitti.
 
 Stantsiyanıñ işke başlav müddeti yaqınlaştı.
 Tezden qazanlar yaqılacaq, öz stantsiyamız küç berecek.
-Soñki künlerde çeşit adamlardan Tursunov hususında çeşit laqırdılar işittim.
+Soñki künlerde çeşit adamlardan Tursunov hususında çeşit laqırdılar eşittim.
 
 — Tünevin Tursunovda qazannı yaqmaq istediler,— dedi Hristofor,— lâkin yaqtırmadı!
 
 — Niçün yaqtırmadı? — Raşid taaciplendi.
 
-— İtiyat tulumba yetişmegen,— dep cevap ber-di Hristofor ve devam etti: — hucur adam.
+— İtiyat tulumba yetişmegen,— dep cevap ber-di Hristofor ve devam etti: 
+— hucur adam.
 Bütün maşinanı itiyat qısımlarnen temin etmek mümkünmi?
 
 Ondan soñ, men "Mavı qaya"da İradanıñ telâşqa kelgenini kördim.
@@ -264,13 +275,13 @@ Baş Dugümde er kes Tursunovnıñ inatlığını ayta.
 Tula divarlı yüksek bina... muvaqqat araret elektrik stantsiyası... onıñ ögünde tikenli tel qorası artında transformatordan çıqqan taqsimat elektrik yollarınıñ montajı kete.
 Bir qaç saatten soñ, stantsiyanı işke tüşürmek mümkün.
 Ocaqlarnı yaqmaq içün kömür ketirildi.
-Belki, er alde, ocaqlarnı yaqmaq mümkündir?
+Belki, er alda, ocaqlarnı yaqmaq mümkündir?
 Yoq, Tursunov razı degil.
 Niçün?
 İşte, niçün.
 
 Balaban çöyünniñ içinde... bu, elbette, bütün manasınen çöyün degil, çöyün adlandırılğan araret bakı...
-Deycegim, onıñ içinde suv qaynatıla, bundan asıl olğan buhar yigirmi atmosfera taziyqı altında turbinağa yiberile.
+Deycegim, onıñ içinde suv qaynatıla, bundan asıl olğan buhar yigirmi atmosfera tazğı altında turbinağa yiberile.
 Turbina aylana.
 Aylanayatqan turbina generatornı aylandıra.
 Neticede, mehanikadan asıl olğan küç elektrik energiyasına çevirile.
@@ -279,14 +290,14 @@ Amma... buhar çoq sarf oluna.
 Onı da yapqan tulumba.
 Sınsa, suv çöyünge tüşmey.
 Etrafı ateşnen qaplı çöyünniñ divarları tez qıza.
-Çöyün patlaya, butün stantsiya donatması harap ola bile.
+Çöyün patlay, butün stantsiya donatması harap ola bile.
 Söz kelimi, patlav olmadı.
 Ep bir stantsiyanıñ işi toqtaycaq, ister-istemez, yeñi tulumba kerek.
 
 Tursunovqa: tulumba bozulğan kibi olsa, ateşni söndürmek mümkün, dediler.
 Ateşni söndürmek de qolay şey degil, dedi Tursunov.
 Ateşni suvnen söndürmek mümkün degil, çünki araret birden deñişse, qırşavlar qopar, üst qat dağılıp keter.
-Tursunov, sözünden qaytmadı: stantsiyanı yeñi tulumba ketirilgen soñ işletirmiz!
+Tursunov, sözünden qaytmadı: stantsiyanı yañı tulumba ketirilgen soñ işletirmiz!
 
 Şu künü Tursunov tulumba qıdırıp, Taşkentke ketti.
 Gecesi ruzgâr kene elektrik direklerini üytep yıqtı.
@@ -300,14 +311,14 @@ Stantsiyada adamlar toplandılar.
 Bu aylanma kanal bitirilüvi munasebetinen yapılğan bayramğa beñzedi.
 Bir ay içinde stantsiyanıñ montajını bitirmek, qolay şey degil.
 
-Er kes eecanğa keldi. 
+Er kes eyecanğa keldi.
 — Tursunov yoq, yazıqlar olsun...— dedi Anna Yakovlevna.
 Er kes oñaytsızlıq is etti.
-Güya Tursunovqa qarşı ediler.
+Güya Tursunovğa qarşı ediler.
 Lâkin oñaytsızlıq çoqqa barmadı.
 Köçegarlar bütün küçlerini qoyıp çalıştılar.
 Kişiler suvnıñ sıcaqlıq derecesine özleri qani olmaq istediler.
-Vaqıt keçti, köçegarlar çalışa berdiler, lâkin buharnıñ taziyqı yavaş köterilmekte edi.
+Vaqıt keçti, köçegarlar çalışa berdiler, lâkin buharnıñ tazyığı yavaş köterilmekte edi.
 Eki saat keçti.
 Adamlar beklep bezdi, yoruldı, aqibeti, dağıla başladılar.
 Stantsiyada Krasnânskaya, Curayev, İrada ve diger — bir qaç adam qaldılar.
@@ -356,13 +367,13 @@ Baş idareden mında maşinanen yarım saatte kelmek mümkün.
 — Şadmanova!
 Tez, beton zavodına çapıñız! — dedi Krasnânskaya ökeli alda,— Torizonıñ kvartirasına telefon etiñiz, ne oldı-ne qaldı, biliñiz!
 
-Ondan soñ Curayevke bir şeyler attı.
+Ondan soñ Curayevge bir şeyler ayttı.
 Curaev indemedi.
 
 — İç bir yaqqa çapmam,— dedi İrada,— men mında turacağım.
 
 Bir qaç daqiqa daa keçti.
-Köçegarlar, Krasnânskayanıñ emirine binaen, ocaqlarnı yaquvnı toqtattılar.
+Köçegarlar, Krasnânskayanıñ emrine binaen, ocaqlarnı yaquvnı toqtattılar.
 Nevbetçi elektrik azbarğa çıqtı.
 Adamlar indemey, bir-birine baqıştılar.
 Bir talaydan soñ, elektrik kene stantsiyanıñ qapusına doğruldı.
@@ -385,7 +396,8 @@ Kişiler onıñ külküsinden bir şey añlamadılar.
 
 Tursunov, etrafında ağızlarını açıp, seyir etip turğan kişilerden;
 
-— Soñ, nasıl?— dep soradı. — Çalışacaqmızmı?
+— Soñ, nasıl?— dep soradı.
+— Çalışacaqmızmı?
 
 Kişiler hah-hah etip küldiler.
 
@@ -393,7 +405,7 @@ Kişiler hah-hah etip küldiler.
 Öyle de olmaq kerek. — Soñ nevbetçi elektriknen: — Ne?
 Ateşni söndürdiñizmi? — dep soradı ve, cevapnı beklemey, turbinanıñ yanına barıp, diñlenip turdı.
 
-Onıñ Krasnânskaya ve Curayevnen laqırdı etmege ve adiseni añlatmağa vaqıtı yoq edi.
+Onıñ Krasnânskaya ve Curayevnen laqırdı etmege ve adiseni añlatmağa vaqtı yoq edi.
 
 Aqşam elektrik yarığı tekrar söndi.
 Bir şey daa olsa kerek...
@@ -418,7 +430,7 @@ Curayev menim yüzüme tiklenip baqtı, zeinimde ne barlığını deral bildi.
 
 — Emiyeti yoq,— dedi o, külümsirep,— stantsiya açıldımı?
 Açıldı.
-Ğalib adamnı makeme etmeyler.
+Ğalip adamnı makeme etmeyler.
 
 — Niçün? — dedi Tursunov,— qabaatlı olsam, cezam berilsin.
 Qarşılığım yoq.
