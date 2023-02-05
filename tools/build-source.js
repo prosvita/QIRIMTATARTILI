@@ -75,7 +75,7 @@ function getMetaFromFilename(filename) {
     return meta
 }
 
-function mixWithFiles(data, pattern_lang) {
+function mixWithFiles(data, pattern_lang) {  /*eslint no-unused-vars: "off"*/
     const sourceFiles = glob.sync(`**/*.${pattern_lang}.md`, {realpath: true})
 
     for (const sourceFile of sourceFiles) {
