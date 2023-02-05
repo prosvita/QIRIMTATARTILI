@@ -14,10 +14,10 @@ Ekskavatornıñ büyük korpusı tam bir tseh kibi... motorlar bölügi ve kompr
 Demir yel vagonlarından azaçıq küçük kevdesi ögünde yelquvan — uzun demir direk tura, rolikler ve qalın troslar ile bağlı, yüksek yelquvannıñ töpesinden teren çuqurğa kovş tüşe, qalın tişlerinen buzlı topraqnı yarıp, tonna-tonna topraqnı töpege çıqara, yığınnıñ, yahud dumkarnıñ üzerine taşlay.
 Özü demir yel üzerinde cılışa bere.
 Yolnı biz, nijnikler, yasaymız.
-Ekskavator içün demir yel yasamaq ne demek?
+Ekskavator içün demir yоl yasamaq ne demek?
 Lomnı, kürekni, qazmanı elge alıp, topraqnı tegizlemek, onıñ üstüne relslerni qoyıp, boltlarnen pekitmek demek.
 Ekskavator iş vaqıtında art-artına cılışa, ögündeki topraqnı qazıp ala.
-O artqa cılışıp, toqtağan soñ, biz ögünde boşağan relslerni alıp, arqada yel yasaymız.
+O artqa cılışıp, toqtağan soñ, biz ögünde boşağan relslerni alıp, arqada yol yasaymız.
 
 — Bu hızmetni yapmaq içün çoq aqıl kerek degil,— dedi Hristofor,— amma...
 
@@ -76,7 +76,7 @@ Kandıbanıñ ağızından raqı ve soğan sasığı kelmekte... amma özü ayı
 — Yur, saña "Mavı qayanı" körseteyim! — dedi o,— qoltuğı astından bir çift brezent qolçaq çıqarıp, maña uzattı,— Ma!
 Kerek olur!
 
-— Özüp?
+%
 
 — Meni qasevet etme!
 Sen, qardaş... mında aytılğan şeyni yap, iç bir vaqıt bir şey sorama!
@@ -91,12 +91,12 @@ Toqtabayevni sorarsıñ...
 Bizim mehanigimiz.
 Oña aytırsıñ: "meni sizge Kandıba yiberdi, dersiñ.
 Qıyın olmasa, seni hızmetke alsın.
-Qıyın olsa, zararı yoq, eecanlanmasın.
+Qıyın olsa, zararı yoq, eуecanlanmasın.
 Özümiz bir çare taparmız, dep ayttı, de!
 Añladıñmı?"
 
 Şay degen soñ, Nikolay hahıldap küldi.
-Küldi, soñ yerge tükürip, demnr yel boyu Hazar-Kend betke yuvurıp ketti.
+Küldi, soñ yerge tükürip, demir yel boyu Hazar-Kend betke yuvurıp ketti.
 Hristofor ve Arhipka suvnı şapırtıp-köpürtip onıñ artından yuvurdılar.
 Arhipka menim yanımdan keçeyatqanda közüni qıpıp aldı: "Zarar yoq, qardaş, olucı şeylerdir" degen manada.
 
@@ -129,7 +129,8 @@ Biraz indemey yattılar, soñra maña çevirilip, ekisi de birağızdan:
 
 — Saña ne kerek? — dep soradılar.
 
-— Toqtabayev...— dedim men. — Nevbetçi mehanik kerek.
+— Toqtabayev...— dedim men.
+— Nevbetçi mehanik kerek.
 
 Ekisi de birden közlerinen odanıñ törine işaret ettiler:
 
@@ -139,7 +140,7 @@ Köşede, tar stol başında arqasını qapuğa çevirip oturğan kişi öz fami
 
 Tolu müçeli, aqçıl betli bu adam, leqırdı etip başlağan soñ, tışqı sımasından yaş köründi.
 
-O meni baştan-ayaq közden keçirerek, azaçıq külimsirep aldı.
+O meni baştan-ayaq közden keçirerek, azaçıq külümsirep aldı.
 
 — Bekirov olasıñızmı?
 
@@ -147,15 +148,18 @@ O meni baştan-ayaq közden keçirerek, azaçıq külimsirep aldı.
 Men sizge...
 
 — On yedinci ekskavatorda...
-Almazovda çalışacaqsıñız — dedi Toqtabayev,— sizge aşıqmaq kerek.
+Almazovda çalışacaqsıñız,— dedi Toqtabayev,— sizge aşıqmaq kerek.
 Bugün smenada eki adam.
 
 — Yoq.
-Üç adam,— men onıñ sözüni tüzettim. — Kandıba işke çıqtı.
+Üç adam,— men onıñ sözüni tüzettim.
+— Kandıba işke çıqtı.
 
 — Çıqtımı?
 Yahşı etken.
-Ekskavator qayda ekenini bilesiñizmi?— O menimnen beraber tışarı çıqtı ve qolunı Hazar-Kend tarafqa çevirdi:— Budkanı köresiñizmi? — dep soradı o, bent başındaki yarıq pencerege işaret etip,— onıñ sağ tarafından özen boyu yuqarı ketseñiz, Almazovnıñ ekskavatorını körersiñiz.
+Ekskavator qayda ekenini bilesiñizmi?
+O menimnen beraber tışarı çıqtı ve qolunı Hazar-Kend tarafqa çevirdi:
+— Budkanı köresiñizmi? — dep soradı o, bent başındaki yarıq pencerege işaret etip,— onıñ sağ tarafından özen boyu yuqarı ketseñiz, Almazovnıñ ekskavatorını körersiñiz.
 Sorasañız körsetirler.
 
 — Uzaq olmasa kerek?!
@@ -170,7 +174,7 @@ Onıñ körsetken budkasına yetken edim, közüme ekskavator köründi, amma ya
 
 Tekrar demir yel betke çıqtım, budkanı közden qaçırmay, şpallar boyu cönedim.
 Şpallar arasında yürmesi oñaytsız edi.
-Skladqa yakınlaşqanda ögümde teren kanal peyda oldı, keçmege köpür yeq.
+Skladqa yakınlaşqanda ögümde teren kanal peyda oldı, keçmege köpür yоq.
 Topraq yığınları ve eski şpal obaları arasında yarım saat dolanğan soñ ekskavatorğa kelip çıqtım.
 O yüksek uçurımnıñ çetinde edi.
 Üçünci smena maşinanı teslim etken.
@@ -193,9 +197,11 @@ Sizge sovet ükümetini nasıl teşkil etkenini söyledimi?
 
 — Yoq!
 
-— Öyle eken, niçün keçiktiñiz? — Mansurov endi maña zıqarlap başladı. — Bizim hızmetimizde keçikmek mümkün degil!
+— Öyle eken, niçün keçiktiñiz? — Mansurov endi maña zıqarlap başladı.
+— Bizim hızmetimizde keçikmek mümkün degil!
 Er daqiqa qıymetli, haberiñiz barmı?
-Yaqınca keliñiz! — Mına — may qopqası!
+Yaqınca keliñiz!
+— Mına — may qopqası!
 Töpede körüngeni — maqara.
 Onı yağlamaq kerek.
 Qurucılıqta bütün iş siziñ, nijniklerniñ hızmetine bağlı.
@@ -217,7 +223,7 @@ Kimerde Raşidni, kimerde nijniklerniñ büyügi Kandıbanı çağırıp, bir ş
 Şunıñnen bitti.
 Mında adamlar, motorlarnıñ gürültisi içinde bir birlerini işitmek içün pek qıçırıp laqırdı etmege mecburlar.
 Almazov ise boğazını kere bermekni istemey.
-Tenefüs vaqtında menim yanıma keldi.
+Teneffüs vaqtında menim yanıma keldi.
 
 — Mında kişiler osal degiller! — dep taşladı maña, soñ elimni sıqtı.
 
@@ -253,7 +259,8 @@ Topraqnı tegizledik, şpallarnı ve relslerni ketirdik, ekskavatornıñ artqa y
 — Sağlam kişi,— dedi o, meni körsetip,— tıpqı madyar grenadörı.
 
 — Lâkin kibirlice, ğaliba...— dep taşladı Nikolay.
-Soñ, yuvurıp kelip, qoltuğımdaki şpallarnıñ birisini çekip aldı: — Bunıñnen ne isbat etmek isteysiñ, kazak? — dep cekirdi o maña,— quvetiñniñ çoqlığınımı?
+Soñ, yuvurıp kelip, qoltuğımdaki şpallarnıñ birisini çekip aldı:
+— Bunıñnen ne isbat etmek isteysiñ, kazak? — dep cekirdi o maña,— quvetiñniñ çoqlığınımı?
 Deli olma!
 Er kes kibi çalış!
 
@@ -285,7 +292,8 @@ Soñki sefer şpallarnı ketirip, ekskavatornıñ yanaşasında tizeyatqan vaqı
 — Bularnı niçün cıyıştırmaysıñ? — dedi oña Kandıba,— biz, malaylar... daima peşiñden yürip, seniñ yapmağan işiñni yapa berecekmizmi?
 
 — Siz üç kişisiñiz.
-Men bir özüm,— Arhipka er şeyge azır cevap edi. — Begenmeseñiz, tüzetiñiz!
+Men bir özüm,— Arhipka er şeyge azır cevap edi.
+— Begenmeseñiz, tüzetiñiz!
 
 Bu qavğa çıqacağından delâlet edi.
 
@@ -295,15 +303,15 @@ Nikolay kevdesini doğrulttı, küregini çetke baraqıp, Arhipkanıñ yanına k
 
 Arhipka omuzlarını qıstı, soñ doğrulttı, yavaştan egilip yerden ketmenini aldı, bir daqiqa qadar Nikolayğa baqıp turğan soñ topraq, keseklerini, taşlarnı cıyıştıra başladı.
 Arhipka Nikolaydan qorqa eken!.. dep tüşündim men.
-Soñ içimde şübe doğdı.
+Soñ içimde şube doğdı.
 Qorqamı eken? — dedim öz-özüme.
-Nikolayğa boysınuvı tek qorqu sebebinden olmasa kerek.
+Nikolayğa boysunuvı tek qorqu sebebinden olmasa kerek.
 Balaban taşlarnı ve topraq keseklerini uçurumdan aşağı — uvultılı özenniñ terenligine bıraqıp, artından seyir etip turğanını körgende, işniñ farqına bardım.
 Oña eglence kerek eken.
 
 Smenanıñ soñuna qadar ekskavator arqağa qaç kere daa cılışacaq?
 Bunı Nikolaydan soradım.
-İndemedi — añlaşıla, açuvı alâ yatışçmağan.
+İndemedi — añlaşıla, açuvı alâ yatışmağan.
 O qalın, yunli ellerinen demir çöküçni yüksekke kötere berip, bar küçünen qalpaqlı uzun demir çüylerge uraraq, relsni bekitmekte edi.
 
 Hristofor, onıñ ziyade işke alınğanını körip, meseleni maña özü añlattı:
@@ -315,7 +323,7 @@ Ekskavatornıñ işlevi toqtadı.
 
 — Aysa... bütün belâ kazaknıñ sebebinden...— Arhipka, maşinist işitsin dep, aselet qıçırıqladı,— çızmalarını çıqarıp baqmaq kerek, tabanları tüz degilmi eken!
 
-— Yeter! — dep qıçırdı Hristofor,— mında kimseniñ tabanınıñ alıp-berecegi yoq!
+%
 Tünevin Cevdet yoq edi, tros dört defa üzüldi.
 
 Teren çuqurğa tüştik.
@@ -374,7 +382,7 @@ Hristofor şaqıldap küldi.
 
 — Onıñ körmegen şeyi yoq,— dedi Raşidke, — bu şeylerniñ episi başından keçkenge beñzey.
 
-— Keçmege, elbette, keçken,— dedi Raşid. — Daa ne ola, bilesiñmi?
+— Keçmege, elbette, keçken,— dedi Raşid. 
 Kabinkağa kire de, Agapovqa: "Aysa, yuqlay ber! — dey.
 Lâkin bu — soñki defa yuqlağanıñ olacaq!
 Şay degen soñ özü rıçag başına keçip, çalışa başlay.
@@ -384,14 +392,15 @@ O rıçag başında işley bere.
 Tros asıl da üzülmey.
 Biz bugün tekaran çalışayıq, dedik — üzüldi.
 Amma o çalışsa, üzülmey.
-Agapov: "çekiliñiz, men özüm işlerim, yuqum endi açıldı" dep yalvarıp baqtı, fayda bermedi.
+Agapov: "Çekiliñiz, men özüm işlerim, yuqum endi açıldı" dep yalvarıp baqtı, fayda bermedi.
 O küle berdi: "Kimerde bunıñ büyük faydası ola", dedi o.
 Agapov açuvlandı: "Öyle olsa, zornen tüşüririm!" — dedi.
 O kene de küldi: "Tüşürecek olıp baq!?"
 
-— Bu Agapov içün büyük ceza oldı,— dedi Hristofor. — Öyle degilmi?
+— Bu Agapov içün büyük ceza oldı,— dedi Hristofor. 
 
-— Smenanıñ soñuna qadar özü çalıştı,— dedi Raşid, sözüni devam etip:— Agapovnı ise başqa ekskavatornıñ işini teşkermege yolladı.
+— Smenanıñ soñuna qadar özü çalıştı,— dedi Raşid, sözüni devam etip:
+— Agapovnı ise başqa ekskavatornıñ işini teşkermege yolladı.
 Soñ oña bir şeyler ögretti.
 Ne edi, bilmeyim.
 Oña: "Operatsiyalarnı nizamnen yapmağa bilmek kerek" dedi.
@@ -427,7 +436,8 @@ Men, dalğıcılarğa ketmedim, sizde qaldım, demek istedim, bu arada uzaqtan, 
 Başımnı köterip, etrafqa baqındım, kimseni köralmadım.
 Arhipka sıçrap turdı, qaranlıq içine kirip ketti, eki daqiqa keçken soñ, kişilerniñ arqasında peyda oldı.
 
-— Selâm, İra! — dep qıçırdı o. — Bizimnen oturmaq istemeysiñizmi?
+— Selâm, İra! — dep qıçırdı o.
+— Bizimnen oturmaq istemeysiñizmi?
 
 Ateş yarığında yüksek qız köründi.
 Üstünde brezent yapınca, ayaqlarında rezina çızmalar, başında qulaqlı qalpaq.
@@ -437,14 +447,16 @@ Taşkentte...
 Merkeziy komitette tros içün iddalaşqan qız.
 O bir talay betlerimizge baqıp turdı, soñra ekskavatorğa doğruldı.
 
-— Kene qızınasıñız... — dedi o, arqasına çevirilmey. — Ne vaqıt kelsem, ateş başındasıñız.
+— Kene qızınasıñız... — dedi o, arqasına çevirilmey.
+— Ne vaqıt kelsem, ateş başındasıñız.
 İşlegen vaqıtıñız da olamı?
 
 Kimse indemedi.
 Arhipka fırq-fırq etti, külip yiberdi.
 Soñ üstündeki fufaykasını çıqarıp, yerge urdı.
 
-— Şpal taşıp, arqam yağır oldı...— dedi o. — Niçün qızınmaycağım? — ateşniñ yanında serilip yattı.
+— Şpal taşıp, arqam yağır oldı...— dedi o.
+— Niçün qızınmaycağım? — ateşniñ yanında serilip yattı.
 
 — Bu ne demek? — Kandıba onı çekip tursattı.
 Arhipka indemedi, fufaykasını qaytarıp üstüne kiydi.
@@ -463,8 +475,10 @@ Tezden arqamızda Almazovnıñ davuşı işitildi.
 — Teşkerdik.
 Zararlanğan yeri yoq.
 
-— Öyle ise, tok niçün az? — dedi qız, taaciplenip. — Tünevin Qadırya stantsiyası işke tüşti.
-Bugün ekskavatorlarnıñ iç birinde elektrik küçüne şikâyet olmadı. — Qız maşinistke şübeli közleri ile baqtı,— bir kere daa teşkerip baqayıq.
+— Öyle ise, tok niçün az? — dedi qız, taaciplenip.
+— Tünevin Qadırya stantsiyası işke tüşti.
+Bugün ekskavatorlarnıñ iç birinde elektrik küçüne şikâyet olmadı.
+— Qız maşinistke şübeli közleri ile baqtı,— bir kere daa teşkerip baqayıq.
 Maña nijnikleriñizden birisini beriñiz.
 
 Onıñ bu sözleri artıq adiy laqırdı degil emir olıp yanğıradılar.
@@ -485,20 +499,24 @@ Bayırdan aşağı küçük kanalğa tüştik.
 Yalı boyu biraz yürgen soñ, tahta köpürden keçtik.
 Qarağaçqa yaqınlağanda montörğa rastkeldik.
 O, qatmerli sözlernen sögüne-sögüne, kabelni suv içinden çekip çıqarayata edi.
-"Monternı mında qız yollağan olsa kerek", dep tüşündim men.
+"Montörnı mında qız yollağan olsa kerek", dep tüşündim men.
 
 — Kördiñizmi? — dedi qız maña, asabiy davuş ile,— teşkergen eken!?
-İşan olarğa!— Soñ elektrik-montörnı yanına çağırdı: — Demir yolğa çıqıp baqıñız,— dedi oña,— relsler üstünde yatqan kabel olsa, çetke alıp taşlañız,— Sözleri ağızınıñ içinde bir şeyge ilişmey, yumşaq davuşnen, hoş türküge beñzep çıqmaqta ediler.
+İşan olarğa!
+ Soñ elektrik-montörnı yanına çağırdı:
+— Demir yolğa çıqıp baqıñız,— dedi oña,— relsler üstünde yatqan kabel olsa, çetke alıp taşlañız.
+ Sözleri ağızınıñ içinde bir şeyge ilişmey, yımşaq davuşnen, hoş türküge beñzep çıqmaqta ediler.
 Qız közden ğaip olğan soñ, montör menim yeñimden çekip toqtattı:
 
 — Yañılardansıñmı? — dep soradı o.
-Başımnı salladım. — Meni bilmeseñ kerek.
+Başımnı salladım.
+— Meni bilmeseñ kerek.
 Men Karnakeryanım.
 Elektrik.
 Maña injener-doktor demege de mümkün.
 Pek ar-ram hızmetim bar.
 Daima tok astındam.
-Nasıl qaza çıqsa  gidromonitorlardan çıqa.
+Nasıl qaza çıqsa  gidromonitorlardan çıqa.
 Baq buña!
 Er yer suv.
 
@@ -513,7 +531,8 @@ Uçastkağa bir kün kelmesek, iş qarma-qarışıq olıp qala.
 Lafqa qalğanda er kes usta, amma mesele kösinus "fi"-ge kelgende, men ve Tursunov — ekimizden başqa adam tapılmay.
 Añladıñmı, qardaş?
 Energiyanı iqtisad etmek... eñ müimi bu! — böyle dep, Karnakeryan ayqırıp yiberdi.
-Niçün bu sözlerge kelgende davuşını köterdi, bilmeyim. — Ekskavatorcılarnıñ çapqalağanlarını köresiñmi?
+Niçün bu sözlerge kelgende davuşını köterdi, bilmeyim.
+— Ekskavatorcılarnıñ çapqalağanlarını köresiñmi?
 Gidromonitorlarnıñ işi de öyle...— Alçaq boylu, uzun betli, azaçıq qambur burunlı bu adamnıñ sağ omuzı aşağı sarqıq... onıñ böyle ekeni qaranlıqta bile sezilmekte edi.
 Men taaciplendim.
 
@@ -521,7 +540,8 @@ Men taaciplendim.
 Onıñ felsefesini Hristoforğa söyledim.
 Külip, qatıp qaldı.
 
-— Sen bularnı körmeysiñmi? — dedi Hristofor ve ocaqnıñ ögünde pol üstünde yatqan ağır demir tuyaqlarnı ve brezent quşaqqa bekitilgen alqalarnı körsetti. — Gece-kündüz bularnı taşığan adamnıñ omuzı qıyışmay ne olur?
+— Sen bularnı körmeysiñmi? — dedi Hristofor ve ocaqnıñ ögünde pol üstünde yatqan ağır demir tuyaqlarnı ve brezent quşaqqa bekitilgen alqalarnı körsetti.
+— Gece-kündüz bularnı taşığan adamnıñ omuzı qıyışmay ne olur?
 
 Biz ekskavatorğa qaytıp kelgende Arhipkanıñ uçurım çetinde qadalıp turğanını kördim.
 İra yoq edi.
@@ -529,7 +549,7 @@ Arhipka meni montörnen beraber körgen soñ elini siltedi kirkasını alıp, ek
 Tezden Tân-Şan sıra dağlarınıñ arqası ağara başladı.
 Bu acaip manzara pek zevqıma ketti.
 Tañ atqanını soñundan çoq defalar aselet seyir ettim.
-Saba yarığı dağlarnı, qırlarnı birden aydınlatmadı, yavaş-yavaş köterilmedi, Bayırlarnı gül ve melevşe tüslerine birden boyap qoydı.
+Saba yarığı dağlarnı, qırlarnı birden aydınlatmadı, yavaş-yavaş köterilmedi, bayırlarnı gül ve melevşe tüslerine birden boyap qoydı.
 
 Uzaqtan parovoznıñ keskin sirenası işitildi.
 Smena bitti.
