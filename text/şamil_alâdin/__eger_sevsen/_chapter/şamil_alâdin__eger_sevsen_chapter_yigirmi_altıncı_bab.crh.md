@@ -1,7 +1,7 @@
 ## Yigirmi altıncı bab — Anna Yakovlevna bizden ketti
 
 Çar-Çaq eski yoldan çıqtı, yeñi yolğa kirdi.
-Amma müim bir qısmı eski yolnen ceryan etti, kotlovan qazılacaq yerde, suv içinde adalar şekilinde ufaq-tüfek bayırçıqlar asıl oldılarişni bütün köleminen başlamaq içün suvnı tekmil aylanma kanalğa çevirmek, eski yolnı qurutmaq kerek.
+Amma müim bir qısmı eski yolnen ceryan etti, kotlovan qazılacaq yerde, suv içinde adalar şeklinde ufaq-tüfek bayırçıqlar asıl oldılarişni bütün köleminen başlamaq içün suvnı tekmil aylanma kanalğa çevirmek, eski yolnı qurutmaq kerek.
 
 Bunıñ çareleri körüldi.
 
@@ -22,9 +22,8 @@ Vadim Semönoviçni kişilerniñ közü ögünde azarlay, mashara ete.
 Vadim Semönoviç ise omuzlarını qısa — bir şey aytmay.
 
 — Niçün indemeysiñiz?
-Niçün boynuñıznı qısa beresiñiz?— dep cekire Torizo onıñ üstüne,— grafigiñiz qayda?
-Kene...
-"maña munasebeti yoq sebeplerden ötrü bozuldı" demek isteysiñizmi?
+Niçün boynuñıznı qısa beresiñiz? — dep cekire Torizo onıñ üstüne,— grafigiñiz qayda?
+Kene... "maña munasebeti yoq sebeplerden ötrü bozuldı" demek isteysiñizmi?
 
 Vadim Semönoviç susa — indemey.
 
@@ -32,16 +31,16 @@ Vadim Semönoviç susa — indemey.
 Oña telefon etmek mümkünmi?
 Yoq?
 Mümkün degil?
-Bu nasıl mesuliyetsizlik?
+Bu nasıl mesüliyetsizlik?
 
 Krasnânskayanı qıdırmağa bir qaç adamnı birden yolladı.
 Episi tapalmay qaytıp keldiler.
-Anna Yakovlevna Baş Dugümde yoq edi.
+Anna Yakovlevna Baş Dügümde yoq edi.
 Soñundan añlaşıldı...
 Curayevnen beraber eki köpçekli arabağa minip, qışlaqqa ketkenler.
 Aydavcı bile almağanlar.
 
-— Mesuliyetsizlik... ziyankârlıq,— dep qıçırdı Torizo Seyaatqa ketmek kerek olğan!
+— Mesüliyetsizlik... ziyankârlıq,— dep qıçırdı Torizo.- Seyaatqa ketmek kerek olğan!
 Böyle vaqıtta...
 
 Vadim Semönoviçni kotlovanda qaldırıp, özü barot çapçağı alıp, İskander betke cönedi.
@@ -66,7 +65,7 @@ Torizo onıñ, eksperimentlernen oğraşmağa sevgenini ve bu bala areketleri on
 Anna Yakovlevna, Torizonıñ bu sözlerini kabinetteki prorablarğa beyan etti.
 İrada iddetlenip turdı, telefon trubkasına yapıştı, naçalnikke bu hususta öz fikirini bildirmek istedi.
 Çoq künler keçken soñ, İrada özüniñ böyle yapqanını maña söylegende, közleri öyle büyük kedernen yandılar ki, men ister-istemez Elpideni hatırladım.
-O da, qaarlense, yana-küye turğan.
+%
 
 Curayev büyüklernen, kestirme yapılıp bitken soñ laqırdı etmek kelişikli ekenini, ondan evel bu hususta obkom ile aqıl tanışmaq istegenini söyledi.
 Bölük reberleri onıñ fikrine razı oldılar.
@@ -85,7 +84,7 @@ Ertesi künü plotinada yeñi smena injenerleri peyda oldılar.
 Qaydanlıq, Saplıq ve Çumbaylıqtan mirablar keldiler.
 Bu qart kişiler kestirme qurulayatqan yerni közden keçirdi, başlarını memnuniyetsiz alda oñğa-solğa salladılar.
 İndemey, yalını dolandı-dolandı soñ ateş yaqıp etrafında bağdaş qurıp oturdı, çay içmege tutundılar.
-Añlaşıla, çay içileyatqan vaqıtta messle çezilgen... iş başlağan soñ, olarnıñ büyük ustalığı köründi.
+Añlaşıla, çay içileyatqan vaqıtta mesele çezilgen... iş başlağan soñ, olarnıñ büyük ustalığı köründi.
 
 İşçiler mirablarnıñ reberligi altında büyükten-büyük tel çilterlerni suvğa yiberip, içerisine taş toldırıp, böylece, özenni bir yalıdan diger yalığa qadar adım-adım zabt ettiler.
 Eñ ögdeki kestirmeniñ işi üçünci künü aqşamğa bitti, ondan soñ aşağı kestirme işine kirişildi.
@@ -110,7 +109,7 @@ Qomşu kolhoz adamlarına şay dey edik.
 Kelgen kişiler bizim çalışqanımızğa baqıp turdı, soñ taşlarnıñ üstüne oturıp, laqırdı ettiler.
 Soñ bizden — bu eki kestirme arasında qalğan suv ne qadar vaqıt içinde boşatılıp bitirilecegini soradılar.
 Karnokeryan olarğa meseleni añlattı... amma yigitler onıñ lafından çoq şey añlamağan kibi köründiler.
-"Diametr, taziq, surat..." — kişiler ağızlarını açıp, diñlep oturdılar.
+"Diametr, taziyıq, surat..." — kişiler ağızlarını açıp, diñlep oturdılar.
 Karnakeryan ğaliba, olarğa körünmek istedi.
 Men laqırdığa kiriştim.
 Toqtabayev aqqında söyledim, bir vaqıtlarda geologlar bu yerlerde ilki palatalarnı qurıp, Çar-Çaq plotinası içün topraqnı tedqiq etkenlerini, Toqtabayevniñ apansızdan uçurımdan yuvarlanıp özenge tüşkenini ikâye ettim.
@@ -138,7 +137,8 @@ Men Tursunovnıñ yüzüne baqtım, közleriniñ astında qara tögerekler bar e
 Onı kim yasaycaq?
 Turgenevmi?
 
-— Yoq, Raçik Unanoviç...— dedi Karnakeryan ve işaret parmağınen özüniñ kökregine türtti. — Sabadan beri toqtamay çalıştıq.
+— Yoq, Raçik Unanoviç...— dedi Karnakeryan ve işaret parmağınen özüniñ kökregine türtti.
+— Sabadan beri toqtamay çalıştıq.
 Şimdi tütün içmege oturdıq.
 Tütün içmek mümkünmi?
 Yoqsa, o da mümkün degilmi?
@@ -161,7 +161,8 @@ Eki tulumba stantsiyası yeterlikmi? — dep soradı o Tursunovdan,— belki bun
 — İşke degerlisi ne qadar?
 
 — Montaj yapayatamız, Vahid Samatoviç!
-Bitsin, körermiz. — Mansurov endi saçmalap başladı.
+Bitsin, körermiz. 
+ Mansurov endi saçmalap başladı.
 O bizge çevirilip:— çalışa beriñiz! — dep cekirdi.
 
 Biz turdıq.
@@ -174,9 +175,11 @@ Biz qayda ketkenini añlattıq.
 Vadim Semönoviç olarnıñ peşinden yuvurıp ketti.
 
 — Mansurovqa ne oldı, aceba? — dedi Karnakeryan, taaciplenip,— "Vahid Samatoviç!
-Vahid Samatoviç!" Bir şey añlamayım.
+Vahid Samatoviç!"
+Bir şey añlamayım.
 
-— Qaydan bileyim? — dedim men. — Biz ufaq adamlarmız.
+— Qaydan bileyim? — dedim men.
+— Biz ufaq adamlarmız.
 
 — Ne belleysiñ, Cevdet?
 Menden büyük adam olurmı?
@@ -201,7 +204,7 @@ Men rubilnikni tüzettim, qayışnı valikke keçirdim.
 Soñ Karnakeryan rubilnikni keçirdi — tulumba vıñıldap aldı, niayet, motor areketke keldi.
 Karnakeryan, qapuğa top urğan futbolcı kibi, delice sevinerek meni quçaqladı, çekkeledi, çamur içinde yıqıla yazdıq.
 
-— Stantsiya azır... añladıñmı?— dep qıçırdı o, alâ meni boşamayıp, — bunı tek biz... seniñ ile ekimiz yapa bildik!
+— Stantsiya azır... añladıñmı? — dep qıçırdı o, alâ meni boşamayıp, — bunı tek biz... seniñ ile ekimiz yapa bildik!
 
 Motor işley berdi... pişkekler biraz alışsınlar.
 Qulaqlarımıznı yaqın ketirip, olarnıñ iñiltisini diñlep baqtıq, ziyansız!
@@ -274,7 +277,8 @@ Tanımadıñızmı?
 
 — Yeq... niçün? — qıznıñ sesi qaltırap çıqmaqta edi,— soñki vaqıtlarda mında körünmegen ediñiz! — İrada özüni, niayet, qolğa ala başladı.
 
-— İşim tüşse, kelem... — dedim men. — Maña Toqtabayev kerek.
+— İşim tüşse, kelem... — dedim men.
+— Maña Toqtabayev kerek.
 
 — A-na, keleyata! — O başını demir yol betke siltedi.
 
@@ -337,7 +341,8 @@ Elbette, Tursunov!
 Buña şübe ola bilmez.
 Amma böz közlerime inanmadım.
 
-— Baqıñız, Mavlân aka! — dedim men. — İrada ile keteyatqan kim? 
+— Baqıñız, Mavlân aka! — dedim men.
+— İrada ile keteyatqan kim?
 O meni añlamadı.
 
 — Tursunov... bana saña ayttım!
@@ -359,7 +364,7 @@ Meseleniñ aqibetini bilmek kerek edi.
 — Daa?..
 Tursunov, kişilerniñ fikirlerine qarşı ketmege mecbur olğanını ayttı.
 Men ne gaip etkenimni bilem, dedi...
-Añladıñmı, Bekirov O ne ğaip etkenini bile eken?
+Añladıñmı, Bekirov O ne ğayıip etkenini bile eken?
 Lâkin, er alde, meselege qarşı çıqtı.
 Bundan añladım ki, biz epimiz yañlışqanmız, tek Tursunov aqlı eken.
 Ya barıp da qaza olğan olsa?
@@ -467,13 +472,16 @@ Men söz qatmadım... kürsüge oturıp, diñledim:
 "mio Karo, mio Karo".
 Lâkin yüregimni keder bastı.
 
-— Niçün aşamağa ketmeysiñ? — dep soradı Nikolay menden.— Tezden aşhane qapalacaq.
+— Niçün aşamağa ketmeysiñ? — dep soradı Nikolay menden.
+— Tezden aşhane qapalacaq.
 Aç qalırsıñ.
 
-— İstemeyim!— dedim men. — Çal!
+— İstemeyim!— dedim men.
+— Çal!
 Yırla!
 
-— Seni añlamaq qıyın!— Hristofor yekâne közünen hucur-hucur baqtı. — De öylesiñ!
+— Seni añlamaq qıyın! — Hristofor yekâne közünen hucur-hucur baqtı.
+— De öylesiñ!
 De böyle.
 Seni ne tişledi?
 
@@ -481,7 +489,8 @@ Seni ne tişledi?
 Siz ise mio Karo...
 
 — İşittik.
-Bilemiz,— dedi Nikolay. — Menim gitara çalğanıma baqma.
+Bilemiz,— dedi Nikolay.
+— Menim gitara çalğanıma baqma.
 Bu — keyflenüv degil.
 Anna Yakovlevna ketti.
 Yañçıq işittik.
@@ -496,11 +505,13 @@ Lâkin, qıymetli dost, biz başqa şey de işittik.
 — Bir adamçıq.
 
 — Kim?! — bedenime keskin demir sançılğan kibi oldı.
-Özümni ğaip ete başladım. —Kim?
+Özümni ğaip ete başladım.
+— Kim?
 Kim?
 
 — Sen qıçırma,— dedi Hristofor.
-Yaralı omuzını yastıqqa tayap, yuqarı köterildi. — Biz sağır degilmiz!
+Yaralı omuzını yastıqqa tayap, yuqarı köterildi.
+— Biz sağır degilmiz!
 
 Men ep qasevetlendim.
 
@@ -508,14 +519,14 @@ Bir şeyler yapmaq kerek.
 Lâkin ne?
 Ketip, İradanı qıdırayımmı?
 Niçün!
-O qolaysız vaqia dan soñmı?
+O qolaysız vaqiadan soñmı?
 
 Soyunıp, yattım.
 
 Aqşamnı ve geceni yuqlap keçirdim.
 Saba açıqıp uyandım.
 
-— Bugün er kesten evel keldiñ, hayır ola!— dedi Sabira hala.
+— Bugün er kesten evel keldiñ, hayır ola! — dedi Sabira hala.
 Lağmandan soñ maña teneke qalaynı toldırıp çay berdi,— çırayıñ niçün sıtıq?
 İşke keteyatasıñmı, yoqsa keldiñmi?
 
@@ -526,6 +537,7 @@ Bu nazar maña şübeli köründi.
 Hala bir hurnazlıq daa tüşünip çıqarğanğa beñzey.
 
 — Körmedim! — dedim men.
-Yalan ayttım. — Kotlovanda iş sıqıntılı.
+Yalan ayttım.
+— Kotlovanda iş sıqıntılı.
 Pek yorulam.
 Vaqıt yoq.
