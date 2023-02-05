@@ -88,7 +88,7 @@ It was never what he had done, but always what he could do.
 And he had chosen to make his living with something else instead of a pen or a pencil.
 
 It was strange, too, wasn't it, that when he fell in love with another woman, that woman should always have more money than the last one?
-But when he no longer was in love, when he was only lying, as to this woman, now, who had the most money of all, who had all the money there was, who had had a husband and children, who had taken lovers and been dissatisfied with them, and who loved him dearly as a writer, as a man, as a companion and as a proud possession; it was strange that when he did not love her at all and was lying, that he should be able to give her more for her money than when he had really loved.
+But when he no longer was in love, when he was only lying, as to this woman, now, who had the most money of all, who had all the money there was, who had had a husband and children, who had taken lovers and been dissatisfied with them, and who loved him dearly as a writer, as a man, as a companion, and as a proud possession; it was strange that when he did not love her at all and was lying, that he should be able to give her more for her money than when he had really loved.
 
 We must all be cut out for what we do, he thought.
 
