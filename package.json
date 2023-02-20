@@ -4,7 +4,7 @@
   "description": "Qırımtatar tiline tercime etüv programması",
   "scripts": {
     "build": "node tools/build-source.js",
-    "eslint": "$(npm bin)/eslint .",
+    "lint": "$(npm bin)/eslint .",
     "test": "tools/speller.sh"
   },
   "repository": {
