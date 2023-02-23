@@ -42,7 +42,7 @@ jobs:
       run: npm install
 
     - name: Check codestyle
-      uses: reviewdog/action-eslint@v1
+      uses: reviewdog/action-eslint@v1.17
       with:
         reporter: ${{ github.event_name == 'pull_request' && 'github-pr-review' || 'github-check' }}
         fail_on_error: "true"
