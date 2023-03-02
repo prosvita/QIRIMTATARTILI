@@ -21,7 +21,7 @@
   "devDependencies": {
     "eslint": "^8.21.0",
     "eslint-plugin-json": "git+https://github.com/edg2s/eslint-plugin-json.git#indent",
-    "transliteration.crh": "^0.2.1",
+    "transliteration.crh": "^0.3.0",
     "yaspeller": "^v6.0.2"
   },
   "dependencies": {
