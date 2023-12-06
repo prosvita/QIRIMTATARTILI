@@ -14,7 +14,7 @@ Kelgeninden beri ağızından eki söz çıqmadı.
 %
 O da yanıqlı.
 Duydırmaq istemey.
-Men Böyle tüşüneyatqanda Mansurov yerinden turdı.
+Men böyle tüşüneyatqanda Mansurov yerinden turdı.
 Tursunovnıñ yanına oturdı.
 Ekisi horezm türküsi seylemege tutundılar.
 Tutundılar degence, toqtadılar...
@@ -54,9 +54,10 @@ Sızran — menim doğmuş şeerim.
 
 Seneler keçip keterler.
 Bir kün Almazovnen körüşmem olur.
-Qadın ve ballarnen beraber poyezdda Moskvağa ketkende...
+Qadın ve balalarnen beraber poyezdda Moskvağa ketkende...
 Kuybışevniñ o yaqlarında, demir yol stantsiyasında vagonğa, qaşları ap-aq, közleri sönük, yanaqlarınıñ etleri salpırağan, burunınıñ töpesi qızarğan kişi kirer.
-Menim qadınım — amma qadınım kim olur?— bu kişiniñ közlerine baqıp.
+Menim qadınım — amma qadınım kim olur?
+— bu kişiniñ közlerine baqıp.
 "Ey-va!
 O bizni tanımay", dep taaciplenir.
 Qart kişi bizge tiklenip baqar, külümsirer.
@@ -65,7 +66,8 @@ O vaqıtta biz, Sızranına keteyatqan Almazovnen quçaqlaşırmız.
 Cevdet!
 Bu sensiñmi?
 Men evge kelgen soñ doğmuşlarımnı bir azbarğa topladım.
-Epimiz yeñi evler qurdıq..." dep ikâye etip başlar o,— "men eski zenaatnı bıraqtım.
+Epimiz yeñi evler qurdıq..." dep ikâye etip başlar o,
+— "men eski zenaatnı bıraqtım.
 Elektrik stantsiyası başlığı oldım.
 İşte, işler böyle, qardaş!
 Lâkin qartaydım..."
