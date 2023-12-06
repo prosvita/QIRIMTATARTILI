@@ -109,7 +109,8 @@ Sofada kimnidir bekley edi.
 Lâkin, kimse bilmesin.
 
 — Ayt!
-Nasıl eylik!— Elini omuzımnıñ üstüne qoydı.
+Nasıl eylik!
+— Elini omuzımnıñ üstüne qoydı.
 
 — Gizliden... yolğa çıq!
 İradanıñ qapusını qaq!
