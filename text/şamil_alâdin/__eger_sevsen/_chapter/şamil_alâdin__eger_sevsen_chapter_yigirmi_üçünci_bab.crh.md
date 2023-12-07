@@ -319,7 +319,7 @@ Yoq, sen özüñ bar.
 
 Men Karimniñ ayağına bastım: "yavaş ol!"
 
-Yüregimni eecan bastı.
+Yüregimni eyecan bastı.
 Sabırım tükendi.
 Oturıp olamadım.
 Etrafımdaki tanış çerelerge köz etem, tanış seslerni diñleyim, bir şey añlamayım.
@@ -328,11 +328,11 @@ Yavaştan köridorğa çıqtım.
 Kimse yoq…
 Aralıq qapudan tışarı sıptırıldım.
 Yüregim çapalana başladı.
-Yolda bir qaç adım attım degende, adam iñiltisi işittim.
+Yolda bir qaç adım attım degende, adam iñiltisi eşittim.
 Toqtap, diñlendim.
 Kimdir, qaba davuşnen sögündi.
 
-"Men olarnen isaplaşırım... episinen isaplaşırım".
+"Men olarnen esaplaşırım... episinen esaplaşırım".
 Kene mecalsız adam sesi.
 Evniñ artına aylandım: Arhipka... arqasını divarğa tayağan, sögüne bermekte edi.
 
@@ -340,7 +340,7 @@ Evniñ artına aylandım: Arhipka... arqasını divarğa tayağan, sögüne berm
 
 O elimni keri üytedi, yavluqnı almadı.
 
-— İn-telligent!— dedi maña, yirenç çere ile,— özüñiniñ burunıñnıñ astını sil!
+— İntelligent!— dedi maña, yirenç çere ile,— özüñiniñ burunıñnıñ astını sil!
 
 Bu yerde turmağa alım yoq edi, yolnıñ diger tarafına keçtim, özümniñ kâbeme doğru adımladım.
 Bu qapunı qaquv yerine, yetmiş kilometr yol çapıp kelmek yengil edi.
