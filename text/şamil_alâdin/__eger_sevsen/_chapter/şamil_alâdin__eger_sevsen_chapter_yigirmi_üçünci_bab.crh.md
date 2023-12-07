@@ -408,7 +408,7 @@ Bu sukünet içinde... bir-birimiznen laqırdı etalmay, qıbırdamay, hayli vaq
 Soñ İrada elini tez-tez çekip aldı, arqasında saqladı.
 Elini tekrar tuttım, dudaqlarıma ketirdim.
 Dudaqlarım alevlenip kettiler.
-Soñra bu elni köküsime bastüm.
+Soñra bu elni köküsime bastım.
 Ekimiz çoq vaqıt daa indemey turdıq — yüregimniñ tepindisini ekimiz diñledik.
 Niayet, İrada elimni eline aldı, köküsine sıqacaq oldımı, bilmeyim... üstüne qor tüşken kibi, birden elimni çekip taşladı.
 Men gizliden külümsiredim.
@@ -418,7 +418,8 @@ Men gizliden külümsiredim.
 Elbette, bir şeyler etip, laqırdını başlamaq kerek edi.
 — Miting bitken soñ ğaip ettim.
 Karamat!— dep qıçırdı o, qomşu odağa.
-Karamat kirdi,— barakqa qaç kere barıp keldiñ?
+Karamat kirdi,
+— barakqa qaç kere barıp keldiñ?
 
 — Yalıñız barakqamı?
 Tuya-Buğaz?
@@ -447,7 +448,7 @@ Maña berilgen emir aydın-açıq edi: bu evge Cevdet ketirilmek kerek.
 Başqa iç kimse!
 Soñ — Tursunov.
 O da yanıñızda otura edi...
-İradanıñ adını işitse, iş bozılacaq.
+İradanıñ adını işitse, iş bozıulacaq.
 Ağızına ne raqı, ne de yemek, bir şey almaycaq.
 Daima diñlenip oturacaq.
 
@@ -495,7 +496,7 @@ Karamat meni añladı.
 — Siz pek yaramazsıñız, Cevdet,— dedi o, küldi, soñ kuhnâğa çıqıp ketti.
 
 Men öz başımda qaldım.
-Şukur, er şey öz yerini taptı.
+Şükür, er şey öz yerini taptı.
 Taqdirim çezildi.
 Çezildimi aceba?
 %
@@ -508,7 +509,7 @@ Bu ibareni evelden ezberlep qoyğan olsa kerek.
 
 — Teşekkür!— dedim men ve bundan soñ ne deycegimni bilmey, tuyüldim.
 Amma közlerim, ğaliba, söylemek istegen şeylerimniñ episini ifa ettiler.
-İrada hoş çere ve göñülnen külümsiredli.
+İrada hoş çere ve göñülnen külümsiredi.
 Karamat bizni bu vaziyetten qurtardı.
 Beline büyük yağbez bağlağan, içeri yıldırım suratınen kirdi, maña ve İradağa tiklenip baqtı:
 
