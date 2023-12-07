@@ -378,7 +378,7 @@ Karamat sağ omuzını aşağı egiltti, müçesini azaçıq silkitip, üstünde
 — Qıdırmağa bilmek kereksiñiz!— dedi Karamat.
 
 Qapunı açtım... açtım ve ayrette qaldım.
-Dumanlı ve qarlı dağlar arasında, bataqlı soqaqlar çetinde böyle ziynketli oda?
+Dumanlı ve qarlı dağlar arasında, bataqlı soqaqlar çetinde böyle ziyneketli oda?
 Arqasını pencerege çevirip, tirseklerini çiçek savutına tayandırıp, İrada bir özü turmaqta.
 Meni körgen soñ külümsiredi ve çeresi qızardı.
 "Qız meni, aqiqaten sevse, şimdi bağrıma atılır, meni quçaqlar!
@@ -392,7 +392,8 @@ Men bosağa üstünde toqtaldım.
 İçeri kirmege saqınıp, baqıp turdım.
 Tamağımnı nedir sıqtı... laqırdı etalmadım.
 
-Keldiñizmi, Cevdet?— İlki sözlerni söylemek oña da qolay degil edi.
+Keldiñizmi, Cevdet?
+— İlki sözlerni söylemek oña da qolay degil edi.
 — Siz menim evimni körmek istegen ediñiz, hatiriñizdemi?
 
 Bu ne vaqıt olğan şey?
