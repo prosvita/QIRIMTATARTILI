@@ -259,7 +259,8 @@ Olarnıñ tarafına kimse baqmadı.
 
 Andrey Zaharoviç meşrebelerge raqı qoydı, özüniñkini köterdi.
 
-— Plotinanıñ tez bitmesi içün...— dedi o ve başqalarnı beklemey, içe qoydı,— Bazı ekskavatorcılar, aylanma kanaldan soñ qayda çalışacaqlarını qasevet eteler.
+— Plotinanıñ tez bitmesi içün...— dedi o ve başqalarnı beklemey, içe qoydı,
+— Bazı ekskavatorcılar, aylanma kanaldan soñ qayda çalışacaqlarını qasevet eteler.
 İş yetişir... er keske yetişir.
 
 Stol başındaki kişiler, bir-birlerini sağır bellepmi, özleriniñ aqiqaten sarğuş ekenlerini bilipmi, yüksek davuşnen laqırdı etmekteler.
