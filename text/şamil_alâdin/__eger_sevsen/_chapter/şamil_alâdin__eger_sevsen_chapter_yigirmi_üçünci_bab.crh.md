@@ -281,7 +281,7 @@ Onıñ evinde şamata çıqarmayım dep, vazgeçtim.
 Soñundan...— yumruğını sıqıp, körsetti.
 
 — Arhipka!
-Deli olma!— Rahil onıñ omuzlarından quçaklap, tışarı çekkeledi.
+Deli olma!— Rahil onıñ omuzlarından quçaqlap, tışarı çekkeledi.
 
 — Bu evde istemeseñ, tışarığa çıqayıq!— Dedi Nikolay, ögündeki kürsüni tepti, atılıp ketip Arhipkanıñ tizine urundı.
 Arhipka aman pıçağını çıqardı, lâkin Toqtabayev eline yapıştı...
@@ -290,13 +290,15 @@ Karim ımpıs-tımpıs kirip keldi.
 Onıñ artından Mansurov peyda oldı.
 
 — Ketti...— dedi Mansurov.
-— Alla belâsını bersin!— Karimni tutıp, quçaqladı,— sen altın adamsıñ!— dedi oña,— alla saña güzel qadın qısmet etsin.
+— Alla belâsını bersin!— Karimni tutıp, quçaqladı,— sen altın adamsıñ!— dedi oña,
+— Alla saña güzel qadın qısmet etsin.
 Doquz balañız olsun, Añladıñmı, Karim?
 Yedisi oğlan, ekisi qız!
 
 — İtiraz yoq...— dedi Karim,— tek aylığımnı eki qat arttırıñız.
 
-— Yağma yoq,— Mansurov işaret parmağını köterdi,— sen yahşı maşinistsiñmi... ayt!
+— Yağma yoq,— Mansurov işaret parmağını köterdi,
+— sen yahşı maşinistsiñmi... ayt!
 
 — Ebet!
 Eki aydan beri...
@@ -312,7 +314,7 @@ Evinde Karamat... başqa kimse yoq.
 Belki...
 Meni kimse çağırmadı.
 İtimal, öyle kerektir.
-Ondan da başqa, mından ekimiz birden ğaip olsak, Andrey Zaharoviç darılır.
+Ondan da başqa, mından ekimiz birden ğayıp olsak, Andrey Zaharoviç darılır.
 Yoq, sen özüñ bar.
 
 Men Karimniñ ayağına bastım: "yavaş ol!"
