@@ -184,7 +184,8 @@ Arqasını şkafqa tayandırıp turğan Toqtabayev yavaştan Nikolay betke cıl�
 Mansurov bunı seze qaldı, o da Toqtabayevniñ yanına kelip oturdı.
 Nikolay, omuzlarını qısıp, köküsini içke çekti, yerinden qıbırdamadı.
 
-— Ne keldiñ?— Yekaterina Vasilyevna oña dülber qaşlarını sıttı.
+— Ne keldiñ?
+— Yekaterina Vasilyevna oña dülber qaşlarını sıttı.
 — Coyul mından!
 Sen de!— dedi o, Rahilge çevirilip.
 — Menim evimde işiñiz yoq.
@@ -203,7 +204,8 @@ Lâkin bunıñnen kifayetlenmedi, boş raqı şişesini ilindirip aldı, Arhipka
 Arhipka, niayet, büklenip turğan kevdesini doğrulttı, soñ külümsiredi.
 Özüniñ böyle qabul etilecegini bilgen... azırlanıp kelgen.
 
-— Kelgensiñ... bare, dürüs otur!— dedi Hristofor ve közünden aşağı tayğan qara paçavranı çekip tüzetti. — Buyur!
+— Kelgensiñ... bare, dürüs otur!
+— dedi Hristofor ve közünden aşağı tayğan qara paçavranı çekip tüzetti. — Buyur!
 
 — Menmi?— o elini Hristoforğa uzattı, ğaliba, onıñ ile selâmlaşmaq istedi.
 Hristofor, abaylamağan olıp, kürsüni körsetti:
@@ -225,12 +227,14 @@ Sen mında kimsiñ?
 Ne vaqıt çıqtıñ?
 
 — Eki kün evelsi...
-Siz küçlü kişiler ekensiñiz, ümüt etmegen edim,— dedi Arhipka, soñ qalaynı alıp, bir nefesten içip yiberdi.
+Siz küçlü kişiler ekensiñiz, ümüt etmegen edim,
+— dedi Arhipka, soñ qalaynı alıp, bir nefesten içip yiberdi.
 — Men evlendim.
 
 — İşittik...
 
-— Büyüklernen içmek mümkünmi?— dep soradı menden Arhipka ve özü cevap berdi: — Mümkün degil.
+— Büyüklernen içmek mümkünmi?— dep soradı menden Arhipka ve özü cevap berdi:
+— Mümkün degil.
 Ne qadar açıq köz kişiler...
 Sözlerime ne qadar ciddiy emiyet bereler, köresiñmi Rahil?
 
