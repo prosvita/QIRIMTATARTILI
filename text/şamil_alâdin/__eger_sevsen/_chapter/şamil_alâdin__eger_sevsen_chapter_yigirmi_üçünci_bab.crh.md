@@ -543,11 +543,12 @@ Qarşımızda Karamat yerleşti.
 Sıqılmañız!
 Öz eviñizdeki kibi aşañız!
 Ebet, ebet!
-Öz eviñizdeki kibi...— dep tekrarladı ve közüni qıptı.
+Öz eviñizdeki kibi...
+— dep tekrarladı ve közüni qıptı.
 İrada bunı sezmegen kibi oldı.
 İndemedi.
 
-Soñ Karamat manti ketirdi...
+Soñ Karamat mantı ketirdi...
 Olar maña qarardan ziyade büyük köründiler.
 Bularnı nasıl etip aşamalı?
 Vilkanen ağızıma ketireyim de, tişlep alayım desem, içindeki yağlı suvu ve qıyması stol üstüne tüşecek, örtüni bılaştıracaq.
@@ -556,12 +557,13 @@ Bu mümkün degil.
 Ellerimnen aşasam?
 Öz eviñdeki kibi... dedi Karamat.
 Men evde çiberekni ellerimnen aşay edim...
-Amma mantii?
+Amma mantı?
 Karamatqa bir köz ettim.
 Vilkanen sançıp aldı, tarelkasınıñ çetine qoydı, soñ pıçaqnen keskelep, tekrar vilkanen ağızına yollandırdı.
 Bu menim yapıp olacaq şeyim degil.
 
-— Afu etiñiz, İrada!— dedim men, vilkanı çetke çekip,— böyle hızmette tehnika küçsiz.
+— Afu etiñiz, İrada!— dedim men, vilkanı çetke çekip,
+— böyle hızmette tehnika küçsiz.
 Elnen iş körmek mümkünmi?
 
 Karamat özüni tutalmadı, şırq-şırq etip küldi.
@@ -576,9 +578,9 @@ Buña aqılıñ yetmeymi?
 
 — Qaşıq yahut vilkanen aşalması mümkün şeyni qolnen almaq, elbette, kelişken şey degil,— dedi Karamat.
 — Bu medeniyetsizlik.
-Amma manti, vilkanen aşamaq mümkün degil eken, niçün elnen aşalmasın?— kene şaq-şaq küldi.
+Amma mantı, vilkanen aşamaq mümkün degil eken, niçün elnen aşalmasıñ?— kene şaq-şaq küldi.
 
-Eki manti aşadım...
+Eki mantı aşadım...
 Bunıñ özü kâfi edi, Karamat ögüme daa da qoydı.
 Meni, stol üstündeki yemeklerniñ episinden aşap baqmağa mecbur etti.
 
@@ -592,7 +594,7 @@ Yemeklerden memnun qaldımı-yoqmı, qızlar añlap olamadılar.
 — Men seni tarelka taşımağa mecbur ettimmi?— İrada iddetlendi,— seni añlamaq mümkün degil.
 Yuvurıp kelip, qıyma çekesiñ, qartop doğraysıñ, soñ şikâyetlenesiñ!
 
-Sabira hala qızlarnıñ davasını diñlep oturmadı; onı çoq işitken... aşhanеdеn ketirgen salqın ürük qoşafınen bizni sıyladı.
+Sabira hala qızlarnıñ davasını diñlep oturmadı, onı çoq işitken... aşhanеdеn ketirgen salqın ürük qoşafınen bizni sıyladı.
 Ondan soñ tatlınen çay içtik.
 Plotina ne yerde olacağı hususında İrada ile biraz davalaşıp aldıq.
 Böyle ne qadar daa oturır edik, bilmeyim.
@@ -612,7 +614,7 @@ Eki-üç daqiqa keçken soñ, qaytıp keldi.
 
 — Tehnikiy bölük kişisi,— dedi o, Sabira halağa.
 — Anna Yakovlevna yibergen.
-— Kız menim közlerime qasevetli-qasevetli baqtı,— ne yapacaqmız?
+— Qız menim közlerime qasevetli-qasevetli baqtı,— ne yapacaqmız?
 Qolaysız olıp çıqacaq... lâkin ketmesem, olmaycaq.
 Meni afu etiñiz, Cevdet!
 Barıp baqıp keleyim.
@@ -660,7 +662,7 @@ Nesi çıbalıq?— dep cekirdim men,— ne demek isteysiñiz?
 Qıznı çekiştirme!
 
 — Açıñız qapunı, Karamat!— dedim men.
-Qız yavaştan yerinden turdı, menim peşimden köridorğa çıqtı.
+Qız yavaştan yerinden turdı, menim peşimden koridorğa çıqtı.
 — Men mında ahret sualine cevap bermek içün kelmedim.
 
 "Qaladan çıqmaq..." qıyın olmadı, Barakqa keteyatqanda Krasnânskayanıñ kabineti penceresinden baqtım, içerisi qaranlıq — kimse yoq edi.
