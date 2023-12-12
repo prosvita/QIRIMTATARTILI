@@ -9,14 +9,14 @@ Küncülikmi?
 Küncülik olsa, İradanı kimden künleyim?
 Vahid Tursunovdanmı?
 O menimnen musafirlikte...
-Kelgeninden beri ağızından eki söz çıqmadı.
+Kelgeninden beri ağzından eki söz çıqmadı.
 Şimdi qıp-qırmızı sarğuş.
 %
 O da yanıqlı.
-Duydırmaq istemey.
+Duydurmaq istemey.
 Men böyle tüşüneyatqanda Mansurov yerinden turdı.
 Tursunovnıñ yanına oturdı.
-Ekisi horezm türküsi seylemege tutundılar.
+Ekisi horezm türküsi söylemege tutundılar.
 Tutundılar degence, toqtadılar...
 Sözlerini unutqanlar.
 Soñ yeñiden başladılar.
@@ -27,7 +27,7 @@ Hristofor yalvarıp baqtı, toqtatmaq istedi.
 Hayır etmedi.
 
 — Sen toqunma!
-Men keyflenem!— dedi o. 
+Men keyflenem! — dedi o.
 Andrey Zaharoviç kimerde elini sandıqnıñ artına tıqıp yibere, şişe çekip çıqara.
 Sandıq artında qaç şişe daa bar?
 Almazov bile.
@@ -35,8 +35,8 @@ Ne qadar raqı içildi?
 Kimse bilmey.
 Odanıñ içinde mavı renkli sigar tütüni ve ardı kesilmez adam davuşı ükümran.
 Raqı er kesniñ tilini açtı.
-Er kes özüniñ keçmişinden tuttırdı.
-Kim-de — nasıl keçmiş bar?
+Er kes özüniñ keçmişinden tutturdı.
+Kimde — nasıl keçmiş bar?
 
 — …Bu vaqia Saratov şeerinde olğan edi,— dedi Andrey Zaharoviç.
 Roza ile ilkide nasıl tanış olğanını ve doquz yaşındaki oğlu Saşanıñ riyaziyattan ne qadar istidatlı ekenini bundan evel aytqan edi. — Alçaq, basıq ev...
@@ -54,28 +54,28 @@ Sızran — menim doğmuş şeerim.
 
 Seneler keçip keterler.
 Bir kün Almazovnen körüşmem olur.
-Qadın ve balalarnen beraber poyezdda Moskvağa ketkende...
-Kuybışevniñ o yaqlarında, demir yol stantsiyasında vagonğa, qaşları ap-aq, közleri sönük, yanaqlarınıñ etleri salpırağan, burunınıñ töpesi qızarğan kişi kirer.
+Qadın ve balalarnen beraber poyezdde Moskvağa ketkende...
+Kuybışevniñ o yaqlarında, demiryol stantsiyasında vagonğa, qaşları ap-aq, közleri sönük, yanaqlarınıñ etleri salpırağan, burnunıñ töpesi qızarğan kişi kirer.
 Menim qadınım — amma qadınım kim olur?
 — bu kişiniñ közlerine baqıp.
-"Ey-va!
-O bizni tanımay", dep taaciplenir.
+'Ey-va!
+O bizni tanımay', dep taaciplenir.
 Qart kişi bizge tiklenip baqar, külümsirer.
 O vaqıtta biz, Sızranına keteyatqan Almazovnen quçaqlaşırmız.
- "E!
+'E!
 Cevdet!
 Bu sensiñmi?
 Men evge kelgen soñ doğmuşlarımnı bir azbarğa topladım.
-Epimiz yeñi evler qurdıq..." dep ikâye etip başlar o,
+Epimiz yeñi evler qurdıq...' dep ikâye etip başlar o,
 — "men eski zenaatnı bıraqtım.
 Elektrik stantsiyası başlığı oldım.
 İşte, işler böyle, qardaş!
 Lâkin qartaydım..."
 
-Poyezd Sızranğa yaqınlar.
+Poyezd Sızrange yaqınlar.
 Andrey Zaharoviç pencerege işaret etip: "A!
 İdil!
-İdilni tanıysıñmı?— dep sorar.
+İdilni tanıysıñmı? — dep sorar.
 — Tanımaysıñ?
 E? Ebet, bizim İdil tanılmaz oldı."
 
@@ -85,7 +85,7 @@ Almazov yaş ve küçlü ekende Tân-Şanda, Dneprde, Badahşanda yaşadı, qart
 Maña Sızrannı ikâye etkeniñiz hatiriñizdemi, Andrey Zaharoviç?— derim men oña.
 — Aylanma kanalnıñ bitüvi munasebetinen eviñizde olğan ziyafet... esiñizdemi?
 
-— Menmi?— der Andrey Zaharoviç, ayretlenip,— toqta...
+— Menmi? — der Andrey Zaharoviç, ayretlenip,— toqta...
 Çar-Çaqta öyle şey olğanmı edi?
 Gidrostantsiyalar kaskadını qurıp bitirgenimiz aqılımda.
 Ondan soñ Karim... alicenap Karim esimde.
@@ -115,7 +115,7 @@ Nasıl eylik!
 — Gizliden... yolğa çıq!
 İradanıñ qapusını qaq!
 Onıñ evinde neler olayata, episini bil!
-Yabaniy adam olmasa, İradadan yavaşçıqtan: "Cevdet kelmek istey.Mümkünmi?" dep sora.
+Yabaniy adam olmasa, İradadan yavaşçıqtan: "Cevdet kelmek istey. Mümkünmi?" dep sora.
 Cevabını kelip maña ayt!
 Rica etem, Karim!
 
@@ -148,7 +148,7 @@ Yoruldı, taldı...
 Endi ğaliba toqtaycaq dep beklep turdıq, amma Yekaterina Vasilyevna tosat-tosat daa küçlü çevirildi.
 Niayet, ellerini çetke açıp, Toqtabayevniñ ögünde qadalıp turdı:
 
-— Siz, ekskavatorcılarnıñ babası... niçün oynamaysıñız?— Yekaterina Vasilyevna onı çekip, ortağa çıqardı.
+— Siz, ekskavatorcılarnıñ babası... niçün oynamaysıñız? — Yekaterina Vasilyevna onı çekip, ortağa çıqardı.
 Bunı körip, Bassaraba da qalqtı.
 Ekisi oynadılar.
 Bu zevqlı levha edi...
