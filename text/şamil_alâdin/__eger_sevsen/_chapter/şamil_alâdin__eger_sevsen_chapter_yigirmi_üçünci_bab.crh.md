@@ -276,7 +276,7 @@ Alümin çanaqlar ve teneke qalaylar, oynaqlap alğan soñ, Arhipka yerinden qal
 Bosağa ögünde toqtalıp, Kandıba betke çevirildi.
 
 — Saña... seniñ ile laqırdı etmege kelgen edim,— dedi o,— munasip olmadı.
-Bu kişige — o Andrey Zaharoviçni körsetti,— bu kişige ürmet etkenim içün...
+Bu kişige, — o Andrey Zaharoviçni körsetti,— bu kişige ürmet etkenim içün...
 Onıñ evinde şamata çıqarmayım dep, vazgeçtim.
 Soñundan...— yumruğını sıqıp, körsetti.
 
